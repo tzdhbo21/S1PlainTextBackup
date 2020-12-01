@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 20:10** 
+> ## **本文件最后更新于2020-12-01 22:10** 
 
 
 
@@ -28711,6 +28711,25 @@ wtm怕不是娃都要有了还懵懂青涩呢，还不如说一孕傻三年
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 深渊萃取| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -28790,6 +28809,337 @@ wtm怕不是娃都要有了还懵懂青涩呢，还不如说一孕傻三年
 
 刚看凛姨突然想起来这个胸口呼吸起伏的简单特效其他人怎么很少见用</blockquote>
 露露初配信就很明显胸口起伏吧
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 19481#       发表于 2020-12-1 20:13
+
+
+
+
+胸口的欺起伏应该每个人都有做吧
+就葛葉每次离开摄像头的时候都能观察到又有在“呼吸”
+叶也是，就是他每次live2d都放在胸口以上只有少数的时候能看到<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 19482#       发表于 2020-12-1 20:21
+
+
+
+
+叶喜欢上了派蒙……
+中配的声音
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19483#       发表于 2020-12-1 20:23
+
+
+
+
+快进到多多poi叶师加个翻译联动
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 19484#       发表于 2020-12-1 20:25
+
+
+
+
+c酱说国内主播一个舰长扣税后能到手60，不知道国外主播什么情况
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 19485#       发表于 2020-12-1 20:29
+
+
+
+
+秃头c那种直签B站的抽成是三分之二，但是相对的有一定底薪和资源推送
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19486#       发表于 2020-12-1 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579440&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-1 20:08</a>
+
+露露初配信就很明显胸口起伏吧</blockquote>
+露皇打游戏长期只露个肩膀导致不仔细看注意不到，只有杂谈时才能想起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 19487#       发表于 2020-12-1 20:38
+
+
+
+
+774的2D和3D一直都是挺质量保证的，2D面捕够灵敏，3D够精细
+
+说到底，比起大学生创业项目和不知名小技术公司，上市的大广告公司的家底当然更厚实
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 19488#       发表于 2020-12-1 20:41
+
+
+
+
+夸凸待在ppt环节出现了那个声音<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 19489#       发表于 2020-12-1 20:41
+
+
+
+
+有趣的来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19490#       发表于 2020-12-1 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">夸这生日凸待，氛围多少有点尴尬的，目前顺序心心。。。五期生全员。。。miko。。。。。。。。然后是小天使带着的章鱼烧（fh）组（tskk没报名，但人确实在的）。。。。。
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 19491#       发表于 2020-12-1 20:43
+
+
+
+
+有啥好尴尬的，温暖大家庭不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 19492#       发表于 2020-12-1 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独轮车都守着蛆呢
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 19493#       发表于 2020-12-1 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579672&amp;ptid=1969498" target="_blank">BonkoraKKK 发表于 2020-12-1 20:38</a>
+774的2D和3D一直都是挺质量保证的，2D面捕够灵敏，3D够精细
+
+说到底，比起大学生创业项目和不知名小技术公司 ...</blockquote>
+774出道时用的是虹app，现在是不是就不知道了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19494#       发表于 2020-12-1 20:45
+
+
+
+
+大亏有点巨魔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19495#       发表于 2020-12-1 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尴尬说的是和之前那些不太熟的感觉，说点crew可能不愿意接受的，目前这些人里和fh组的氛围反倒是最好最热闹的。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 19496#       发表于 2020-12-1 20:48
+
+
+
+
+看着舔狗舔到最后一无所有还是最爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 19497#       发表于 2020-12-1 20:48
+
+
+
+
+问题来了，刚才的人声里面龙出现了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19498#       发表于 2020-12-1 20:49
+
+
+
+
+这有啥尴尬的 第一次看夸宝直播吗
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 19499#       发表于 2020-12-1 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙在的 笑声都听到了
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 19500#       发表于 2020-12-1 20:50
+
+
+
+
+听到的是虫是有出声的
+
+syl
+
+486本音还挺低的
 
 
 

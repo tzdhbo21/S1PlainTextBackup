@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 14:17** 
+> ## **本文件最后更新于2020-12-01 22:17** 
 
 
 
@@ -16372,4 +16372,698 @@ syl 想要手机asmr可以吗
 
 
 
-                 
+
+
+-----
+
+####  elect  
+##### 3962#       发表于 2020-12-1 14:22
+
+
+
+
+华为手机的tc永远滴神，现在苹果手机tc没内味儿
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3963#       发表于 2020-12-1 14:29
+
+
+
+
+苹果手机的tc也肥肥的 不知道是苹果肥麦还是小麻自己肥了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3964#       发表于 2020-12-1 15:21
+
+
+
+
+战狼狂喜
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3965#       发表于 2020-12-1 15:30
+
+
+
+
+必是自己肥了，哭哭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3966#       发表于 2020-12-1 15:33
+
+
+
+
+我希望她今天播的时候能调下帧数
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 3967#       发表于 2020-12-1 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49576949&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2020-12-1 15:33</a>
+
+我希望她今天播的时候能调下帧数
+
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+她就从没用过60帧<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3968#       发表于 2020-12-1 18:51
+
+
+
+
+看来还没睡醒<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+好想偷偷潜入她被窝<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3969#       发表于 2020-12-1 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">快住手，她的被窝是我的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3970#       发表于 2020-12-1 19:18
+
+
+
+
+能搂着软fufu的小麻睡觉也太幸福了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3971#       发表于 2020-12-1 19:22
+
+
+
+
+天气冷了，需要小麻帮我暖床<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3972#       发表于 2020-12-1 19:29
+
+
+
+
+太冷了起不来了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3973#       发表于 2020-12-1 19:59
+
+
+
+
+居然在闹钟响之前醒了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3974#       发表于 2020-12-1 20:01
+
+
+
+
+b博，北京21点开播
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3975#       发表于 2020-12-1 20:01
+
+
+
+
+9点播还行
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3976#       发表于 2020-12-1 20:17
+
+
+
+
+别去！她被窝味大！
+
+
+
+
+
+
+
+-----
+
+####  U2FsdGVk  
+##### 3977#       发表于 2020-12-1 20:33
+
+
+
+
+搂着大骨架天空树入睡晚上必被硌醒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3978#       发表于 2020-12-1 20:35
+
+
+
+
+搂着？一脚给你蹬地上！
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3979#       发表于 2020-12-1 20:39
+
+
+
+
+笑死， 你手够长环绕她吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3980#       发表于 2020-12-1 20:48
+
+
+
+
+味大？那不是更好吗？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3981#       发表于 2020-12-1 20:58
+
+
+
+
+让我把有味道的地方舔干净就好了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3982#       发表于 2020-12-1 21:09
+
+
+
+
+幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vegetable  
+##### 3983#       发表于 2020-12-1 21:12
+
+
+
+
+为什么我不是女粉 ！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3984#       发表于 2020-12-1 21:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还要能出cos的精致女粉才行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3985#       发表于 2020-12-1 21:24
+
+
+
+
+看得血压高<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3986#       发表于 2020-12-1 21:24
+
+
+
+
+主播lol水平还有很大的提升空间
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 3987#       发表于 2020-12-1 21:26
+
+
+
+
+30帧特效还这么低，她是把强强电脑卖了么
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3988#       发表于 2020-12-1 21:28
+
+
+
+
+不要高看这女人对电脑的了解程度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 3989#       发表于 2020-12-1 21:28
+
+
+
+
+单纯的不会用可能性更大点
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3990#       发表于 2020-12-1 21:29
+
+
+
+
+因为用了live2d所以才那么卡吧
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3991#       发表于 2020-12-1 21:31
+
+
+
+
+太菜了，太菜了
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3992#       发表于 2020-12-1 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">挂在后台血压就不会高
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3993#       发表于 2020-12-1 21:43
+
+
+
+
+你是不是每天对着亭子冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3994#       发表于 2020-12-1 21:44
+
+
+
+
+你麻喜欢女人又一力证
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3995#       发表于 2020-12-1 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3996#       发表于 2020-12-1 21:46
+
+
+
+
+别对女人发情了， 对男人发情好吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  czkt615477  
+##### 3997#       发表于 2020-12-1 21:46
+
+
+
+
+初见，主播曹粉吗（
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3998#       发表于 2020-12-1 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">这个版本玩adc，你麻就是M，我发现了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3999#       发表于 2020-12-1 21:48
+
+
+
+
+有人能直球问问你麻是蕾丝么
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4000#       发表于 2020-12-1 21:50
+
+
+
+
+我有机会了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4001#       发表于 2020-12-1 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">这问题不是大半年前早就问过了吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4002#       发表于 2020-12-1 22:01
+
+
+
+
+“这就是企业的努力！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然实际上是在自夸玩“神乐公司”梗，但看上去总觉得有丶yygq啊（）
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4003#       发表于 2020-12-1 22:12
+
+
+
+
+她lol的延迟怎么比我开加速器还高啊
+
+我玩日服游戏延迟就30几 她延迟50 怕不是不在本土(
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4004#       发表于 2020-12-1 22:15
+
+
+
+
+问就是日企拉胯
+
+
+
+
+
+                
