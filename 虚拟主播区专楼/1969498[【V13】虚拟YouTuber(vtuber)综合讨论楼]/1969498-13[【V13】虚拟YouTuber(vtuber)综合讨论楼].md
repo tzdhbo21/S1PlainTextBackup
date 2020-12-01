@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 16:10** 
+> ## **本文件最后更新于2020-12-01 18:09** 
 
 
 
@@ -27637,4 +27637,645 @@ https://twitter.com/Anna_Kojo/status/1333564014199144450
 
 
 
-  
+
+
+-----
+
+####  IDIDIDID  
+##### 19415#       发表于 2020-12-1 16:11
+
+
+
+
+这又是🌈又是gender does not matter的，要不然就抽一批LGBTQ正好五张用PC压死物化女性的杏生活算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19416#       发表于 2020-12-1 16:15
+
+
+
+[https://panora.tokyo/archives/14546](https://panora.tokyo/archives/14546)
+
+ミヤマン企划公开
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19417#       发表于 2020-12-1 16:23
+
+
+
+
+时代变了，看牛姨种田，boss放个陨石评论栏全在刷钟离<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19418#       发表于 2020-12-1 16:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 啊这 不会以后不懂原审跟不上评论区日本人的梗吧  。。。  MHY WSLNM  
+
+日本人行不行啊 
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 19419#       发表于 2020-12-1 16:31
+
+
+
+
+774除了两个新人，剩下的全员3d了吧？真要20号人扔到同一个舞台上那还挺唬人的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19420#       发表于 2020-12-1 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577513&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-1 16:29</a>
+
+啊这 不会以后不懂原审跟不上评论区日本人的梗吧  。。。  MHY WSLNM  
+
+日本人行不行啊  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在入坑还来得及，亚服可以加咱好友喔
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 19421#       发表于 2020-12-1 16:37
+
+
+
+
+叶师五点马上开抽钟离，欢迎围观<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19422#       发表于 2020-12-1 16:38
+
+
+
+
+不准原神<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+yysy，小鬼哪里都有，只要一个人刷其他人也开始了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 19423#       发表于 2020-12-1 16:38
+
+
+
+
+后知后觉 原来一直没关注的VShojo的CEO是 前Twitch创办人，HoloEN NijiEN 玩个锤子
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19424#       发表于 2020-12-1 16:48
+
+
+
+
+vshojo这种美国UPD8  每个人改怎么发展还是怎么发展  和别的企业势也不会怎么冲突。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19425#       发表于 2020-12-1 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577575&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-1 16:37</a>
+
+叶师五点马上开抽钟离，欢迎围观</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">池子6点才开啊喂
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19426#       发表于 2020-12-1 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577684&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-1 16:48</a>
+
+vshojo这种美国UPD8  每个人改怎么发展还是怎么发展  和别的企业势也不会怎么冲突。 ...</blockquote>
+后面出的龙娘皮吊打前面的。。。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19427#       发表于 2020-12-1 16:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577743&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-1 16:53</a>
+
+后面出的龙娘皮吊打前面的。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 目前没看出他要更新每个人的皮，那个新出的皮确实比之前的好多了，但是难道不是先前那些自带的太拉了么。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19428#       发表于 2020-12-1 16:55
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gl8gifdlesg20760b4b2d.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19429#       发表于 2020-12-1 16:56
+
+
+
+
+快进到774招了日英双语的人开早安774干翻木口
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19430#       发表于 2020-12-1 16:59
+
+
+
+
+龙娘新皮看看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+我只知道有几个挺拉胯的皮
+
+
+
+
+
+
+
+-----
+
+####  倒影_  
+##### 19431#       发表于 2020-12-1 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577590&amp;ptid=1969498" target="_blank">2black 发表于 2020-12-1 16:38</a>
+后知后觉 原来一直没关注的VShojo的CEO是 前Twitch创办人，HoloEN NijiEN 玩个锤子
+
+  ...</blockquote>
+他在twitch玩他的，holoen和nijien在油管玩自己的，这有什么影响吗
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19432#       发表于 2020-12-1 17:00
+
+
+
+
+干翻杏还行，运营水准真不配真不配
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 19433#       发表于 2020-12-1 17:05
+
+
+
+
+LiLYPSE这个企划是不是凉了？油管一个投稿都没有，推特只有10/4在tif出场的时候发了几条推，之后就再也没动静了
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 19434#       发表于 2020-12-1 17:16
+
+
+
+
+VShojo 也是主要在油管发展，主要是被人EN是VShojo的主场，3D棚、活动场地、CEO人脉，这方面相比HoloEN还有NijiEN的资源相较与充足吧
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19435#       发表于 2020-12-1 17:21
+
+
+
+
+虽然知道是因为联动的缘故，但...<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/01/172058sderd9d9dd4edle3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>171941.jpg</strong> (270.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-1 17:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 19436#       发表于 2020-12-1 17:24
+
+
+
+
+cover的技术的确就是技了个寂寞啊
+
+最开始它所谓技术也就是那个基于vive的费拉不堪的系统吧
+
+估计堆cover仓库里灰尘几厘米厚了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19437#       发表于 2020-12-1 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来羊真的是弱智，回了nga的拟态id二期生。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19438#       发表于 2020-12-1 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">奴狂喜（错乱）
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 19439#       发表于 2020-12-1 17:33
+
+
+
+
+🎣钓上来一只羊😨
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19440#       发表于 2020-12-1 17:34
+
+
+
+
+老人会猫宫这躲角落孵蛋也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 19441#       发表于 2020-12-1 17:36
+
+
+
+
+看了些nyanners的切片，感觉她很强。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19442#       发表于 2020-12-1 17:37
+
+
+
+
+也别看到个推特简介写着“founding team”就开始吹啥“ceo人脉”吧...去查了圈gunrun是个转做平台的早期sc2解说（接近十年前了），twitch co founder中没他，liquipedia的记载也是employed by twitch，看起来像个完全失败了的黄旭东，怎么成创始人了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19443#       发表于 2020-12-1 17:45
+
+
+
+
+Nyanners毛妹吧，美好的年轻肉体(◡ ω ◡)
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 19444#       发表于 2020-12-1 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577295&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-1 16:06</a>
+
+A.I.channel四周年纪念配信开了
+
+
+https://www.youtube.com/watch?v=lVmq_Vtzh0c</blockquote>
+没注意还给了俩推文
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gl8i575wkfj20i20r4jx4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19445#       发表于 2020-12-1 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49578202&amp;ptid=1969498" target="_blank">YODOboi 发表于 2020-12-1 17:45</a>
+Nyanners毛妹吧，美好的年轻肉体(◡ ω ◡)</blockquote>
+........   她年龄很大的 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 19446#       发表于 2020-12-1 17:56
+
+
+
+
+你们木口的弱智是不是太多了啊，傻希火鸡wtm
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 19447#       发表于 2020-12-1 18:04
+
+
+
+
+挺好啊
+
+酸酸甜甜的懵懂青涩中和掉某些人的姨味啊
+
+
+
+
+
+
+
+-----
+
+####  mmmrm  
+##### 19448#       发表于 2020-12-1 18:04
+
+
+
+
+叶师第一发就出货了。。。所以他抽完了B站播啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 19449#       发表于 2020-12-1 18:05
+
+
+
+
+wtm笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DenkiBran  
+##### 19450#       发表于 2020-12-1 18:07
+
+
+
+
+你圈以后改钓鱼叫钓羊得了，弱智公司和弱智liver真是绝配。
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 19451#       发表于 2020-12-1 18:08
+
+
+
+
+有趣的现象：
+爱白猫葵四人联动fg，在油管大家数据都差不多，最少的葵900同接，最多的爱也就3000同接。
+但是b站转播就不一样，大葵900人气，猫宫2w人气，绊爱22w人气，差了几百倍
+
+
+
+
+
+ 
