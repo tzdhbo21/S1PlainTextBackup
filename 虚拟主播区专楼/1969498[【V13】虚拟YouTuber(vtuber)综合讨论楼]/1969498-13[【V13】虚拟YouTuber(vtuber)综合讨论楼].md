@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 12:20** 
+> ## **本文件最后更新于2020-12-01 14:09** 
 
 
 
@@ -26868,4 +26868,459 @@ https://www.youtube.com/watch?v=eA2nc78SeEY
 
 
 
-    
+
+
+-----
+
+####  OldGlory  
+##### 19370#       发表于 2020-12-1 12:21
+
+
+
+
+虹en要求一周至少播3次？本社有这个频率吗？还有正规军虹cn找到人了吗？
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19371#       发表于 2020-12-1 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">hen的末日要到了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19372#       发表于 2020-12-1 12:25
+
+
+
+
+hololive完蛋啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 19373#       发表于 2020-12-1 12:25
+
+
+
+
+连位都没有的海外nijinigger不配说“德不配位”吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19374#       发表于 2020-12-1 12:27
+
+
+
+
+倒是虹加速EN出道的话本社确实近期都不抽了吧？一百多号人已经太多了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19375#       发表于 2020-12-1 12:28
+
+
+
+
+倒是虹加速EN出道的话本社确实近期都不抽了吧？一百多号人已经太多了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19376#       发表于 2020-12-1 12:28
+
+
+
+
+BSYL：猜一下虹EN第一批有没有男人
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 19377#       发表于 2020-12-1 12:28
+
+
+
+<blockquote>OldGlory 发表于 2020-12-1 12:21
+虹en要求一周至少播3次？本社有这个频率吗？还有正规军虹cn找到人了吗？</blockquote>
+一期生进来的时候虹的要求就是日播了，嗯，"日播"……
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 19378#       发表于 2020-12-1 12:29
+
+
+
+
+en早该被瓜分了，还搁着一家独大呢
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19379#       发表于 2020-12-1 12:30
+
+
+
+
+那还不如猜一下虹en男人是不是黑哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 19380#       发表于 2020-12-1 12:31
+
+
+
+
+其实twitch已经有一堆个人势在播了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 19381#       发表于 2020-12-1 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575108&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-1 12:21</a>
+虹en要求一周至少播3次？本社有这个频率吗？还有正规军虹cn找到人了吗？</blockquote>
+一二期生还是日播呢
+
+你看现在有哪个是日播的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19382#       发表于 2020-12-1 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575245&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-1 12:32</a>
+
+一二期生还是日播呢
+
+
+你看现在有哪个是日播的</blockquote>
+那彩虹都3年了也该正规起来了。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 19383#       发表于 2020-12-1 12:41
+
+
+
+ 本帖最后由 AloissiolA 于 2020-12-1 12:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575259&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-1 12:34</a>
+
+那彩虹都3年了也该正规起来了。</blockquote>
+19组和20组要求也差不多，但还是一堆摸鱼一摸一周的、还有个摸了一年的。还是看peer pressure，没有奋斗逼大家就都可以摸鱼
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19384#       发表于 2020-12-1 12:44
+
+
+
+
+桃铁开局显示的那个四个人的地址 不会是根据ip地址来的吧？
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19385#       发表于 2020-12-1 12:51
+
+
+
+
+虹en我觉得还是挺有希望的吧，因为不管怎么样，在吸女粉的能力上，虹是吊打木口的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19386#       发表于 2020-12-1 12:51
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-1 13:01 编辑 
+
+ID二期也有PV，以后是标配了咯。
+
+
+syl：
+
+到时候看一下虹EN涨粉情况倒是可以判断出到底是虹不行还是单纯的日本人不行。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 19387#       发表于 2020-12-1 12:55
+
+
+
+
+招人专门说了男女不限，虹en一开始肯定有男人，是不是尼哥就不知道了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19388#       发表于 2020-12-1 13:05
+
+
+
+ 本帖最后由 Vneet 于 2020-12-1 13:07 编辑 
+
+HEN后NEN也要来啦！
+
+估计也是二三月后的事，说不定HEN2能跟NEN1打个对台
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 19389#       发表于 2020-12-1 13:06
+
+
+
+
+灵儿姐b博动啦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 19390#       发表于 2020-12-1 13:11
+
+
+
+
+前U社搞了个类似ickr梦图形的1对1谈话VTB企划，看来资本认为这个是有利可图的。
+[https://prtimes.jp/main/html/rd/p/000000029.000044525.html](https://prtimes.jp/main/html/rd/p/000000029.000044525.html)<blockquote>IP開発事業を行う株式会社Brave group（本社所在地：品川区、代表取締役　野口圭登）は、同社の構想である「エンタメ（IP）3.0構想」の第2弾発表として、VTuberとファンが1対1でビデオ通話ができる「virtualtalk（バーチャルトーク）」の事前登録の受付を開始いたします。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19391#       发表于 2020-12-1 13:11
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gl8a14wsblg20b40cokjp.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kamen  
+##### 19392#       发表于 2020-12-1 13:15
+
+
+
+
+本来立本就有一对一电话陪聊的业务的，好像收费还挺高，现在不过是给套个皮，万物皆可套皮
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19393#       发表于 2020-12-1 13:19
+
+
+
+
+灵姐推没动，b动了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19394#       发表于 2020-12-1 13:43
+
+
+
+
+彩虹en来咯<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19395#       发表于 2020-12-1 13:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹招en之前能不能把名字换一换阿，
+
+
+人家路人白皮猴子还以为你这是“那种”组织呢
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 19396#       发表于 2020-12-1 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">虹没有播几次的规定吧？我记得有一段时间一个月都没看到本间向日葵的油管频道动过
+
+
+
+
+
+   
