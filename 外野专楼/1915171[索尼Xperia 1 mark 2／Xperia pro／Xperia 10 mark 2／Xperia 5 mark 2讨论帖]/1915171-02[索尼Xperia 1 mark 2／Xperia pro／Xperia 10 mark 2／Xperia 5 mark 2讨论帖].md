@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-11-26 12:02** 
+> ## **本文件最后更新于2020-12-01 12:03** 
 
 
 
@@ -7182,15 +7182,7 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ####  Nanachi  
 ##### 1854#       发表于 2020-11-3 19:55
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明年双十一我再来看看
-
-—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9085,15 +9077,687 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ####  Nanachi  
 ##### 1952#       发表于 2020-11-26 11:43
 
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
-退货机还行，5ii的二手降价到4000了吗
+-----
 
-—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
+####  DGIL  
+##### 1953#       发表于 2020-11-26 14:56
 
 
-                                  
+
+
+咸鱼有没有比较靠谱的分辨方法或者卖家，？确实蛮多的。。退货机的话有心动的
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1954#       发表于 2020-11-26 15:50
+
+
+
+<blockquote>leystage 发表于 2020-11-26 11:24
+跟相机一个逻辑
+
+
+阿拉伯数字表示高中低端，1高端5次之10中低端
+</blockquote>
+懂了，谢谢
+
+那我也等等看III
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 1955#       发表于 2020-11-26 15:53
+
+
+
+
+今年等Ⅲ，明年等Ⅳ，永远都在等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1956#       发表于 2020-11-26 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49526701&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-11-26 15:53</a>
+
+今年等Ⅲ，明年等Ⅳ，永远都在等</blockquote>
+手持XZ1C除了容量太小其他都还在正常运作啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 1957#       发表于 2020-11-26 17:01
+
+
+
+
+话说XZ2C升安卓10以后有没有打开volte的办法？
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1958#       发表于 2020-11-26 17:34
+
+
+
+<blockquote>噗哩噗 发表于 2020-11-26 16:51
+手持XZ1C除了容量太小其他都还在正常运作啊</blockquote>
+没事儿，等等党会笑到最后。就算每年 III 索尼脑子被门夹了给搞砸了，也能实惠价格入 II，亏不了
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 1959#       发表于 2020-11-27 00:29
+
+
+
+
+我就是从xz1c转5m2的，感觉还是太大了，拿不住，还是xz1c拿着舒服……
+
+
+
+
+
+
+
+-----
+
+####  lc122448  
+##### 1960#       发表于 2020-11-27 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49532238&amp;ptid=1915171" target="_blank">wizardasd 发表于 2020-11-27 00:29</a>
+我就是从xz1c转5m2的，感觉还是太大了，拿不住，还是xz1c拿着舒服……</blockquote>
+就看这波苹果出mini了会不会带动市场风向，68毫米宽还是大了
+要是苹果12mini大暴死，我估计以后小屏手机环境越来越困难
+我都开始研究淘宝的山寨小屏机了，别说还真挺好看摄像头也不突出，也够小，还有的能双卡双待
+就是运存内存有点小
+
+—— 来自 vivo V1829A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1961#       发表于 2020-11-27 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49532238&amp;ptid=1915171" target="_blank">wizardasd 发表于 2020-11-27 00:29</a>
+
+我就是从xz1c转5m2的，感觉还是太大了，拿不住，还是xz1c拿着舒服……</blockquote>
+我之前就是三星note太大摔坏了转投xz1c，就是32g现在真的不够用，什么都不敢装
+
+之前有消息说明年又有c了？
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1962#       发表于 2020-11-27 01:41
+
+
+
+
+想问一下马克兔有没有比较推荐的贴膜呢？3d全覆盖什么的一堆。。不知道咋买。。
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1963#       发表于 2020-11-27 05:38
+
+
+
+ 本帖最后由 噗哩噗 于 2020-11-27 07:28 编辑 
+
+英亚原来折到599了，欧版系统和港版有什么不同吗
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 1964#       发表于 2020-11-27 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49532719&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-27 01:41</a>
+
+想问一下马克兔有没有比较推荐的贴膜呢？3d全覆盖什么的一堆。。不知道咋买。。 ...</blockquote>
+小小鱼雷的玻璃前膜，尺寸挺完美的
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 1965#       发表于 2020-11-28 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49537950&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-27 14:41</a>
+
+小小鱼雷的玻璃前膜，尺寸挺完美的</blockquote>
+黑边膜，屏幕会小一点点
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 1966#         楼主| 发表于 2020-11-28 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49525936&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-26 14:56:01</a>
+咸鱼有没有比较靠谱的分辨方法或者卖家，？确实蛮多的。。退货机的话有心动的 ...</blockquote>退货机就那么几家卖的啊……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 1967#       发表于 2020-11-28 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49544723&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-11-28 01:19</a>
+
+黑边膜，屏幕会小一点点</blockquote>
+我前天刚贴，100块的做的很准，没贴歪的话一点不遮
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1968#       发表于 2020-11-28 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49544727&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-11-28 01:20</a>
+
+退货机就那么几家卖的啊……
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+买了5888的
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1969#       发表于 2020-11-28 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49544738&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-28 01:22</a>
+
+我前天刚贴，100块的做的很准，没贴歪的话一点不遮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">好，，一口气买了前膜后膜镜头膜。。
+
+自己贴感觉手残。。有那个贴膜神器会不会好一点？
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 1970#       发表于 2020-11-28 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49546556&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-28 11:24</a>
+
+好，，一口气买了前膜后膜镜头膜。。
+
+自己贴感觉手残。。有那个贴膜神器会不会好一点？ ...</blockquote>
+买了没用实际操作很容易中途位移，反正就主要怕灰，去尘少的浴室慢慢对准再压实就好
+
+
+
+
+
+
+
+-----
+
+####  失眠的考拉  
+##### 1971#       发表于 2020-11-28 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49546549&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-28 11:23</a>
+
+买了5888的</blockquote>
+猛士，看了半天不敢下手，等回馈
+
+
+
+
+
+
+
+-----
+
+####  圣斗士美羽  
+##### 1972#       发表于 2020-11-28 23:04
+
+
+
+
+SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83元含税直邮
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1973#       发表于 2020-11-28 23:50
+
+
+
+ 本帖最后由 DGIL 于 2020-11-28 23:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49552125&amp;ptid=1915171" target="_blank">失眠的考拉 发表于 2020-11-28 22:51</a>
+
+猛士，看了半天不敢下手，等回馈</blockquote>
+我也看了好久。。。从山东到广州都有卖的
+
+有退货给某些商家的有个人出的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正咸鱼买感觉都差不多，能给看票最好
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉为了要便宜1000也是挺拼的。。感觉直接买新的可能好点
+
+外观倒是容易看。。应该没啥内部系统之类的毛病吧。。
+
+。也不是什么热门机。。
+
+
+
+
+
+
+
+-----
+
+####  失眠的考拉  
+##### 1974#       发表于 2020-11-29 10:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49552599&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-28 23:50</a>
+
+我也看了好久。。。从山东到广州都有卖的
+
+有退货给某些商家的有个人出的
+
+反正咸鱼买感觉都差不多， ...</blockquote>
+劝你百度下关键词，我感觉是不靠谱，还不如再等等
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1975#       发表于 2020-11-29 12:23
+
+
+
+<blockquote>失眠的考拉 发表于 2020-11-29 10:15
+劝你百度下关键词，我感觉是不靠谱，还不如再等等</blockquote>
+能私一下关键词看看么。。谢谢
+
+
+
+
+
+
+
+-----
+
+####  法皇干政  
+##### 1976#       发表于 2020-11-29 17:21
+
+
+
+
+手持G8142 XZP的来问一下，这港版X1 II支持移动5G不？
+
+
+
+
+
+
+
+-----
+
+####  失眠的考拉  
+##### 1977#       发表于 2020-11-29 19:49
+
+
+
+<blockquote>DGIL 发表于 2020-11-29 12:23
+能私一下关键词看看么。。谢谢</blockquote>
+咸鱼+京东七日，反正都说水深
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 1978#       发表于 2020-11-30 20:54
+
+
+
+
+话说x5m2没有自带的日历应用吗？
+今天发现更新了个“中国节假日”的功能，但是没日历不知道要怎么用啊……
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  9-11-2001  
+##### 1979#       发表于 2020-12-1 00:01
+
+
+
+
+上一台索尼还是xz1c，那个确实没法用。。问下国行的话，能锁住后台吗？微信在后台列表里杀掉了能收到消息吗？各种需要软件支持的手环手表，能稳定使用么
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1980#       发表于 2020-12-1 00:15
+
+
+
+<blockquote>引用第1975楼法皇干政于2020-11-29 17:21发表的  :
+
+手持G8142 XZP的来问一下，这港版X1 II支持移动5G不？</blockquote>
+支持不全 频段缺失
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1981#       发表于 2020-12-1 00:18
+
+
+
+<blockquote>引用第1978楼9-11-2001于2020-12-01 00:01发表的  :
+
+上一台索尼还是xz1c，那个确实没法用。。问下国行的话，能锁住后台吗？微信在后台列表里杀掉了能收到消......</blockquote>
+安卓9那代就能锁住了 …现在这代的节电优能直接算是黑阈类型的了 
+
+
+微信国行重来就加不进去 节电优能里面根本下不了杀不掉的 … 要自己加入电池管理器杀 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  9-11-2001  
+##### 1982#       发表于 2020-12-1 00:24
+
+
+
+<blockquote>Cray 发表于 2020-12-1 00:18
+安卓9那代就能锁住了 …现在这代的节电优能直接算是黑阈类型的了 
+
+</blockquote>
+换句话说国行的话微信就是系统级白名单，启动了就能收到消息是吧。。。手环类软件可以通过后台列表锁住，然后电池之类的设置一番达到稳定后台的是吗？
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 1983#       发表于 2020-12-1 00:37
+
+
+
+
+所以这个“中国节假日”功能更新的截图里这个日历到底是什么应用？
+我的5Ⅱ为啥没有啊……
+<img src="https://p.sda1.dev/0/80cabbcdd3b01c4c300b61e500732ca1/IMG_CMP_174551901.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1984#       发表于 2020-12-1 00:39
+
+
+
+<blockquote>引用第1981楼9-11-2001于2020-12-01 00:24发表的  :
+
+引用:Cray 发表于 2020-12-1 00:18安卓9那代就能锁住了 …现在这代的节电优能直接......</blockquote>
+不管他就常驻了
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 1985#       发表于 2020-12-1 01:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用了段时间了,感觉就3个问题
+
+1是有人打电话会调用一次系统提示音,感觉很烦...
+
+2是没有自带日历/天气预报...华为自带那个感觉还挺好的
+
+3是这指纹按键位置也太好了.....我喜欢开会或者无聊时候拿在手上转就会各种解锁误触
+
+
+另外转手机时候好像那个红外检测显示时间的功能频繁触发时可能会导致屏幕偶尔闪一下 
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1986#       发表于 2020-12-1 07:53
+
+
+
+<blockquote>引用第1984楼逆袭的黑月于2020-12-01 01:20发表的  :
+
+用了段时间了,感觉就3个问题1是有人打电话会调用一次系统提示音,感觉很烦...2是没有自带日历/天气......</blockquote>
+日历 天气 前代都有 …有app就能直接装
+
+不知道为什么这次没有预装 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  失眠的考拉  
+##### 1987#       发表于 2020-12-1 10:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天叠加天龙人券京东7099，看来月底进6500不是梦
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 1988#       发表于 2020-12-1 11:00
+
+
+
+
+这个日历app在哪里下<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 

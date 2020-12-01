@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-11-30 10:28** 
+> ## **本文件最后更新于2020-12-01 12:29** 
 
 
 
@@ -11257,4 +11257,4932 @@ syl，
 
 
 
-                           
+
+
+-----
+
+####  专业划水人员  
+##### 3663#       发表于 2020-11-30 10:32
+
+
+
+
+新时代容不下旧时代的产物吗？现在其他v也应该有转播吧。
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3664#       发表于 2020-11-30 10:36
+
+
+
+
+昨天居然没有tc
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3665#       发表于 2020-11-30 10:49
+
+
+
+
+因为转播有影响力的杏已经被清掉了。剩下的除了你咩就是主要在B活动的vup，你咩就是旧时代大地主<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3666#       发表于 2020-11-30 10:54
+
+
+
+
+都被清算了天狗全都上路灯还大地主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+让你不接受改造<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3667#       发表于 2020-11-30 10:56
+
+
+
+
+以前转播man还被集体通知过要写测试直播而不能写转播的 只能说时代的确变了
+
+
+
+
+
+
+
+-----
+
+####  dark_lemon  
+##### 3668#       发表于 2020-11-30 10:57
+
+
+
+
+那可以写上测试直播吧 写测试直播跟写转播应该一样。
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3669#       发表于 2020-11-30 11:04
+
+
+
+
+我是觉得可以写【转播】然后后面跟原标题 我看很多双开的v都是这样的 主要是咩没有预定说明 新人直接点开直播间不知道是转播 前几天还看到虚空点歌sc
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 3670#       发表于 2020-11-30 11:09
+
+
+
+
+没有必要，测试那个时间段更特殊
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3671#       发表于 2020-11-30 11:15
+
+
+
+
+加两个字就能少很多可能的节奏(现在还没起) 也没有损失
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3672#       发表于 2020-11-30 11:18
+
+
+
+
+日常祈忧
+
+官组和马内酱你们看见了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3673#       发表于 2020-11-30 11:18
+
+
+
+
+这节奏起过了，下一个
+
+              
+
+什v什组，筛选观众有一手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3674#       发表于 2020-11-30 11:24
+
+
+
+
+现在节奏是  在翻译推文动态发评论自嗨一下，都要被正义执法。我其他v都取关了，他们翻译动态没人留言吗？
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3675#       发表于 2020-11-30 11:29
+
+
+
+
+没那么严重吧 翻译推文自嗨的没看见有人执法啊
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3676#       发表于 2020-11-30 11:37
+
+
+
+
+那是接受改造的积极分子在帮助我们啊，不要不识抬举<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3677#       发表于 2020-11-30 11:41
+
+
+
+
+天狗居然不接受新时代的改造，太ky了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 3678#       发表于 2020-11-30 11:45
+
+
+
+
+翻译推文动态自嗨？怎么个自嗨法
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3679#       发表于 2020-11-30 11:54
+
+
+
+
+类似于吃桃啥的吧，不过我印象最深的是几天前<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">画师热评下面的一个楼中楼说，“建议用日文在推上回复呢”，“人发的推特，请天狗不要自欺欺人”赞还挺多的，现在不知道评论还在不在
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3680#       发表于 2020-11-30 11:56
+
+
+
+
+这也太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3681#       发表于 2020-11-30 11:58
+
+
+
+ 本帖最后由 专业划水人员 于 2020-11-30 12:15 编辑 
+
+说天狗不要在翻译推文的动态下面评论！推上的东西不是跟你们说的，不要虚空舔yhm。这样自嗨又不影响别人，这都要带真无语。其他v的组不翻译推文了？
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3682#       发表于 2020-11-30 12:08
+
+
+
+
+看来他们推的是天狗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3683#       发表于 2020-11-30 12:10
+
+
+
+
+咩是crew，所以crew推是天狗，那么天狗推是什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3684#       发表于 2020-11-30 12:10
+
+
+
+
+纠结这种批话干啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人就是找角度隔应你罢了，不过现在搞事的也杀的差不多了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3685#       发表于 2020-11-30 12:10
+
+
+
+
+fleet两个，今天可能播不了了（跳票到明天
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3686#       发表于 2020-11-30 12:11
+
+
+
+
+我在咩官组下面没看到这样的评论啊 还是他们把别的v观众打成天狗了？
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3687#       发表于 2020-11-30 12:15
+
+
+
+
+与其杞忧这个，还不如担心下为什么粉丝量还在掉呢<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">掉到83.7了。
+以及在新时代人们普遍认为这女人罪大恶极的情况下，如何避免新入坑（如果还有的话）的人，能稍微持一点中立的眼光看问题，而不是上来先被科普一堆“历史”
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3688#       发表于 2020-11-30 12:16
+
+
+
+
+现在少了，跳的那几个拉黑了也清净，其实无所谓
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3689#       发表于 2020-11-30 12:18
+
+
+
+
+我看到的几个新入坑的都被科普了"历史" 但觉得无所谓 也就那样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3690#       发表于 2020-11-30 12:19
+
+
+
+
+掉就掉呗，事业民为什么为什么怎么还没死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“历史”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3691#       发表于 2020-11-30 12:20
+
+
+
+
+我就觉得他直播内容多一点好，老唱歌也腻了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3692#       发表于 2020-11-30 12:21
+
+
+
+
+明天就是lol，多看看她打游戏你会喜欢听歌的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3693#       发表于 2020-11-30 12:22
+
+
+
+
+我就喜欢看他打电动，原神除外
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3694#       发表于 2020-11-30 12:22
+
+
+
+
+这几天不都在打游戏吗 为啥不播出来啊
+
+还是说是在和不能被观众知道的人打游戏所以不播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3695#       发表于 2020-11-30 12:27
+
+
+
+
+为什么要和新人分享我的咩咩，我的狗狗已经被夺走一次了，我的小麻不能这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 3696#       发表于 2020-11-30 12:27
+
+
+
+
+怎么不能被观众知道了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那号被监视不是众所周知的吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3697#       发表于 2020-11-30 12:40
+
+
+
+
+小麻一定是和staff谈恋爱了，咩咩你眼界高一点啊，不要便宜了不知道哪里来的野小子好不好
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3698#       发表于 2020-11-30 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3699#       发表于 2020-11-30 12:42
+
+
+
+
+和小麻关系好的staff不是软软冰吗 给麻带糖带饭的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3700#       发表于 2020-11-30 12:50
+
+
+
+
+等等 那个带糖的她没说是软软冰 那个给糖的staff还在直播的时候发消息给她了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3701#       发表于 2020-11-30 13:00
+
+
+
+
+咩超可爱的！<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3702#       发表于 2020-11-30 13:01
+
+
+
+
+被阿b的staff收了，是不是就算嫁到中国来了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3703#       发表于 2020-11-30 13:02
+
+
+
+
+不要啊b不要啊b<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3704#       发表于 2020-11-30 13:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3705#       发表于 2020-11-30 13:04
+
+
+
+
+演唱会阿b的staff都不让进的 接触到的也是日本staff 说不定是日本staff故意搞坏设备 让麻伤心 然后自己装好人去安慰收服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3706#       发表于 2020-11-30 13:07
+
+
+
+
+真做到这一步的话，那我要怀疑你咩姐真的会脑控了（）
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3707#       发表于 2020-11-30 13:10
+
+
+
+
+黄毛staff以为自己pua了麻 其实一切都在麻的掌握之中 被pua的其实是黄毛staff 一年才见一次 还又要糖又要饭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3708#       发表于 2020-11-30 13:12
+
+
+
+
+你咩要是真的会脑控的话，她的脑控应该是属于无意识的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有意识的脑控的话你咩早就……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3709#       发表于 2020-11-30 13:16
+
+
+
+
+线下是不是玩弄男人的高手谁知道?<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3710#       发表于 2020-11-30 13:28
+
+
+
+
+兰太郎早告诉我们了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3711#       发表于 2020-11-30 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3712#       发表于 2020-11-30 13:28
+
+
+
+
+记得好像哪个v说过小麻很会使唤男人
+
+线上傻傻的 线下指不定是麻奇麻呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3713#       发表于 2020-11-30 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 3714#       发表于 2020-11-30 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻会魅惑之术，直播套皮无法施展
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3715#       发表于 2020-11-30 13:54
+
+
+
+
+套皮了都pua那么多天狗 不套皮就直接支配之恶魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3716#       发表于 2020-11-30 13:54
+
+
+
+
+所以说这样是不是可以打破你麻是坦克和小土妹的认知了
+这么会PUA的人线上只是装装小土妹和不懂世俗
+线下mkm，漂亮脸蛋完美身材、御姐软妹和成熟大姐姐声线信手拈来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3717#       发表于 2020-11-30 14:01
+
+
+
+
+善于利用自己的资本是好事啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3718#       发表于 2020-11-30 14:08
+
+
+
+
+仔细想想 其实线上就已经是mkm了
+
+mkm有忠诚的狗 小麻也有忠诚的天狗
+
+很多人想mkm死 很多anti也想小麻死
+
+mkm多次死后重生 小麻也经历了多次致命炎上后重生
+
+mkm姓ma 小麻也姓ma
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3719#       发表于 2020-11-30 14:09
+
+
+
+ 本帖最后由 Dualist彩 于 2020-11-30 14:11 编辑 
+
+你麻够可以了，把男人钓到手不听话的还会鲨掉，不像有些女人还要用假惺惺的营业吊着不放，小麻好狠的心
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3720#       发表于 2020-11-30 14:12
+
+
+
+
+mkm的狗有T0战力 小麻的天狗费拉不堪
+
+噔噔咚
+
+论证失败
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3721#       发表于 2020-11-30 14:43
+
+
+
+
+mkm是电锯恶魔的舔狗，麻 麻是海王天使的舔狗，论证大成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3722#       发表于 2020-11-30 14:52
+
+
+
+
+财布好像要发了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3723#       发表于 2020-11-30 15:01
+
+
+
+
+2号发货，好起来了
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3724#       发表于 2020-11-30 15:02
+
+
+
+
+想看看这工艺能好到哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 3725#       发表于 2020-11-30 15:56
+
+
+
+
+不指望
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3726#       发表于 2020-11-30 16:09
+
+
+
+
+n久没看番了，瞅了一眼你们说的魔女之旅，粉红蓝三人既视感太强，很难不脑补
+
+                       
+
+啊，我也要变得像贴贴人一样脑补了，咩咩救我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 3727#       发表于 2020-11-30 16:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">事故报告出了。总之就是电源跳闸把设备全搞炸了
+
+
+
+
+
+
+
+-----
+
+####  jim9  
+##### 3728#       发表于 2020-11-30 16:37
+
+
+
+ 本帖最后由 jim9 于 2020-11-30 16:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49567214&amp;ptid=1973472" target="_blank">llconforever 发表于 2020-11-30 16:31</a>
+
+事故报告出了。总之就是电源跳闸把设备全搞炸了</blockquote>
+这技术报告真是简单粗暴……
+
+所以这是一连串设备被击穿了吗
+
+
+（那么贵的设备电源都不做保护的吗  还是说插板坏掉了？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3729#       发表于 2020-11-30 16:37
+
+
+
+
+很有霓虹风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+补办内容还在拖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3730#       发表于 2020-11-30 16:40
+
+
+
+
+传真机.jpg
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3731#       发表于 2020-11-30 16:41
+
+
+
+
+断电保护器都不准备吗？？你们的设备真的值钱吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3732#       发表于 2020-11-30 16:43
+
+
+
+
+很日方，我解释扔这了，细节你不要在意
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 3733#       发表于 2020-11-30 16:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">按这公告没提到有备用设备，而且也无法播片吧
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 3734#       发表于 2020-11-30 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳闸爆了3台电脑，我怎么就觉得这么不真实呢
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3735#       发表于 2020-11-30 16:46
+
+
+
+
+快进到獐子岛
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3736#       发表于 2020-11-30 16:47
+
+
+
+ 本帖最后由 lovcavil 于 2020-11-30 16:56 编辑 
+
+20年前的电脑跳闸击穿我都信
+2020年。。。
+
+就算是跳闸，跳闸也是有原因。要把事故调查报告写成天灾也得写个什么天灾吧。
+这帮人估计也没能力做失效分析，验个设备尸体就完事了。
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 3737#       发表于 2020-11-30 16:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这报告糊弄阿b的吧，跳闸设备全炸也太离谱了
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 3738#       发表于 2020-11-30 16:52
+
+
+
+
+这是假的还能理解
+
+
+是真的就搞笑了
+
+现在连农村搞村村通电信盒都是防雷级，你一个大会场的强电路不配备电涌保护？
+
+强电路不配备就算了你工作室不配备UPS？
+
+
+工作室再不配备也就算了
+
+电脑电源你以为是上世纪那种垃圾呢 现在连电源都带短路保护器
+
+
+好 就算你用的是上世纪的电脑
+
+现在连变压器和排插都具备简单的防短路
+
+你总不能连排插都用上世纪的旧货吧
+
+
+
+求求你 是假的吧
+
+是真的我他妈现在就笑死在地板上
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3739#       发表于 2020-11-30 16:53
+
+
+
+
+真是跳闸崩烂一堆设备还需要等9天才出公告么，这就是之前说过的，长期合作企业之间的“私了”啊，随便找个借口做做样子就完事了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3740#       发表于 2020-11-30 16:53
+
+
+
+
+我只关心补办事宜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3741#       发表于 2020-11-30 16:55
+
+
+
+
+我也只是想看你咩再一次兴奋地唱歌的样子
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 3742#       发表于 2020-11-30 16:57
+
+
+
+
+麻了（指设备）
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 3743#       发表于 2020-11-30 16:58
+
+
+
+
+我觉得他们说的是有道理的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+就日本人那个抱团取暖和怕担责任的德性
+阿b要真下手追究责任人员 怕是以后整个相关业界没企业愿意和阿b合作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最后出来这个公告实质性私了 不要去想细节了 因为出细节就要有人担责 而日本人没一个人想担责
+
+还是多想想什么时候补办吧 这才是实在的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3744#       发表于 2020-11-30 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">....
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3745#       发表于 2020-11-30 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3746#       发表于 2020-11-30 17:00
+
+
+
+
+等补办就行了，别太纠结。怎么完场是阿b的事。
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3747#       发表于 2020-11-30 17:02
+
+
+
+
+日本人不行啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 3748#       发表于 2020-11-30 17:03
+
+
+
+
+日本人金棒小，确实不行
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3749#       发表于 2020-11-30 17:07
+
+
+
+
+大人的事情结束了，能把延期公告放出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 3750#       发表于 2020-11-30 17:11
+
+
+
+
+一眼假，停个电炸了所有的设备？随便了，反正快点补办
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3751#       发表于 2020-11-30 17:12
+
+
+
+
+日本人还在用20年甚至40年前以上的设备我肯定是信的
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 3752#       发表于 2020-11-30 17:12
+
+
+
+ 本帖最后由 LIPP 于 2020-11-30 17:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">得 线下变线上了
+我之前居然还有那么一点寄希望于阿b，真有你的啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3753#       发表于 2020-11-30 17:13
+
+
+
+
+我就知道，就这样吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3754#       发表于 2020-11-30 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3755#       发表于 2020-11-30 17:17
+
+
+
+
+线下无了，我破防了
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3756#       发表于 2020-11-30 17:18
+
+
+
+
+无了。没话说了
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3757#       发表于 2020-11-30 17:19
+
+
+
+ 本帖最后由 我想做mkm的舔狗 于 2020-11-30 17:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3758#       发表于 2020-11-30 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+果然嘛
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 3759#       发表于 2020-11-30 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就当一场正常直播吧
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 3760#       发表于 2020-11-30 17:24
+
+
+
+
+我还想看爱丽丝呢
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3761#       发表于 2020-11-30 17:25
+
+
+
+
+草 寄托希望于特定的对象or事物， 不管是什么， 都不得好死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+永远要有plan b， c，...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 3762#       发表于 2020-11-30 17:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3763#       发表于 2020-11-30 17:28
+
+
+
+
+行吧，就这样吧，本来的期待值也就这样了
+
+寄希望于未来吧
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3764#       发表于 2020-11-30 17:28
+
+
+
+
+还是难受，唉
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 3765#       发表于 2020-11-30 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信不信到时候线上直播也拉胯给你看
+
+
+老实说，最后放出来的那段彩排视频，渲染感觉也挺阴间的...建议不要抱太高期望
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3766#       发表于 2020-11-30 17:31
+
+
+
+
+令人害怕，我又想到现场大屏幕花屏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3767#       发表于 2020-11-30 17:31
+
+
+
+
+只有mea和天狗受伤的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3768#       发表于 2020-11-30 17:35
+
+
+
+
+越来越觉得霹雳霹雳是不是看咩好欺负啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3769#       发表于 2020-11-30 17:36
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-11-30 17:37 编辑 
+
+喜剧是创造美好的东西，悲剧是把美好的东西毁掉给人看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+...... 不论如何她开心就好了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3770#       发表于 2020-11-30 17:36
+
+
+
+
+嘛 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3771#       发表于 2020-11-30 17:37
+
+
+
+
+我还不会破防，等明年bls无事办完才会 有毒
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3772#       发表于 2020-11-30 17:38
+
+
+
+
+草哦<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">为什么我打那个字会自动跳出前女友的名字啊魂淡
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3773#       发表于 2020-11-30 17:38
+
+
+
+
+天狗差不多得了 有补办就不错了 还不快感恩戴德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3774#       发表于 2020-11-30 17:38
+
+
+
+ 本帖最后由 A2014720 于 2020-11-30 17:39 编辑 
+
+明年来个浅水湾线下大成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只有咩被遗忘的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“虽然线下部分缩减了规模
+但我们向神乐mea小姐和各位粉丝保证
+我们将相应地进一步提高线上部分的制作级别
+为大家带来更精彩的演唱会内容”
+
+确实挺精彩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3775#       发表于 2020-11-30 17:39
+
+
+
+
+你要想 打榜也就承诺了线上live 线下是啊b赏的 日本场也是啊b赏的 对不？
+这合理的我恶心
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3776#       发表于 2020-11-30 17:41
+
+
+
+
+明年我可以去浅水湾拔网线么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 3777#       发表于 2020-11-30 17:41
+
+
+
+
+心疼就完事了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3778#       发表于 2020-11-30 17:41
+
+
+
+
+无聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3779#       发表于 2020-11-30 17:42
+
+
+
+
+那天之后还能对阿b有信心我是没想到
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 3780#       发表于 2020-11-30 17:43
+
+
+
+
+成了，3d新衣歌会，这可是我啊b赏你们的你们天狗好自为之啊😀
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3781#       发表于 2020-11-30 17:44
+
+
+
+
+会的会的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3782#       发表于 2020-11-30 17:45
+
+
+
+
+我是好自为之的，阿b养的那群节奏区up随时把我们抬走！躺平等live就是了。
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3783#       发表于 2020-11-30 17:46
+
+
+
+
+成了，恶心
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3784#       发表于 2020-11-30 17:46
+
+
+
+
+等一个live上说错话一波带走<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3785#       发表于 2020-11-30 17:49
+
+
+
+
+瓶皇什么时候在微博上来句:mea，感恩戴德吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 3786#       发表于 2020-11-30 17:49
+
+
+
+
+结果大伙砸了个3d联动卡拉ok<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3787#       发表于 2020-11-30 17:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3788#       发表于 2020-11-30 17:50
+
+
+
+
+发病要节制啊
+
+对他人抱有期待是病<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+差不多一点啦， 早点过去好好直播啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3789#       发表于 2020-11-30 17:51
+
+
+
+
+bls会越办越好，bls的奖励也会越办越好！
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3790#       发表于 2020-11-30 17:52
+
+
+
+
+这都什么东西
+全世界跟灭过不去吗
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 3791#       发表于 2020-11-30 17:53
+
+
+
+
+线下不是叔叔赏的？都补了线上了还想怎样，天狗差不多得了😅
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3792#       发表于 2020-11-30 17:55
+
+
+
+ 本帖最后由 专业划水人员 于 2020-11-30 17:57 编辑 
+
+评论区再说什么12315估计今晚瓶皇就要鸣枪警告了！
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3793#       发表于 2020-11-30 17:56
+
+
+
+
+🏳🏳🏳
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 3794#       发表于 2020-11-30 17:59
+
+
+
+
+🏳️🏳️🏳️
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3795#       发表于 2020-11-30 18:00
+
+
+
+
+🏳️🏳️🏳️
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 3796#       发表于 2020-11-30 18:04
+
+
+
+
+🏳️🏳️🏳️
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3797#       发表于 2020-11-30 18:04
+
+
+
+
+🏳️🏳️🏳️
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 3798#       发表于 2020-11-30 18:05
+
+
+
+
+🇨🇮🇨🇮🇨🇮
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3799#       发表于 2020-11-30 18:05
+
+
+
+
+🏳️🏳️🏳️
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3800#       发表于 2020-11-30 18:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202011/30/180541f2eol926rusleseb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>40F4F817-E45F-47C7-8631-2804C6E2A4D8.jpeg</strong> (47.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-11-30 18:05 上传
+
+
+
+
+
+
+for bilibili
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 3801#       发表于 2020-11-30 18:07
+
+
+
+
+🏳️🏳️🏳️
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 3802#       发表于 2020-11-30 18:10
+
+
+
+
+发什么白旗呢，我阿b逼你了吗sm瓶微博警告一次😅
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3803#       发表于 2020-11-30 18:10
+
+
+
+
+楼上那个爱尔兰国旗怎么回事？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3804#       发表于 2020-11-30 18:10
+
+
+
+
+还记着她停播之前紧急叫停的那个歌回标题是日本场0人到场<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3805#       发表于 2020-11-30 18:13
+
+
+
+
+瓶皇别警告了赶紧开枪吧
+做一期视频来骂这些不知好歹的人吧，啊b都搞线上还不满意？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+快进到法国投降<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3806#       发表于 2020-11-30 18:17
+
+
+
+
+投降怎么够 要感恩戴德 当维希法国人吧
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3807#       发表于 2020-11-30 18:27
+
+
+
+
+感恩戴德，感恩戴德
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3808#       发表于 2020-11-30 18:27
+
+
+
+
+今天还没直播，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3809#       发表于 2020-11-30 18:30
+
+
+
+
+宁愿她是去陪男人也不想要因为这种破事不播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3810#       发表于 2020-11-30 18:33
+
+
+
+
+喂不饱的狼警告
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 3811#       发表于 2020-11-30 18:38
+
+
+
+
+姨啊姨的说了这么久 阿咩到底什么时候姨化啊 急死我了
+想看人妻咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 3812#       发表于 2020-11-30 18:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别急，明年2月21日解锁姨化第一阶段
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3813#       发表于 2020-11-30 18:42
+
+
+
+
+想听麻酱碎碎念抱怨，老夫老妻的那种<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3814#       发表于 2020-11-30 18:43
+
+
+
+
+躺平了躺平了，阿b已经放弃你咩了，线下的钱都不愿意赚回来了，凉了就凉了吧
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3815#       发表于 2020-11-30 18:43
+
+
+
+
+明天LOLb限估计也会说这事儿吧
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3816#       发表于 2020-11-30 18:46
+
+
+
+
+阿b不会放过你麻的，以后活动还是得参加，只是不会给你宣传力<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">天狗的钱，能赚一点是一点
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3817#       发表于 2020-11-30 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3818#       发表于 2020-11-30 18:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">带娃直播
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3819#       发表于 2020-11-30 18:50
+
+
+
+
+到时给小小麻整个皮套吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3820#       发表于 2020-11-30 18:52
+
+
+
+ 本帖最后由 草牛 于 2020-11-30 18:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真有人觉得批站能有什么作用吧，不添堵就不错了，我老早就讲了，批站整天就想赚你钱，不要再上套了，什么叫粉丝焦虑啊
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3821#       发表于 2020-11-30 18:56
+
+
+
+
+坐等啊b给安排个永久嘉宾位。
+
+当然门票钱照例归冠军，当面你麻的面ntr财布<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3822#       发表于 2020-11-30 18:58
+
+
+
+
+「あと何度君と同じ花火を見られるかな」って
+
+笑う顔に何ができるだろうか
+
+傷つくこと喜ぶこと
+
+繰り返す波と情動 焦燥 最終列車の音
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3823#       发表于 2020-11-30 18:58
+
+
+
+
+众筹演唱会可以排上日程么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3824#       发表于 2020-11-30 19:01
+
+
+
+
+啊这 b站天狗还想施压呢 我去劝降还被骂了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3825#       发表于 2020-11-30 19:02
+
+
+
+
+是不是私信骂的啊，如果是的话，怪我没管住群友<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3826#       发表于 2020-11-30 19:02
+
+
+
+
+风怒zsbd
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3827#       发表于 2020-11-30 19:03
+
+
+
+
+骂吧，骂吧，这公告发出来不就是想挨喷呢，啊批装死就完事了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3828#       发表于 2020-11-30 19:04
+
+
+
+
+不是私信 直接评论@骂的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3829#       发表于 2020-11-30 19:06
+
+
+
+ 本帖最后由 Dualist彩 于 2020-11-30 19:07 编辑 
+
+没力气了，活着就好
+
+阿b也是nt，你楼的眼是不是撤走了，拖一拖到明年整个线下又不是没人买单了，我还会去看的啊
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3830#       发表于 2020-11-30 19:10
+
+
+
+
+b站都不信你们还能继续相信他这件事
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3831#       发表于 2020-11-30 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3832#       发表于 2020-11-30 19:16
+
+
+
+
+唉 现在只想这事赶快过去
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3833#       发表于 2020-11-30 19:19
+
+
+
+
+等明天直播看能从嘴里撬出来些啥
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3834#       发表于 2020-11-30 19:22
+
+
+
+
+别撬了 自闭lol就好 万一又说错话 被赶出去就连线上都没了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3835#       发表于 2020-11-30 19:23
+
+
+
+
+我只要她高兴就行<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 3836#       发表于 2020-11-30 19:28
+
+
+
+
+高兴？线下线上能是一个概念吗 不能细想。恶心的让我破防
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 3837#       发表于 2020-11-30 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49567522&amp;ptid=1973472" target="_blank">D麦林 发表于 2020-11-30 16:58</a>
+
+我觉得他们说的是有道理的
+
+就日本人那个抱团取暖和怕担责任的德性
+
+阿b要真下手追究责任人员 怕是以 ...</blockquote>
+到这种时候还想着给以后合作留后路才是错的，动画界早得出结论就是自己开公司把人挖过来当手下自己干才是正理
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 3838#       发表于 2020-11-30 19:43
+
+
+
+
+然后阿b办完这次以后痛定思痛 挖来日本的人才成立自己的3D制作公司 把下届BLS办的又红又好 大家纷纷拿来和上届BLS的拉垮比较 大赞阿b进步大 天狗敢有意见就是乱咬 妄议新时代<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+这不是早就定好的剧本吗 谁能违抗命运
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3839#       发表于 2020-11-30 19:53
+
+
+
+
+其实我觉得b站就算在这里栽了跟头以后也不太会在这里新增太多成本和关注
+
+拉胯是永恒的，增加投入是不存在的，希望大伙能保持这个印象
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3840#       发表于 2020-11-30 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说吧，批站搞排名，奖励，推荐，限时，促销之类的东西，他就一定会造成粉丝焦虑，看直播慢慢就变成看粉丝了，这是商业手段，如果明白这个道理，就主动离这些东西远一点，对大家都好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3841#       发表于 2020-11-30 19:53
+
+
+
+
+突然想起b站扫楼视频呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+赶紧吐出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3842#       发表于 2020-11-30 20:01
+
+
+
+
+还有懂哥呢，快来讲讲那个悲伤小故事<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3843#       发表于 2020-11-30 20:28
+
+
+
+
+现在已经很悲伤了，不要再悲伤了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3844#       发表于 2020-11-30 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">面对b站，我认输了。
+
+syl 懂哥，快来讲谜语呀
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3845#       发表于 2020-11-30 20:31
+
+
+
+
+她才19，就算隐退了，也还有很多机会，说不定以后还会有线下握手会呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+                   
+
+舔舔软fufu的羊蹄子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3846#       发表于 2020-11-30 20:36
+
+
+
+
+翻了下冬寂官网，估计饺子皮也是这家做的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3847#       发表于 2020-11-30 20:46
+
+
+
+ 本帖最后由 Cushaw 于 2020-11-30 21:15 编辑 
+
+赶快真人出道，然后和我结婚<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3848#       发表于 2020-11-30 20:48
+
+
+
+
+赶快找个靠得住的野男人结婚
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3849#       发表于 2020-11-30 20:49
+
+
+
+
+但凡是我关注过的b站活动，就没见过有全程不拉跨的，多多少少都得整点什么纰漏。
+这次的事情更说明日本公司更加的不靠谱。
+事到如今都懒得生气了，想说点什么表达不满都说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">也就那样呗，有的看就行
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3850#       发表于 2020-11-30 21:02
+
+
+
+
+活着就好，小麻可以偷偷播一个么<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 3851#       发表于 2020-11-30 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲毛哦，等她好好进入平稳期再说吧
+
+这事是外包团队不靠谱，不过阿B japan怎么那么谜我也没搞懂
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3852#       发表于 2020-11-30 21:15
+
+
+
+
+破防了，连最后的小故事都没了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 3853#       发表于 2020-11-30 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49568728&amp;ptid=1973472" target="_blank">专业划水人员 发表于 2020-11-30 18:50:26</a>
+到时给小小麻整个皮套吧</blockquote>那真的是从小小麻出生就开始单推他了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3854#       发表于 2020-11-30 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">不可能，我不会让小小麻涉足娱乐行业
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3855#       发表于 2020-11-30 22:14
+
+
+
+
+可是樱花妹不是人均想当爱豆路or声优吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3856#       发表于 2020-11-30 22:23
+
+
+
+
+是<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">的悲伤小故事吗
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 3857#       发表于 2020-11-30 22:24
+
+
+
+
+现在去接受训练也不晚 
+歌手出道有点难 但声优出道还是不难的罢
+其实当V打来的这波当基础资金可以支持她干许多想要干的事情 就看她想不想而已
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3858#       发表于 2020-11-30 22:25
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-11-30 22:26 编辑 
+
+想多了， 你麻不播了估计就结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+毕竟厂妹樱花妹， 难道还能有什么其他可能性？ <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3859#       发表于 2020-11-30 22:31
+
+
+
+
+那我可以推小小麻吗？
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 3860#       发表于 2020-11-30 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这年头转声优有个p出路。出道又怎么样，爬不到顶层没法稳定接到活的话还不如当v呢
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3861#       发表于 2020-11-30 22:34
+
+
+
+
+只要枕营业到位，出演主役不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3862#       发表于 2020-11-30 22:35
+
+
+
+
+麻 麻不是说结婚了也会播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3863#       发表于 2020-11-30 22:37
+
+
+
+
+现在那个在播的人是不是小麻谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3864#       发表于 2020-11-30 22:42
+
+
+
+
+我现在坚信你麻是女同了，小麻早点找小凜出柜吧，咱不受这委屈，俩人加一起现在应该能全款买房了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 3865#       发表于 2020-11-30 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你们不要这种时候才想起凛子
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3866#       发表于 2020-11-30 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我身为贴贴人，觉得你说得对
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3867#       发表于 2020-11-30 22:56
+
+
+
+
+河豚能不能都去死一死啊
+
+她只会是藍田美知留，不会是岸本瑠可的
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 3868#       发表于 2020-11-30 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">太小看河豚
+
+
+河豚上限市町村 下限伞铠 通吃<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3869#       发表于 2020-11-30 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3870#       发表于 2020-11-30 23:07
+
+
+
+
+我只要女角色够色就可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3871#       发表于 2020-11-30 23:09
+
+
+
+
+是是是， 都可以坚信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小麻的狗狗  
+##### 3872#       发表于 2020-11-30 23:13
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3873#       发表于 2020-11-30 23:16
+
+
+
+[@age45](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263843) 3872楼小博禹
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 3874#       发表于 2020-11-30 23:26
+
+
+
+
+所以明天凛子生日她敢不敢在推上有点表示
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3875#       发表于 2020-11-30 23:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">...
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3876#       发表于 2020-11-30 23:28
+
+
+
+
+有表示的话大概率被crew炎...还是别了……
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3877#       发表于 2020-11-30 23:33
+
+
+
+
+大亏的生日？12.1真不熟，不如12.7恰烤肉<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3878#       发表于 2020-11-30 23:36
+
+
+
+
+无聊
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3879#       发表于 2020-11-30 23:37
+
+
+
+ 本帖最后由 专业划水人员 于 2020-11-30 23:39 编辑 
+
+估计只过12.7吧！我绝不接受百合结局！这样不就不存在小小麻了吗！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3880#       发表于 2020-11-30 23:40
+
+
+
+
+我不介意帮忙， 不用谢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  npfjcg  
+##### 3881#       发表于 2020-11-30 23:40
+
+
+
+
+xby居然这么快就来了吗？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3882#       发表于 2020-11-30 23:42
+
+
+
+
+还有几个月你麻就能和凛子领证了，小小麻你麻不是说过会去小蝌蚪银行么？小麻不喜欢男人又一力证<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3883#       发表于 2020-11-30 23:43
+
+
+
+
+仔细想了想，bs时期对你麻性取向的影响或许真的很大<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3884#       发表于 2020-11-30 23:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 3885#       发表于 2020-11-30 23:48
+
+
+
+
+我先说一点啊哈 mea绝对不可能是女同 至少目前来看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3886#       发表于 2020-11-30 23:50
+
+
+
+
+这一点谁都知道啊，可以再多说几点
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3887#       发表于 2020-11-30 23:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202011/30/235705plprrp4gxi9ji6ll.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D47AC99D-6879-4DC3-92A4-1E1E6E04416E.jpeg</strong> (425.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-11-30 23:57 上传
+
+
+
+
+
+
+
+收据还没整完，这周加油预定（要熬起来了kana
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 3888#       发表于 2020-12-1 00:00
+
+
+
+
+2020.11直播时长<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202011/30/235938orael1t69o9yi9iz.png" referrerpolicy="no-referrer">
+
+
+<strong>11a.png</strong> (96.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-11-30 23:59 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202011/30/235939xjaeczqwckrw1oez.png" referrerpolicy="no-referrer">
+
+
+<strong>11b.png</strong> (103.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-11-30 23:59 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202011/30/235939jk33m8xs3ks5xxu0.png" referrerpolicy="no-referrer">
+
+
+<strong>11c.png</strong> (60.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-11-30 23:59 上传
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|梦回18年的直播时长|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3889#       发表于 2020-12-1 00:11
+
+
+
+
+梦回18<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3890#       发表于 2020-12-1 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">希望12月能好起来
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 3891#       发表于 2020-12-1 00:19
+
+
+
+
+18年12月后面慢慢好起来的 能复刻下嘛<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3892#       发表于 2020-12-1 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">受不了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3893#       发表于 2020-12-1 00:24
+
+
+
+
+真按18走12月怕不是要崩一堆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第二个苔苔在哪呢，第二个大亏又在哪呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3894#       发表于 2020-12-1 00:27
+
+
+
+
+崩啊
+
+看最后能养出何种神经病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 3895#       发表于 2020-12-1 00:28
+
+
+
+
+我可不想回到18年12月，那个月看大亏虚无大乱斗看到吐<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3896#       发表于 2020-12-1 00:39
+
+
+
+
+我记得咩18年12月崩溃了几次吧
+麻蛋当时的熟肉都收藏下来了，现在都不想在回去看一次<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3897#       发表于 2020-12-1 00:40
+
+
+
+
+大胆点，除了整好活的时间，其他不都是虚无直播吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 3898#       发表于 2020-12-1 00:40
+
+
+
+
+说到bs，有谁知道今天u1聊了bs的啥吗？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3899#       发表于 2020-12-1 00:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好起来也要靠自己好起来，靠别人好起来那不是活该被坑吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3900#       发表于 2020-12-1 00:54
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-12-1 00:56 编辑 
+
+我觉得你麻是靠自己活不下去的那种人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我认为她有依附倾向， 将自己的价值建立在和他人的交往上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结婚了估计就是男人的附属品啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwwwwssjwb  
+##### 3901#       发表于 2020-12-1 01:06
+
+
+
+
+年纪再大点会变滴
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3902#       发表于 2020-12-1 01:09
+
+
+
+
+你们这些家伙，明明早上的时候称你麻是mkm，会PUA男人，男女通吃
+晚上你麻又变成了不依靠某种东西就活不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  夜鸣莺  
+##### 3903#       发表于 2020-12-1 01:16
+
+
+
+
+去找客服报销机酒了，各种为难，果然现场登记就是想把人哄走的
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3904#       发表于 2020-12-1 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49571720&amp;ptid=1973472" target="_blank">ylssb10438 发表于 2020-12-1 00:40</a>
+
+说到bs，有谁知道今天u1聊了bs的啥吗？</blockquote>
+观众提到lol 她说是麻凛两个人教过她 但是u1自己还是玩得很菜
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 3905#       发表于 2020-12-1 08:39
+
+
+
+
+今晚6点-9点B限
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3906#       发表于 2020-12-1 09:17
+
+
+
+
+好好好
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3907#       发表于 2020-12-1 09:31
+
+
+
+
+好耶，有咩看了，终于不用看楼友云了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3908#       发表于 2020-12-1 09:39
+
+
+
+
+应该是lol 这个时间刚好下饭<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3909#       发表于 2020-12-1 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么又是在打LOL，我们换点简单生草小游戏好不好
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3910#       发表于 2020-12-1 09:56
+
+
+
+
+其实想看咩咩打魔女之家<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+想看扫雷
+想看pvz
+
+QAQ
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 3911#       发表于 2020-12-1 09:57
+
+
+
+
+6-9点是开播时间，意思就是什么时候睡醒就播（
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3912#       发表于 2020-12-1 10:07
+
+
+
+
+不是从6点打到九点吗，上次就是
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3913#       发表于 2020-12-1 10:08
+
+
+
+
+说实话 我不觉得她能6点醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3914#       发表于 2020-12-1 10:39
+
+
+
+
+君のために全てを<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 3915#       发表于 2020-12-1 10:44
+
+
+
+
+老qq签名了
+
+—— 来自 samsung SM-G9810, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3916#       发表于 2020-12-1 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3917#       发表于 2020-12-1 10:48
+
+
+
+
+贴贴人把新签名当糖吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3918#       发表于 2020-12-1 10:52
+
+
+
+
+我很好奇你们哪儿观测的贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3919#       发表于 2020-12-1 10:53
+
+
+
+
+今天晚上9点能醒就不错了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3920#       发表于 2020-12-1 10:54
+
+
+
+
+我就是贴贴人啊(b站限定)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3921#       发表于 2020-12-1 10:54
+
+
+
+
+10点能醒就不错了……
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 3922#       发表于 2020-12-1 10:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她玩一些弱智小游戏特别有节目效果，可惜就喜欢吊在LOL上
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 3923#       发表于 2020-12-1 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49574083&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2020-12-1 10:52</a>
+我很好奇你们哪儿观测的贴贴人</blockquote>
+同好会b站评论
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3924#       发表于 2020-12-1 10:58
+
+
+
+
+草..... <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3925#       发表于 2020-12-1 10:59
+
+
+
+
+依附型人格又一证据!<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+要被男人吃干抹净了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3926#       发表于 2020-12-1 11:00
+
+
+
+
+如果被贴贴人说中了 那延期的live不会是有夸的版本吧 为了你不顾一切<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3927#       发表于 2020-12-1 11:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 3928#       发表于 2020-12-1 11:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3929#       发表于 2020-12-1 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">如果非要依附的话，可以选我吗？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+我会好好对你的<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 3930#       发表于 2020-12-1 11:06
+
+
+
+
+延期不是有泄露消息是交接人变了吗，别瞎联想了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3931#       发表于 2020-12-1 11:06
+
+
+
+
+不要绿帽弱智time
+不要不安弱智time
+
+来点普通发情弱智time好不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3932#       发表于 2020-12-1 11:08
+
+
+
+
+你以为是依附 其实不过是借用你的力量罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一句歌词就那么多阅读理解 不愧是虚拟mkm<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 3933#       发表于 2020-12-1 11:09
+
+
+
+
+可怜的天狗被mkm玩弄于股掌之间
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 3934#       发表于 2020-12-1 11:10
+
+
+
+
+我一直想问，mkm是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3935#       发表于 2020-12-1 11:11
+
+
+
+
+电锯人里面的坏女人
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3936#       发表于 2020-12-1 11:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3937#       发表于 2020-12-1 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">想被坏女人咩宝欺负
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3938#       发表于 2020-12-1 11:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/01/112707j3twwdsx07exexl8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B623E8DE-D36B-4E6D-A4EB-EF627C78A0AC.jpeg</strong> (44.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-1 11:27 上传
+
+
+
+
+
+
+
+麻奇麻说还是有点依据的（原图是对mkm的评语
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 3939#       发表于 2020-12-1 11:31
+
+
+
+
+小麻就符合个屁股大吧
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 3940#       发表于 2020-12-1 11:31
+
+
+
+
+所有大屁股平胸女人都是小麻
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 3941#       发表于 2020-12-1 11:42
+
+
+
+
+你麻好涩好涩的哟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3942#       发表于 2020-12-1 11:43
+
+
+
+
+我不能接受，她一定是帕瓦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 3943#       发表于 2020-12-1 11:45
+
+
+
+
+难道不是电次么，aqa=mqm
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3944#       发表于 2020-12-1 11:51
+
+
+
+
+（图一乐型论证）
+
+
+复杂：就算看了一段时间也很难知道她在想啥，很少有通解，经常会出人意料
+
+立体：经历的事情多了，见识到了她面对不同事物时候的不同应对
+
+能力强：没有正经的企业级宣发，没有定期的小团体团建节目，但还有这么多人喜欢看，能力确实强
+
+有想法：会自己掏钱开live，会敢于走很多其她人想都不敢想的路线
+
+屁股大：屁股大
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3945#       发表于 2020-12-1 11:55
+
+
+
+
+大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3946#       发表于 2020-12-1 12:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">屁股大
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3947#       发表于 2020-12-1 12:01
+
+
+
+
+mkm小姐不仅屁股大，胸也大啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 3948#       发表于 2020-12-1 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">太色了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 3949#       发表于 2020-12-1 12:15
+
+
+
+
+想想都要好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3950#       发表于 2020-12-1 12:16
+
+
+
+
+最后发现mkm小姐是电锯恶魔的头号粉丝，大家直呼上当
+最后发现小麻也是_______的头号粉丝，大家也直呼上当
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 3951#       发表于 2020-12-1 12:20
+
+
+
+
+mkm和电锯恶魔是暗黑贴贴啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                  
