@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 18:09** 
+> ## **本文件最后更新于2020-12-01 20:10** 
 
 
 
@@ -26408,7 +26408,7 @@ syl，鲨皇火鸡的日语课开了，并且预约了和ame的日语课
 <img src="https://img.saraba1st.com/forum/202012/01/111850b993b1vsbzbxob2s.jpg" referrerpolicy="no-referrer">
 
 
-<strong>p61jd0x.jpg</strong> (391.31 KB, 下载次数: 0)
+<strong>p61jd0x.jpg</strong> (391.31 KB, 下载次数: 1)
 
 下载附件
 
@@ -28278,4 +28278,520 @@ wtm笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 
 
- 
+
+
+-----
+
+####  elliotky  
+##### 19452#       发表于 2020-12-1 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49578408&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-1 18:08</a>
+
+有趣的现象：
+
+爱白猫葵四人联动fg，在油管大家数据都差不多，最少的葵900同接，最多的爱也就3000同接。
+
+但 ...</blockquote>
+在阿B不是很正常吗.调了倍率加上有打钱而已
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19453#       发表于 2020-12-1 18:12
+
+
+
+<blockquote>ShuTk4O 发表于 2020-12-1 18:08
+有趣的现象：
+
+爱白猫葵四人联动fg，在油管大家数据都差不多，最少的葵900同接，最多的爱也就3000同接。
+
+但 ...</blockquote>
+毕竟葵并没b公式，猫有但约等于无，也就绊爱一个像样的。
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 19454#       发表于 2020-12-1 18:23
+
+
+
+
+弱智怎么了，管人有几个不弱智的，越弱智反倒越吸引人打钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 19455#       发表于 2020-12-1 18:25
+
+
+
+
+老爱在中国毕竟有群众基础加网易支持，其他两个怎么比
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 19456#       发表于 2020-12-1 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">wtm已经是个姨了还那么rz，说明rz与年龄无关
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19457#       发表于 2020-12-1 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">老爱的装扮还没卖完呢，肯定要给上倍率啊
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19458#       发表于 2020-12-1 18:43
+
+
+
+
+兔子这边打的什么怪话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 19459#       发表于 2020-12-1 18:50
+
+
+
+
+留意到原田瞳搞了個畫當v管人
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19460#       发表于 2020-12-1 18:57
+
+
+
+
+老爱就是人工智障，你圈不弱智不吃香的
+
+
+
+
+
+
+
+-----
+
+####  elliotky  
+##### 19461#       发表于 2020-12-1 19:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">阿满突然插入到直播里. 小白阿满绊爱猫宫大葵 V圈化石组
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 19462#       发表于 2020-12-1 19:06
+
+
+
+
+还有一个索尼不要了的辉某人呢？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19463#       发表于 2020-12-1 19:08
+
+
+
+
+宁愿大号直播都不愿意上个号看一眼的人有什么提的必要呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 19464#       发表于 2020-12-1 19:09
+
+
+
+
+wtm怕不是娃都要有了还懵懂青涩呢，还不如说一孕傻三年
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 19465#       发表于 2020-12-1 19:12
+
+
+
+
+我是火星人啦...一個月前的新聞現在才知道...
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19466#       发表于 2020-12-1 19:15
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gl8kj9nbh1g208n0cyx6t.gif" referrerpolicy="no-referrer">
+
+
+刚看凛姨突然想起来这个胸口呼吸起伏的简单特效其他人怎么很少见用
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 19467#       发表于 2020-12-1 19:18
+
+
+
+<blockquote>姫森ルーナ糖果誕生日ボイス販売中皇冠
+
+@himemoriluna·33分钟
+
+皇冠 コラボ告知 皇冠
+
+12月4日(金)19時予定
+
+まつりちゃ先輩とRFA対決！！闪片
+
+体力勝負だからってルーナは負けないのらぞお！！！跑步的人居酒屋灯笼糖果
+
+#フェスティバルーナ</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">？
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19468#       发表于 2020-12-1 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579022&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-1 19:15</a>
+
+刚看凛姨突然想起来这个胸口呼吸起伏的简单特效其他人怎么很少见用</blockquote>
+金憨憨不就有吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19469#       发表于 2020-12-1 19:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/01/191833p0j7lq4hhqmhj0lf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoJWnvcUwAIP6pg.jpg</strong> (758.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-1 19:18 上传
+
+
+
+
+
+
+天狐粽龙线下章鱼烧联动（独食）
+
+天：フブキ先輩とココとたこ焼きパーティーなーう！！！！！るしあ先輩も誘ったああああ
+
+狐：かなたんがタコ切ってるんだけどデカすぎるので更に切らせてる(^・ω・^§)ﾉ
+
+粽：たこ焼き初めて丸めてるなううううううう
+
+龙：休止中
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 19470#       发表于 2020-12-1 19:22
+
+
+
+
+真白花音复活可太秀了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 19471#       发表于 2020-12-1 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49578140&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-1 17:37</a>
+
+也别看到个推特简介写着“founding team”就开始吹啥“ceo人脉”吧...去查了圈gunrun是个转做平台的早期sc2 ...</blockquote>
+原来如此，被他简介唬到了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 19472#       发表于 2020-12-1 19:42
+
+
+
+
+02姐姐九点showroom！好耶！
+
+
+
+
+
+
+
+-----
+
+####  elliotky  
+##### 19473#       发表于 2020-12-1 19:43
+
+
+
+
+啊.老爱这波吸血大成功啊.好久好久没见过5位数了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19474#       发表于 2020-12-1 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579022&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-1 19:15</a>
+
+刚看凛姨突然想起来这个胸口呼吸起伏的简单特效其他人怎么很少见用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该所有人都有做，只是凛仙贝这套衣服做的太明显
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19475#       发表于 2020-12-1 19:56
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gl8lqfnxbcg20aw0feb2b.gif" referrerpolicy="no-referrer">
+
+
+还不错<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19476#       发表于 2020-12-1 20:03
+
+
+
+
+叶队这直播间太热闹了。。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19477#       发表于 2020-12-1 20:04
+
+
+
+[https://twitter.com/i/status/1333736457966477312](https://twitter.com/i/status/1333736457966477312)
+<img src="https://i.loli.net/2020/12/01/PLg9QNphMWlE6u3.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 19478#       发表于 2020-12-1 20:05
+
+
+
+
+还打个2000的sc谢谢来啊b直播，不应该谢米哈游吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 19479#       发表于 2020-12-1 20:06
+
+
+
+
+叶队好疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你虹来b能称得上收租的也就黑黑了吧
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19480#       发表于 2020-12-1 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579022&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-1 19:15</a>
+
+刚看凛姨突然想起来这个胸口呼吸起伏的简单特效其他人怎么很少见用</blockquote>
+露露初配信就很明显胸口起伏吧
+
+
+
+
+
