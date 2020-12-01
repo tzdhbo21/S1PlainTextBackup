@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 22:17** 
+> ## **本文件最后更新于2020-12-02 00:16** 
 
 
 
@@ -17066,4 +17066,974 @@ b博，北京21点开播
 
 
 
-                
+
+
+-----
+
+####  czkt615477  
+##### 4005#       发表于 2020-12-1 22:19
+
+
+
+
+这也太不安了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4006#       发表于 2020-12-1 22:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">电脑爆炸
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4007#       发表于 2020-12-1 22:22
+
+
+
+
+这人怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4008#       发表于 2020-12-1 22:22
+
+
+
+
+小麻喜欢女人吧
+
+小麻喜欢女人吧
+
+小麻喜欢女人吧
+
+小麻喜欢女人吧
+
+小麻喜欢女人吧
+
+小麻喜欢女人吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4009#       发表于 2020-12-1 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49580453&amp;ptid=1973472" target="_blank">路人庚 发表于 2020-12-1 22:01</a>
+
+“这就是企业的努力！”虽然实际上是在自夸玩“神乐公司”梗，但看上去总觉得有丶yygq啊（） ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/01/222324de67wvl442zcdvzq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20201201222306175.jpg</strong> (21.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-1 22:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4010#       发表于 2020-12-1 22:23
+
+
+
+ 本帖最后由 路人庚 于 2020-12-1 22:25 编辑 
+
+老不安人了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐也许可以把那个油管小号改个名字叫kagura games（
+
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 4011#       发表于 2020-12-1 22:27
+
+
+
+
+小号多久没动了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4012#       发表于 2020-12-1 22:30
+
+
+
+
+刚发两首歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4013#       发表于 2020-12-1 22:34
+
+
+
+
+这把阿卡丽肯定下饭了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4014#       发表于 2020-12-1 22:43
+
+
+
+
+线上不努力，泉水等经济……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4015#       发表于 2020-12-1 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 4016#       发表于 2020-12-1 22:54
+
+
+
+
+哎呀，听她自己说这个又来气了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4017#       发表于 2020-12-1 22:55
+
+
+
+
+一带而过，还是翻了笔记，你麻躺平了，就这样吧
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4018#       发表于 2020-12-1 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4019#       发表于 2020-12-1 22:56
+
+
+
+
+能咋办嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">日子还得照常过
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4020#       发表于 2020-12-1 22:57
+
+
+
+
+美好的一天从听到bls结束，阿b我cnm
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4021#       发表于 2020-12-1 22:58
+
+
+
+
+被这破东西折磨这么久就这么算了啊🐮的
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4022#       发表于 2020-12-1 22:59
+
+
+
+
+这东西折磨她也折磨粉丝，赶紧过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4023#       发表于 2020-12-1 23:03
+
+
+
+
+是真的有毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+bls:幻痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4024#       发表于 2020-12-1 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4025#       发表于 2020-12-1 23:04
+
+
+
+
+对阿批的拉胯程度还心存侥幸的各位都有责任
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4026#       发表于 2020-12-1 23:21
+
+
+
+
+啊b里BLS的负责人是哪位？
+
+我觉得可以施压让这位爷出来道个歉<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4027#       发表于 2020-12-1 23:21
+
+
+
+
+道歉有什么用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+没整天瞎想了， <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4028#       发表于 2020-12-1 23:22
+
+
+
+
+都是日方的错，阿b没错，道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥歉呀
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4029#       发表于 2020-12-1 23:23
+
+
+
+
+有用的，给你麻挽回一点损失的策略
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4030#       发表于 2020-12-1 23:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挽回损失，指道歉，演滑稽剧呢，想想我都笑出声了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4031#       发表于 2020-12-1 23:26
+
+
+
+
+还敢施压？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+明天就又来某些人b博引流再冲一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4032#       发表于 2020-12-1 23:27
+
+
+
+
+站起来，不准跪！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4033#       发表于 2020-12-1 23:31
+
+
+
+
+反正也不会让啊b损失什么，这是斗争的艺术<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4034#       发表于 2020-12-1 23:32
+
+
+
+
+阿b不会损失什么 但是小麻会损失
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4035#       发表于 2020-12-1 23:32
+
+
+
+
+怎么还有人不投降的
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4036#       发表于 2020-12-1 23:33
+
+
+
+
+挽回一个对pxj特化圣盾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4037#       发表于 2020-12-1 23:33
+
+
+
+
+年轻人好好撸管， 别整天瞎想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4038#       发表于 2020-12-1 23:34
+
+
+
+
+可别了 到时候阿b直接放狗了 咱可打不过<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4039#       发表于 2020-12-1 23:41
+
+
+
+ 本帖最后由 Joffre✔ 于 2020-12-1 23:48 编辑 
+
+起码这事现在风向还可以 基本都是骂b的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4040#       发表于 2020-12-1 23:42
+
+
+
+
+别弱智了， 年轻人不撸管就去找女朋友吧， 你就是下一个人生赢家， 加油！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4041#       发表于 2020-12-1 23:43
+
+
+
+
+这编辑了吧，可少钓点鱼吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+观众做好观众的事就行
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4042#       发表于 2020-12-1 23:44
+
+
+
+
+钓鱼业障重，到时是要还的.jpg
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4043#       发表于 2020-12-1 23:45
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-12-1 23:47 编辑 
+
+唉， 多玩galgame怎么样， 说不定就想谈恋爱了， 然后就脱离管人苦海了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+唉， 不过最近的galgame...算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4044#       发表于 2020-12-1 23:46
+
+
+
+
+钓鱼害人，业障深，建议放弃和看咩来净化
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4045#       发表于 2020-12-1 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吃着叔叔的饭还想让叔叔道歉？饭碗都给你掀了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4046#       发表于 2020-12-1 23:49
+
+
+
+
+三星期前不投降现在才投降？太晚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫斯科都守下来了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4047#       发表于 2020-12-1 23:51
+
+
+
+
+守好莫斯科就不错了 还想打出去呢 不知道天狗多费拉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4048#       发表于 2020-12-1 23:52
+
+
+
+
+而且就算你想抓替死鬼也抓不着啊，两个喜欢跳的运营，“发一分光”的已经保护性封号了，“阿b太苦了”的是“不关我事”，你想抓人出来土下座建议学半泽直树先混入内部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4049#       发表于 2020-12-1 23:54
+
+
+
+
+随便是谁，造成新信息+既成事实就行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4050#       发表于 2020-12-1 23:54
+
+
+
+
+乐观点，明年二月份就有酒后配信了，快进到失言<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4051#       发表于 2020-12-1 23:55
+
+
+
+
+半泽能让人土下座是他能力强有价值 小麻现在是没有价值的过气污点个人势了 敢顶撞阿b直接放狗咬死加封禁直播间了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4052#       发表于 2020-12-1 23:55
+
+
+
+
+今天直播没看过瘾啊，不知道会不会突
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4053#       发表于 2020-12-1 23:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便是谁还行，给你安排个临时工让你骂你乐意吗
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4054#       发表于 2020-12-1 23:57
+
+
+
+
+乐意啊，让pxj说不出话来就行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4055#       发表于 2020-12-1 23:58
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-12-2 00:04 编辑 
+
+为什么管说什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+又不是欧洲中世纪的贵族， 被人说了就要决斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+快点抛弃封建时代看重那些无所谓的东西的思维方式吧！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+进入无 耻， 精于计算， 冷血， 实用主义的资本时代吧！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+在意他人评价的人的命运就是被其摆布， 为其奔波， 最后又得到了什么呢？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+无聊， 睡了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4056#       发表于 2020-12-1 23:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么糊涂吗，真去骂临时工了哪能堵上pxj的嘴，阿b反手一巴掌就把你给打熄火了最后说不定又要你咩姐道歉，这么多年了pxj哪是随随便便能堵的了的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4057#       发表于 2020-12-2 00:03
+
+
+
+
+别让b道歉了 这事风向已经是骂b了 b再抓人道歉风向很可能变成天狗太过分了 咱可打不过pxj<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4058#       发表于 2020-12-2 00:03
+
+
+
+
+自肃 自肃
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4059#       发表于 2020-12-2 00:08
+
+
+
+
+所以做好观众就行了，用脚投票<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4060#       发表于 2020-12-2 00:12
+
+
+
+
+我觉得现在可以适当学学nga里的贴贴人 贴贴楼最近发言频率高了楼浮上来那里的人都不安desu 我们这还有心存幻想想打出去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4061#       发表于 2020-12-2 00:15
+
+
+
+
+比起在网上骂一骂负责人，真的能给阿b添麻烦的手段也是有，就是之前说的，已经买了演唱会门票且还没有收到退款的人去收集证据举报阿b
+
+
+不过阿b那个声明里提到登记信息的截止时间是明年1月，它给自己留的时间还挺长的，在这个截止日前阿b都有理由继续拖着欠款，希望有想法的人能一直保持这份讨个说法的心态吧
+
+
+
+
+
+              

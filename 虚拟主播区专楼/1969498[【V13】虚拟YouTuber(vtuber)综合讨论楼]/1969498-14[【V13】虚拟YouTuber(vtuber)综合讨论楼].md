@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 22:10** 
+> ## **本文件最后更新于2020-12-02 00:09** 
 
 
 
@@ -483,6 +483,25 @@ https://www.showroom-live.com/1b3fe3520222
 那为啥空一格啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那一格是留给咩咩的
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 春风女神狄璐卡| + 1|思路广|
+
+
+
+查看全部评分
 
 
 
@@ -1404,4 +1423,423 @@ miko虚拟韦德 moona就勉强算个虚拟欧文吧
 
 
 
-                                               
+
+
+-----
+
+####  Tierrrrr  
+##### 19581#       发表于 2020-12-1 22:17
+
+
+
+
+那粽是虚拟哈达威？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 19582#       发表于 2020-12-1 22:35
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-1 22:37 编辑 
+
+也不知道月灵姐姐对新皮是个什么想法……
+
+syl，我也已经被这皮脑控到觉得蛮可爱的了，当然，胸确实是……有点离谱
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19583#       发表于 2020-12-1 22:37
+
+
+
+
+兔皇百万纪念的时候夸夸能开个AKUKIN建设吗
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 19584#       发表于 2020-12-1 22:39
+
+
+
+
+开个AKUKIN建设不够，邀请鲨来当嘉宾吧
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 19585#       发表于 2020-12-1 22:43
+
+
+
+
+可不敢，会被三期信和大家庭烧死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19586#       发表于 2020-12-1 22:43
+
+
+
+
+姨的那个0不做管人的期间我终于有时间去看正常水平的打枪了，
+一之濑菩提niru佬那组虽然话不多但氛围挺好的，主要是一之濑菩提夸niru佬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（能用手柄打成那样确实厉害。。。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19587#       发表于 2020-12-1 22:43
+
+
+
+
+兔皇百万纪念好像是凸待吧，不知道会不会有社外的来。
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19588#       发表于 2020-12-1 22:44
+
+
+
+
+天知道兔子会不会鸽掉凸待，每次谈起这个都一副抗拒的样子
+
+不过这半年各种联动下来能聊的人也多了，真搞一个也不会太尴尬了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19589#       发表于 2020-12-1 23:00
+
+
+
+
+老爱这直播怎么有个顶着鲨皇头像id的脑瘫一直刷木口top，这是4v帆船吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19590#       发表于 2020-12-1 23:04
+
+
+
+
+灵儿不能用的只是模型罢了，即使做新皮不也还是可以用原来的人设来设计。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19591#       发表于 2020-12-1 23:07
+
+
+
+
+那看来月灵来b站播的确要不少时间啊。还要等新皮出来。
+
+只能等发歌了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 19592#       发表于 2020-12-1 23:18
+
+
+
+
+听起来灵儿新皮也就是拿这软件再抽空捏一个的意思
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 19593#       发表于 2020-12-1 23:21
+
+
+
+
+歌发了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 19594#       发表于 2020-12-1 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">三连了听歌中
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19595#       发表于 2020-12-1 23:24
+
+
+
+
+居然是Sound Horizon<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+gachi度又增加了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  老贝  
+##### 19596#       发表于 2020-12-1 23:29
+
+
+
+
+月灵，我的月灵......<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Erikas  
+##### 19597#       发表于 2020-12-1 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  WDDzzZ  
+##### 19598#       发表于 2020-12-1 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 19599#       发表于 2020-12-1 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49580864&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-1 22:43</a>
+
+姨的那个0不做管人的期间我终于有时间去看正常水平的打枪了，
+
+一之濑菩提niru佬那组虽然话不多但氛围挺好的 ...</blockquote>
+一之濑挺可爱的
+
+和那个怪叫怪不一样
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 19600#       发表于 2020-12-1 23:49
+
+
+
+ 本帖最后由 mmbk 于 2020-12-1 23:50 编辑 
+
+釜山好菜
+
+asmr也不搞了打枪也拉胯，有时间跟别人网上对线都不多练练枪，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 19601#       发表于 2020-12-1 23:50
+
+
+
+
+所以是调了一下音？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7320bd11ce17ecb206d45ab0aeec9d1c/IMG_CMP_193315241.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 19602#       发表于 2020-12-1 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">听月灵姐姐治愈下
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 19603#       发表于 2020-12-1 23:59
+
+
+
+
+挺好的挺好的呜呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19604#       发表于 2020-12-2 00:01
+
+
+
+
+闲来无事去看了眼slee现状，结果四位的活动频率还是蛮高的，还看到一个练习白日的8小时档。
+
+虽然播放量很惨淡就是了，基本300-500.
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 19605#       发表于 2020-12-2 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">太好了太好了
+
+
+
+
+
+                                              
