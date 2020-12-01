@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 14:09** 
+> ## **本文件最后更新于2020-12-01 16:10** 
 
 
 
@@ -27323,4 +27323,318 @@ HEN后NEN也要来啦！
 
 
 
-   
+
+
+-----
+
+####  asdhai  
+##### 19397#       发表于 2020-12-1 14:14
+
+
+
+
+有无规定和规定是否能执行是两回事。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19398#       发表于 2020-12-1 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 经典一周一次批限
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 彩虹怎么就不能管到旗下liver了，看看被开除的金鱼妹，看看口了就知道了，
+
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 19399#       发表于 2020-12-1 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">华生居然明早上9:00有个风暴英雄的直播预定，我一定要看。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19400#       发表于 2020-12-1 14:33
+
+
+
+
+今天是什么复活节吗，991和真白花音都从棺材里蹦出来了。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19401#       发表于 2020-12-1 14:43
+
+
+
+
+有钱能使鬼推磨 尚且是复活呢
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19402#       发表于 2020-12-1 14:47
+
+
+
+
+高女士自肃10天复出。还行还行
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19403#       发表于 2020-12-1 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花音在T台干的好好的吧，现在复活是要双开？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19404#       发表于 2020-12-1 14:52
+
+
+
+
+大天使圣诞日果然不一般，一次能放两个大复活术。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 19405#       发表于 2020-12-1 14:55
+
+
+
+
+你虹EN还是招男人的话估计跟本社差不多 我反正还是不看好
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19406#       发表于 2020-12-1 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575985&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-1 13:53</a>
+
+你虹招en之前能不能把名字换一换阿，
+
+
+人家路人白皮猴子还以为你这是“那种”组织呢 ...</blockquote>
+是nijisanji 又不是rainbow society啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 19407#       发表于 2020-12-1 15:12
+
+
+
+
+垃圾圆脸4点又要用向粉丝乞讨来的封面玩种地了，唱这个鸟样，这周还要播五次，真是恶心，吐了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 19408#       发表于 2020-12-1 15:20
+
+
+
+
+看到freegachi圆脸就安心了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19409#       发表于 2020-12-1 15:25
+
+
+
+
+“为什么我不会画封面”
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 19410#       发表于 2020-12-1 15:46
+
+
+
+[https://twitter.com/Anna_Kojo/status/1333564014199144450](https://twitter.com/Anna_Kojo/status/1333564014199144450) <blockquote>Partying face20時〜！3Dお披露目紫心
+
+
+ついに今日がやってきた！！！
+
+可愛いの暴力こと3Dあんにゃんをお楽しみに闪片
+
+きゃぁぁアンナの全部を見られちゃうなんてドキドキだ〜ヾ(｡&gt;﹏&lt;｡)ﾉﾞ✧*。
+
+ぜったい来てね？Pleading face
+
+#虎城アンナ3D 
+
+
+待機所→ [https://youtu.be/L12IPIyAs1Q](https://youtu.be/L12IPIyAs1Q)</blockquote>
+774这3d攻势，有趣
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19411#       发表于 2020-12-1 15:52
+
+
+
+
+774马上就是全员参加的live了，3D加急都不够吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19412#       发表于 2020-12-1 16:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都在不断搞新3D  此时木口五期的3D完全看不出什么时候  cover  你技术公司你技术你妈呢
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19413#       发表于 2020-12-1 16:06
+
+
+
+
+A.I.channel四周年纪念配信开了
+
+[https://www.youtube.com/watch?v=lVmq_Vtzh0c](https://www.youtube.com/watch?v=lVmq_Vtzh0c)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19414#       发表于 2020-12-1 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49577089&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-1 15:46</a>
+https://twitter.com/Anna_Kojo/status/1333564014199144450
+
+
+774这3d攻势，有趣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sugarlynic这位早该3d了
+
+
+
+
+
+  
