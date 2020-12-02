@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 00:09** 
+> ## **本文件最后更新于2020-12-02 10:07** 
 
 
 
@@ -1802,8 +1802,10 @@ asmr也不搞了打枪也拉胯，有时间跟别人网上对线都不多练练�
 
 
 
+ 本帖最后由 JoelBirch 于 2020-12-2 00:10 编辑 
 
 挺好的挺好的呜呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+syl，又可以睡觉循环了！！！好耶！！！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
 
@@ -1842,4 +1844,815 @@ asmr也不搞了打枪也拉胯，有时间跟别人网上对线都不多练练�
 
 
 
-                                              
+
+
+-----
+
+####  魔法使い2019  
+##### 19606#       发表于 2020-12-2 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 19607#       发表于 2020-12-2 00:21
+
+
+
+<img src="https://p.sda1.dev/0/653dcccbbfa9874beb8015e97f7d5cb0/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 19608#       发表于 2020-12-2 00:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 19609#       发表于 2020-12-2 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">听着月灵姐姐入睡
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 19610#       发表于 2020-12-2 00:33
+
+
+
+
+兔皇什么时候出个专辑橄榄这些cylx<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19611#       发表于 2020-12-2 00:38
+
+
+
+
+叶师对原神的配装配队理解力还挺高的。。。。
+
+
+不是金憨憨可比的！
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 19612#       发表于 2020-12-2 01:12
+
+
+
+
+屑精灵不是还有个组在薜荔薜荔吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl、警花一直在t台当小主播.千铃哪去了
+
+
+
+
+
+
+
+-----
+
+####  elliotky  
+##### 19613#       发表于 2020-12-2 01:19
+
+
+
+
+该说不出所料吗.第一个查老爱房的是爱丽丝
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 19614#       发表于 2020-12-2 01:31
+
+
+
+
+爱丽丝还能坚持本心，挺好的。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 19615#       发表于 2020-12-2 01:48
+
+
+
+
+差点忘了这个。
+<img src="https://p.sda1.dev/0/443a20d3b22f7f177ad0ff5fcffc9c74/IMG_20201202_014730.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 19616#       发表于 2020-12-2 02:09
+
+
+
+
+看到227想到这个了<img src="https://p.sda1.dev/0/84a751fd0e40b028d778bd48ec5de1a6/IMG_CMP_46506927.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 19617#       发表于 2020-12-2 02:17
+
+
+
+
+Moona还为联动做了个特殊(贴贴)ed
+
+
+
+
+
+
+
+-----
+
+####  澜沫  
+##### 19618#       发表于 2020-12-2 03:43
+
+
+
+
+02姐姐新推特背景好康<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 19619#       发表于 2020-12-2 08:39
+
+
+
+
+11月收益
+<img src="https://p.sda1.dev/0/9061c6fa11606fda4aa91b5cb63ec623/IMG_CMP_232965923.jpeg" referrerpolicy="no-referrer">
+
+来源:https://b23.tv/gXquMu
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19620#       发表于 2020-12-2 08:42
+
+
+
+
+现在还多了股t台人了吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19621#       发表于 2020-12-2 08:43
+
+
+
+
+名字都不许提，虚拟伏地魔吗？
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 19622#       发表于 2020-12-2 08:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">阿b这么给力的吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19623#       发表于 2020-12-2 08:48
+
+
+
+
+这表其实偏差挺大的，阿b舰长算进了统计，对应的404的会员收入不可统计
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19624#       发表于 2020-12-2 08:53
+
+
+
+
+咱一直觉得这表图一乐还行，真要算主播收入参考价值不大.....去掉阿B阴兵，404会员收入，两个平台抽成不同，企业社团抽成不同，上税（或许）不同...... 跨平台跨国家跨社团仅仅比较流水总额还是太简略了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19625#       发表于 2020-12-2 08:57
+
+
+
+
+恰恰相反，这张图非常之好：
+
+1. mmr推的人&gt;mmr恨的人
+
+2. B站&gt;油管
+
+
+只有掌握了先射箭再画靶子的技术才能获得人心。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|在理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 19626#       发表于 2020-12-2 09:01
+
+
+
+
+变相看各平台的消费能力还蛮不错的，不过可能要把几个月合起来看更好点
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 19627#       发表于 2020-12-2 09:03
+
+
+
+
+现在会员最多的是谁有多少啊
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 19628#       发表于 2020-12-2 09:06
+
+
+
+
+这图不算油管会员和饭盒等难以统计的收入也就是图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19629#       发表于 2020-12-2 09:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站的收入数据体现是比油管充分一些，但是b站的充电应该也没算进去，相对的油管则是会员和会限sc没有算进，b站充电和会限sc算对消，会员收入按低算，应该也有sc的一半左右，可以考虑404sc乘个1.5倍当作常规数据。
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 19630#       发表于 2020-12-2 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49582839&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-2 08:57</a>
+
+恰恰相反，这张图非常之好：
+
+1. mmr推的人&gt;mmr恨的人
+
+2. B站&gt;油管</blockquote>
+可是图里明明是油管大于B站啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19631#       发表于 2020-12-2 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49582887&amp;ptid=1969498" target="_blank">寒星 发表于 2020-12-2 09:03</a>
+
+现在会员最多的是谁有多少啊</blockquote>
+最多的应该是鲨皇，保底1.2w，预估实际1.5w左右。且有多档会员。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19632#       发表于 2020-12-2 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49582887&amp;ptid=1969498" target="_blank">寒星 发表于 2020-12-2 09:03</a>
+ 现在会员最多的是谁有多少啊</blockquote>
+最多的肯定是鲨皇，之前搞会员投票就有1w多，这个月删档歌回又收了一大票会员。en总体的会员数量都挺吓人的，jp这边兔子这个月应该超龙了吧，推算下来多的有兔狗龙羊船狐夸，大多数是和订阅差不多的，心心这个月会员也可能有暴增。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19633#       发表于 2020-12-2 09:11
+
+
+
+
+任何所谓的数据统计都是图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19634#       发表于 2020-12-2 09:11
+
+
+
+<img src="https://p.sda1.dev/0/bbcb196b63da1033475294edb185ef54/i.imgur.com_6kGu1Ov.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 19635#       发表于 2020-12-2 09:13
+
+
+
+ 本帖最后由 寒星 于 2020-12-2 09:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49582934&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-2 09:08</a>
+最多的应该是鲨皇，保底1.2w，预估实际1.5w左右。且有多档会员。</blockquote>
+草，那也差太多了，到严重失真的地步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实可以把hiyoko的会员人数加进去的，这样差也不会差很多
+
+看了一下，除了鲨鱼特别多，其它头部大概5000左右，基本在300万这个区间差不多
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 19636#       发表于 2020-12-2 09:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">金鱼roa这么打击石油佬的么
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19637#       发表于 2020-12-2 09:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传统老图来了，和上月相比，虹杏sc都呈上升趋势，杏9月的数据，五期buff还在，en势头正猛，估计短期内是很难超过9月的数字了，虹男的sc真的很强势。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19638#       发表于 2020-12-2 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你虹能活得出2020年么，fes真被zf叫停，你虹原地解散吧
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19639#       发表于 2020-12-2 09:23
+
+
+
+
+想win还是要找好角度：404管人圈差不多就是日本直播圈，批站管人圈不过是cn拉跨平台的分区罢了(◡ ω ◡)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19640#       发表于 2020-12-2 09:26
+
+
+
+
+看这图可以用来宣布爱丽丝赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 19641#       发表于 2020-12-2 09:26
+
+
+
+
+油男有什么特别回吗？没有那不是虹最强sc选手
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19642#       发表于 2020-12-2 09:28
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-2 09:42 编辑 
+
+估计虹光俩个专辑最终流水就和杏一个月的sc差不多了，而且企业拿的肯定比同样流水的sc多，更别说还有投资，2000别担心了。
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 19643#       发表于 2020-12-2 09:40
+
+
+
+
+造完了2434大桥？没怎么看油男直播，在爆笑合集里了解到的
+
+那桥晚上开了光影的确很好看
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19644#       发表于 2020-12-2 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那也是田角为首的资本家吃大头，等待低收入liver的命运只有救济金和80开除，
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 19645#       发表于 2020-12-2 09:44
+
+
+
+
+在10月的榜上就已经是虚拟伏地魔了啊，杏的记得狐坦标了个狐狸头表情，臭脚标的一颗红心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19646#       发表于 2020-12-2 09:51
+
+
+
+
+咱喜欢这个
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/095149x0ns98sq0ztuphn4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201202105047.jpg</strong> (33.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 09:51 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19647#       发表于 2020-12-2 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49582930&amp;ptid=1969498" target="_blank">6二三 发表于 2020-12-2 09:07</a>
+
+可是图里明明是油管大于B站啊</blockquote>
+有没有反过来解释的角度嘛？
+
+有的。
+
+有就行了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19648#       发表于 2020-12-2 10:01
+
+
+
+
+也没差多少嘛，中国vs世界，哦不对，是睿国vs世界<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19649#       发表于 2020-12-2 10:02
+
+
+
+
+以后蝗狐心三人就是房间里的大象了，虽然从数据上讲只有蝗算是大象，另外二小姐前一个月同接和夸平起平坐，最近白皮红利消退了不少数据也拉胯了
+
+
+syl 兔子早安推提到了圣诞节，今年不会还要嗯推八字母营业吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+算了，总比吸一堆白皮好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 19650#       发表于 2020-12-2 10:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">华生风暴2.5w同接。。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19651#       发表于 2020-12-2 10:07
+
+
+
+
+另外这个ykw是真的太监，堪比当年“三字母”的发明。
+
+
+
+
+
+                                            
