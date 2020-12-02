@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 12:07** 
+> ## **本文件最后更新于2020-12-02 16:09** 
 
 
 
@@ -2942,6 +2942,25 @@ ame的风暴爱了爱了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|啊这|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3351,4 +3370,694 @@ hiyoko会扒一个月的直播评论里的会员发言数，每个月总结一�
 
 
 
-                                           
+
+
+-----
+
+####  rzrbtk  
+##### 19692#       发表于 2020-12-2 12:29
+
+
+
+
+管人微相关话题，最近发现我喜欢的一位在日华人小说家（主要写女同推理和女同sf），少有的点赞了与作品评价无关的推，
+分别是大小姐说自己收到原神工商和大小姐原神fanart这两条，
+说实话非常好奇为什么是这两（不是说大小姐不好，就是想不出大小姐和他喜好的重叠之处)，如果是喜欢原神那好多人在玩，为什么是大小姐呢......地、地滑？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19693#       发表于 2020-12-2 12:33
+
+
+
+
+五字母七字母是啥
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19694#       发表于 2020-12-2 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585155&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-2 12:29</a>
+管人微相关话题，最近发现我喜欢的一位在日华人小说家（主要写女同推理和女同sf），少有的点赞了与作品评价 ...</blockquote>
+能科普一下这位小说家吗..... 作品有无汉化好不好看<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19695#       发表于 2020-12-2 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585155&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-2 12:29</a>
+
+管人微相关话题，最近发现我喜欢的一位在日华人小说家（主要写女同推理和女同sf），少有的点赞了与作品评价 ...</blockquote>
+点赞转推不是很正常，偶尔刷到了就点一个，我关注的女作家还给女菩萨点过呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19696#       发表于 2020-12-2 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585155&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-2 12:29</a>
+
+管人微相关话题，最近发现我喜欢的一位在日华人小说家（主要写女同推理和女同sf），少有的点赞了与作品评价 ...</blockquote>
+其实整个油管，差不多同接最高的原神主播，第一是叶，第二是鹰宫，何况还是日本人，那被推送大小姐太正常了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19697#       发表于 2020-12-2 12:46
+
+
+
+
+管人完全无关，
+是说陸秋槎啦（[https://twitter.com/luqiucha/likes](https://twitter.com/luqiucha/likes)），
+
+在国内可能是为了出版吧，隐晦地写了一些中文药味女同推理，去日本那边就写了个日语SF。
+
+我觉得怪是因为这位真的很吝啬自己作品以外的点赞，突然来个大小姐，仿佛是被买赞...推能买赞吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 19698#       发表于 2020-12-2 12:51
+
+
+
+
+那首歌上首页了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 19699#       发表于 2020-12-2 12:52
+
+
+
+
+虽然我知道s1的大家不看bili，但是不把那几个人名字去掉是想等着看自己的评论区一团乱吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+做视频的人也不想这样的吧
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 19700#       发表于 2020-12-2 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585341&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-2 12:46</a>
+管人完全无关，
+
+是说陸秋槎啦（https://twitter.com/luqiucha/likes），
+
+在国内可能是为了出版吧，隐晦地写 ...</blockquote>
+手机不知道怎么反白，陆秋槎豆瓣上提到过自己最近在玩原神，可能是通过这个了解到的
+当然豆瓣推理圈也有管人粉丝存在
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|worldwide原神|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19701#       发表于 2020-12-2 13:02
+
+
+
+
+别尬黑，我一直只看bilibili啊 ͡°ᴥ ͡° ，就是只看DOTA而已
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19702#       发表于 2020-12-2 13:07
+
+
+
+
+国内女粉的消费习惯是不是和日本女粉不太一样？叶师昨天b限流水4w5rmb，葛叶上个月sc都1000w了。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19703#       发表于 2020-12-2 13:12
+
+
+
+
+这有啥可比性吗。。。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 19704#       发表于 2020-12-2 13:13
+
+
+
+<blockquote>OldGlory 发表于 2020-12-2 13:07
+国内女粉的消费习惯是不是和日本女粉不太一样？叶师昨天b限流水4w5rmb，葛叶上个月sc都1000w了。 ...</blockquote>
+葛叶有生日回，叶师这只是工作日原神工商能比吗…而且不少不看原神的
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19705#       发表于 2020-12-2 13:25
+
+
+
+
+收租和正经直播比，这是holo的思维<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 19706#       发表于 2020-12-2 13:30
+
+
+
+
+好！！！
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/132955iqqf00j60t17f1w2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (282.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 13:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 19707#       发表于 2020-12-2 13:50
+
+
+
+
+突然发现moona订阅都要追上nene了，
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19708#       发表于 2020-12-2 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单纯的粉丝量的差别吧，国内虹杏付费粉丝的数量咋也比不上油管的。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19709#       发表于 2020-12-2 14:33
+
+
+
+
+原来pekomoon也是8字母，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl  moona越来越有peko小弟味了，一个HEY MOONA 一个 低沉的sanzhan moona嗓音掐的我笑死
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19710#       发表于 2020-12-2 14:35
+
+
+
+
+播一次几万块 也不少了啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 19711#       发表于 2020-12-2 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585584&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-2 13:07</a>
+国内女粉的消费习惯是不是和日本女粉不太一样？叶师昨天b限流水4w5rmb，葛叶上个月sc都1000w了。 ...</blockquote>
+我昨天看nga吹得很厉害啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19712#       发表于 2020-12-2 14:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/143855s78kdgkh0et3u535.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201202143840.png</strong> (38.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 14:38 上传
+
+
+
+
+
+
+4.5w RMB，75w 日元，很高了啊。是昨天的榜1。
+
+之前木口来收租也很少能这么高的。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 19713#       发表于 2020-12-2 14:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586439&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-2 14:40</a>
+4.5w RMB，75w 日元，很高了啊。是昨天的榜1。
+
+之前木口来收租也很少能这么高的。
+
+ ...</blockquote>
+我看叶师粉还怕被带收租节奏，一群女粉高强度日语刷屏，粉丝都拍手叫好
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19714#       发表于 2020-12-2 14:54
+
+
+
+
+事实上就是收租啊，还是工商收租
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19715#       发表于 2020-12-2 14:55
+
+
+
+ 本帖最后由 恶魔娘阿洛 于 2020-12-2 15:01 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/145456m8vj27kk77fn2821.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201202155417.jpg</strong> (273.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 14:54 上传
+
+
+
+
+
+[https://twitter.com/luna_lia/status/1333724278831730688](https://twitter.com/luna_lia/status/1333724278831730688)
+
+原神X鹰宫
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19716#       发表于 2020-12-2 14:57
+
+
+
+
+工商过来演出，观众正常打赏，拿到了本来也不指望有的打赏，怎么能算收租呢
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 19717#       发表于 2020-12-2 15:16
+
+
+
+
+说收租，小心阳光虹人挂你路灯
+人家也是新时代的宠儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19718#       发表于 2020-12-2 15:17
+
+
+
+
+这叫商演<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 19719#       发表于 2020-12-2 15:21
+
+
+
+
+那我觉得叶师女粉该感谢mhy，没有原神他们都看不到b限
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19720#       发表于 2020-12-2 15:26
+
+
+
+
+阳光虹人草死
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19721#       发表于 2020-12-2 15:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说得叶师根本不来一样
+
+彩虹人也没啥资格说收租，明明是粉丝费拉不堪，只不过黑黑两个人强一点而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19722#       发表于 2020-12-2 15:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 喷子们别尬黑，还有坚持批限得虹liver在呢，而且连租都收不到的算什么阿
+
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 19723#       发表于 2020-12-2 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586816&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2020-12-2 15:21</a>
+
+那我觉得叶师女粉该感谢mhy，没有原神他们都看不到b限</blockquote>
+虽然阿叶今年b限很少，但也是自发来过的，10w纪念就是，那天打的钱比昨天还多，大概8w+
+
+
+mhy我可肯定是感谢的，就阿叶这种沉迷的样子，mhy给工商对他来说就是届到了啊，，他来不来b限无所谓啊，在哪打钱都一样，我推他又不是因为他b限
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 19724#       发表于 2020-12-2 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586950&amp;ptid=1969498" target="_blank">netwof2008 发表于 2020-12-2 15:34</a>
+虽然阿叶今年b限很少，但也是自发来过的，10w纪念就是，那天打的钱比昨天还多，大概8w+
+
+
+mhy我可肯定是感 ...</blockquote>
+来b限，会更开心点吗，还是无所谓在哪都是玩游戏？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19725#       发表于 2020-12-2 15:59
+
+
+
+[https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=59s](https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=59s)
+[https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=2375s](https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=2375s)
+
+
+【#虎城アンナ3D】黙れば美人、話せばキュート、動く姿は鬼可愛い【虎城アンナ / シュガリリ】
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">虎城这个跳得真好
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 19726#       发表于 2020-12-2 16:04
+
+
+
+
+叶我不熟，但至少从昨天来看态度还是良好的，游戏还专门切了中文语音方便中国观众……
+
+
+
+
+
+                                          

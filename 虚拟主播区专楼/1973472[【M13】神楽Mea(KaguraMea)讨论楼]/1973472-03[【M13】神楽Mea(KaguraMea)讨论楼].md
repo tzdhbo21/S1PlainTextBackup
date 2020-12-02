@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 12:15** 
+> ## **本文件最后更新于2020-12-02 16:16** 
 
 
 
@@ -18506,4 +18506,481 @@ for ****<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" re
 
 
 
-             
+
+
+-----
+
+####  Mr.shelter  
+##### 4090#       发表于 2020-12-2 12:32
+
+
+
+
+是对女粉说的，你们想什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4091#       发表于 2020-12-2 12:34
+
+
+
+
+是对出cos的女粉说的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4092#       发表于 2020-12-2 12:35
+
+
+
+
+不是对亭子说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4093#       发表于 2020-12-2 12:38
+
+
+
+
+百合脑gck， 我觉得是对男人说的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4094#       发表于 2020-12-2 12:39
+
+
+
+
+女粉就是女粉，亭子也是女粉我也是女粉我不管我不管我跟女粉绑死了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4095#       发表于 2020-12-2 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为在下对这铝人没那方面的想法所以心理上没法共情，好奇馋你麻身子的女粉是偏好上她还是被上那种
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4096#       发表于 2020-12-2 12:47
+
+
+
+
+........ 诶(ﾟДﾟ)ﾉ给佬？
+
+草草草刚刚看错题了编辑。
+我 都 可 以<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 4097#       发表于 2020-12-2 14:04
+
+
+
+
+你在这里问也没人能回答啊 楼友里难道有女粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|你楼上不就是吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 4098#       发表于 2020-12-2 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">贴贴人不想翻身 至少不是现在
+
+
+我可以等到凛子毕业再抬棺材板
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 4099#       发表于 2020-12-2 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不是，贴贴人还想怎么翻盘啊？b限贴贴木了，指望一年不知道能有几次的404贴贴？还是捡点随口提到的糖渣果腹？
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4100#       发表于 2020-12-2 15:11
+
+
+
+
+大亏就算被大家庭排挤还有盐水，六字母大概只会出现在天狗和crew都不存在的世界里<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 4101#       发表于 2020-12-2 15:13
+
+
+
+ 本帖最后由 深渊萃取 于 2020-12-2 15:16 编辑 
+
+连体人不会消失，只不过再次提纯罢了，世间出现的所有事情都可以化为连体人的糖
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4102#       发表于 2020-12-2 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586720&amp;ptid=1973472" target="_blank">jhouo8989 发表于 2020-12-2 15:11</a>
+大亏就算被大家庭排挤还有盐水，六字母大概只会出现在天狗和crew都不存在的世界里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不好吗
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 4103#       发表于 2020-12-2 15:22
+
+
+
+
+yysy，咩的新歌也可以提炼成糖的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+指望饿死怎么可能嘛
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 4104#       发表于 2020-12-2 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4105#       发表于 2020-12-2 15:48
+
+
+
+
+别打了 别打了... 希望有一天单推人和贴贴人能够放下成见 解决问题 和睦相处 
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4106#       发表于 2020-12-2 15:50
+
+
+
+ 本帖最后由 离心 于 2020-12-2 15:52 编辑 
+
+那八成是异闻带了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4107#       发表于 2020-12-2 15:52
+
+
+
+
+是奇点世界线<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alisafusang  
+##### 4108#       发表于 2020-12-2 15:57
+
+
+
+
+那样还不如世界毁灭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4109#       发表于 2020-12-2 15:58
+
+
+
+
+再这么打下去 你麻就先被毁了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4110#       发表于 2020-12-2 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  finefrenzy  
+##### 4111#       发表于 2020-12-2 16:01
+
+
+
+
+怎么还有这种想法
+
+
+
+
+
+
+
+-----
+
+####  alisafusang  
+##### 4112#       发表于 2020-12-2 16:02
+
+
+
+
+可你不拦着他们，他们就把小麻的头按到大亏的芒果上去了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4113#       发表于 2020-12-2 16:02
+
+
+
+
+当我没说好了……丫头今天动了吗
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4114#       发表于 2020-12-2 16:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我去他房间看看哈
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4115#       发表于 2020-12-2 16:06
+
+
+
+
+午睡的时候梦见丫头了 有点想她了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4116#       发表于 2020-12-2 16:11
+
+
+
+
+听说关注触底反弹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4117#       发表于 2020-12-2 16:14
+
+
+
+
+我已经变成逆事业民了 当个20万粉的小主播好不好 不要涨粉<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+            
