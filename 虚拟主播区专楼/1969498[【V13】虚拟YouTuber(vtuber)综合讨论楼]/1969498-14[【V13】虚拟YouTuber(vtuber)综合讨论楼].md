@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 16:09** 
+> ## **本文件最后更新于2020-12-02 18:08** 
 
 
 
@@ -4032,6 +4032,8 @@ mhy我可肯定是感 ...</blockquote>
 
 
 
+ 本帖最后由 winda 于 2020-12-2 16:17 编辑 
+
 [https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=59s](https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=59s)
 [https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=2375s](https://www.youtube.com/watch?v=L12IPIyAs1Q&amp;t=2375s)
 
@@ -4040,6 +4042,28 @@ mhy我可肯定是感 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">虎城这个跳得真好
 
+<img src="https://p.sda1.dev/0/60393056befb1add706b3cde1fe65cf0/1606896939081.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+| 深渊萃取| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -4060,4 +4084,678 @@ mhy我可肯定是感 ...</blockquote>
 
 
 
-                                          
+
+
+-----
+
+####  katern  
+##### 19727#       发表于 2020-12-2 16:11
+
+
+
+
+叶师对粉丝挺敬业的，虽然我不怎么看男人，但是看了几次联动对叶师傅印象还是挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 19728#       发表于 2020-12-2 16:17
+
+
+
+
+叶师至少看到听到中文不会感到畏惧反而还乐呵呵的。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| WDDzzZ| + 1|思路广|
+| alcoholic1000| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19729#       发表于 2020-12-2 16:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 人家至少没说“一周一次”
+
+
+“每个月都来”
+
+
+“批限会有的”这种怪话
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 19730#       发表于 2020-12-2 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586989&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2020-12-2 15:38</a>
+
+来b限，会更开心点吗，还是无所谓在哪都是玩游戏？</blockquote>
+来b限要看干什么事了，昨天原神我还杞忧抽卡不在b抽播啥呢，结果他走钟离剧情切中文语音语速变慢学说话我可开心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+阿叶直播挺注重和观众交流的，之前10w是预定的杂谈，结果大家太激动他捡不到有效弹幕只能一转游戏，最初开始b限也问过咱们这边啥游戏比较流行。所以从直播效果看肯定在404观看效果更好，他更熟悉也更放得开，不过b限也能看到稀有状态的叶也很好
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19731#       发表于 2020-12-2 16:26
+
+
+
+
+叶师业务能力算挺强吧，好像是说天天都直播？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19732#       发表于 2020-12-2 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+FFB77M[Y@T`7A13[[H{QM`3.jpg
+(40.72 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-2 16:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/162604q5oh899ghn868n5r.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 19733#       发表于 2020-12-2 16:26
+
+
+
+
+月灵姐又上首页了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 19734#       发表于 2020-12-2 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586944&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-2 15:33</a>
+
+喷子们别尬黑，还有坚持批限得虹liver在呢，而且连租都收不到的算什么阿
+
+
+ ...</blockquote>
+刚想说你怎么变成阳光虹人了，往下看下一条发言，还是熟悉的味道
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19735#       发表于 2020-12-2 16:42
+
+
+
+<blockquote>YODOboi 发表于 2020-12-2 16:26
+叶师业务能力算挺强吧，好像是说天天都直播？</blockquote>
+我早上6点起来，他还在原神，严重沉迷，瘾大的厉害，他应该是虹里直播时间最长的之一，全职主播吧
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19736#       发表于 2020-12-2 16:48
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-2 12:29
+管人微相关话题，最近发现我喜欢的一位在日华人小说家（主要写女同推理和女同sf），少有的点赞了与作品评价 ...</blockquote>
+叶跟金憨憨是虹里直播原神最多的，还有一个是神田。两人都有在直播时候求着米忽悠给工商。另外金憨憨s10之后原神直播吸了国内一批玩家，现在金憨憨原神大量熟肉切片，转播无打赏b站稳定20w热度（金憨憨直播原神娱乐效果可能是原神主播第一人）
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19737#       发表于 2020-12-2 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587750&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-2 16:48</a>
+
+叶跟金憨憨是虹里直播原神最多的，还有一个是神田。两人都有在直播时候求着米忽悠给工商。另外金憨憨s10 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是第一人，寸剧一个接一个。早两天直播强化圣遗物中大奖太爽了，跑去打公子爽得跳脸嘲讽被秒，三分钟直接被团灭愉悦送走，比初见还菜，笑麻了
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 19738#       发表于 2020-12-2 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587499&amp;ptid=1969498" target="_blank">YODOboi 发表于 2020-12-2 16:26</a>
+
+叶师业务能力算挺强吧，好像是说天天都直播？</blockquote>
+这也是我入坑点之一了，从出道到现在两年多每天直播就没断过，在外演出也要打的回去直播<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+搞得我一天没看他直播就容易戒断<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19739#       发表于 2020-12-2 17:08
+
+
+
+
+【歌ってみた】夏夜のマジック covered by 花譜
+
+[https://www.youtube.com/watch?v=NLABa95XAig](https://www.youtube.com/watch?v=NLABa95XAig)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 19740#       发表于 2020-12-2 17:12
+
+
+
+
+戒断反应了，什么时候月灵姐姐能再让我shock一次<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+茉莉花那一次是真的融化掉了，在这种人上人的顶级行动力的阳光下像雪一样融化掉了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蠢蠢C  
+##### 19741#       发表于 2020-12-2 17:15
+
+
+
+
+月灵姐姐估计这个月底或者下个月就能有b站的直播？已经说了在做新皮，再加上12月初的音乐会忙完，月底估计还有新年音乐会，过了这个月可能就就有空了
+
+
+
+
+
+
+
+-----
+
+####  mmmrm  
+##### 19742#       发表于 2020-12-2 17:18
+
+
+
+
+叶师从昨晚6点一直播到今天白天，好像中间就歇了2小时，中午12点我进去发现他还在写钟离测评的文本，mhy这工商也太值了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 19743#       发表于 2020-12-2 17:21
+
+
+
+ 本帖最后由 cckuku 于 2020-12-2 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585341&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-2 12:46</a>
+
+ 管人完全无关， 是说陸秋槎啦（[https://twitter.com/luqiucha/likes](https://twitter.com/luqiucha/likes)）， 在国内可能是为了出版吧，隐晦地写 ...</blockquote>
+风怒
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 19744#       发表于 2020-12-2 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49585341&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-2 12:46</a>
+ 管人完全无关， 是说陸秋槎啦（https://twitter.com/luqiucha/likes）， 在国内可能是为了出版吧，隐晦地写 ...</blockquote>
+陆秋槎的文写的一股中日合拍的味儿，好难看懂<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19745#       发表于 2020-12-2 17:24
+
+
+
+
+要是叶师能把打原神的精力拿去干别的我就去推了，可惜我对mhy有梁木，正负相抵
+
+如果把我打的钱打给mhy，我气炸<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|+1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19746#       发表于 2020-12-2 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+f766eb7d572cee277bd0b8058b56f3756286da0f.png@1320w_738h.png
+(631.61 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-2 17:24 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/172408xcc4nm8x0843e4r8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f766eb7d572cee277bd0b8058b56f3756286da0f.png@1320w_738h.png
+(631.61 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-2 17:24 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/172431x38eqmuggmts6ss8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 19747#       发表于 2020-12-2 17:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说ykw太监岂不是在明讽几个月之前的泥潭外野？坛友太不基德了
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19748#       发表于 2020-12-2 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588111&amp;ptid=1969498" target="_blank">cckuku 发表于 2020-12-2 17:21</a>
+陆秋槎的文写的一股中日合拍的味儿，好难看懂</blockquote>
+热爱掉中国文化书袋的日轻小说家<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">，
+增加一点管人浓度，
+fes开票了，好想去好想去好想去<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">；
+ina准备和观众一起学krita了（免费绘画软件），不愧是画师型vtb，会不会将来有一天开始学blender<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。
+以及，谢谢楼友们每天变着花样告诉我原神有多红<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 19749#       发表于 2020-12-2 17:36
+
+
+
+
+垃圾圆脸终于乞讨不到封面了，讨不到封面后做都懒得自己做，真是垃圾
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/173629j0qfaaap9nnb0emw.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (131.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 17:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 19750#       发表于 2020-12-2 17:41
+
+
+
+
+原神有那么多内容可以打吗？怎么还没腻？
+
+
+
+
+
+
+
+-----
+
+####  Moseszi  
+##### 19751#       发表于 2020-12-2 17:44
+
+
+
+
+有一说一，就算叶师没拿到工商他也一样这样播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 19752#       发表于 2020-12-2 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">自己说了这个月apex抽卡不开sc怎么办
+
+换个游戏继续抽就行了
+
+
+
+
+
+
+
+Screenshot_2020-12-02-17-37-51-994_com.twitter.android~01.png
+(808.58 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-2 17:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/174451p354nsv04s6zmmpm.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19753#       发表于 2020-12-2 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588323&amp;ptid=1969498" target="_blank">好德我基 发表于 2020-12-2 17:41</a>
+
+原神有那么多内容可以打吗？怎么还没腻？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">虽然我没研究过，原神开1.1的时候也AFK了
+
+不过估计...就和wow一样，日常刷刷一圈本看脸掉装备，然后就是打木桩研究输出手法...
+
+
+
+
+
+
+
+-----
+
+####  突然空虚  
+##### 19754#       发表于 2020-12-2 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587500&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-2 16:26</a></blockquote>
+指kuso shine连发的文明小学生吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
