@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 10:07** 
+> ## **本文件最后更新于2020-12-02 12:07** 
 
 
 
@@ -2655,4 +2655,700 @@ syl 兔子早安推提到了圣诞节，今年不会还要嗯推八字母营业�
 
 
 
-                                            
+
+
+-----
+
+####  katern  
+##### 19652#       发表于 2020-12-2 10:09
+
+
+
+ 本帖最后由 katern 于 2020-12-2 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583495&amp;ptid=1969498" target="_blank">フミさん 发表于 2020-12-2 10:07</a>
+
+华生风暴2.5w同接。。。</blockquote>
+风暴要火<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+syl  原来是脑补的，编辑了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19653#       发表于 2020-12-2 10:13
+
+
+
+
+兔子会员数量应该在十月甚至更早就超龙了，看什么时候能超ame吧
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19654#       发表于 2020-12-2 10:19
+
+
+
+
+这个避讳又难看又弱智……难道是担心有冠军粉去粉桐生女士吗？
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19655#       发表于 2020-12-2 10:21
+
+
+
+
+你juan没冠军粉的，冠军只有被当成劈人工具和被骂德不配位两种结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19656#       发表于 2020-12-2 10:23
+
+
+
+ 本帖最后由 caupollen 于 2020-12-2 10:30 编辑 
+
+这人油管发的版本其实是没避讳的原名
+
+虽然我也不知道又啥好避讳的，有可能不少人看见这名字就犯ptsd影响心情犯恶心🤢
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19657#       发表于 2020-12-2 10:23
+
+
+
+
+阿B的MMR冠军粉可多了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19658#       发表于 2020-12-2 10:23
+
+
+
+
+显然这避讳是真的会有人因为视频出现与它有关的东西而把up主也冲了啊，都tm被逼的。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19659#       发表于 2020-12-2 10:26
+
+
+
+
+v8 nga 很多人发图不都把虫蝗头像名字打码
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19660#       发表于 2020-12-2 10:26
+
+
+
+
+桐生女士在统计视频数据高是事实啊，这还能冲太离谱了
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 19661#       发表于 2020-12-2 10:28
+
+
+
+
+单纯是看到那张脸就会生理不适罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 19662#       发表于 2020-12-2 10:31
+
+
+
+
+404会员数量咋估计的啊  看会限帖子回复数量 会限表情数量？
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 19663#       发表于 2020-12-2 10:32
+
+
+
+
+ame的风暴爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19664#       发表于 2020-12-2 10:35
+
+
+
+
+上周兔鸡，这种九字母，现在又发圣诞节抄气氛，兔宝你变了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19665#       发表于 2020-12-2 10:36
+
+
+
+ 本帖最后由 admentus 于 2020-12-2 10:38 编辑 
+<blockquote>aptx318 发表于 2020-12-2 10:31
+404会员数量咋估计的啊  看会限帖子回复数量 会限表情数量？</blockquote>
+平时直播会员id发言数量统计，会限的点赞数，社区会限投票数量，然后大致对比一下，具体数量的话就比较难猜了...会限表情很多人的表情都是没用满的，所以参考价值不大
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 19666#       发表于 2020-12-2 10:37
+
+
+
+
+所以兔宝35moona火鸡修罗场桃铁什么时候搞啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 19667#       发表于 2020-12-2 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583497&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-2 10:07</a>
+另外这个ykw是真的太监，堪比当年“三字母”的发明。</blockquote>
+不懂就问，ykw是哪个V<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19668#       发表于 2020-12-2 10:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583836&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-2 10:38</a>
+
+不懂就问，ykw是哪个V</blockquote>
+三个 赤井心 白上吹雪 tskk
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19669#       发表于 2020-12-2 10:40
+
+
+
+
+ykw是什么的简写啊？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19670#       发表于 2020-12-2 10:40
+
+
+
+
+郡道最近有在上英语课（线上，估计很水），希望她的英语能回到留学阶段的水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19671#       发表于 2020-12-2 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583761&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-2 10:31</a>
+
+404会员数量咋估计的啊  看会限帖子回复数量 会限表情数量？</blockquote>
+hiyoko会扒一个月的直播评论里的会员发言数，每个月总结一次，然后根据这个数值和liver自己在直播里的透露，会员发言数一般是实际会员数的百分之60-百分之80，估算一般都按最低估计，也就是百分之80，比如鲨鱼会员发言数1w2左右，预估实际就是1w5左右，然后虽然会限分档，一般也统一按500日元估算了。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19672#       发表于 2020-12-2 10:43
+
+
+
+<blockquote>admentus 发表于 2020-12-2 10:40
+ykw是什么的简写啊？</blockquote>
+you know who
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 19673#       发表于 2020-12-2 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583836&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-2 10:38</a>
+
+不懂就问，ykw是哪个V</blockquote>
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gl9beq85p2j200s00s0fd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 19674#       发表于 2020-12-2 10:47
+
+
+
+
+昨天线下不是连名字都不能提么，但都知道说话的是谁，也挺符合YouKnowWho的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19675#       发表于 2020-12-2 10:49
+
+
+
+
+昨天大天使和PP天使连线里到底有没有桐生女士出声啊
+
+
+
+
+
+
+
+-----
+
+####  DenkiBran  
+##### 19676#       发表于 2020-12-2 10:51
+
+
+
+
+兔子和moona联动用的tag不是pekomoon吗，这才是八字母。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19677#       发表于 2020-12-2 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49581946&amp;ptid=1969498" target="_blank">zore 发表于 2020-12-2 01:12</a>
+
+屑精灵不是还有个组在薜荔薜荔吗
+
+
+syl、警花一直在t台当小主播.千铃哪去了 ...</blockquote>
+迅龙去追梦做声优了
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 19678#       发表于 2020-12-2 10:58
+
+
+
+
+阿叶可太喜欢钟离了，从昨天开始到现在一直在玩，就没休息多少，昨天测钟离觉得弱弱的，表情十分难过，头铁一直尝试，今天终于有点起色了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 19679#       发表于 2020-12-2 11:03
+
+
+
+ 本帖最后由 十四洲 于 2020-12-2 11:06 编辑 
+
+那个up之前发动态说用ykw是为了过审
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19680#       发表于 2020-12-2 11:06
+
+
+
+
+那阿B用什么理由卡着不让过？
+
+
+
+
+
+
+
+-----
+
+####  矮矮人  
+##### 19681#       发表于 2020-12-2 11:06
+
+
+
+
+那兔鸡是几字母
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19682#       发表于 2020-12-2 11:07
+
+
+
+
+我看#pekomoon和#pekomoona两个都有人用，前者更多一些
+
+不过原八字母现在属于官方营业，其地位短期内应该撼动不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 19683#       发表于 2020-12-2 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一眼看成pokemon。老任能动手🐴
+
+— from OPPO PDEM30, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 19684#       发表于 2020-12-2 11:10
+
+
+
+
+pekomoon，这就是新时代的月之美兔<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 19685#       发表于 2020-12-2 11:11
+
+编辑了
+
+
+ 本帖最后由 S_koname 于 2020-12-2 11:15 编辑 
+
+编辑了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19686#       发表于 2020-12-2 11:11
+
+
+
+
+兔鸡用的是pekokia，七字母
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19687#       发表于 2020-12-2 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49584220&amp;ptid=1969498" target="_blank">kikiwalu 发表于 2020-12-2 11:10</a>
+
+pekomoon，这就是新时代的月之美兔
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+印尼猴子打败了日本天皇，这就是新时代的vtuber吗，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19688#       发表于 2020-12-2 11:14
+
+
+
+
+七八九字母都占完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19689#       发表于 2020-12-2 11:28
+
+
+
+
+三四五六七八九字母好像都被占了？
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 19690#       发表于 2020-12-2 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583872&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-2 10:41</a>
+
+hiyoko会扒一个月的直播评论里的会员发言数，每个月总结一次，然后根据这个数值和liver自己在直播里的透 ...</blockquote>
+1.5万会员就是7.5w美刀的收入啊。。而且还没算视频播放的广告收入
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 19691#       发表于 2020-12-2 11:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/115745oj1a5jjrw1jz7z14.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoJVw3FVgAA08tn.jpg</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 11:57 上传
+
+
+
+
+
+有内味了
+[https://twitter.com/luna_lia/status/1333724278831730688](https://twitter.com/luna_lia/status/1333724278831730688)
+
+
+
+
+
+                                           

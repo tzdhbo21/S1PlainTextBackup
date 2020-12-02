@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 00:16** 
+> ## **本文件最后更新于2020-12-02 12:15** 
 
 
 
@@ -18036,4 +18036,474 @@ bls:幻痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
 
-              
+
+
+-----
+
+####  2111X  
+##### 4062#       发表于 2020-12-2 01:46
+
+
+
+
+别急着咬啊，互相利用不好吗。
+
+现在还有余地，至少还有一个扫楼视频在b手里，急死人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 4063#       发表于 2020-12-2 07:59
+
+
+
+
+只有B利用天狗的份 天狗何德何能能利用阿b<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 4064#       发表于 2020-12-2 08:29
+
+
+
+
+学连体人是认真的？别学了，人能马上提高觉悟和天狗划清界限，楼友行吗？
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4065#       发表于 2020-12-2 08:45
+
+
+
+
+施压有用日本团队至于拉垮吗
+还幻想着是旧时代吗
+先让mea的风波过去才是至关重要
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4066#       发表于 2020-12-2 08:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我觉得风波已经过去大半了呀。就是这年头在你B打钱实在是让太多人失去欲望，但麻可能又不懂这么多，别变成“我现在越来越认真打理B这边的直播了为什么收入一降再降，我的愿望理想期许都被打破了的如今，你们还把我抛弃了”
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4067#       发表于 2020-12-2 08:54
+
+
+
+
+走sl饭盒是好的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">，抽成少，收入高。
+
+syl油管23.5了，好起来了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4068#       发表于 2020-12-2 09:31
+
+
+
+
+我醒了 竟然没突tc 她心里有我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4069#       发表于 2020-12-2 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">楼友在说什么玩意儿
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 4070#       发表于 2020-12-2 09:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发病罢了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4071#       发表于 2020-12-2 09:50
+
+
+
+
+楼友们没啥事就玩玩游戏，少发点病<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4072#       发表于 2020-12-2 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4073#       发表于 2020-12-2 09:54
+
+
+
+
+直接和小麻结婚给钱0抽成！
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4074#       发表于 2020-12-2 09:56
+
+
+
+
+有道理，我出发了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4075#       发表于 2020-12-2 09:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4076#       发表于 2020-12-2 10:26
+
+
+
+
+担心的话可以学毛子多往slab打钱附言“来自中国的爱，因为不喜欢bilibili所以用slab”
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4077#       发表于 2020-12-2 10:32
+
+
+
+
+for ****<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4078#       发表于 2020-12-2 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">咩不在就摘头套看黑皮好乐啊
+
+我好快乐啊
+
+所以今天播吗
+
+不播我去看乐子
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 4079#       发表于 2020-12-2 11:16
+
+
+
+
+和小麻结婚是负抽成啊 她的就是我的 打一份钱两个人享用 是家用 开心
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4080#       发表于 2020-12-2 11:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，这铝人什么时候改的签名，“为了你我不惜一切”味儿也太冲了吧
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4081#       发表于 2020-12-2 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49584364&amp;ptid=1973472" target="_blank">笋狐 发表于 2020-12-2 11:23</a>
+卧槽，这铝人什么时候改的签名，“为了你我不惜一切”味儿也太冲了吧 ...</blockquote>
+几天前了，罪恶王冠歌词啊
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4082#       发表于 2020-12-2 11:26
+
+
+
+
+这个还是<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">发散能让我接受一点
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4083#       发表于 2020-12-2 11:27
+
+
+
+
+又想起她当时和苔姨说网管时的尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4084#       发表于 2020-12-2 11:29
+
+
+
+
+小嘛为了我不惜一切，好起来了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4085#       发表于 2020-12-2 11:29
+
+
+
+
+好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4086#       发表于 2020-12-2 11:49
+
+
+
+
+不是给大亏说的？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4087#       发表于 2020-12-2 11:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4088#       发表于 2020-12-2 12:09
+
+
+
+
+其实是对梶裕贵说的
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 4089#       发表于 2020-12-2 12:10
+
+
+
+<blockquote>いつか私を知ることができたなら
+
+必ずその場所に私はいるから
+
+そこに希望の欠片すらなかったとしても
+
+私が在ってはならないものであっても
+
+君は忘れないでいてくれることを
+
+誰よりも私がそのことを知ってる
+
+だから私は君のために全てを
+
+今　捧ごう</blockquote>
+
+
+
+
+
+             
