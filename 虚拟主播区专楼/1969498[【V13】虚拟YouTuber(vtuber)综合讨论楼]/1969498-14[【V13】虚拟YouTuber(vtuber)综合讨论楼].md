@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 22:10** 
+> ## **本文件最后更新于2020-12-03 00:09** 
 
 
 
@@ -6371,10 +6371,11 @@ FPS有AIM和其他日课（不算游戏自带训练场），从PUBG、マリオ�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| KaboomMirai| + 1|好评加鹅|
 | 空集| + 1|才知道叶师那么牛|
 
 
@@ -6554,4 +6555,755 @@ PUBG初心者講座DBD解説プ ...</blockquote>
 
 
 
-                                      
+
+
+-----
+
+####  十四洲  
+##### 19852#       发表于 2020-12-2 22:10
+
+
+
+
+虽然楼友可能只是随口一说，没别的意思，不过说叶混日子，那管人界不是人均混子…
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19853#       发表于 2020-12-2 22:11
+
+
+
+
+不是说去试那个同时试听的功能吗？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19854#       发表于 2020-12-2 22:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/222152qiwpnariimnrjwmz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201202232135.png</strong> (341.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 22:21 上传
+
+
+
+
+
+
+MHY做的确实强，远处看钟离的Q是这样的，好鸡儿酷炫
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 19855#       发表于 2020-12-2 22:22
+
+
+
+
+我感觉我这辈子都不会对短发眼镜boki了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19856#       发表于 2020-12-2 22:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">菜○文禁止
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19857#       发表于 2020-12-2 22:38
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-2 22:44 编辑 
+
+大量gif警告<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"> 
+
+
+
+火锅合家欢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">：
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gl9vo0qajsg20dq08c4qt.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gl9vzqia80g20jg09l1l1.gif" referrerpolicy="no-referrer">
+
+
+社长要掀桌了，快拦住他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gl9voxdks2g20f208c1l5.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gl9vrq0phkg20gc08c1l4.gif" referrerpolicy="no-referrer">
+
+
+夜见魔术之大变平面锅<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">：
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gl9vsbxk3mg20f609q4qt.gif" referrerpolicy="no-referrer">
+
+
+”礼物只是家里的存货“系列<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">：
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gl9vv91z4ag20gl09gqv9.gif" referrerpolicy="no-referrer">
+
+
+游戏王现场开包<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">：
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gl9vyh4kgtg20dp07s7wp.gif" referrerpolicy="no-referrer">
+
+
+除了夜见谁都玩不转的自拍杆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">：
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gl9vwqdgxgg20dp07snpk.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gl9vwxfu4dg20dp07skjt.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gl9vx3q7pmg20dp07s4qx.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|耳朵；；|
+| rzrbtk| + 1|好美丽的3D，羡慕|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 19858#       发表于 2020-12-2 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589761&amp;ptid=1969498" target="_blank">fghc_h 发表于 2020-12-2 20:07</a>
+
+35刚泄露了啥，没留意谁来repo下</blockquote>
+COD的过关攻略TXT
+
+看样子是怕工商打不过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19859#       发表于 2020-12-2 22:40
+
+
+
+
+转播41w 行吧
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 19860#       发表于 2020-12-2 22:48
+
+
+
+
+原神你不把它当手游看其实是挺不错的游戏，说比剑盾强个10倍不会有意见吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 剑盾那玩意都能卖一千七百万份
+
+要说直播效果，我是真的好奇能看进去剑盾直播的都是什么人，看熊猫人玩剑盾无聊得我怀疑人生
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19861#       发表于 2020-12-2 22:51
+
+
+
+
+舰长也就30个 转播40w人气 是不是之前打的钱的热度还留着啊
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 19862#       发表于 2020-12-2 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590476&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-2 21:32</a>
+
+不让夸夸rp5岁，难道让她哭着播？你管得着别人怎么直播么。
+
+某人还不喜欢船长说英语呢，我看船长im hentai  ...</blockquote>
+你综谈直播感受还要管主播在不在乎了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他就表达下不喜欢5岁rp怎么就成“不让”了😅
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19863#       发表于 2020-12-2 22:59
+
+
+
+
+怎么还有人把车开到MIKO老鼠台这边的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在聊天室真是群蛙乱舞
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19864#       发表于 2020-12-2 23:00
+
+
+
+
+原神和宝可梦这IP比，配吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就算剑盾再砍一截图鉴，把动画做成ppt卖60刀还是能卖爆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+反过来说，原神要是买断60刀也不会有人说什么，p2p<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 19865#       发表于 2020-12-2 23:02
+
+
+
+
+老鼠台是不是没墙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19866#       发表于 2020-12-2 23:02
+
+
+
+
+其实工商的时候 也没几个人打钱 已经47w了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19867#       发表于 2020-12-2 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金憨憨疯狂给钟离和温蒂拍合照
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19868#       发表于 2020-12-2 23:04
+
+
+
+<blockquote>ylssb10438 发表于 2020-12-2 22:58
+你综谈直播感受还要管主播在不在乎了吗他就表达下不喜欢5岁rp怎么就成“不让”了😅 ...</blockquote>
+船员有发表自己观点的权利
+
+crew也有发表自己观点的权利
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19869#       发表于 2020-12-2 23:05
+
+
+
+<blockquote>AKili 发表于 2020-12-2 23:02
+老鼠台是不是没墙啊</blockquote>
+有的
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 19870#       发表于 2020-12-2 23:05
+
+
+
+
+老鼠台环境日常就是弹幕对刷
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19871#       发表于 2020-12-2 23:07
+
+
+
+
+老鼠台可以说是自带独轮车
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19872#       发表于 2020-12-2 23:08
+
+
+
+
+郡道现在人在哪呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19873#       发表于 2020-12-2 23:08
+
+
+
+
+不行，蛙味太浓了，溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  DenkiBran  
+##### 19874#       发表于 2020-12-2 23:10
+
+
+
+
+老鼠台当然有墙，而且看了眼除了4v自嗨哪有人车，倒不如说这就是老鼠台的原生环境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19875#       发表于 2020-12-2 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590693&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-2 21:58</a>
+
+这样说感觉叶队真的好厉害啊，感觉这种涉猎范围广泛，都有钻研的，然后本身直播效果也足以留住观众的，在国 ...</blockquote>
+虽然你这么说会很高兴啦！但他其实有些时候注意力不集中或者太累了就会疯狂脑死，这种时候就挺没意思的<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+不过好在会计出身（x）效率之鬼，玩过的游戏（尤其是FPS）很多、对游戏情报搜集信息量也很大（日课）...总之他大部分游戏上手速度都非常快，这种情景作为观众往往会很爽
+
+
+Syl，叶师连mc都能弃游，不用担心他对原神热爱的持久性
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19876#       发表于 2020-12-2 23:18
+
+
+
+<[img src="https://i.loli.net/2020/12/02/lkQiKZfNHeP1sCd.png" referrerpolicy="no-referrer">
+
+原来还可以这样？？有点高级哦
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 19877#       发表于 2020-12-2 23:20
+
+
+
+
+从明晚开始345号的晚8点，azki的live大放送啦，不过播完就删档了，谁有兴趣快来录一下
+
+[https://www.youtube.com/watch?v=ptVGIzQy4w8](https://www.youtube.com/watch?v=ptVGIzQy4w8)
+[https://www.youtube.com/watch?v=rcF9vmNALw0](https://www.youtube.com/watch?v=rcF9vmNALw0)
+[https://www.youtube.com/watch?v=b3f1nBZlpTE](https://www.youtube.com/watch?v=b3f1nBZlpTE)
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/231947djddhrg22yhjvfmg.png" referrerpolicy="no-referrer">
+
+
+<strong>白看.png</strong> (156.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 23:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 19878#       发表于 2020-12-2 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49591238&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-2 23:00</a>
+原神和宝可梦这IP比，配吗
+
+就算剑盾再砍一截图鉴，把动画做成ppt卖60刀还是能卖爆
+
+反过来说 ...</blockquote>
+说的不就是游戏本身质量好坏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+手游氪金经济模式确实病态，不过和管人sc经济模式如出一辙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我反正看管玩原神都是底层4.99刀月卡用户<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19879#       发表于 2020-12-2 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49591414&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-2 23:15</a>
+
+虽然你这么说会很高兴啦！但他其实有些时候注意力不集中或者太累了就会疯狂脑死，这种时候就挺没意思的[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶师不适合播感情线丰富的游戏，因为作业感太强了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19880#       发表于 2020-12-2 23:27
+
+
+
+<blockquote>DenkiBran 发表于 2020-12-2 23:10
+老鼠台当然有墙，而且看了眼除了4v自嗨哪有人车，倒不如说这就是老鼠台的原生环境 ...</blockquote>
+其实17年左右没墙，当时还在上面看比赛
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19881#       发表于 2020-12-2 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讨论游戏质量去游戏区啦，剑盾那玩意儿真的不配当参照
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 19882#       发表于 2020-12-2 23:31
+
+
+
+
+社长送了银憨憨黑魂，好活
+
+
+
+
+
+
+
+-----
+
+####  DenkiBran  
+##### 19883#       发表于 2020-12-2 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49591546&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2020-12-2 23:27</a>
+
+其实17年左右没墙，当时还在上面看比赛</blockquote>
+亚运会后就给墙了，不过没墙的时候也特别慢就是了。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19884#       发表于 2020-12-2 23:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/234323aq1qlrgic56l7l1r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ぎゃあわぉぉぉお.jpg</strong> (177.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 23:43 上传
+
+
+
+
+
+
+
+落地
+
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19885#       发表于 2020-12-2 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">UGE和社筑居然9分一把鸡，APEX节奏这么快的吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19886#       发表于 2020-12-2 23:58
+
+
+
+
+彩虹马车杯，好
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 19887#       发表于 2020-12-3 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49591713&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-2 23:49</a>
+
+UGE和社筑居然9分一把鸡，APEX节奏这么快的吗</blockquote>
+炸鱼是这样的，找人找的准的话很快就能碾光
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 19888#       发表于 2020-12-3 00:08
+
+
+
+
+这马车就在cr杯前一天啊，cr杯那些参赛选手还有时间练车吗（
+
+
+
+
+
+                                     
