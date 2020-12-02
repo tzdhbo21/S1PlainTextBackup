@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 00:09** 
+> ## **本文件最后更新于2020-12-03 02:09** 
 
 
 
@@ -6371,10 +6371,11 @@ FPS有AIM和其他日课（不算游戏自带训练场），从PUBG、マリオ�
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 兄啊你好几把怪| + 1|好评加鹅|
 | KaboomMirai| + 1|好评加鹅|
 | 空集| + 1|才知道叶师那么牛|
 
@@ -7306,4 +7307,192 @@ UGE和社筑居然9分一把鸡，APEX节奏这么快的吗</blockquote>
 
 
 
-                                     
+
+
+-----
+
+####  空集  
+##### 19889#       发表于 2020-12-3 00:12
+
+
+
+
+新的同接记录要来了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19890#       发表于 2020-12-3 00:24
+
+
+
+ 本帖最后由 空集 于 2020-12-3 00:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49591414&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-2 23:15</a>
+虽然你这么说会很高兴啦！但他其实有些时候注意力不集中或者太累了就会疯狂脑死，这种时候就挺没意思的[f ...</blockquote>
+刚才还听别人说叶师平均24小时必一播的事迹，这种情况下偶尔脑死反而更让人有实感，否则也太神了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+上手快确实对于观众来说会很爽，虽然也有人或许喜欢看完全的初见反应，但是对于我来说果然还是要先上手再谈玩的好坏和游戏效果，对于常玩游戏者的话我很清楚很多时候靠经验和直觉可以上手，对玩的少的果然还是希望都事先研究研究也不费多少时间...这个角度来说很多时候看管人游戏直播我还是蛮血压的()
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 19891#       发表于 2020-12-3 00:35
+
+
+
+
+马车杯…又要迎来一大波马车连轴转了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 19892#       发表于 2020-12-3 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589972&amp;ptid=1969498" target="_blank">†バンシー† 发表于 2020-12-2 20:31</a></blockquote>
+这个是？
+
+
+
+
+
+
+
+-----
+
+####  Pa!Nki11eR  
+##### 19893#       发表于 2020-12-3 00:50
+
+
+
+<img src="https://i.loli.net/2020/12/03/4kwzVyJFKXCBvsr.jpg" referrerpolicy="no-referrer">
+
+
+刚才听歌时候真实发生的
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 19894#       发表于 2020-12-3 00:57
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-3 01:04 编辑 
+
+aqua现在直播风格确实和我18年看的时候差别太大了，以前完全是艺人风格怎么现在就想做偶像了呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">    没记错的话这好像也是ホモライブ的出处
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19895#       发表于 2020-12-3 01:09
+
+
+
+
+火鸡竟然在种地，不愧是EN里最接近JP的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 19896#       发表于 2020-12-3 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿希：发布sss前都是感觉在做直播 发sss后木口就有了一种偶像的感觉
+
+阿夸大概也是某一个时候就朝着偶像路狂奔了吧
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19897#       发表于 2020-12-3 01:27
+
+
+
+[https://twitter.com/nab0i/status/1334148947510607878](https://twitter.com/nab0i/status/1334148947510607878)
+
+<img src="https://img.saraba1st.com/forum/202012/03/012658v557patal8wdjt87.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ame我要当你的狗.jpg</strong> (104.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 01:26 上传
+
+
+
+
+
+
+亲妈画的花生 🥰
+
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 19898#       发表于 2020-12-3 01:56
+
+
+
+
+发现经营偶像梦更能来钱呗
+
+
+
+
+
+                                    
