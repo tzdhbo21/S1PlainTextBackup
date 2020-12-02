@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 20:10** 
+> ## **本文件最后更新于2020-12-02 22:10** 
 
 
 
@@ -4512,7 +4512,7 @@ FFB77M[Y@T`7A13[[H{QM`3.jpg
 
 
 f766eb7d572cee277bd0b8058b56f3756286da0f.png@1320w_738h.png
-(631.61 KB, 下载次数: 0)
+(631.61 KB, 下载次数: 1)
 
 
 
@@ -5090,10 +5090,11 @@ hh的bd有资源放出了吗?
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
 | alcoholic1000| + 1|原来可以down，有帮助|
 
 
@@ -5306,4 +5307,1251 @@ hh的bd有资源放出了吗?
 
 
 
-                                        
+
+
+-----
+
+####  秋月艾莉  
+##### 19781#       发表于 2020-12-2 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶着狗妈和hiiro都有这弹幕量，原神和S10确实让金憨憨在这边的人气上升了很多啊
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19782#       发表于 2020-12-2 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 19783#       发表于 2020-12-2 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588136&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-2 17:24</a>
+
+要是叶师能把打原神的精力拿去干别的我就去推了，可惜我对mhy有梁木，正负相抵
+
+如果把我打的钱打给mhy，我 ...</blockquote>
+你好好想想叶师接到mhy工商是从mhy上面拿钱 而不是把你打的钱课给mhy
+
+你该支持才对<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19784#       发表于 2020-12-2 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589879&amp;ptid=1969498" target="_blank">真田源次郎信繁 发表于 2020-12-2 20:21</a>
+
+笑死我了，金憨憨试用关用一分钟不到的时间就和nga的讨论结果达成一致：钟离的输出什么jb，凯亚最强 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欲しいなぁ（棒读
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19785#       发表于 2020-12-2 20:23
+
+
+
+
+兔皇这不是依旧冲上5w了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">暴力
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19786#       发表于 2020-12-2 20:26
+
+
+
+
+别吹同接了，如果高同接/订阅跟看不到傻逼白皮里选一个我肯定选后者<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19787#       发表于 2020-12-2 20:28
+
+
+
+
+金憨憨这热度已经超昨天叶了吧，没多少人打钱的情况
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19788#       发表于 2020-12-2 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">憨憨真有你的，在工商里继续狮子大开口，你直接去堵米忽悠门算了
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 19789#       发表于 2020-12-2 20:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/203141hxzce55lcncyllju.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mI9WsoT.jpg</strong> (68.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 20:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19790#       发表于 2020-12-2 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589969&amp;ptid=1969498" target="_blank">秋月艾莉 发表于 2020-12-2 20:31</a>
+
+憨憨真有你的，在工商里继续狮子大开口，你直接去堵米忽悠门算了</blockquote>
+要求把自己做进游戏，就推特那图吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19791#       发表于 2020-12-2 20:40
+
+
+
+
+金憨憨这个比昨天热闹了
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 19792#       发表于 2020-12-2 20:41
+
+
+
+
+rion食杀hiiro了，不过打钱的人不多
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 19793#       发表于 2020-12-2 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大喊mihoyo后一个十连把up池全抽出来了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 19794#       发表于 2020-12-2 20:43
+
+
+
+
+虽然不待见mhy，你虹海外盘想翻可能真得靠着联动原神<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19795#       发表于 2020-12-2 20:44
+
+
+
+
+【お絵かき配信】メンバーシップ用の絵文字作る！【VTuber / 凛々咲】
+[https://www.youtube.com/watch?v=_kZ-v2MRpJ0](https://www.youtube.com/watch?v=_kZ-v2MRpJ0)
+
+
+什么叫英文浓度啊，白皮石油佬不要太嚣张了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19796#       发表于 2020-12-2 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹幕：“这不乘胜追击给他抽个满破？”
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 19797#       发表于 2020-12-2 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">是暗箱操作吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 19798#       发表于 2020-12-2 20:45
+
+
+
+
+rion这原神播的确实挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 19799#       发表于 2020-12-2 20:47
+
+
+
+
+咋还舔起来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 19800#       发表于 2020-12-2 20:48
+
+
+
+
+十分钟3000互动 恐怖如斯
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 19801#       发表于 2020-12-2 20:49
+
+
+
+
+憨憨花痴有点色
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 19802#       发表于 2020-12-2 20:50
+
+
+
+
+完成她这样得花多少钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19803#       发表于 2020-12-2 20:50
+
+
+
+
+皮好 声音色 人蠢 做饭还好 完美
+
+
+
+
+
+
+
+-----
+
+####  Nieven  
+##### 19804#       发表于 2020-12-2 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590126&amp;ptid=1969498" target="_blank">cckuku 发表于 2020-12-2 20:50</a>
+
+完成她这样得花多少钱啊</blockquote>
+如果说伤害的话无氪玩家都能做到比憨憨伤害高许多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 19805#       发表于 2020-12-2 20:56
+
+
+
+
+Smc这三个人送的礼物也太后浪了，我感觉我逐渐失去了打钱的动力
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19806#       发表于 2020-12-2 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是什么最新按摩法，笑倒了，快团灭了都
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 19807#       发表于 2020-12-2 20:57
+
+
+
+
+大小姐就这几天就涨了万粉，不趁这势头做点啥感觉有点可惜啊
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 19808#       发表于 2020-12-2 21:02
+
+
+
+
+会用翻译软件中文语音播报在V里也挺少见的吧
+
+虽然都是新衣装和活动宣传<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19809#       发表于 2020-12-2 21:06
+
+
+
+
+虽然nga吹互动人数，不过一看，狗妈和鹰宫差不多，狗妈还是真百万粉，宝刀未老啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19810#       发表于 2020-12-2 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">憨憨9点半还开了404直播，这人气多可惜，应该顺带把钟离任务做掉才是
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 19811#       发表于 2020-12-2 21:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rion这个工商，直球让人快去下载。太硬了呀
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 19812#       发表于 2020-12-2 21:08
+
+
+
+
+她没工商也叫人去下……
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 19813#       发表于 2020-12-2 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前报菜名不也这样"mihoyo这个想要 这个也想要"
+
+
+syl"已经充值一亿元了""诶!?"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19814#       发表于 2020-12-2 21:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/210930cqvqh1r9c73q17uf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>i2Q5-hsr5K2cT3cSsg-f6.jpg</strong> (83.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 21:09 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过于直球
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 19815#       发表于 2020-12-2 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，再整活整下去米忽悠真要把rion做进游戏里了吧
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19816#       发表于 2020-12-2 21:13
+
+
+
+ 本帖最后由 flyskywalker92 于 2020-12-2 21:17 编辑 
+
+昨天一个氪金技术流 今天一个摸鱼xp流 整挺好
+
+
+syl 虹女粉丝打钱8行啊
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19817#       发表于 2020-12-2 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589879&amp;ptid=1969498" target="_blank">真田源次郎信繁 发表于 2020-12-2 20:21</a>
+
+笑死我了，金憨憨试用关用一分钟不到的时间就和nga的讨论结果达成一致：钟离的输出什么jb，凯亚最强 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从开了这个试用本开始，就一直都是凯亚体验关没变过啊。。。。。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19818#       发表于 2020-12-2 21:17
+
+
+
+
+这猫狗船夸联动静静着开着。 Live2D只有夸能动   点进去又是安定的5岁rp  说实话 对桃铁来说 没意思。
+
+船的桃铁看到现在都不如最开始线下那盘有意思。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 19819#       发表于 2020-12-2 21:17
+
+
+
+
+想了下原神在海外的风评远好于在国内，工商放在b限也没什么问题
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19820#       发表于 2020-12-2 21:17
+
+
+
+
+憨憨还要米忽悠日本卖马克杯。。。
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 19821#       发表于 2020-12-2 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试用本的臭鱼烂虾们不都是给凯亚大哥打工的
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19822#       发表于 2020-12-2 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是有兔皇在的桃铁就全社让路，没有兔皇在的桃铁就会被撞，这就是实力吧。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 19823#       发表于 2020-12-2 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590259&amp;ptid=1969498" target="_blank">shenqi2552 发表于 2020-12-2 21:08</a>
+
+她没工商也叫人去下……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前在404大喊，这游戏居然是免费的，太过分了，大家也应该下载玩一下
+
+
+然后被弹幕吐槽：氪了不知道多少万的人说什么呢
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 19824#       发表于 2020-12-2 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定真有机会呢，以后配合稻妻开放，被整成彩蛋NPC放进去也够爽的了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 19825#       发表于 2020-12-2 21:22
+
+
+
+ 本帖最后由 flyskywalker92 于 2020-12-2 21:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">憨憨这打钱这么少 看看转播人气
+
+
+
+
+
+
+
+-----
+
+####  hygy0923  
+##### 19826#       发表于 2020-12-2 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590374&amp;ptid=1969498" target="_blank">秋月艾莉 发表于 2020-12-2 21:21</a>
+
+说不定真有机会呢，以后配合稻妻开放，被整成彩蛋NPC放进去也够爽的了 ...</blockquote>
+应该不会，经过holo的大事件后，这么干的风险还是太高了。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19827#       发表于 2020-12-2 21:24
+
+
+
+ 本帖最后由 空集 于 2020-12-2 21:26 编辑 
+
+龙之子都是傻X么  为啥似乎莫名在freechat打起了钱  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+tskk甚至在free chat评论区互动 你休止了个jb啊。  
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 19828#       发表于 2020-12-2 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在互动意思就很明显了啊
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 19829#       发表于 2020-12-2 21:29
+
+
+
+
+不是还有红橙SC么（。
+
+不过那个一发抽满真就离谱儿。
+
+
+
+要是有SC赐名耐久就好了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 19830#       发表于 2020-12-2 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">新时代的阳光虹人也没好到哪去啊 还不是在油管直播间出警中文
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 19831#       发表于 2020-12-2 21:30
+
+
+
+
+大胆一点，tskk在金主discord群私联金主
+
+
+
+
+
+
+
+-----
+
+####  藤宮はすみ  
+##### 19832#       发表于 2020-12-2 21:31
+
+
+
+
+出警中文不是好事？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19833#       发表于 2020-12-2 21:31
+
+
+
+
+会有龙之子逼宫cover下克上吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19834#       发表于 2020-12-2 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590374&amp;ptid=1969498" target="_blank">秋月艾莉 发表于 2020-12-2 21:21</a>
+
+说不定真有机会呢，以后配合稻妻开放，被整成彩蛋NPC放进去也够爽的了 ...</blockquote>
+可能性不大，米忽悠崩崩崩开始就没联动过，也就最近要联动eva，还是因为米忽悠创始人都是eva粉
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19835#       发表于 2020-12-2 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  龙之子有钱也仅仅只是有钱 
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19836#       发表于 2020-12-2 21:32
+
+
+
+
+极限一换一，好事<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19837#       发表于 2020-12-2 21:32
+
+
+
+
+不让夸夸rp5岁，难道让她哭着播？你管得着别人怎么直播么。
+
+某人还不喜欢船长说英语呢，我看船长im hentai 酱说的很欢嘛，船长有在乎你爱不爱看么
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19838#       发表于 2020-12-2 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590374&amp;ptid=1969498" target="_blank">秋月艾莉 发表于 2020-12-2 21:21</a>
+
+说不定真有机会呢，以后配合稻妻开放，被整成彩蛋NPC放进去也够爽的了 ...</blockquote>
+晋江女写手能看得上你套皮yhm吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下次出新男人支线就把你加进去，当个舔狗npc<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19839#       发表于 2020-12-2 21:36
+
+
+
+
+这挺正常的 哪里rp5岁了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19840#       发表于 2020-12-2 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19841#       发表于 2020-12-2 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588613&amp;ptid=1969498" target="_blank">触手姬 发表于 2020-12-2 18:09</a>
+
+以前得叶就混混日子，现在玩了原神后视频都开始做了，叶队难道不该支持吗 ...</blockquote>
+不提整活和其他主观性表现，叶师在<strong>我印象中</strong>做过的攻略性质的配信就有
+[PUBG Tips](https://www.nicovideo.jp/watch/sm33191170)
+[PUBG初心者講座](https://www.youtube.com/watch?v=xNAam_Ujba8)[DBD解説プレイ](https://www.youtube.com/watch?v=C5c-TkQ_tnc&amp;list=RDCMUCspv01oxUFf_MTSipURRhkA&amp;start_radio=1&amp;t=24)
+[あつまれどうぶつの森 タランチュラ捕獲講座](https://www.youtube.com/watch?v=bATPqOhRNbs)
+[Gルート攻略編｜Undertale](https://www.youtube.com/watch?v=WDwyHI3oynE)
+[隻狼 高速プレイ](https://www.youtube.com/watch?v=rJ1U_vKMs2s&amp;list=PLXKMRoeWMiAmjkV4tItOkmvNxs_SVH8ee)
+
+
+除了这些印象中Luigis Mansion3、仁王2、隻狼都做过速推，其中隻狼更是九周目（不含后期回顾篇）（还曾有Protein for Muscle hardモード的RTA世界一位）
+
+他ドールズフロントライン（少前）、アークナイツ （舟）等手游也都在配信中做过攻略。
+
+配信两年多播过的游戏有<strong>200+</strong>，仅油管频道删除影片后仍有<strong>1700+</strong>条，截止到他今年生日<strong>每天平均配信时长约为4小时</strong>，出道当天就播了9小时+，在九个平台有官方账户配信/编集；
+
+FPS有AIM和其他日课（不算游戏自带训练场），从PUBG、マリオカート8 デラックス到APEX都邀请过日本（世界级）Pro做强化教学，（虽然没什么特别进步）但据说在坚持的唱歌训练
+
+
+他混日子吗<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|才知道叶师那么牛|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  最近卡池有毒吧  
+##### 19842#       发表于 2020-12-2 21:46
+
+
+
+
+憨憨今天工商太逗了啊，肚子都笑疼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TRT-AL00A, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 19843#       发表于 2020-12-2 21:48
+
+
+
+
+原神现在看起来就是国内管人区的版本答案了，这是不是日本管人第一次蹭上了国内正好非常火的游戏
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 19844#       发表于 2020-12-2 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590580&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-2 21:44</a>
+
+不提整活和其他主观性表现，叶师在我印象中做过的攻略性质的配信就有
+
+PUBG Tips
+
+PUBG初心者講座DBD解説プ ...</blockquote>
+只狼这些都蛮久了，手游基本玩几次也弃了，从来没有像原神这种沉迷，还做各种深度研究。本身也玩的很开心
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 19845#       发表于 2020-12-2 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590619&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-2 21:48</a>
+
+原神现在看起来就是国内管人区的版本答案了，这是不是日本管人第一次蹭上了国内正好非常火的游戏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">碧蓝航线 明日方舟都有找管人工商
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 19846#       发表于 2020-12-2 21:54
+
+
+
+
+也就舟游算，毕竟也是出男人，瓜游国内圈子更小
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19847#       发表于 2020-12-2 21:58
+
+
+
+
+这样说感觉叶队真的好厉害啊，感觉这种涉猎范围广泛，都有钻研的，然后本身直播效果也足以留住观众的，在国内传统主播圈都对位不多。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19848#       发表于 2020-12-2 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是像原神这么火的手游之前大概也就个yys？
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 19849#       发表于 2020-12-2 22:05
+
+
+
+
+国内二次元还没有，yys也只是国内火，原神现在是全世界火
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19850#       发表于 2020-12-2 22:08
+
+
+
+
+柚木凛戴眼镜了呀，变成软妹了。
+<[img src="https://i.loli.net/2020/12/02/7iUDeqQHRLTrs6J.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19851#       发表于 2020-12-2 22:09
+
+
+
+
+35为什么跑到老鼠台了？被80了？
+
+
+
+
+
+                                      
