@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 20:17** 
+> ## **本文件最后更新于2020-12-03 04:15** 
 
 
 
@@ -19577,4 +19577,395 @@ bga还有活的斗虫民宣布小麻死刑的呢
 
 
 
-           
+
+
+-----
+
+####  makourisu-2  
+##### 4152#       发表于 2020-12-2 20:23
+
+
+
+
+事到如今还有啥可哭的，bls凑合着整整得了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+未来的舞台已经没有你麻的位置了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">但求新时代的观众们高抬贵手给点活路吧
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4153#       发表于 2020-12-2 20:24
+
+
+
+
+财布明天就能收到了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4154#       发表于 2020-12-2 20:50
+
+
+
+
+今天怎么还没消息，已经脑补到你麻向b发动决死冲锋了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+到底摆脱不了命运三女神的捉弄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4155#       发表于 2020-12-2 20:52
+
+
+
+
+FLEET已经全部过期了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4156#       发表于 2020-12-2 20:59
+
+
+
+ 本帖最后由 Joffre✔ 于 2020-12-2 21:42 编辑 
+
+不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4157#       发表于 2020-12-2 21:12
+
+
+
+
+sb贴贴人能不能爬去外面那楼脑补啊，怪恶心的
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4158#       发表于 2020-12-2 22:07
+
+
+
+
+不安
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4159#       发表于 2020-12-2 22:13
+
+
+
+
+贝贝人都完成改造了，只有你楼还在负隅顽抗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4160#       发表于 2020-12-2 22:22
+
+
+
+ 本帖最后由 路人庚 于 2020-12-3 00:10 编辑 
+
+这个月同时有两个b站演出，还有在25日预定和圭利联动、和又一轮的强制b限（bls打榜），总感觉挺忙的，不知道她在演出之前有多少时间能随意勃
+
+
+话说跟黄兔子舞元的测谎仪联动真就这么不动声色的取消了吗（
+
+
+
+更新：bls预赛最终第11名，不会被要求强制b限了
+
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4161#       发表于 2020-12-2 22:27
+
+
+
+
+我猜这几天可能要去录live了 延期的live大概率是录播 直播的话稍有延迟就有ptsd了(不论是观众还是b)
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4162#       发表于 2020-12-2 22:31
+
+
+
+
+其实只是在睡大觉而已<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4163#       发表于 2020-12-2 22:42
+
+
+
+
+bls不是没进前10嘛怎么要打榜的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 4164#       发表于 2020-12-2 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49590932&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2020-12-2 22:27</a>
+
+我猜这几天可能要去录live了 延期的live大概率是录播 直播的话稍有延迟就有ptsd了(不论是观众还是b) ...</blockquote>
+直播唱歌拉跨难道就不会ptsd了么
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4165#       发表于 2020-12-2 23:45
+
+
+
+ 本帖最后由 路人庚 于 2020-12-3 00:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49591056&amp;ptid=1973472" target="_blank">A2014720 发表于 2020-12-2 22:42</a>
+
+bls不是没进前10嘛怎么要打榜的</blockquote>
+外语组进了前10了吧，这次是国语外语分开的
+
+
+更新：外语组并没有进前10
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4166#       发表于 2020-12-2 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4167#       发表于 2020-12-2 23:55
+
+
+
+
+啊？不是说她11吗
+
+真就要强制参加斗虫？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4168#       发表于 2020-12-2 23:55
+
+
+
+
+没进，看戏就完事了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4169#       发表于 2020-12-2 23:56
+
+
+
+ 本帖最后由 路人庚 于 2020-12-3 00:09 编辑 
+
+就这1220演唱会，虽然我认为mea就算只剩线上也是想着不要录播的，不过经历了事故的阿b估计这次按着头也要强行事先准备一个录播备用了8（
+
+
+诶？没进吗？
+
+
+
+syl，
+
+
+还真是，之前看的时候是进去了，不过最终是第十一，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lll447  
+##### 4170#       发表于 2020-12-3 00:59
+
+
+
+
+想看这女人为了粉丝坚定不用录播努力地唱现场的样子<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4171#       发表于 2020-12-3 03:05
+
+
+
+
+tc她来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 4172#       发表于 2020-12-3 03:11
+
+
+
+
+这怎么遭得住哦
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 4173#       发表于 2020-12-3 03:24
+
+
+
+ 本帖最后由 与太郎 于 2020-12-3 03:25 编辑 
+
+吃吃吃，肥肥肥
+
+syl，如果我是mea的哥哥估计会忍不住揍她
+
+
+
+
+
+          
