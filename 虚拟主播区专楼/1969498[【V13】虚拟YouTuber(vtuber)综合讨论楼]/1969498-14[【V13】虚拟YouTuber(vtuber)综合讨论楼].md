@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 18:08** 
+> ## **本文件最后更新于2020-12-02 20:10** 
 
 
 
@@ -4054,10 +4054,11 @@ mhy我可肯定是感 ...</blockquote>
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| zore| + 1||
 | 过不了审| + 1|好评加鹅|
 | 深渊萃取| + 1|好评加鹅|
 
@@ -4758,4 +4759,551 @@ Screenshot_2020-12-02-17-37-51-994_com.twitter.android~01.png
 
 
 
-                                         
+
+
+-----
+
+####  Ketestrait  
+##### 19755#       发表于 2020-12-2 18:08
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gl9o89l57mj20z10mc7ab.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/cFlA8zNdTQI](https://youtu.be/cFlA8zNdTQI)
+
+
+な…鍋？
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 19756#       发表于 2020-12-2 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以前得叶就混混日子，现在玩了原神后视频都开始做了，叶队难道不该支持吗
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19757#       发表于 2020-12-2 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588363&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-2 17:46</a>
+
+虽然我没研究过，原神开1.1的时候也AFK了
+
+不过估计...就和wow一样，日常刷刷一圈本看脸掉装备，然 ...</blockquote>
+没那么多内容，大部分时间都是放空大脑反复进行低回报的机械劳动<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+mhy包装营销做得好，又会pua粉丝群，现在年轻人特别是空余时间多的学生党确实吃这一套
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 19758#       发表于 2020-12-2 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588680&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-2 18:13</a>
+
+没那么多内容，大部分时间都是放空大脑反复进行低回报的机械劳动
+
+mhy包装营销做得好，又会pua粉丝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">竟然是...嗯刷么...
+
+虽然我自己平时刷手游活动刷gbf也是脑死状态就是了
+
+殊途同归殊途同归，手游最后都是一个样
+
+PS：我虽然AFK了，但是原神冒险等级也是40级以上了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19759#       发表于 2020-12-2 18:47
+
+
+
+
+兔子七点的直播居然是apex，没想到啊突然播这个
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 19760#       发表于 2020-12-2 18:48
+
+
+
+
+最近v圈都没什么事发生，好无聊啊，突然想起来狐皇当初说让观众去vtb打钱，如今居然真的做到了，yyds。不知道如今玉米人的心境有没有什么变化，话说v综还有活着的玉米人吗？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 19761#       发表于 2020-12-2 18:58
+
+
+
+
+你这么直钩怎么叫得出来玉米人
+我来教你“狐皇对holo算不算可有可无的角色，毕竟中国进出靠夸，箱活动靠狼，本土崛起靠三期，欧美进出不说虫那也是35面包狗”
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 19762#       发表于 2020-12-2 19:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/02/190539ktiabub65xcciexr.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201202190112.png</strong> (55.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-2 19:05 上传
+
+
+
+
+
+
+
+HH MV 星期五 8点。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 19763#       发表于 2020-12-2 19:09
+
+
+
+
+加班原因快结束了才点开，听着船长安定的聊bl然后一路划入腐女子的万物攻受八奇领域，想起之前和走的bl联动，感觉船和诗子如果联动怕是也还蛮有共同话题的以及木口缺个skeb部这种感觉
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19764#       发表于 2020-12-2 19:16
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gl9q56ws2cj20xj0iytbn.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gl9q6477dgj20xr0j0aet.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gl9q682d0cj20xq0j1n0r.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gl9q6dhabkj20xs0j1779.jpg" referrerpolicy="no-referrer">
+
+
+新年家族聚会kana？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19765#       发表于 2020-12-2 19:16
+
+
+
+
+以前有个铁血玉米人来着，然后跟IG怼了一阵子就消失了
+
+
+syl 打枪民那么费拉的吗，开场就100+的👎
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19766#       发表于 2020-12-2 19:22
+
+
+
+
+玉米人要么学会了狐坦的拔吊无情，要么学会了狐坦的钻石心
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19767#       发表于 2020-12-2 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 遥想去年10w家族还是纸片人吃锅，现在都3D吃锅打游戏了，
+
+
+ichikara进步真大阿！
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19768#       发表于 2020-12-2 19:26
+
+
+
+
+被狙击了，兔宝倒了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 19769#       发表于 2020-12-2 19:28
+
+
+
+
+hh的bd有资源放出了吗?
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19770#       发表于 2020-12-2 19:29
+
+
+
+
+银憨憨除了手柄轮到自己手里的时候之外，这碗端着就不放下来一直吃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19771#       发表于 2020-12-2 19:29
+
+
+
+[https://ddlvid.com/](https://ddlvid.com/)
+
+分享一个可以下载推特上フリート的工具，简单易用。支持下载视频，图片。多条フリート都可以获取
+<[img src="https://i.loli.net/2020/12/02/KmWAnT7N3Ud9tzy.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|原来可以down，有帮助|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 19772#       发表于 2020-12-2 19:35
+
+
+
+
+原神的乐趣在角色养成和研究配装配队，不同的圣遗物（装备）搭配和不同的角色技能组配合怎么样才能打出最好的效果
+
+问题是本身角色要抽出同样的7张才是满破（功能完全体），然后MHY又卡死了树脂（体力）一天只能刷几次副本
+
+所以平民不氪金的话角色不齐功能不全，自动回的体力清完了不氪体力也刷不了本，自然是主线没了就没事干了
+
+氪佬就没有这种烦恼，新角色直接闭着眼睛抽到满破，刷本体力不够直接氪，角色、装备都有了就可以开始享受研究搭配的乐趣了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19773#       发表于 2020-12-2 19:39
+
+
+
+<blockquote>---------
+
+
+紡ネンの、これからの展開に関する大切なお知らせです。
+
+[https://pictoria.co.jp/news/tsumuginen02](https://pictoria.co.jp/news/tsumuginen02)
+
+
+---------
+
+運営からの報告  　　#tsumuginen</blockquote>
+摘要 <blockquote>2020年年末から2021年1月にかけて追加情報をお伝え出来ればと考えています。
+
+また、クラウドファンディング「粘菌とAIをテーマにしたVTuberを動物園に展示したい」も沢山のご支援誠にありがとうございます。
+
+もうすぐ目標支援額に到達しようとしています。引き続き、応援のほど、どうぞ宜しくお願い致します。
+
+目的の１つとしていた３Dモデルの制作およびそれを活かしたYouTubeを中心とする活動に関しては鋭意制作を進めております。
+
+こちらもお楽しみにお待ちいただけますと幸いです。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19774#       发表于 2020-12-2 19:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">箱活动靠狼。狼配吗？不是我狐皇把okfams带起来的？
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 19775#       发表于 2020-12-2 19:42
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19776#       发表于 2020-12-2 19:51
+
+
+
+ 本帖最后由 admentus 于 2020-12-2 19:52 编辑 
+
+兔子操作全忘了，完全不熟，居然吃鸡了
+
+
+鸡了就跑，一个小时都没有完全没看够啊...
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19777#       发表于 2020-12-2 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">小千的CR CUP队友也发表了阿，不认识 <blockquote>勇気 ちひろ丝带蓝心
+
+@Chihiro_yuki23
+
+丝带CRカップメンバー発表蓝心
+
+下記の2人と出場します･:*+.(( °ω° ))/.:+
+
+
+本職芸人の服部ヘンディさん(
+
+@k_najimi
+
+ )
+
+本職オタクのkamitoさん
+
+(
+
+@xxcollomxx
+
+ )
+
+
+チーム名まだ未定です！
+
+リスナーさんたちからの案とかも聞きつつ決めてこうと思います(* ॑꒳ ॑* )⋆*
+
+
+よろしくです！
+
+翻译推文
+
+下午5:55 · 2020年12月2日·Twitter for iPhone</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19778#       发表于 2020-12-2 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 微博虹人终于能放过小千一马了，这是好事
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19779#       发表于 2020-12-2 20:01
+
+
+
+
+才发现原来马犬又开始动了啊，还要参加CR吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 19780#       发表于 2020-12-2 20:07
+
+
+
+
+35刚泄露了啥，没留意谁来repo下
+
+
+
+
+
+                                        

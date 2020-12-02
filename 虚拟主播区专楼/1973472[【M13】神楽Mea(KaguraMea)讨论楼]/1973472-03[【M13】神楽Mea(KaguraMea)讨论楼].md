@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 16:16** 
+> ## **本文件最后更新于2020-12-02 20:17** 
 
 
 
@@ -18444,6 +18444,25 @@ for ****<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" re
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer|-2|喜欢亏|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18983,4 +19002,579 @@ yysy，咩的新歌也可以提炼成糖的<img src="https://static.saraba1st.co
 
 
 
-            
+
+
+-----
+
+####  追风小星星  
+##### 4118#       发表于 2020-12-2 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer"> 经过几次波折之后,发现最大的幸福是活着
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4119#       发表于 2020-12-2 16:26
+
+
+
+
+bga还有活的斗虫民宣布小麻死刑的呢
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4120#       发表于 2020-12-2 16:26
+
+
+
+
+现在只是听她憨憨的声音就会有幸福感。什么粉丝数什么热度一边去吧。不过还是很期待2.0的皮的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4121#       发表于 2020-12-2 16:47
+
+
+
+
+现实里忙的要死这波也是解放了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4122#       发表于 2020-12-2 17:37
+
+
+
+
+草草，不要木口同款盘子脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4123#       发表于 2020-12-2 18:15
+
+
+
+
+冲冠一怒为大亏不就是对纯血贴贴人的一大针鸡血么，有些贴贴死了，但它永远都活着
+
+昨天你麻直球对亭子发情不是喜欢女人是什么？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4124#       发表于 2020-12-2 18:16
+
+
+
+
+是是是， 喜欢女人， 喜欢女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4125#       发表于 2020-12-2 18:17
+
+
+
+
+为啥都抵制木口脸啊 傻脸不是正好贴合你麻现在憨憨的样子吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4126#       发表于 2020-12-2 18:24
+
+
+
+
+请问哪种人平时是保持张嘴状态的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4127#       发表于 2020-12-2 18:25
+
+
+
+
+虽然我也希望咩咩喜欢幕刃，可是不会有楼友觉得那真的是发情她真的喜欢女人吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4128#       发表于 2020-12-2 18:39
+
+
+
+
+我不管我不管，起码是真喜欢大亏，12.7也是，自爆也是，一涉及到凛子就上头到什么都不顾了，我是怎么都想不明白不是爱的话什么感情能做到这种地步<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer|-2|你不管有人管 烦死了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4129#       发表于 2020-12-2 18:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4130#       发表于 2020-12-2 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">nmd别说了再说要破防了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4131#       发表于 2020-12-2 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4132#       发表于 2020-12-2 18:45
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-12-2 18:53 编辑 
+
+好家伙，楼友确实破我防了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+让我冷静一下
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4133#       发表于 2020-12-2 18:51
+
+
+
+
+谁私我下群号啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4134#       发表于 2020-12-2 18:53
+
+
+
+
+讲错了，就是楼友讲什么六字母zqsg<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+一生气就心脏疼，我rnm
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4135#       发表于 2020-12-2 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589074&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2020-12-2 18:53</a>
+讲错了，就是楼友讲什么六字母zqsg
+
+一生气就心脏疼，我rnm</blockquote>
+嘻嘻，幕刃
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 4136#       发表于 2020-12-2 18:59
+
+
+
+
+天狗何苦为难天狗
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4137#       发表于 2020-12-2 19:01
+
+
+
+
+这么爱大亏外面一栋crew楼一栋贴贴楼一栋暗黑贴贴楼欢迎你
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4138#       发表于 2020-12-2 19:02
+
+
+
+
+什么v什么粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4139#       发表于 2020-12-2 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589055&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2020-12-2 18:51</a>
+谁私我下群号啊</blockquote>
+你这种天天大亏的进群就被踢了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4140#       发表于 2020-12-2 19:04
+
+
+
+
+费了老大劲才赶走的，能不能别聊大亏<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 4141#       发表于 2020-12-2 19:12
+
+
+
+
+ 你喜欢夸皇就去夸皇楼聊啊  天天大亏大亏的 她肾亏还是你亏啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4142#       发表于 2020-12-2 19:32
+
+
+
+
+**，我的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4143#       发表于 2020-12-2 19:39
+
+
+
+
+阿夸不配在我的视野里单独出现，除非和小麻同屏，我认真的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4144#       发表于 2020-12-2 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49589519&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2020-12-2 19:39</a>
+
+阿夸不配在我的视野里单独出现，除非和小麻同屏，我认真的</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1945365-1-1.html](https://bbs.saraba1st.com/2b/thread-1945365-1-1.html) 请
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4145#       发表于 2020-12-2 19:45
+
+
+
+
+不车了不车了，快要xby化了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4146#       发表于 2020-12-2 19:46
+
+
+
+
+真的xby化之后记得给咩咩打红sc<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4147#       发表于 2020-12-2 19:46
+
+
+
+
+少看点管人吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4148#       发表于 2020-12-2 19:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗黑贴贴人是真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  lunachild  
+##### 4149#       发表于 2020-12-2 19:54
+
+
+
+
+贴贴人已经发展到昨天大亏点了个贴贴图赞就高兴半天了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有点不忍心告诉他们以前大亏天天高强度点贴贴图
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4150#       发表于 2020-12-2 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我怕了
+
+隔壁潭楼里全是不认识的ID
+
+来看你楼结果又是什么弱智话题
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4151#       发表于 2020-12-2 20:13
+
+
+
+
+今天不会是哭去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           

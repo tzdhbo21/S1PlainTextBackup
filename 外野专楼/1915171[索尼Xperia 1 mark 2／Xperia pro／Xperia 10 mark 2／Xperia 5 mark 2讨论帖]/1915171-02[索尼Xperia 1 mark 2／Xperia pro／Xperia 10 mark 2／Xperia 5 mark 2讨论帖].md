@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-01 12:03** 
+> ## **本文件最后更新于2020-12-02 20:03** 
 
 
 
@@ -9760,4 +9760,460 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 
 
 
-                                 
+
+
+-----
+
+####  roydimus  
+##### 1989#       发表于 2020-12-1 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49574169&amp;ptid=1915171" target="_blank">allenz2 发表于 2020-12-1 11:00</a>
+
+这个日历app在哪里下</blockquote>
+谷歌市场里有。。
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1990#       发表于 2020-12-1 12:21
+
+
+
+
+这代最迷惑的是计算器没了，市场里也找不到，不知道在干嘛
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 1991#       发表于 2020-12-1 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575095&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-12-1 12:20</a>
+
+谷歌市场里有。。</blockquote>
+没找到，只有一个不让你装的天气
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 1992#       发表于 2020-12-1 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575107&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-12-1 12:21</a>
+
+这代最迷惑的是计算器没了，市场里也找不到，不知道在干嘛</blockquote>
+我的一兔自带有计算器啊
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1993#       发表于 2020-12-1 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575356&amp;ptid=1915171" target="_blank">allenz2 发表于 2020-12-1 12:43</a>
+
+没找到，只有一个不让你装的天气</blockquote>
+港版自带的谷歌那个日历
+
+天气好像可以用网页版硬装进去
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1994#       发表于 2020-12-1 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575948&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-12-1 13:49</a>
+
+我的一兔自带有计算器啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">版本问题？我这没有，市场里也找不到xzp自带的那个索尼的。。
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 1995#       发表于 2020-12-1 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49576124&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-12-1 14:06</a>
+
+版本问题？我这没有，市场里也找不到xzp自带的那个索尼的。。</blockquote>
+计算器在系统自带的那个软件更新里
+
+不是应用市场也不是谷歌市场
+
+
+
+
+
+
+
+-----
+
+####  runningch  
+##### 1996#       发表于 2020-12-1 16:24
+
+
+
+
+人在东南亚，经历了漫长的国际转运，我终于也拿到港版一马兔了。但是买的时候是56xx，等运到手的时候已经变成54xx了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">。摄影大师和电影大师再慢慢摸索吧。另外，外放也比预想中的要出色得多。
+
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1997#       发表于 2020-12-1 19:31
+
+
+
+ 本帖最后由 DGIL 于 2020-12-1 19:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">拿到手机了。。这夜砚黑真是好看。。都要🐍了。、、
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比想象中轻和小，试用了一下，感觉还不错，还没正式开始投入使用。、
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请问大家，国行有什么必装的东西么（比如输入法，直接应用宝下么？）
+
+顺便请教一下，有什么是不是有什么调教方法能用得更舒服？
+
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1998#       发表于 2020-12-1 19:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没玩过单反。。摄影大师和拍照不会弄，自动都要找一找。。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 1999#       发表于 2020-12-1 20:28
+
+
+
+
+我手残党遇到贴膜懵逼了，大家是出去找帮贴膜的店解决的吗。。？
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2000#       发表于 2020-12-1 23:37
+
+
+
+<blockquote>引用第1997楼DGIL于2020-12-01 19:33发表的  :
+
+没玩过单反。。摄影大师和拍照不会弄，自动都要找一找。。</blockquote>
+摄影大师平时就用绿auto就行了
+拍风景大景色可以用P档开自动hdr。
+
+对焦要触摸对焦请选af-s。
+
+
+----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  失眠的考拉  
+##### 2001#       发表于 2020-12-2 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579166&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-12-1 19:33</a>
+
+没玩过单反。。摄影大师和拍照不会弄，自动都要找一找。。</blockquote>
+成色怎么样有坑不，你b站搜摄瘾研究所，虽然是x1的电影大师评测不过我觉得可以参考
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 2002#       发表于 2020-12-2 00:43
+
+
+
+ 本帖最后由 DGIL 于 2020-12-2 00:46 编辑 
+<blockquote>失眠的考拉 发表于 2020-12-2 00:11
+成色怎么样有坑不，你b站搜摄瘾研究所，虽然是x1的电影大师评测不过我觉得可以参考 ...</blockquote>
+可能运气好，外观成色新得让人感动，大概试了一下各种功能，没啥异常，目前还没插电话卡投入实用，明天打算吧贴膜整好正常使用试试，点进摄影大师各种不会用
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 2003#       发表于 2020-12-2 00:46
+
+
+
+<blockquote>Cray 发表于 2020-12-1 23:37
+摄影大师平时就用绿auto就行了
+
+拍风景大景色可以用P档开自动hdr。
+</blockquote>
+好的，谢谢，没弄过，看到那么多参数一脸懵逼
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 2004#       发表于 2020-12-2 10:31
+
+
+
+ 本帖最后由 DGIL 于 2020-12-2 14:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49547237&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-28 12:43</a>
+
+买了没用实际操作很容易中途位移，反正就主要怕灰，去尘少的浴室慢慢对准再压实就好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">膜自己贴。。贴废了。。。按说明对白线贴膜然后当然就是膜贴得没那么准。。遮挡白色边框了。。。。在几次调整对白线准备完成时。。最后发现进了一粒灰。。。凉凉
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我恨手机贴膜。。。
+
+我决定买这个！不成功则成仁。日本贴膜这个，用包装盒固定贴膜的方法，比什么贴膜神器靠谱多了应该可以救命[https://www.youtube.com/watch?v=v_mnwLttTME](https://www.youtube.com/watch?v=v_mnwLttTME)
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2005#       发表于 2020-12-2 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583763&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-12-2 10:31</a>
+
+膜自己贴。。贴废了。。。按说明对白线贴膜然后当然就是膜贴得没那么准。。遮挡白色边框了。。。。 ...</blockquote>
+贴歪不可怕随便揭开调整，最重要的还是无尘环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞翔的兔子  
+##### 2006#       发表于 2020-12-2 15:10
+
+
+
+
+现在就没有全透明的全屏膜么……看了几个评价说不错的全屏膜，都有一圈黑色的边<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2007#       发表于 2020-12-2 15:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586714&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-12-2 15:10</a>
+
+现在就没有全透明的全屏膜么……看了几个评价说不错的全屏膜，都有一圈黑色的边 ...</blockquote>
+你手机四周本来就有黑边，能做到不额外覆盖有黑边又有啥关系，根本看不出来
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2008#       发表于 2020-12-2 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587153&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-12-2 15:55</a>
+你手机四周本来就有黑边，能做到不额外覆盖有黑边又有啥关系，根本看不出来 ...</blockquote>
+因为做不到准确贴膜，透明歪一点夜没所谓
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Tochika  
+##### 2009#       发表于 2020-12-2 16:37
+
+
+
+<img src="http://wx2.sinaimg.cn/mw1024/53c8408fgy1gl9lk4oj5kj20go0j0gmw.jpg" referrerpolicy="no-referrer">
+
+5ii刚到手，插了tf卡顶上一直有这个显示可以关吗，1都没有的
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2010#       发表于 2020-12-2 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587623&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-12-2 16:36</a>
+
+因为做不到准确贴膜，透明歪一点夜没所谓
+
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 S1Next-鹅版 v2 ...</blockquote>
+全透明不可能有，2.5D侧边要能全贴合那工艺要求比做原装屏幕都高了，黑边就是掩盖了这部分瑕疵
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2011#         楼主| 发表于 2020-12-2 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586714&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-12-02 15:10:39</a>
+现在就没有全透明的全屏膜么……看了几个评价说不错的全屏膜，都有一圈黑色的边 ...</blockquote>淘宝能搜到一个号称全屏全透明的
+
+[https://m.tb.cn/h.4UWXvkB?sm=9470c6](https://m.tb.cn/h.4UWXvkB?sm=9470c6)【索尼Xperia 1钢化膜X1 II玻璃膜J9110/J9210手机膜Xperia 5/5II高清防爆膜X5/xperia1 Ⅱ防刮抗指纹贴膜前膜】
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  WTfffff!!!  
+##### 2012#       发表于 2020-12-2 19:54
+
+
+
+
+发现港版TB都不到5400了，准备下单
+
+想问下入了港版1II并且root的朋友们，这代解锁会丢啥啊？（手里的xzp解锁后说是丢算法但我没感觉，倒是谷歌账号登不上去了，登录就无限转圈）
+
+而且买了就解锁root，能躲过去掉5G的升级么？
+
+
+
+
+
+                                
