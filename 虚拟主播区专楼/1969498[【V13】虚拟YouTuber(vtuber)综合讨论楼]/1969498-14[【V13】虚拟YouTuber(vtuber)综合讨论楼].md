@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 16:08** 
+> ## **本文件最后更新于2020-12-03 18:08** 
 
 
 
@@ -11564,4 +11564,792 @@ bsyl  现在在推上比较活跃的CN杏仁，野兔子数量已经是仅次�
 
 
 
-                             
+
+
+-----
+
+####  pansherry  
+##### 20110#       发表于 2020-12-3 16:11
+
+
+
+
+皇女家网络工事出问题到9号都没网，现在在想对应方案挣扎中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20111#       发表于 2020-12-3 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49597571&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-3 15:17</a>
+可是楼里大部分人也不会以中国虹人来自称啊，反正大家翻出去都一个样，还要学4V人在名字后面加个TW或者青天 ...</blockquote>
+【中国囚人】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 20112#       发表于 2020-12-3 16:15
+
+
+
+
+免费哥，今天怎么还不发言啊
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20113#       发表于 2020-12-3 16:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/161839w5fberaazaaeskrd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>411db8e356e68aa.jpg</strong> (124.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 16:18 上传
+
+
+
+
+
+
+それが、愛でしょう
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 20114#       发表于 2020-12-3 16:24
+
+
+
+
+这不是纯给啊b送钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20115#       发表于 2020-12-3 16:25
+
+
+
+
+bora新PC弄好了 现在好像60fps了？
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20116#       发表于 2020-12-3 16:26
+
+
+
+
+能不能把官号给扬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20117#       发表于 2020-12-3 16:28
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-3 16:30 编辑 
+
+https://youtu.be/5ELqX7qX-KY
+天使亲兵一个没有，这咋整哦
+说起来这次是11个人打，应该是三狼模式吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20118#       发表于 2020-12-3 16:33
+
+
+
+
+作为光荣的噬渊行者，正忙着挫败典狱长的阴谋，保卫暗影界的和平，管人都是什么臭鱼烂虾？
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 20119#       发表于 2020-12-3 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">8000多弹幕真是离谱，crew在抱团取暖么
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 20120#       发表于 2020-12-3 16:36
+
+
+
+
+都是杏奴，还得分个高低么，也太可笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 20121#       发表于 2020-12-3 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费是联盟还是部落啊来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 20122#       发表于 2020-12-3 16:42
+
+
+
+
+希望本周的部落噬渊行者能活着冲进噬渊标记石
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20123#       发表于 2020-12-3 16:43
+
+
+
+
+当然是联盟了，刚堵在噬渊门口10分钟就做完了实力悬殊。自从开了9.0以来，每天看管的时间已经小于1小时了，真开心，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20124#       发表于 2020-12-3 16:48
+
+
+
+
+aqua还有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">800个付费人数也是服了
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 20125#       发表于 2020-12-3 16:48
+
+
+
+
+9.0有那么香吗
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 20126#       发表于 2020-12-3 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">体感还可以，就是双盟约横跳有点难受
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 20127#       发表于 2020-12-3 16:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">部落是不是都是废物？
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 20128#       发表于 2020-12-3 16:57
+
+
+
+
+Luna还是没出现，p丸这皮还要不要啊，怪可惜的~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 20129#       发表于 2020-12-3 17:02
+
+
+
+
+luna不如早点毕业算了，吊着口气
+
+
+
+
+
+
+
+-----
+
+####  Hearn  
+##### 20130#       发表于 2020-12-3 17:06
+
+
+
+
+几个月没看管了，问下虹的圭利是个什么情况，我记得刚出道时候风评很差有过炎上，现在是好转翻身了？怎么做到的
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20131#       发表于 2020-12-3 17:10
+
+
+
+
+p丸宁愿自己开直播都不要luna这皮，也就占个位置了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 20132#       发表于 2020-12-3 17:10
+
+
+
+
+教人学数学
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20133#       发表于 2020-12-3 17:12
+
+
+
+<blockquote>Hearn 发表于 2020-12-3 17:06
+几个月没看管了，问下虹的圭利是个什么情况，我记得刚出道时候风评很差有过炎上，现在是好转翻身了？怎么做 ...</blockquote>
+按他的原话是，在遇到炎上时仍然选择给观众展示自己所认为的娱乐，换句话就是说抗压，整好活，观众自然会逐渐认可你了
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 20134#       发表于 2020-12-3 17:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">咋就发病了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 20135#       发表于 2020-12-3 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49598444&amp;ptid=1969498" target="_blank">フミさん 发表于 2020-12-3 16:37</a>
+
+免费是联盟还是部落啊</blockquote>
+对剧情这么满意一定是联盟了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 20136#       发表于 2020-12-3 17:22
+
+
+
+
+luna第一次live那个王八脖子俺现在还记得(^o^）
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 20137#       发表于 2020-12-3 17:27
+
+
+
+
+不懂就问
+
+你们说的luna是那个luna？
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20138#       发表于 2020-12-3 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夜神月
+
+
+
+
+
+
+
+-----
+
+####  千万ly  
+##### 20139#       发表于 2020-12-3 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49598825&amp;ptid=1969498" target="_blank">Hearn 发表于 2020-12-3 17:06</a>
+
+几个月没看管了，问下虹的圭利是个什么情况，我记得刚出道时候风评很差有过炎上，现在是好转翻身了？怎么做 ...</blockquote>
+[https://www.bilibili.com/video/BV19t4y1Y7Kd](https://www.bilibili.com/video/BV19t4y1Y7Kd)
+
+这个切片有谈到
+
+
+本篇：[https://www.youtube.com/watch?v=vRaRsQbjCkE](https://www.youtube.com/watch?v=vRaRsQbjCkE)
+
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 20140#       发表于 2020-12-3 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599070&amp;ptid=1969498" target="_blank">sw11133 发表于 2020-12-3 17:27</a>
+
+不懂就问
+
+你们说的luna是那个luna？</blockquote>
+辉夜月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 20141#       发表于 2020-12-3 17:33
+
+
+
+
+懂了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20142#       发表于 2020-12-3 17:44
+
+
+
+
+bora又跟这国人（ID是QQ啥的 应该是国人）开挂的排一起了 直接退游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20143#       发表于 2020-12-3 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49598345&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-3 16:28</a>
+
+https://youtu.be/5ELqX7qX-KY
+
+天使亲兵一个没有，这咋整哦
+
+说起来这次是11个人打，应该是三狼模式吧 ...</blockquote>
+最多就10个人，miko封面都做好了
+
+狐狸手抖把鸭鸭打上去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20144#       发表于 2020-12-3 17:47
+
+
+
+ 本帖最后由 Suzutsuki 于 2020-12-3 17:48 编辑 
+
+我才知道cr杯ras跟德龙一个队啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  索菲超可爱的  
+##### 20145#       发表于 2020-12-3 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596993&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-03 14:29:53</a>
+说起来，纯良野兔子索菲呢</blockquote>纯良可太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我铁毒唯，对兔子好的就suki对兔子不好就黑很简单点事情，最近在看鹰宫的原神切片，还挺快乐的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，看到你综野兔子集体发病感觉有点感慨，你兔在cn居然还有这么多高浓度的粉丝。从四五月在v吧天天对线某一天被彻底破防后我看兔子直播的频率就越来越低了，没有以前的热情了，算是半退管状态。兔子和moona的联动我挂后台看了一会，被兔子的一段死亡超高音尖笑声直接劝退，随后的Apex直播看完了全程吃瘪吃鸡还听乐的。
+推管人本就图一乐:打钱，点赞，斗虫，粉丝PVP都是为了让自己获得乐趣。明明不喜欢还要硬看，看完后自己破防，擅自期待擅自提高标准擅自失望擅自黑化，贱不贱啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Hemis| + 1|存活代|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 20146#       发表于 2020-12-3 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599359&amp;ptid=1969498" target="_blank">索菲超可爱的 发表于 2020-12-3 17:51</a>
+ 纯良可太草了 我铁毒唯，对兔子好的就suki对兔子不好就黑很简单点事情，最近在看鹰宫的原神切片，还 ...</blockquote>
+你毒锤子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">马上到你家门口
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20147#       发表于 2020-12-3 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599359&amp;ptid=1969498" target="_blank">索菲超可爱的 发表于 2020-12-3 17:51</a>
+
+纯良可太草了
+
+我铁毒唯，对兔子好的就suki对兔子不好就黑很简单点事情，最近在看鹰宫的原神切片，还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯良这个词本来是对比你刚到这时候的发言和楼里巨魔发言才给的
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">小事小事，我还以为你早就退了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20148#       发表于 2020-12-3 17:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">这届虹人浓度也太高了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20149#       发表于 2020-12-3 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599418&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-3 17:57</a>
+
+这届虹人浓度也太高了</blockquote>
+前几天发现eru也来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Abyssmarionette  
+##### 20150#       发表于 2020-12-3 18:01
+
+
+
+<blockquote>fangjun96 发表于 2020-12-3 14:30
+草 这招太狠了，打红sc劝诫来了
+
+不过要是得不到自己想要的回应或者被敷衍了，是不是要恶堕化了[f: ...</blockquote>
+快进到祭丝？
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20151#       发表于 2020-12-3 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599277&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-3 17:45</a>
+最多就10个人，miko封面都做好了
+
+狐狸手抖把鸭鸭打上去了</blockquote>
+封面还少了一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看样子是后来加的
+
+
+
+
+
+
+
+-----
+
+####  索菲超可爱的  
+##### 20152#       发表于 2020-12-3 18:05
+
+
+
+
+没有人是完美的，哪怕是虚拟人，你兔也不例外。
+兔子的表现已经足够Pro了，要是搞en限定你们是不是要原地转anti啊？借着ID联动的借口突击学英语，站着把en粉舔了，在我看来这是一种极其高明的举措<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过我还是没懂搞en限定cn人梁木什么，从头到尾也和我们没关系啊，都已经滚出cn了，挂在路灯上看还要指手画脚吗？还是说看到英文字母就不安です？我承认傻逼白皮mmr喜欢白嫖还喜欢版聊刷屏，但是看兔子去的还是看评论的？捡英语sc不行难道捡中文的吗？看到兔子要往白皮方向靠了就急了，这是把自己归类到日本人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20153#       发表于 2020-12-3 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599440&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2020-12-3 17:59</a>
+前几天发现eru也来了这比赛规定有点数限制还有3w订阅限制 那不就只能找女V了吗 ...</blockquote>
+可是这届把24p点数用完的队伍也不多啊，不如说和前几届比还少了。
+
+
+
+
+
+                            
