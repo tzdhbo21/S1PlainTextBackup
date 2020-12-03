@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 12:10** 
+> ## **本文件最后更新于2020-12-03 14:09** 
 
 
 
@@ -6371,10 +6371,12 @@ FPS有AIM和其他日课（不算游戏自带训练场），从PUBG、マリオ�
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|这确实太pro了…|
+| MKHINSSS| + 1||
 | 兄啊你好几把怪| + 1|好评加鹅|
 | KaboomMirai| + 1|好评加鹅|
 | 空集| + 1|才知道叶师那么牛|
@@ -9337,11 +9339,33 @@ erer姐要是还在V综，今早一定能笑出声吧<img src="https://static.sa
 
 
 
+ 本帖最后由 NBXX 于 2020-12-3 12:18 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595211&amp;ptid=1969498" target="_blank">MalkutHod 发表于 2020-12-3 11:40</a>
+
 楼里有老哥知道Project;Cold吗 找不到s1的楼了（</blockquote>
-https://bbs.saraba1st.com/2b/thread-1973732-5-1.html
+[https://bbs.saraba1st.com/2b/thread-1973732-1-1.html](https://bbs.saraba1st.com/2b/thread-1973732-1-1.html)
+
 S1的楼没有改名还是叫みやまん
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MalkutHod| + 1|感谢|
+
+
+
+查看全部评分
 
 
 
@@ -9579,4 +9603,1607 @@ erer姐😢
 
 
 
-                                 
+
+
+-----
+
+####  smy20011  
+##### 20006#       发表于 2020-12-3 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595533&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 12:09</a>
+
+那我对看的主播的唯一要求就是多播我感兴趣的内容少播我看不下去的内容，未来如果真开始有固定的学英语直播 ...</blockquote>
+你要不要看看鲨鱼火鸡学日语？====
+
+编辑下，看你看过了
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 20007#       发表于 2020-12-3 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595442&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-3 12:01</a>
+
+没别的意思，就是回忆起以前楼里车兔夸不仲和上位替代时大伙的表演了，没想到这么快野兔子就因为EN不安了 ...</blockquote>
+讲真，不看兔皇之后我就没找到和兔皇相似的v了，起码b站没有<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+只能看任任女孩了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20008#       发表于 2020-12-3 12:11
+
+
+
+
+都怪你综给crew种梁木<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+野兔子为什么要跟crew有矛盾，我身边两位都D的大有人在，结果你综某几位crew黑屁入脑就把对大家庭粉和caover的不满发泄在兔子上，野兔子没你们人多肯定打不过你们
+反正现在大家都挂路灯，也没必要像树宝那样整天跟个怨妇一样了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20009#       发表于 2020-12-3 12:13
+
+
+
+
+一个问题 为什么现在桃铁明明如日中天   你杏却不愿意多搞   反而掏出人狼来
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20010#       发表于 2020-12-3 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595552&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-3 12:11</a>
+
+你要不要看看鲨鱼火鸡学日语？====
+
+编辑下，看你看过了</blockquote>
+火鸡那个挺正经的，流程也做得挺好，基本上全程都是用英语教日语，是给英文受众看的...
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 20011#       发表于 2020-12-3 12:14
+
+
+
+
+真没有梁木 上位替代谁敢不服 
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20012#       发表于 2020-12-3 12:15
+
+
+
+
+开了一上午庭怎么连木口囚人的称号都要给夺走了，明明是我们一味先喷英语进出的，你要我说的话虽然能理解野兔子心情，但是兔皇进出的比船之前读sc那个淋还是好看点。然后你妈日本人也真的不行，有个长期评论区做时间表的铁一味做日本hlm日翻英推 看的我很想给他注入昭和精神。
+
+以及ng集那个真别弄了，倒不是说偶像路线和企划力，你弄这个东西又要消耗额外收录的时间浪费直播时间，而且老阿姨的ng集有啥好看想想就是年纪大了跳不好，还不如作为杂谈的话题，这个倒是很合适。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20013#       发表于 2020-12-3 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595400&amp;ptid=1969498" target="_blank">fromsaitama 发表于 2020-12-03 11:57:43</a>
+白皮的发言实在太弱智了 让人不得不怀疑v圈白皮的平均年龄可能在20岁之下</blockquote>这还用怀疑吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20014#       发表于 2020-12-3 12:16
+
+
+
+
+那兔皇只要流程做得好，用日语来学习英语，你就能接受吗
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20015#       发表于 2020-12-3 12:17
+
+
+
+ 本帖最后由 fangjun96 于 2020-12-3 12:18 编辑 
+
+确实  上位代替谁敢不服，谁敢批兔子<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20016#       发表于 2020-12-3 12:19
+
+
+
+
+火鸡侦探学日语我看得感觉还行啊，主要是她们水平本身还行吧，外加我自己也只是个半吊子日语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+樱花厂妹的英语就完全看不下去了，归根到底，菜是原罪
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20017#       发表于 2020-12-3 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595523&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-3 12:08</a>
+兔皇这么优秀、pro，希望她的粉丝最后不要变成另一个兔子的粉丝,包括但不限于以下几点：
+
+觉得和谁 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   突然发现这些我都做过  当然还没有在论坛里公开说出来
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20018#       发表于 2020-12-3 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595639&amp;ptid=1969498" target="_blank">kikiwalu 发表于 2020-12-3 12:19</a>
+
+火鸡侦探学日语我看得感觉还行啊，主要是她们水平本身还行吧，外加我自己也只是个半吊子日语
+
+樱花厂 ...</blockquote>
+主要是你英语水平比日语好吧
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20019#       发表于 2020-12-3 12:21
+
+
+
+
+差不多得了，你船各项数据都不顶尖，好意思说别人吸血吗。你现在开始和2k好好学学 当个杏2k还差不多。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20020#       发表于 2020-12-3 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595523&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-3 12:08</a>
+
+兔皇这么优秀、pro，希望她的粉丝最后不要变成另一个兔子的粉丝,包括但不限于以下几点：
+
+
+觉得和谁 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">除了第二条，这波我觉得合理，有这味了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20021#       发表于 2020-12-3 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595615&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-3 12:16</a>
+
+那兔皇只要流程做得好，用日语来学习英语，你就能接受吗</blockquote>
+当然可以，事实上那天兔子跟观众的学英语直播我就还算能接受，看得出确实是想准备点联动时能用得上的话。
+
+
+但是如果是像联动本身那样我无法接受，两个人根本聊不起来，私下也没有熟悉过，很多时候moona不说话兔子就自说自话，用烂了的梗拿出来一遍又一遍，起码从我开始坚持下去的半个小时到中途插进来看的十多分钟都没单人有趣
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20022#       发表于 2020-12-3 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595597&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-3 12:15</a>
+
+开了一上午庭怎么连木口囚人的称号都要给夺走了，明明是我们一味先喷英语进出的，你要我说的话虽然能理解野 ...</blockquote>
+船员能教教我是怎么撑过淋语的吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20023#       发表于 2020-12-3 12:24
+
+
+
+
+QAQ咩咩什么时候能有打钱的白皮市场啊
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20024#       发表于 2020-12-3 12:26
+
+
+
+
+我早上出门你综还在车英语浓度，怎么回家就都开始发散了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 20025#       发表于 2020-12-3 12:27
+
+
+
+
+野兔子们加把劲，一味离2k就差一个百物语了
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 20026#       发表于 2020-12-3 12:29
+
+
+
+
+白皮天狗好办，向白皮输出远古六字母试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 20027#       发表于 2020-12-3 12:29
+
+
+
+<blockquote>絵生voice 发表于 2020-12-3 12:13
+一个问题 为什么现在桃铁明明如日中天   你杏却不愿意多搞   反而掏出人狼来 ...</blockquote>
+因为都打不过狗皇
+
+
+认真的说，桃铁联动一般就是十年，基本上需要3个小时，3个小时不能冷场，也挺耗精力的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20028#       发表于 2020-12-3 12:30
+
+
+
+
+有一天，2000尽然能获得众人称道，马上2000就要变2指导了吧
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20029#       发表于 2020-12-3 12:30
+
+
+
+
+野兔宝差不多得了，本来就天天被当靶子打你就别v综提供弹药了，这种事你去群里发泄不好么
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20030#       发表于 2020-12-3 12:31
+
+
+
+
+ng集不就是录制3d节目的边角料吗，我寻思也没人指望傻逼cover能做个什么正式节目出来啊咋都这么抵触<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20031#       发表于 2020-12-3 12:31
+
+
+
+
+我记得hlm烤过六字母，据说被盐水人跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20032#       发表于 2020-12-3 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595761&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2020-12-3 12:30</a>
+
+有一天，2000尽然能获得众人称道，马上2000就要变2指导了吧</blockquote>
+说明囚人才是管人粉的终极形态<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20033#       发表于 2020-12-3 12:32
+
+
+
+
+非原生英V的个人势要吃EN市场那英语起码得有白派派水平，mea厂妹还算了
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 20034#       发表于 2020-12-3 12:32
+
+
+
+
+输出六字母没用啊 大亏早变了风格
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20035#       发表于 2020-12-3 12:34
+
+
+
+
+2指导可太行了，你综巨魔迟早在NGA获得新生，下一个圣人就是勇敢反抗极端天狗的xby<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20036#       发表于 2020-12-3 12:34
+
+
+
+
+桃铁如日中天就是最大骗局
+
+
+
+
+
+
+30E9E600-29C4-4FEE-8271-C95802D7761C.jpeg
+(82.46 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-3 12:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/123348gykjmddkmybx3hhw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20037#       发表于 2020-12-3 12:35
+
+
+
+
+垃圾萌音nico生打游戏一边鬼叫一边说英语，傻了吧唧的，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DenkiBran| + 1|欢乐多|
+| 过不了审| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20038#       发表于 2020-12-3 12:35
+
+
+
+
+草草草，xby就算了吧，别恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20039#       发表于 2020-12-3 12:36
+
+
+
+
+BSYL：
+
+
+起码杏这边桃铁说实话不如MC流量大，你杏除了铁底边随便哪个人开个MC就是五位数。
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 20040#       发表于 2020-12-3 12:37
+
+
+
+<blockquote>bluebaby 发表于 2020-12-3 12:34
+桃铁如日中天就是最大骗局</blockquote>
+日本如日中天但没有白皮看啊
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20041#       发表于 2020-12-3 12:37
+
+
+
+
+现实不是兔皇和JP都欢迎白皮吗？兔皇都跑几个月了，还搁这演ntr呢
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20042#       发表于 2020-12-3 12:37
+
+
+
+
+现在以后白皮不是有自己的v了吗，未来各看各的才是大方向
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20043#       发表于 2020-12-3 12:37
+
+
+
+
+别2指导了，nga那边阿葵专楼半个多月了地基都还没好，2000都不去指导指导
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20044#       发表于 2020-12-3 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595597&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-3 12:15</a>
+开了一上午庭怎么连木口囚人的称号都要给夺走了，明明是我们一味先喷英语进出的，你要我说的话虽然能理解野 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还叫浪费直播时间么，明明是久等了的高质产出
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20045#       发表于 2020-12-3 12:38
+
+
+
+
+毕竟桃铁这种原生日本游戏谁爱看呢，每天mc秀意义不明的英文多好，“put up 5 stone in pile”，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20046#       发表于 2020-12-3 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595789&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-3 12:32</a>
+
+非原生英V的个人势要吃EN市场那英语起码得有白派派水平，mea厂妹还算了</blockquote>
+那不一定，直播间要是有一两个同传，英文浓度会让人窒息<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20047#       发表于 2020-12-3 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我说点实在的，桃铁只能一人开窗，实质给开窗者引流，订阅增长只能体现在开窗人的频道，宇宙人狼实质多人联合solo，所有参加者都能享受到订阅增长buff。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20048#       发表于 2020-12-3 12:45
+
+
+
+
+桃铁本质还是杂谈，看v本身实力，白皮没情怀又听不懂谁看的下去啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+狼人杀好歹还能版聊猜猜乐呢
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20049#       发表于 2020-12-3 12:46
+
+
+
+ 本帖最后由 admentus 于 2020-12-3 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595847&amp;ptid=1969498" target="_blank">fghc_h 发表于 2020-12-3 12:37</a>
+
+现实不是兔皇和JP都欢迎白皮吗？兔皇都跑几个月了，还搁这演ntr呢</blockquote>
+两个月前的酒吧回46分的地方还有jp观众棉花糖直球抱怨自己是不是因为海外观众被抛弃了，很不安呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+当时的回答是jp野兔子最喜欢了，海外野兔子并不是偏爱，只是想和不懂日语的海外野兔子一起开心的玩
+
+
+看来这些都是客套话，都是假的，数字永恒，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 20050#       发表于 2020-12-3 12:47
+
+
+
+
+holo综？ 来点月灵浓度
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20051#       发表于 2020-12-3 12:48
+
+
+
+
+...... 月灵人今天建专楼了吗（1/1）
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20052#       发表于 2020-12-3 12:49
+
+
+
+
+桃铁本来就那样，点生活能播都懒得播，也就杏奴惦记
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20053#       发表于 2020-12-3 12:50
+
+
+
+
+本来还想好好说话的，到头来都这幅鸟样，那不只能六字真言了嘛，多大事。
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20054#       发表于 2020-12-3 12:55
+
+
+
+
+“最喜欢（）了呢！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 20055#       发表于 2020-12-3 12:56
+
+
+
+ 本帖最后由 opersuper 于 2020-12-3 13:00 编辑 
+
+桃铁鬼佬不爱看，宇宙80除了nga人人爱看 
+
+野兔子前脚被鲨皇数字破防，后脚抱怨粉丝纯度不足，差不多得了
+
+要不去推新时代，千万人气最高sc100%国人满足你最狂野的幻想
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20056#       发表于 2020-12-3 12:56
+
+
+
+<blockquote>admentus 发表于 2020-12-3 12:46
+两个月前的酒吧回46分的地方还有jp观众棉花糖直球抱怨自己是不是因为海外观众被抛弃了，很不安呢
+
+
+ ...</blockquote>
+快进到同时发大好き
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20057#       发表于 2020-12-3 12:57
+
+
+
+
+天（aki）魔突击联动 宇宙80，观众参与型。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20058#       发表于 2020-12-3 12:58
+
+
+
+
+那好好说呗，究竟有什么办法既能看自己想看的内容，又能摆平心态脑内屏蔽掉回应英文跟玩英文烂梗呢？
+
+
+我看个虚拟管人每场直播都有意愿追下去的也就兔子一个，其他人风格内容都没法让我打起多大兴致，爱看看不看滚的话还不如看点真人主播，那也找不到这种能成为情感寄托的樱花妹了...
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20059#       发表于 2020-12-3 12:58
+
+
+
+
+可别宇宙80了，再来几回把鲨皇气走了你JP分社兜得住吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 20060#       发表于 2020-12-3 13:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各看各？呆滚了有人转看国v？
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20061#       发表于 2020-12-3 13:02
+
+
+
+
+如果你足够喜欢那个liver的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+参考M楼看舞咩跟六字母联动
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20062#       发表于 2020-12-3 13:05
+
+
+
+
+天使为了晚上人狼联动找了两陪练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这不是挺能正常讲话嘛
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20063#       发表于 2020-12-3 13:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议早日立兔专楼，看野兔子老是发病有点可怜
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20064#       发表于 2020-12-3 13:13
+
+
+
+
+别，净土宗两栋兔楼都不得善终
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20065#       发表于 2020-12-3 13:13
+
+
+
+
+各看各(国)✘ 各看各(v)✔
+
+c萝和红团长不就是嘛
+
+说得好像nga倒了s1娘就能吃鲸落似的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20066#       发表于 2020-12-3 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595678&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 12:23</a>
+船员能教教我是怎么撑过淋语的吗？</blockquote>
+淋雨目前还只限于sc   预计白皮多的回比如歌回我就直接关了
+以后如果正片也有甚至搞学英语我估计我只能  “今天不看了”
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20067#       发表于 2020-12-3 13:15
+
+
+
+
+关于最喜欢，看看玉米人吧老代表了。另外楼上说得挺对，去建个兔楼
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20068#       发表于 2020-12-3 13:17
+
+
+
+
+分享一点苔箱兔皇
+
+
+MC攀科技，跟holoid一期生贴贴，学英语
+
+これは質
+
+
+
+
+
+
+IMG_20201202_145109.jpg
+(398.19 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-3 13:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/131652xvrqhg3hi1irj1dj.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20069#       发表于 2020-12-3 13:23
+
+
+
+ 本帖最后由 pansherry 于 2020-12-3 13:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596068&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 12:58</a>
+
+那好好说呗，究竟有什么办法既能看自己想看的内容，又能摆平心态脑内屏蔽掉回应英文跟玩英文烂梗呢？
+
+
+我看 ...</blockquote>
+你要把兔子作为情感寄托是你自己一厢情愿的事，你只想看自己想看的内容那就去看切片
+
+真想做点啥去发棉花糖去发zqsg红SC，反正大家都喜欢看笑话不是
+
+
+想想看日本野兔子还没多大反应呢一个中国野兔子发SC害怕EN了，真是太有画面感了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20070#       发表于 2020-12-3 13:25
+
+
+
+
+辣鸡圆脸55w了，还要出手办，会有人买吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20071#       发表于 2020-12-3 13:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/132831do89n8yy20m1db91.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201203132804.png</strong> (42.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 13:28 上传
+
+
+
+
+
+
+那我也来凑个热闹<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 20072#       发表于 2020-12-3 13:29
+
+
+
+
+有一点上面说的没错，菜是原罪。樱花厂妹学英文菜不说也没见英文能说多好了。看pikamee发音好不少就舒服很多还能和评论正常互动。
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20073#       发表于 2020-12-3 13:33
+
+
+
+
+说白了走到和MOONA连麦这一步也是兔子自己先撩的，把责任推给白皮观众还行
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 20074#       发表于 2020-12-3 13:34
+
+
+
+
+我看你们别劝了，要是给劝服了那我可要嘲讽了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+这位“纯良”什么时候放下莫名其妙的高贵优越心态，认清看管人图一乐，别总去厂妹那寻找什么“内容”，什么时候获得解脱。多大人了怎么还搞我是二次猿我骄傲那套呢
+
+<img src="https://p.sda1.dev/0/e916ee68b99f05a26c322594c9b4fa9e/IMG_CMP_146939066.jpeg" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 20075#       发表于 2020-12-3 13:36
+
+
+
+
+野兔子老哥，你改个英文ID，打英文SC用英文互动就可以得到你想要的了
+
+当你反抗不了NTR时，成为黄毛不就好了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20076#       发表于 2020-12-3 13:39
+
+
+
+
+没怎么看过空妈的推，这致死量颜文字迫真JK感也太强了难怪当年能骗到免费。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20077#       发表于 2020-12-3 13:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我是不明白为什么野兔子在论坛里说话声音这么不自信，你们的兔皇已经君临vtb的顶点，傲视群雄，并准备击败一切挑战者
+
+
+而她的粉丝呢？面对其他人的质疑和挑衅，甚至没有学到兔皇本人那样君临一切的淡然和不屑，
+
+
+野兔子甚至没有为兔皇登基大典做任何准备，这是十分遗憾的，
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 20078#       发表于 2020-12-3 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596487&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-3 13:39</a>
+
+我是不明白为什么野兔子在论坛里说话声音这么不自信，你们的兔皇已经君临vtb的顶点，傲视群雄，并 ...</blockquote>
+你少给别人传播你那套囚人成功学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20079#       发表于 2020-12-3 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596508&amp;ptid=1969498" target="_blank">cckuku 发表于 2020-12-3 13:41</a>
+
+你少给别人传播你那套囚人成功学</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 我只是试图唤醒野兔子心中的归属感和荣誉感，
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20080#       发表于 2020-12-3 13:47
+
+
+
+
+因为CN野兔子已经被洗得差不多了啊，剩下的基本上都缩回Q群了，你综的野兔子相对来说还算战斗力稍微强一点的，还想我们怎样<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EML-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20081#       发表于 2020-12-3 13:49
+
+
+
+
+除了阳光虹人，这楼里剩下的都是在路灯上蹦极的吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20082#       发表于 2020-12-3 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596487&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-3 13:39</a>
+我是不明白为什么野兔子在论坛里说话声音这么不自信，你们的兔皇已经君临vtb的顶点，傲视群雄，并 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">别搞什么“质”，“本土堡垒”，老老实实承认流量无敌不就行了
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 20083#       发表于 2020-12-3 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2000的转进仿佛呼吸一样自如，搞得我都觉得有点厉害了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20084#       发表于 2020-12-3 13:52
+
+
+
+
+本土堡垒请去看紫宝。白皮浓度不足百分之十
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20085#       发表于 2020-12-3 13:56
+
+
+
+
+不，楼里还有善良基德的crew和正当防卫的天狗
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20086#       发表于 2020-12-3 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596413&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-3 13:33</a>
+
+说白了走到和MOONA连麦这一步也是兔子自己先撩的，把责任推给白皮观众还行 ...</blockquote>
+不懂holo把不懂日文的moona扔到jp服干什么
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 20087#       发表于 2020-12-3 14:01
+
+
+
+
+嗯？说到天狗，三酱的live有下文了吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20088#       发表于 2020-12-3 14:05
+
+
+
+
+你好，完全线上，不另外售票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+老天狗已经开始科普sl跟fanbox拒绝在阿B打钱了
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 20089#       发表于 2020-12-3 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596696&amp;ptid=1969498" target="_blank">cckuku 发表于 2020-12-3 14:01</a>
+
+嗯？说到天狗，三酱的live有下文了吗？</blockquote>
+回归原点改线上了 12月20号
+
+俺寻思这次bls不会害有人敢打钱吧
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20090#       发表于 2020-12-3 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596690&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-3 14:00</a>
+
+不懂holo把不懂日文的moona扔到jp服干什么</blockquote>
+lofi懂啊，本来moonalofi也是卡组吧，谁能想到兔子插了进来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
