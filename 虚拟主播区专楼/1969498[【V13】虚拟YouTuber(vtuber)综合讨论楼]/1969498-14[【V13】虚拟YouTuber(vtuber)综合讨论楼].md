@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 18:08** 
+> ## **本文件最后更新于2020-12-03 20:09** 
 
 
 
@@ -12071,6 +12071,25 @@ luna第一次live那个王八脖子俺现在还记得(^o^）
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Hearn| + 1|感谢|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12333,6 +12352,25 @@ syl，看到你综野兔子集体发病感觉有点感慨，你兔在cn居然还
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1|索菲我想你了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12352,4 +12390,763 @@ syl，看到你综野兔子集体发病感觉有点感慨，你兔在cn居然还
 
 
 
-                            
+
+
+-----
+
+####  通天大道  
+##### 20154#       发表于 2020-12-3 18:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">本楼现在主要讨论彩虹还是木口啊，好久不来了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20155#       发表于 2020-12-3 18:12
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-3 18:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599301&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2020-12-3 17:47</a>
+
+我才知道cr杯ras跟德龙一个队啊</blockquote>
+Rasさん是谁，还能打得过我L-star AKA空德龙<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+Syl，又想起这个了
+
+<img src="https://img.saraba1st.com/forum/202012/03/183234clm0hkooraoo3o5h.png" referrerpolicy="no-referrer">
+
+
+<strong>合計１ｐｔ.png</strong> (90.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 18:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 20156#       发表于 2020-12-3 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599492&amp;ptid=1969498" target="_blank">索菲超可爱的 发表于 2020-12-3 18:05</a>
+ 没有人是完美的，哪怕是虚拟人，你兔也不例外。 兔子的表现已经足够Pro了，要是搞en限定你们是不是要原地转 ...</blockquote>
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 20157#       发表于 2020-12-3 18:20
+
+
+
+
+算了，看开点，英语这种东西，本来就是运用范围最广的语言。搞得你在学校的时候不学一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+咱们放开点，而且英语浓度高的也就那几个特定游戏了，玩个亚洲专攻游戏，就没啥白皮看了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20158#       发表于 2020-12-3 18:24
+
+
+
+ 本帖最后由 Suzutsuki 于 2020-12-3 18:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599539&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-3 18:08</a>
+
+可是这届把24p点数用完的队伍也不多啊，不如说和前几届比还少了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20159#       发表于 2020-12-3 18:32
+
+
+
+
+坐不住了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野兔宝如果在看的话还是屏蔽这个索菲发言吧，这人直播都基本不看的，评论栏更是无视，可能就听听歌回
+客观来讲兔子学英语是为了跟moona交流，而且她学的是个j8，我觉得不如当做人际关系来看比较好，白皮目测只有特定直播会比较高，老实说英语ptsd还是要治的<img src="https://p.sda1.dev/0/be501429f6f9d2ce1ab8502f97dcdeef/1ffe6cd5ada7eac3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20160#       发表于 2020-12-3 18:35
+
+
+
+
+妈呀，我怎么到家你们还在野兔子🐰呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">原来索菲来了啊
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20161#       发表于 2020-12-3 18:37
+
+
+
+
+看了眼colo楼，鲨皇被拳师盯上了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20162#       发表于 2020-12-3 18:38
+
+
+
+
+其实不是新闻 出道没多久的时候那个拳师就来碰瓷过了 然后碰瓷那期效果(播放量)很好
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20163#       发表于 2020-12-3 18:39
+
+
+
+
+那拳师早打过一套了，p用没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20164#       发表于 2020-12-3 18:44
+
+
+
+
+打拳要是能刺激白皮消费 也是好事
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20165#       发表于 2020-12-3 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想可能是35的锅，线下贴贴的时候把兔子教坏了，满脑子en进出
+PekomikoSZD
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20166#       发表于 2020-12-3 18:46
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-3 20:05 编辑 
+
+看多了会变rz.JPG
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/184149jjzz9uvn6nuzk6dk.png" referrerpolicy="no-referrer">
+
+
+<strong>3Dでボトルマンとかおもちゃで遊ぶぜ！　加賀美ハヤト　社築　花畑チャイカ.png.png</strong> (246.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 18:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/185656puewsfvupoyfpcp2.png" referrerpolicy="no-referrer">
+
+
+<strong>3Dでボトルマンとかおもちゃで遊ぶぜ！　加賀美ハヤト　社築　花畑チャイカ-2.png.png</strong> (289.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 18:56 上传
+
+
+
+
+
+
+
+6岁小学男生打矿泉水瓶3Dwith人头麦 ver.
+
+彩虹的垃圾ASMR变多了（PS.柴卡，很强——）
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/195704ki69vuqiifh6fkfr.png" referrerpolicy="no-referrer">
+
+
+<strong>3Dでボトルマンとかおもちゃで遊ぶぜ！　加賀美ハヤト　社築　花畑チャイカ-3.png.png</strong> (111.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 19:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/200455dty5l9mo55zjgtyl.png" referrerpolicy="no-referrer">
+
+
+<strong>3Dでボトルマンとかおもちゃで遊ぶぜ！　加賀美ハヤト　社築　花畑チャイカ-4.png.png</strong> (234.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:04 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 
+
+[https://www.youtube.com/watch?v=yKwcOyqtJSs](https://www.youtube.com/watch?v=yKwcOyqtJSs)
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20167#       发表于 2020-12-3 18:46
+
+
+
+
+野兔宝究竟是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20168#       发表于 2020-12-3 18:50
+
+
+
+
+牛姨居然在播德贝赛马，这也太有姨味了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20169#       发表于 2020-12-3 18:52
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-3 18:53 编辑 
+
+bsyl 绘生老哥你还是好好推你的小天使吧，也别来掺合了，兔子的事可能到你juan爆炸都车不完的
+
+另外如果没那事当初PPT应该是有意搞冲国进出的，希望你能担负得起CN嘿民最后的荣光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20170#       发表于 2020-12-3 18:52
+
+
+
+
+虹男3D回年龄自动除以5
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 20171#       发表于 2020-12-3 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49598825&amp;ptid=1969498" target="_blank">Hearn 发表于 2020-12-3 17:06</a>
+几个月没看管了，问下虹的圭利是个什么情况，我记得刚出道时候风评很差有过炎上，现在是好转翻身了？怎么做 ...</blockquote>
+第一次炎上的时候确实觉得没救了，不但在众目睽睽面前暴露情商还与同期关系降到冰点，但是马上就向当事人谢罪了，然后很快参加了另一个前辈邀请的联动灭火，之后保持不温不火的增长频率，然后麻将大赛作为初学者表现出色吸引了不少人，坐上火箭还是靠跟rrm的那两次授课，不得不说两个人都把自己的优点完全发挥出来了
+其实人性格不错，前天白雪巴周年时还提过感觉夜王国之间联动越少就越来越不好意思再去交流，结果去问到墨镜的时候表示自己完全不在乎啊，随时都可以安排，她本人也很感动
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20172#       发表于 2020-12-3 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599730&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2020-12-3 18:24</a>
+ras18点 先不谈bora那队凑热闹的 这次职业哥分数有点杂 强的是16点 所以钻石女的价值就很大 而目前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">你别补刀了好么，nrk apex回归直播说她只能专心一个游戏+想玩宝可梦就知道希望不大了。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20173#       发表于 2020-12-3 19:02
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-3 19:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在索菲群聊6个多月了，"恰好"野兔子还比较多，云的还蛮多算有点懂，没事也看兔子直播很喜欢pm，怎么就不能说了
+国内都是默默无闻的观众而已
+今晚上必拉夸地藏的天使我都不知道有什么好看的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+有意进出cn的木口v只有一个，叫aki<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+再顺便科普下，有栖kiss本质是个推兔头混东方圈追求高质量内容的喜欢汴京带节奏的人，想不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20174#       发表于 2020-12-3 19:16
+
+
+
+
+推上看到的图（[https://twitter.com/NemunokiVVV/ ... 49671380992/photo/1](https://twitter.com/NemunokiVVV/status/1334424249671380992/photo/1)），郡道看到没，你同事都很出息啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/191513g7zcvssvzdqpz50v.png" referrerpolicy="no-referrer">
+
+
+<strong>APEX.png</strong> (28.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 19:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 20175#       发表于 2020-12-3 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49600084&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-3 19:02</a>
+ 在索菲群聊6个多月了，"恰好"野兔子还比较多，云的还蛮多算有点懂，没事也看兔子直播很喜欢pm，怎么 ...</blockquote>
+喜欢pm？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 絵生voice| + 1|Pekomooooona!|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20176#       发表于 2020-12-3 19:21
+
+
+
+
+有宝这人挺魔怔的，我一直不敢拿他当自己人
+
+另外ppt当初真的搞冲国进出的话应该会是一个简版阿星，那次逛mc人气爆炸，而且和CN那几位的互动效果也很好，假如真的能把冲国盘打好的话也不至于现在当个拉胯地藏不会读空气的底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可能这就是命吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 20177#       发表于 2020-12-3 19:25
+
+
+
+
+怎么都是吧友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 20178#       发表于 2020-12-3 19:25
+
+
+
+
+时也命也<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  倒影_  
+##### 20179#       发表于 2020-12-3 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49600084&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-3 19:02</a>
+在索菲群聊6个多月了，"恰好"野兔子还比较多，云的还蛮多算有点懂，没事也看兔子直播很喜欢pm，怎么 ...</blockquote>
+不是囚人?
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20180#       发表于 2020-12-3 19:28
+
+
+
+
+哦对，说起来天星如果真的cn营业我个人感觉就是高阶meaqua，无黑料有前世情直球告白还有双人合唱天星联动日，很强!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可惜不是真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20181#       发表于 2020-12-3 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49600286&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-3 19:28</a>
+哦对，说起来天星如果真的cn营业我个人感觉就是高阶meaqua，无黑料有前世情直球告白还有双人合唱天星联动日 ...</blockquote>
+怎么就高阶了，有什么相声剪切看一下
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20182#       发表于 2020-12-3 19:33
+
+
+
+
+3D打瓶盖3D打陀螺，你虹3D班这么闲吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 20183#       发表于 2020-12-3 19:41
+
+
+
+
+动了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 20184#       发表于 2020-12-3 19:43
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glawli48gnj20rl0hqqjo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 20185#       发表于 2020-12-3 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3个小学生
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20186#       发表于 2020-12-3 19:52
+
+
+
+
+月灵发动态了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  老贝  
+##### 20187#       发表于 2020-12-3 19:56
+
+
+
+
+月灵姐姐发3w关注动态了。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20188#       发表于 2020-12-3 19:57
+
+
+
+[https://www.youtube.com/watch?v=ptVGIzQy4w8](https://www.youtube.com/watch?v=ptVGIzQy4w8)
+
+【Re:BROADCASTiNG】AZKi 4th LiVE REPEAT THiS LiFE WiTH U #AZ輪廻
+
+
+免费放送啦，来看大杏的迫真偶像live，删档的哦
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20189#       发表于 2020-12-3 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49600034&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-3 18:55</a>
+
+你别补刀了好么，nrk apex回归直播说她只能专心一个游戏+想玩宝可梦就知道希望不大了。 ...</blockquote>
+奈羅花不参加我难受死了 本来bora那队就菜 奈羅花参加你虹里面我就支持奈羅花了 结果现在只能含泪支持胡桃和花芽姐了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                           
