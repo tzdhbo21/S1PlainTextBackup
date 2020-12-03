@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 14:09** 
+> ## **本文件最后更新于2020-12-03 16:08** 
 
 
 
@@ -7347,6 +7347,25 @@ UGE和社筑居然9分一把鸡，APEX节奏这么快的吗</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|确实|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11206,4 +11225,343 @@ lofi懂啊，本来moonalofi也是卡组吧，谁能想到兔子插了进来<img
 
 
 
-                              
+
+
+-----
+
+####  htgz111  
+##### 20091#       发表于 2020-12-3 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596487&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-3 13:39</a>
+
+我是不明白为什么野兔子在论坛里说话声音这么不自信，你们的兔皇已经君临vtb的顶点，傲视群雄，并 ...</blockquote>
+国内野兔子无法成为精神白皮 你的转进没用辣<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20092#       发表于 2020-12-3 14:12
+
+
+
+
+最后还是线上啊？海子姐赢麻了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20093#       发表于 2020-12-3 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596797&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-3 14:12</a>
+最后还是线上啊？海子姐赢麻了</blockquote>
+海子姐顶一顶多好啊，也许没这么多事
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20094#       发表于 2020-12-3 14:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来，纯良野兔子索菲呢 
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20095#       发表于 2020-12-3 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596311&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-3 13:23</a>
+
+你要把兔子作为情感寄托是你自己一厢情愿的事，你只想看自己想看的内容那就去看切片
+
+真想做点啥去发棉花糖 ...</blockquote>
+草 这招太狠了，打红sc劝诫来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过要是得不到自己想要的回应或者被敷衍了，是不是要恶堕化了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20096#       发表于 2020-12-3 14:34
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-3 14:38 编辑 
+
+天使刚刚玩到最后来一句"好想从今晚联动逃走"也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+这三人今天dance lesson   AKI?<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20097#       发表于 2020-12-3 14:34
+
+
+
+ 本帖最后由 掉头学姐 于 2020-12-3 14:41 编辑 
+
+不说不说
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20098#       发表于 2020-12-3 14:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">  S1就不要提那个弱智事了 
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20099#       发表于 2020-12-3 14:39
+
+
+
+
+所以天海佬到底是谁<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20100#       发表于 2020-12-3 14:45
+
+
+
+
+葛皇打麻将都能这么多人看，火畜确实gachi啊，我血压都快爆了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20101#       发表于 2020-12-3 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596487&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-3 13:39</a>
+我是不明白为什么野兔子在论坛里说话声音这么不自信，你们的兔皇已经君临vtb的顶点，傲视群雄，并 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你要cn野兔子承认兔皇没了他们也能活得很好，不如说活得更好么。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20102#       发表于 2020-12-3 15:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">讲点道理 兔皇就没靠过cn野兔子
+啊  如果炎上算的话...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20103#       发表于 2020-12-3 15:17
+
+
+
+
+可是楼里大部分人也不会以中国虹人来自称啊，反正大家翻出去都一个样，还要学4V人在名字后面加个TW或者青天白日旗吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 20104#       发表于 2020-12-3 15:24
+
+
+
+
+咋下午还在野兔子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20105#       发表于 2020-12-3 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们这是要把cn野兔子转化成阳光虹人吗...
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20106#       发表于 2020-12-3 15:32
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-3 15:42 编辑 
+
+bsyl  现在在推上比较活跃的CN杏仁，野兔子数量已经是仅次于crew的存在了，但你指望他们高强度团建未免也太天真了。当初兔子出事的时候一堆大家庭粉可是嚷嚷着要封杀某人注销官号来保住别人市场的（别把帽子都扣给V8，mmr的不满才是导火索）大部分人现在只想当鸵鸟<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+当然真正的mmr野兔子也不会sj你综的，这边可没有那么多🐟给你们钓
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20107#       发表于 2020-12-3 15:33
+
+
+
+
+柴卡圈子和社筑圈子很有趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20108#       发表于 2020-12-3 15:45
+
+
+
+
+老爱这联动奖品，十年份垃圾袋，实用是挺实用的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/03/154426n36dlg20i3uuzz80.png" referrerpolicy="no-referrer">
+
+
+<strong>twitter.com_aichan_nel.png</strong> (522.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 15:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20109#       发表于 2020-12-3 16:06
+
+
+
+
+草啊，怎么还在野兔子啊
+来点月综浓度！02姐姐批站3W关注啦！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
