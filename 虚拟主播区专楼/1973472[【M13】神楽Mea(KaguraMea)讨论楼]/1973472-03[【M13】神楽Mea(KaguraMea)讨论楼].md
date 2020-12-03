@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 04:15** 
+> ## **本文件最后更新于2020-12-03 12:17** 
 
 
 
@@ -19968,4 +19968,534 @@ syl，如果我是mea的哥哥估计会忍不住揍她
 
 
 
-          
+
+
+-----
+
+####  jhouo8989  
+##### 4174#       发表于 2020-12-3 04:34
+
+
+
+
+这人到底花了多少钱买漫画<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 4175#       发表于 2020-12-3 06:29
+
+
+
+
+我又醒了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4176#       发表于 2020-12-3 06:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4177#       发表于 2020-12-3 07:02
+
+
+
+
+我先借一个生活不规律的神乐mea
+
+一个月内养成一个生活规律的神乐mea
+
+然后
+
+然后提桶跑路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4178#       发表于 2020-12-3 07:15
+
+
+
+
+一觉睡醒多了个3小时录播档还行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4179#       发表于 2020-12-3 07:47
+
+
+
+
+现在还有啥能用的录播站吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4180#       发表于 2020-12-3 08:06
+
+
+
+ 本帖最后由 KL25001 于 2020-12-3 08:12 编辑 
+
+小羊羔子你又深夜突了啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4181#       发表于 2020-12-3 08:06
+
+
+
+ 本帖最后由 KL25001 于 2020-12-3 08:13 编辑 
+
+说到bls，截止那天还有老哥虚空打钱，然后被0群的说服了，没继续打顶进前十，当时外语第十还在播，背刺了又是一大波节奏……
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4182#       发表于 2020-12-3 09:13
+
+
+
+
+太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4183#       发表于 2020-12-3 09:27
+
+
+
+
+往好处想...至少说明你麻还有前十的实力不是...
+
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 4184#       发表于 2020-12-3 10:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉真要打还是有那个实力的  感觉保底有5 不过感觉没必要
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4185#       发表于 2020-12-3 10:09
+
+
+
+
+今年都没人想斗虫了 连讨论bls斗虫的都很少
+
+syl 听说今年bls的打钱力度比去年小了很多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 4186#       发表于 2020-12-3 10:12
+
+
+
+<blockquote>路人庚 发表于 2020-12-3 07:15
+一觉睡醒多了个3小时录播档还行</blockquote>
+求录播的存档，nga那好像不能用了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4187#       发表于 2020-12-3 10:24
+
+
+
+ 本帖最后由 路人庚 于 2020-12-3 10:25 编辑 
+
+nga那个onedrive还是能用的啊，现在已经是onedrive十一号盘了（在工具板块，就不直接放链接了
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4188#       发表于 2020-12-3 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还好没进
+
+太危险了
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 4189#       发表于 2020-12-3 10:55
+
+
+
+
+单纯从数据来说的话，打钱力度肯定比去年要强的，特别是11月赶上一波新用户进圈
+
+而且11月也就是个预选赛阶段，可以看出头部几位还有不少余力
+
+当然我觉得没这活动也大概会和现在一样打这么多钱，真要看打钱力度得看决赛那几天
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4190#       发表于 2020-12-3 11:21
+
+
+
+
+斗虫都没有好下场
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 4191#       发表于 2020-12-3 11:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">弄成这吊样还想打钱？
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 4192#       发表于 2020-12-3 11:34
+
+
+
+
+一代新人换旧人   而且这么一看  这个榜真的有毒<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+R%[3YSI32JPQM%R2DWTXN$2.png
+(213.63 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-3 11:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/113328djpsdzccpzjtyt3j.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+JP8L0${DB]C8U[~@O(A[WMB.png
+(241.1 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-3 11:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/113328pmjc55kzhp70y780.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4193#       发表于 2020-12-3 11:35
+
+
+
+
+太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 4194#       发表于 2020-12-3 11:43
+
+
+
+
+最可怕的是旧人只剩那一个偏偏还是……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4195#       发表于 2020-12-3 11:44
+
+
+
+
+你咩是唯一留下来的.... 
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4196#       发表于 2020-12-3 11:44
+
+
+
+
+别斗了别斗了，就这还斗呢，差点进前十恶心恶心人就已经很不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4197#       发表于 2020-12-3 11:45
+
+
+
+
+什么叫唯一留下来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+爱丽丝花丸不好好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在真佛了不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4198#       发表于 2020-12-3 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">没事，我就续续费就行了，孩子愿意来就给她鼓励，愿意阴间时间tc……我肯定是跟不了了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4199#       发表于 2020-12-3 11:52
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-3 11:54 编辑 
+
+你咩粉还是蛮有钱的，live光两百多个套票都20w+了好吧，还有谷子什么的，而且真的有很多极度讨厌斗虫的人的
+
+独狼啥也不知道的也很多
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4200#       发表于 2020-12-3 11:55
+
+
+
+
+11月确实整的人心累，让人休息休息吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+饿不死就不乱操心了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4201#       发表于 2020-12-3 11:57
+
+
+
+
+不一定是讨厌斗虫 也许只是单纯讨厌叔叔罢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         

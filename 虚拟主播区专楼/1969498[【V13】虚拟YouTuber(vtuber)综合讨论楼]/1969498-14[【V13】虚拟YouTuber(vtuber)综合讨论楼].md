@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 10:07** 
+> ## **本文件最后更新于2020-12-03 12:10** 
 
 
 
@@ -7606,10 +7606,11 @@ deemo里面的歌也相当喜欢，以前玩deemo的时候听得很多，也顺�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|好评加鹅|
 | 渡鸦骑士| + 1|好评加鹅|
 
 
@@ -8386,4 +8387,1196 @@ BSYL：兔皇想冲的话今天就能金盾了。
 
 
 
-                                   
+
+
+-----
+
+####  目力干员leison  
+##### 19943#       发表于 2020-12-3 10:07
+
+
+
+
+我看404那边仅存的十几个冲国野兔子应该不会管这些吧，他们可不会搞长文红SC之类的，反正冲国盘老早就炸了，把自己当成普通观众就得了，感兴趣的节目就看，不感兴趣的就忽略，有时候还可以打几句英语装作人↑人。当然你综把自己当作JP本土粉丝的人更多
+
+不对，发英语假装鬼佬不是4V人爱干的事吗，口区
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19944#       发表于 2020-12-3 10:09
+
+
+
+
+我觉得学英文还热闹点，比之前播的那个毫无指引的进邻居家的体验好多了。
+
+真想看四平八稳的，看露露和ina回回血呗。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19945#       发表于 2020-12-3 10:11
+
+
+
+
+老哥要不要试着放下梁木去看一下我们可爱的鲨鲨呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19946#       发表于 2020-12-3 10:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野兔子囚人化，这就是兔之宿命吗？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 19947#       发表于 2020-12-3 10:12
+
+
+
+
+只要还在油管播，粉丝就要做好被英语雷普的准备，特别是大v粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+以前看到英语还经常不安，现在晚上点开油管有一半都是窒死量英语浓度，甚至还有中文id英语同传，内心毫无波动<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+反正白皮人多，打钱又比我猛，我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 19948#       发表于 2020-12-3 10:14
+
+
+
+
+自己讨厌xx，然后替liver说“和高同接高收入相比，我更讨厌xxx”，这大概算云慷他人之慨吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19949#       发表于 2020-12-3 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49594086&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 10:03</a>
+
+从开始看也一年多了，不说时间和金钱方面的沉没成本，也确实是对人有感情才一直跟着看的。超长rpg和深夜mc ...</blockquote>
+这东西看你怎么想了，我认为pekomoona从今年9月21号初接触开始，经过2个多月打字联络到之前终于实现语音联动，对两人来说都是很难得的一步，也让我看到了兔子直播里很少看得到的场景，实属难得。
+
+学英语啊英语粉丝暴增啊都是这一系列行动的副产品，也可以有这种看法啊。
+
+当然这也无关兔子的本意。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19950#       发表于 2020-12-3 10:16
+
+
+
+
+鲨鲨打卡上班还爱请假，推特又盐的一逼，导致现在偶尔日增不过万，《已经糊了》。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19951#       发表于 2020-12-3 10:28
+
+
+
+
+ina超爱对粉丝说“you guys are so cute<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">”，
+跟某“男粉？我不要的”姨高下立判！（开玩笑）
+
+说起来最近郡郡是真的有在学英语，之前去日本伦敦过了一周全英语，最近又花钱买了网上英语对话练习，非常积极。不过之前会限的时候尝试了一会儿英语限定和中文限定，除了一些不文明话语，郡道英语水平跟从没学过的中文一样的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">（稍微有点夸张）
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 19952#       发表于 2020-12-3 10:39
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-3 10:28
+ina超爱对粉丝说“you guys are so cute”，
+
+跟某“男粉？我不要的”姨高下立判！（开玩笑）
+</blockquote>
+其实想想挺好的。
+
+她真懂英文了也就知道那些是刷烂梗哪些在好好看（不过白皮好好看还会发言的本身就不多），然后把刷烂梗的block。
+
+
+英文问题的原因在白皮很多不懂日文还闹死刷评论吧。要是好好看直播发正常评论也不至于会有人有一定ptsd。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19953#       发表于 2020-12-3 10:43
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-3 10:44 编辑 
+
+月之美兔（指pekomoon）MC再生要百万了，事实证明这就是最新最in的管人cp，别挣扎了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这要是搁在隔壁彩虹，CP音声已经端上来了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19954#       发表于 2020-12-3 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49594490&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-3 10:39</a>
+其实想想挺好的。
+
+她真懂英文了也就知道那些是刷烂梗哪些在好好看（不过白皮好好看还会发言的本身就不多 ...</blockquote>
+郡郡白皮浓度最高的时候就是郡神郡星和狼人，所以就还好，狼人的话白皮看得懂基本上就在讨论谁比较可疑，郡神郡星基本上就刷贴贴，都还是和直播内容符合的，就怕突然来个genshin plz<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">。
+学英语我是支持的，多懂点好，之前打apex排到华人队友，人死了之后发“c/n/m”，郡道傻傻读出来“诶？西安慕恩？什么意思？”，真是又蠢又好笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 19955#       发表于 2020-12-3 10:56
+
+
+
+
+我没有英语ptsd，我看英语管人的。但是我就是看不惯某些主播明明不会英语，观众也大部分是本土，却非要硬舔在评论区发蹩脚英语的猴子和4v
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 19956#       发表于 2020-12-3 11:03
+
+
+
+
+求求你楼不要再拿日本Vliver第一人碰瓷月之了，我们不配，除了出道时间早点已经全面退化成二线主播了请问这个说法满意了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+野兔子和囚人有可比性吗，本身月之亚文化属性爆棚准入门槛高就决定了粉丝人少民度高，现在囚人一部分心理是想把兔头从nijisanji解放出去让她和鹫崎健一类的做个广播节目不要再被田角陆按着吸血，另一部分是巴不得兔头不要再继续扩张粉丝圈子就保持这种小圈子自嗨维持评论区浓度挺好的。说到底只要月之还打算弄企划弄百物语就决定了她不可能做个一般化的游戏主播或者杂谈主，作为囚人起码要尊重一下她的追求，人少有什么大不了的。
+
+相比之下兔皇这种大众主播需要什么准入门槛吗？现如今Vtuber早就不是最开始的亚文化中的亚文化而是大众娱乐了，月之当初那最速银盾和金盾比起来一文不值。兔皇靠着直播效果和看准市场舔白皮订阅同接SC三高是应得的，皮也比月之好看了114514倍。野兔子就不要妄自菲薄了，已经赢麻了，接下来是剑指总冠军的问题。你楼用总冠军队伍对比保级队没有意义的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19957#       发表于 2020-12-3 11:10
+
+
+
+
+【#湊あくあ3D】えっ゛゛私がVRホラーに挑戦・・・！？【湊あくあ/ホロライブ】
+
+
+你杏这3D不是闲得很吗，486到底得罪谁了？
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19958#       发表于 2020-12-3 11:10
+
+
+
+
+其实我一直以来有个问题，说是羡慕也好，说是嫉妒也行，那就是面包狗粉丝为啥（在泥潭）就没有这点屁事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+当然面包狗的直播确实也很有趣，就是之前被阴间作息给劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19959#       发表于 2020-12-3 11:12
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-3 11:18 编辑 
+
+你见过哪个总冠军队伍粉都不敢公开庆祝夺冠，天天被季后赛一轮游队伍和摆烂队球迷怼得说不出话的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19960#       发表于 2020-12-3 11:13
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-3 11:10
+【#湊あくあ3D】えっ゛゛私がVRホラーに挑戦・・・！？【湊あくあ/ホロライブ】
+
+
+你杏这3D不是闲得很吗，48 ...</blockquote>
+
+“YAGOO斗争失势，乾女儿遭处处打压”∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19961#       发表于 2020-12-3 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49594849&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-3 11:10</a>
+
+其实我一直以来有个问题，说是羡慕也好，说是嫉妒也行，那就是面包狗粉丝为啥（在泥潭）就没有这点屁事啊[f ...</blockquote>
+你综可以称得上面包狗粉丝的可能也就木口中国爆炸前的热狗人，哪怕是他也不太会详细聊面包狗的直播内容，爆炸后就变原神信+阳光虹人了。
+
+v综面包狗相关内容讨论得应该没有宫助相关内容多...
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19962#       发表于 2020-12-3 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为狗子给人第一印象就是欧美进出，而且粉丝也接受了这点才看的吧，兔皇虽然也是白皮暴增的最大受益者之一，但本身属于最本土派的三期一员，所以粉丝定位上可能就有偏差，我觉得野兔子也得接受现实，兔皇的订阅和同接根本就不是本土能撑得起来的。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19963#       发表于 2020-12-3 11:20
+
+
+
+ 本帖最后由 admentus 于 2020-12-3 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49594904&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-3 11:15</a>
+
+因为狗子给人第一印象就是欧美进出，而且粉丝也接受了这点才看的吧，兔皇虽然也是白皮暴增的最大受 ...</blockquote>
+同接2w3w还不够吗...订阅哪怕没这两个月的情况也是先于夸第四个到百万的...现在sc也没增多，大头还是日元，外币里最多的也是nt币，4v或者用nt币的国人的话还是日文偏多的...
+
+订阅高同接高对粉丝的好处我是一点没体会到，电脑配件周边三期都有，梅酒联动老早预约好了，梅酒大概率没几个买的白皮，新衣服也没有，还得忍受我个人看不下去的东西...
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19964#       发表于 2020-12-3 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 杏今年的马车杯应该可以秒杀你虹的垃圾马车吧，
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19965#       发表于 2020-12-3 11:24
+
+
+
+
+当然不够了，莫说2W3W，就是8W10W也不够，没人嫌数字多的，sky is the limit。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19966#       发表于 2020-12-3 11:25
+
+
+
+[https://panora.tokyo/archives/14658](https://panora.tokyo/archives/14658)
+
+【速報】サメちゃんことホロライブEN所属・Gawr Gura 「A.I. Games」を抜いてVTuber登録者数ランキング2位に <blockquote>3日、ホロライブEnglish所属のVTuber・Gawr Gura（愛称・サメちゃん）さんのYouTubeチャンネルの登録者数が153万人を突破した。これにより、ユーザーローカルに登録されてるVTuber登録者数ランキングにて、キズナアイさんのゲームチャンネル「A.I.Games」を抜き、総合2位となった（関連記事）。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19967#       发表于 2020-12-3 11:27
+
+
+
+
+虹杏都是各自开窗的，应该没法打出超大同接吧，看不懂。
+好消息是小琥珀要参加，能交到新朋友就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 19968#       发表于 2020-12-3 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595037&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-3 11:25</a>
+
+https://panora.tokyo/archives/14658
+
+【速報】サメちゃんことホロライブEN所属・Gawr Gura 「A.I. Games」 ...</blockquote>
+喷了，鲨鱼今天涨了2w。越摸鱼涨的越多么
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 19969#       发表于 2020-12-3 11:28
+
+
+
+
+再来一次杏马车杯白姨又要让v综变成地狱了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19970#       发表于 2020-12-3 11:31
+
+
+
+ 本帖最后由 pansherry 于 2020-12-3 11:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49594973&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 11:20</a>
+同接2w3w还不够吗...订阅哪怕没这两个月的情况也是先于夸第四个到百万的...现在sc也没增多，大头还是日元 ...</blockquote>
+那当然是对主播有好处啊，人家想着夢はでっかく呢。
+
+syl，昨天刷推特还看到一个纯一粉丝说把pekora拉禁止词了，自衛ですわ。
+此一时彼一时啊。
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 19971#       发表于 2020-12-3 11:32
+
+
+
+
+马车杯怎么可能有高同接，破19w还得看杏的跨年晚会，把鲨皇抓来线上联动就更稳了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19972#       发表于 2020-12-3 11:34
+
+
+
+
+你杏要破19W很简单，年末汇报演出免费油管直播，我就不信开着SC收的钱能比卖门票少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19973#       发表于 2020-12-3 11:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 大赛MC白姨开窗，兔皇秒杀主舞台没问题吧，
+
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19974#       发表于 2020-12-3 11:36
+
+
+
+
+鲨皇的一人之下万人之上终于来了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 19975#       发表于 2020-12-3 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595145&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-3 11:34</a>
+你杏要破19W很简单，年末汇报演出免费油管直播，我就不信开着SC收的钱能比卖门票少 ...</blockquote>
+那还不够，还得每天用3d模型把姑娘们的彩排练习过程和互相鼓励的贴贴过程放出来。
+十几个一条心，朝着同一个目标努力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 19976#       发表于 2020-12-3 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595166&amp;ptid=1969498" target="_blank">Vneet 发表于 2020-12-3 11:36</a>
+
+鲨皇的一人之下万人之上终于来了。</blockquote>
+照这个速度大概明年可以挑战下老爱了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 19977#       发表于 2020-12-3 11:37
+
+
+
+
+宫皇对外语应对足够pro，心态过硬就不用怕外语浓度。
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 19978#       发表于 2020-12-3 11:38
+
+
+
+
+早安holo快亡了的时候放的NG集就挺不错
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19979#       发表于 2020-12-3 11:39
+
+
+
+
+还要把私下里认真（？）学英语的过程展现出来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  MalkutHod  
+##### 19980#       发表于 2020-12-3 11:40
+
+
+
+
+楼里有老哥知道Project;Cold吗 找不到s1的楼了（
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19981#       发表于 2020-12-3 11:40
+
+
+
+ 本帖最后由 fangjun96 于 2020-12-3 12:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 19982#       发表于 2020-12-3 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49594973&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 11:20</a>
+
+同接2w3w还不够吗...订阅哪怕没这两个月的情况也是先于夸第四个到百万的...现在sc也没增多，大头还是日元 ...</blockquote>
+够不够得看v怎么想啊，主要兔皇现在不是2，3w的同接了，是4w5以上的同接，金盾也是，也许也是第四个金盾，但可能就不能在今年金盾了。sc上也许打钱少，但是兔皇会员不断增多，这还是得归功于白皮的。
+
+兔子上前俩个月那么多大工商主役，日清，wacca，八方旅人不都是高订阅同接带来的吗。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19983#       发表于 2020-12-3 11:41
+
+
+
+
+啊，那确实，behind the scene一直都是是养gachi的神技之一，到时候自家宝宝练舞摔倒了给老师骂哭了苦しい了gachi可不得红SC满上。
+
+
+
+可惜cover是个没有企划力的废物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 19984#       发表于 2020-12-3 11:47
+
+
+
+
+同是野兔子的我925从野兔子毕业了，兄弟要不要一起<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+兔皇的入国许可证我都还没收着
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19985#       发表于 2020-12-3 11:47
+
+
+
+
+这nm不是饭juan选秀节目那种套路吗
+
+快进到虚拟偶像练习生
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19986#       发表于 2020-12-3 11:48
+
+
+
+
+https://twitter.com/hololivetv/status/1334335726842826752?s=21
+
+
+
+
+
+
+7A3DAA22-9DD3-4C98-B5B9-1748DEA2EDEA.jpeg
+(38.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-3 11:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/114805ooy6sychiiy1huyc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19987#       发表于 2020-12-3 11:49
+
+
+
+
+你杏还不是饭圈？
+
+
+哦还真不是，拿cover当同行饭圈运营丢不起这个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19988#       发表于 2020-12-3 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595217&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-3 11:40</a>
+
+够不够得看v怎么想啊，主要兔皇现在不是2，3w的同接了，是4w5以上的同接，金盾也是，也许也是第四个金盾 ...</blockquote>
+wacca那歌因为意外十月初就在iTunes有试听了，所以录音肯定在那之前，日清同理，跟这两个月发生的事没关系。
+
+八方旅人大脸猫都上了，而且这锁ip的jp游戏工商后的下载量增加也是本土粉贡献的。
+
+会员建议你看下最近兔子直播，英文id有是有，但请对比下数量，还有就是有的英文id去搜下频道实际上是日语使用者，包括说英文使用者多的几次直播，会员浓度是真的低...
+
+
+得看v怎么想确实，v如果真的不需要我继续看下去了我就滚呗
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 19989#       发表于 2020-12-3 11:54
+
+
+
+
+erer姐要是还在V综，今早一定能笑出声吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19990#       发表于 2020-12-3 11:55
+
+
+
+
+别搞得像夸夸没买英语书啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|夸夸再买英语书，效果可怎么比不上你们兔皇.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 19991#       发表于 2020-12-3 11:56
+
+
+
+
+只要是今年谈的案件，就一定有白皮的功劳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 19992#       发表于 2020-12-3 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595211&amp;ptid=1969498" target="_blank">MalkutHod 发表于 2020-12-3 11:40</a>
+楼里有老哥知道Project;Cold吗 找不到s1的楼了（</blockquote>
+https://bbs.saraba1st.com/2b/thread-1973732-5-1.html
+S1的楼没有改名还是叫みやまん
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19993#       发表于 2020-12-3 11:57
+
+
+
+
+白皮的发言实在太弱智了 让人不得不怀疑v圈白皮的平均年龄可能在20岁之下
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19994#       发表于 2020-12-3 11:58
+
+
+
+
+至少兔宝现在直播频率还比较稳定，大部分粉丝心态还算平稳，我觉得这就够了
+由俭入奢易，由奢入俭难啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19995#       发表于 2020-12-3 12:01
+
+
+
+
+erer老姐老毒唯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 19996#       发表于 2020-12-3 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595376&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 11:55</a>
+别搞得像夸夸没买英语书啊</blockquote>
+没别的意思，就是回忆起以前楼里车兔夸不仲和上位替代时大伙的表演了，没想到这么快野兔子就因为EN不安了，毕竟我一直觉得兔皇是现在最符合主流游戏民需求的主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 19997#       发表于 2020-12-3 12:03
+
+
+
+
+erer姐😢
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 19998#       发表于 2020-12-3 12:03
+
+
+
+
+兔皇一个好就是没有偶像梦
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19999#       发表于 2020-12-3 12:03
+
+
+
+
+想体验被需要的感觉建议找日常直播只有十几二十个人的底边，有的只要你评论栏打句晚上好就会读名字回话，评论里说句是观众就能加原神好友以后指不定能一起多人本。
+我和她的距离就差我并不玩原神了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20000#       发表于 2020-12-3 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想了半天你们这又是排练录像又是私下学英语ng集的建议到底是2434艺人路线还是holo的偶像路线，
+
+最后想起来了，这是超女选秀路线吧
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 20001#       发表于 2020-12-3 12:04
+
+
+
+<blockquote>smy20011 发表于 2020-12-3 11:37
+照这个速度大概明年可以挑战下老爱了</blockquote>
+一天一个万，也就四五个月后的事…别到时3D都没有就搞笑了。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20002#       发表于 2020-12-3 12:06
+
+
+
+
+确实，偶像梦害人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20003#       发表于 2020-12-3 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 兔皇这么优秀、pro，希望她的粉丝最后不要变成另一个兔子的粉丝,包括但不限于以下几点：
+
+觉得和谁联动都是别人在吸血；
+木口都是靠兔皇一人独C，其他人都是拖后腿的；
+一边觉得社内资源倾斜不够，一边抱怨出席活动太多疏远粉丝；
+和其他人准备节目反而喷另一个人影响兔皇无敌整活；
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20004#       发表于 2020-12-3 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595471&amp;ptid=1969498" target="_blank">Vneet 发表于 2020-12-3 12:04</a>
+
+一天一个万，也就四五个月后的事…别到时3D都没有就搞笑了。</blockquote>
+还真可能没有，疫情没那么快好。
+
+
+现在鲨鱼欠了一大堆的纪念回
+
+20-90万纪念
+
+100万纪念
+
+150万纪念
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20005#       发表于 2020-12-3 12:09
+
+
+
+
+那我对看的主播的唯一要求就是多播我感兴趣的内容少播我看不下去的内容，未来如果真开始有固定的学英语直播了，那像我这种讨厌看厂妹明明不会英语还硬要出于功利的目的嗯舔英文使用者的观众不就是不被需要了，就滚呗
+
+
+
+
+
+                                 
