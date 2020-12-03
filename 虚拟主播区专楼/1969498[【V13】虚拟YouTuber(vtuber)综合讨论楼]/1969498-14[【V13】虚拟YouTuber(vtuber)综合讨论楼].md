@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 02:09** 
+> ## **本文件最后更新于2020-12-03 10:07** 
 
 
 
@@ -7477,6 +7477,25 @@ aqua现在直播风格确实和我18年看的时候差别太大了，以前完�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 味增味增| + 1|好|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -7495,4 +7514,876 @@ aqua现在直播风格确实和我18年看的时候差别太大了，以前完�
 
 
 
-                                    
+
+
+-----
+
+####  Maonpuyo  
+##### 19899#       发表于 2020-12-3 02:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">想来钱走nm的偶像梦，不如tskk和粽子两条路选一个
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 19900#       发表于 2020-12-3 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49592290&amp;ptid=1969498" target="_blank">屑屑代沟尼亚 发表于 2020-12-3 01:13</a>
+
+阿希：发布sss前都是感觉在做直播 发sss后木口就有了一种偶像的感觉
+
+阿夸大概也是某一个时候就朝着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+就您这歌也不练日益拉跨
+
+
+您也配？
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 19901#       发表于 2020-12-3 02:40
+
+
+
+
+当偶像好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19902#       发表于 2020-12-3 05:46
+
+
+
+
+晚上做噩梦醒了，一醒来梦的内容全不记得，但是一看ina在做杂谈，就中途进去看了看
+
+大概是直播开始半个多小时的时候吧，聊了要做new year resolution，但自己懒得那么早想，回顾下2020这年对好多人都挺糟的，但起码大家能遇到ina
+
+之后讲到spotify的2020回顾，一年以来听得最多的歌是夜に駆ける，但听得最多的艺术家是kevin penkin，超级喜欢边画画边听来自深渊的bgm
+
+deemo里面的歌也相当喜欢，以前玩deemo的时候听得很多，也顺着这个正好聊到了音游，喜欢音游，09年那时候玩osu，但是玩不好这类游戏，怀疑是自己手眼协调能力不行
+
+游戏里特别喜欢尼尔，玩完游戏后看了小说，去油管上找全结局视频看
+
+最后结束前除了安利了圈in二期新人，本社live跟几个未来要出的新衣服，还聊了聊自己喜欢的画师，bunbun的油管频道
+
+
+总之是个很舒心的杂谈，要不是ina的直播时间对cn时区来说实在太阴间，我应该会挺喜欢看她直播
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 19903#       发表于 2020-12-3 06:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49592782&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 05:46</a>
+晚上做噩梦醒了，一醒来梦的内容全不记得，但是一看ina在做杂谈，就中途进去看了看
+
+大概是直播开始半个多小 ...</blockquote>
+感谢repo，今天的直播又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19904#       发表于 2020-12-3 06:04
+
+
+
+ 本帖最后由 admentus 于 2020-12-3 06:08 编辑 
+
+接着吐点黑泥
+
+
+ina的直播间素质真的好高，接近三万人的直播，大家都能跟上杂谈话题对聊的东西有回应有补充，基本上没人刷无意义的烂梗或者有啥带恶意的发言，哪怕有没意义的也是lol或者可爱的章鱼表情
+
+
+反观兔子直播间的白皮...不是烂梗版聊就是想被认知的一串大写刷屏，如果是那种英语告白发言也就算了，还有很多恶心人的钓鱼英文（不是4v那种，就是想主播说些不太好的傻逼英语），对我个人来说极其影响观看体验。特别是跟moona联动之后我的梁木就极其大，今天看apex也老是忘不掉英文和en进出这种事情，哪怕是关掉评论也总会想起来，就感觉是出去餐馆点了条rib，结果上面抹的酱料不是bbq酱是屎一样...
+
+要是兔子最近再来几次英语直播无论是哪种形式的，做野兔子这件事我估计坚持不了多久了
+
+
+
+当然我也明白很多人是看不懂直播才这样，但是你看不懂不能去别处吗？又不是没有英语直播了，holoen就在隔壁。而且再说了，mc和apex这种直播哪怕听不懂在说什么，起码能看懂游戏内容吧，这种前提下都要版聊刷烂梗，这种人能不能赶紧去死啊，为什么就要为这种素质的人准备英语相关内容，真就看着个订阅疯了？
+
+
+心情糟透了
+
+
+
+
+
+
+
+-----
+
+####  الطائر  
+##### 19905#       发表于 2020-12-3 07:09
+
+
+
+ 本帖最后由 الطائر 于 2020-12-3 07:51 编辑 
+
+2天订阅破5万，有点猛啊。印尼1期达到同样数字花了2个月。
+
+[https://www.youtube.com/channel/UCYz_5n-uDuChHtLo7My1HnQ](https://www.youtube.com/channel/UCYz_5n-uDuChHtLo7My1HnQ)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19906#       发表于 2020-12-3 07:49
+
+
+
+
+因为评论看不下直播就挺因噎废食的…至少直播内容是我选择观看的主要因素而评论栏完全不是，就这点而言日语浓度最高的桃铁直播我觉得挺无聊的，相对英文浓度高的mc和宇宙人狼好看。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 19907#       发表于 2020-12-3 07:52
+
+
+
+
+你兔皇为了今年金盾进出，这点牺牲是值得的，而且月兔组合现在t1，乘势而上也正常。一早上这也太沉不住气<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 19908#       发表于 2020-12-3 07:57
+
+
+
+
+管人贩卖的主要产品不是内容而是社群，流量越大的管人内容占比越低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19909#       发表于 2020-12-3 08:10
+
+
+
+
+倒不是因为评论看不下去，而是英文回复总能让我想起自己对前天联动的梁木
+
+自己看看前天联动的时候错误使用ぺこらーと这个tag跟直播tag混淆的英文使用者又有多少？在fanart tag下面发烂梗的又有多少？还有兔子会专门挑白皮回复出来，要是关掉弹幕就不用看到脑瘫白皮我也不会梁木那么深了
+
+至于说金盾，哈哈，金盾过后还有两百万呢，谁知道en进出会持续多久<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19910#       发表于 2020-12-3 08:25
+
+
+
+
+啊这，怎么一大早就看到铁血野兔子发病<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+你兔这种营业方式注定吸路人粉好吧，没有白皮你兔怎么可能年内金盾，怎么可能成为今年日V第一人。不过吸那么多白皮粉，唯一的结果应该就是加快了兔子变成工商工具人的速度<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+咱就一看节目的心态来的，415把我从mmr变成了鬼，要没那破事我可能一辈子都不会上你综。当初兔子但凡多一点核心粉也不至于B站盘被冲没。现在想想应该感谢从业员和星宝，让我用不着等到925再发疯。你综老哥应该没法理解逃到404的CN野兔子那几个月过得有多难受。不过假如这事再在EN那边复刻一次那就太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+我一直告诉自己不要活成crew和祭丝的样子，现在想想，可能野兔子的下场也不会好到哪里
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19911#       发表于 2020-12-3 08:44
+
+
+
+
+夏女士先前天天摆烂气死gachi气死事业民气死独角兽，大天使好好的安定直播怎么可能有crew出问题？对不上对不上。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19912#       发表于 2020-12-3 08:45
+
+
+
+
+发英语怪话日语怪话其实也是想要被注意到，
+ina直播的时候高强度和评论栏互动，要播什么要聊什么要画什么基本上都是她给几个选项然后让观众挑，挑完之后又会说怪话调戏观众（观众选完ina说其实是自己操控观众选出来的选择权其实还在她、画kiara泳衣就先画了个q版的鸡），都不用说怪话或者打sc人家就给你handpat for everyone（可能这就是sc垫底的原因），感觉要变成触手了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">。
+有一个小小的问题就是，ina太爱讲谐音冷笑话了，语言问题很难第一时间反应到，评论都是lol没人解读，不过比起笑话，还是会为这种超冷dadjokes笑起来的ina更好笑<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19913#       发表于 2020-12-3 08:52
+
+
+
+
+油管PC开个剧场模式或者用插件浮出窗口不就顶掉隔壁评论栏了，挑评论互动是兔子的事，实在觉得碍眼那开后台听声音啊，也没什么不同吧其实。
+
+傻逼的可不单单白皮，只是主场白皮人多罢了，这种事我以为国情在应该很容易理解的啊？
+
+给路人粉分级，低质量的去死都出来了，野兔子好可怕哦，啊不过一定也是野兔子人数多，所以总归会出现这种的，真是没办法。
+
+反正最后被劈的都是兔子啦。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19914#       发表于 2020-12-3 08:53
+
+
+
+
+昨晚Patra打蜘蛛侠迈尔斯，弹幕基本是日文，然后有个人打个了HELLO PATRA-CHAN马上被回应ハローハロー，我酸了，白皮认知厨总是赢
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19915#       发表于 2020-12-3 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593305&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-03 08:44:03</a>
+夏女士先前天天摆烂气死gachi气死事业民气死独角兽，大天使好好的安定直播怎么可能有crew出问题？对不上对 ...</blockquote>“怎么可能有crew出问题”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你应该没看过隔壁夸楼8月份是怎么发病的
+我一直不喜欢兔夸对立的，哪怕你综一堆人劈crew我也不想跟团，而且就算我对个别crew不满（比如V8那几个）也不想上升到群体，相反我还是蛮佩服crew的执行力和报团能力的
+你综野兔子就那几个，等到哪一天真变成靶子了应该一点都不会反抗吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 19916#       发表于 2020-12-3 08:58
+
+
+
+<blockquote>目力干员leison 发表于 2020-12-3 08:54
+“怎么可能有crew出问题”
+
+你应该没看过隔壁夸楼8月份是怎么发病的
+
+我一直不喜欢兔夸对立的，哪怕你 ...</blockquote>
+事业民发完疯看LIVE不还是活回了当初的样子，知道期限的戒断发情和祭丝毫无盼头的发疯不太一样吧。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19917#       发表于 2020-12-3 09:04
+
+
+
+
+ina直播里对观众确实是很贴心啊，今天杂谈结束前还未突击杂谈取了个怪标题让观众担心了道歉，经常会说喜欢观众，还有直播结束评论栏里的发的otsu都让人超级舒服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+dad joke这东西会不会是加拿大人的缘故，我看的一加拿大真人管人也贼喜欢玩双关跟八九十年代pop reference
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 19918#       发表于 2020-12-3 09:04
+
+
+
+ 本帖最后由 味增味增 于 2020-12-3 09:07 编辑 
+
+大早上你楼发疯的那个就是当初很喜欢搞兔夸不仲的syl，昨天看了几个ame的录像，爱了
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 19919#       发表于 2020-12-3 09:06
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19920#       发表于 2020-12-3 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593375&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-3 08:52</a>
+
+油管PC开个剧场模式或者用插件浮出窗口不就顶掉隔壁评论栏了，挑评论互动是兔子的事，实在觉得碍眼那开后台 ...</blockquote>
+分不分级我觉得应该是芙宝那种会员才算粉丝的想法，“路人粉”起码不要影响别人的观看体验吧，我自己从没有在兔子直播或者相关她本人的地方做过影响别人观看体验的事情，都是尽可能融入别人，我觉得我应该不会没资格扔这个石头...
+
+主场的话我也很讨厌批限，但批限少，忍忍就过去了，兔子也不可能挑中文评论出来
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19921#       发表于 2020-12-3 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593490&amp;ptid=1969498" target="_blank">味增味增 发表于 2020-12-3 09:04</a>
+
+大早上你楼发疯的那个就是当初很喜欢搞兔夸不仲的syl，昨天看了几个ame的录像，爱了
+
+ ...</blockquote>
+我喜欢搞兔夸不仲？不都是接你楼的话茬，不然咱去v7v8回顾下谁先开始整天搞兔夸不仲的？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 19922#       发表于 2020-12-3 09:12
+
+
+
+
+没必要强迫自己看完，pekomoon联动弱智英语听不下去，我也就后来跟着时间轴补了补跳脸446和二人赛跑片段，最后赛跑完美复刻龟兔赛跑还是蛮有意思的。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19923#       发表于 2020-12-3 09:15
+
+
+
+
+admentus老哥一直是你综最纯良的人之一，前面的应该是认错人了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 19924#       发表于 2020-12-3 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593594&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-3 09:15</a>
+
+admentus老哥一直是你综最纯良的人之一，前面的应该是认错人了
+
+
+  -- 来自 能手机投票的 Stage1官方 Androi ...</blockquote>
+那大概是和银色子弹通天大道之类的搞错了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 19925#       发表于 2020-12-3 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49592782&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 05:46</a>
+
+晚上做噩梦醒了，一醒来梦的内容全不记得，但是一看ina在做杂谈，就中途进去看了看
+
+大概是直播开始半个多小 ...</blockquote>
+看录像么，晚上睡觉的时候超级催眠的
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19926#       发表于 2020-12-3 09:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593536&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 09:09</a>
+
+分不分级我觉得应该是芙宝那种会员才算粉丝的想法，“路人粉”起码不要影响别人的观看体验吧，我自己从没 ...</blockquote>
+没这个资格吧，你自己所谓的没有影响别人观看体验只是自我满足罢了，或者说，从你这么说开始，这就只是为了让你显得有资格扔这个石头的说辞罢了
+
+所以到底是评论垃圾英文多让你不爽还是兔子挑了英文评论读让你不爽呢
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 19927#       发表于 2020-12-3 09:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49592802&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 06:04</a>
+
+接着吐点黑泥
+
+
+ina的直播间素质真的好高，接近三万人的直播，大家都能跟上杂谈话题对聊的东西有回应有补充 ...</blockquote>
+想多了，兔子估计看不懂英文XD
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19928#       发表于 2020-12-3 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593716&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-3 09:23</a>
+
+看录像么，晚上睡觉的时候超级催眠的</blockquote>
+有啥推荐的吗，看她玩游戏好像一般般，是不是绘画回会比较好
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 19929#       发表于 2020-12-3 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593827&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 09:35</a>
+
+有啥推荐的吗，看她玩游戏好像一般般，是不是绘画回会比较好</blockquote>
+画画和杂谈吧，本人是超大手的画师
+
+<[img src="https://i.loli.net/2020/12/03/ih4Uetm3axwo17E.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19930#       发表于 2020-12-3 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593754&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-3 09:28</a>
+
+没这个资格吧，你自己所谓的没有影响别人观看体验只是自我满足罢了，或者说，从你这么说开始，这就只是为 ...</blockquote>
+都不爽，评论我能不看，声音我总不能不听吧，我也没预知能力能在读英文评论之前静音...
+
+如果说不影响别人是自我满足，日常生活保持礼仪包括且不限于一直说谢谢道歉咀嚼不出声都差不多能算自我满足了吧，没错倒也没错，但是我个人的价值观确实无法接受这种说法
+
+还是说除了我以外的人都真的很喜欢看crazy rabbit或者almond这种梗...
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19931#       发表于 2020-12-3 09:43
+
+
+
+
+发发牢骚其实无所谓，但是认还是要认的。7.8b（可能要减去1.4b）&gt;12m是简单的小学数学，连田角最近都算明白了。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19932#       发表于 2020-12-3 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593069&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 08:10</a>
+倒不是因为评论看不下去，而是英文回复总能让我想起自己对前天联动的梁木
+
+自己看看前天联动的时候错误使用 ...</blockquote>
+莫非兔皇这直播就是新型艺术<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 19933#       发表于 2020-12-3 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593879&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-3 09:41</a>
+
+都不爽，评论我能不看，声音我总不能不听吧，我也没预知能力能在读英文评论之前静音...
+
+如果说不影响别人 ...</blockquote>
+不在乎，don't care，直播又不是只有这点东西
+
+严于律己是好事，但是可别忘了这后面还有一句宽于待人呢，就不能再努力一下么？
+
+直播本来就是很主观的东西，既然你觉得不适就看看别人的呗，其实要是大家都能别那么执念，多看看不同人的直播自己选择也是好事
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 19934#       发表于 2020-12-3 09:50
+
+
+
+
+真正融入本土观众当然是要和本土观众一样不去打扰en洋大人刷屏互动啦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 19935#       发表于 2020-12-3 09:51
+
+
+
+
+野兔子也有囚人内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19936#       发表于 2020-12-3 09:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 人又不傻，谁想回到几千同接只能尬舔彩虹的时代阿，
+
+
+同接、订阅、sc是liver的尊严，比你高那就代表地位就比你高
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 19937#       发表于 2020-12-3 09:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 人兔皇现在正在高速发展期，
+
+
+只能活在美兔电台虚空“几万”同接的囚人凭什么碰瓷人家野兔子阿
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19938#       发表于 2020-12-3 09:56
+
+
+
+
+野兔子之前说有了百万还想要200万，换了是你你不要？何况兔皇这么上进的人。
+
+
+反正观众跟不上主播的斯必德因此脱坑也不少见了。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 19939#       发表于 2020-12-3 09:56
+
+
+
+
+看V不要入脑行吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19940#       发表于 2020-12-3 10:02
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-3 10:04 编辑 
+
+BSYL：兔皇想冲的话今天就能金盾了。
+
+
+说到金盾这个事情我又想黑屁白上大概真的是半个运营了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 19941#       发表于 2020-12-3 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593938&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-3 09:48</a>
+
+不在乎，don't care，直播又不是只有这点东西
+
+严于律己是好事，但是可别忘了这后面还有一句宽于待人呢， ...</blockquote>
+从开始看也一年多了，不说时间和金钱方面的沉没成本，也确实是对人有感情才一直跟着看的。超长rpg和深夜mc建造大部分也看了，pekomoona就死活看不下去...
+
+如果说像心心这种高强度搞英文也算了，看不下去我就滚，现在比如说临时学英语那次说想要做早上的直播，说有聊新闻跟学英语的部分，一会儿又是基本上纯日语的正常游戏直播，让我很恐慌
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19942#       发表于 2020-12-3 10:06
+
+
+
+
+英文pstd我一直觉得挺莫名的，这个就和学中文一样，说不上好看，但我觉得也没啥破防的点…
+
+
+
+
+
+                                   
