@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 20:09** 
+> ## **本文件最后更新于2020-12-03 22:09** 
 
 
 
@@ -12212,10 +12212,11 @@ syl，看到你综野兔子集体发病感觉有点感慨，你兔在cn居然还
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fangjun96| + 1|野兔煲存活|
 | Hemis| + 1|存活代|
 
 
@@ -12637,7 +12638,7 @@ PekomikoSZD
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-3 20:05 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-3 20:13 编辑 
 
 看多了会变rz.JPG
 
@@ -12703,9 +12704,24 @@ PekomikoSZD
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 说完结束惯例句后下一秒立即跳起来开打
+
+<img src="https://img.saraba1st.com/forum/202012/03/201342xjiai5t1xfjgy5nm.png" referrerpolicy="no-referrer">
+
+
+<strong>3Dでボトルマンとかおもちゃで遊ぶぜ！　加賀美ハヤト　社築　花畑チャイカ-5.png.png</strong> (128.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:13 上传
+
+
+
+
+
 
 [https://www.youtube.com/watch?v=yKwcOyqtJSs](https://www.youtube.com/watch?v=yKwcOyqtJSs)
+
 
 
 
@@ -12996,6 +13012,25 @@ ras18点 先不谈bora那队凑热闹的 这次职业哥分数有点杂 强的�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|真不熟|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13149,4 +13184,858 @@ ras18点 先不谈bora那队凑热闹的 这次职业哥分数有点杂 强的�
 
 
 
-                           
+
+
+-----
+
+####  烯丝短尾猫  
+##### 20190#       发表于 2020-12-3 20:10
+
+
+
+
+说起来凛月说了想参加cr也是没下文了，估计没戏了（
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20191#       发表于 2020-12-3 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49600525&amp;ptid=1969498" target="_blank">free 发表于 2020-12-3 19:57</a>
+[https://www.youtube.com/watch?v=ptVGIzQy4w8](https://www.youtube.com/watch?v=ptVGIzQy4w8)
+
+【Re:BROADCASTiNG】AZKi 4th LiVE REPEAT THiS LiFE WiTH U ...</blockquote>
+这音响效果一如既往的拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20192#       发表于 2020-12-3 20:20
+
+
+
+
+#Vtuber楽曲大賞2020
+
+
+月之的反重力女孩荣获MV赏第十名，我也好喜欢这首歌和MV<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+
+好多V（爱老大花谱黑黑白上桑船长calli等）都上榜了，大家可以去看看<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20193#       发表于 2020-12-3 20:21
+
+
+
+
+狐皇原创曲排第五我觉得是德不配位的，不知道评选标准是啥。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20194#       发表于 2020-12-3 20:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-3 20:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/202849hqj7wev3wqqe7w3v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Song section 30 to 21 Congrats peanuts kun! .jpg</strong> (266.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/203014umkh5dhda45vv3tl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>楽曲部門20〜11位！ .jpg</strong> (215.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:30 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/202917abtooh69iqhiq2lh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>楽曲部門 10位〜6位！ .jpg</strong> (31.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:29 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/203822sdjyz4je75kay6zj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>MVベスト20やね .jpg</strong> (125.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:38 上传
+
+
+
+
+
+[https://twitter.com/g_suima/status/1334472876712312838/photo/1](https://twitter.com/g_suima/status/1334472876712312838/photo/1)
+
+
+乐曲部：
+
+第4 失礼しますが、RIP♡/Calliope Mori
+
+第5 Ahoy!! 我ら宝鐘海賊団☆/宝鐘マリン
+
+<img src="https://img.saraba1st.com/forum/202012/03/204233pps422ra2pxhpav6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>楽曲部門トップ3！ .jpg</strong> (128.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 20:42 上传
+
+
+
+
+
+
+
+这mori第四...？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20195#       发表于 2020-12-3 20:28
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-3 20:39 编辑 
+
+mv赏那自然是mv好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，乐曲那边是谱皇大丰收
+
+
+你虹和索尼买的吧，我觉得月之两首砖曲都不够反重力好
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20196#       发表于 2020-12-3 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mv榜，兔头第一，hh第二，星街第三，狐皇第五。不好评价，感觉算是人气榜吧。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20197#       发表于 2020-12-3 20:43
+
+
+
+
+乐曲榜，星街第一，兔头第二，狐皇第三，死神第四，船长第五，浓度超标啦，更德不配位了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20198#       发表于 2020-12-3 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49600876&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-3 20:40</a>
+
+mv榜，兔头第一，hh第二，星街第三，狐皇第五。不好评价，感觉算是人气榜吧。 ...</blockquote>
+铁日语人气榜阿，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要是有个英文问卷，你觉得死神那首会如何？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20199#       发表于 2020-12-3 20:46
+
+
+
+
+隔壁对这个有经典德不配位吗来点来点
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20200#       发表于 2020-12-3 20:47
+
+
+
+
+这玩意是谁评的啊 这也太流量了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20201#       发表于 2020-12-3 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 纯人气排，月之也排不到第一阿，
+
+
+榜一应该是索索给打钱上的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20202#       发表于 2020-12-3 20:51
+
+
+
+
+我刚想说MV榜怎么一个dustcell都没有后来一想人家不是管人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 20203#       发表于 2020-12-3 20:54
+
+
+
+
+观众投票选出来的，不是评的
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20204#       发表于 2020-12-3 20:55
+
+
+
+
+果然千和这些真人或者apex圈的人联动 踩就要爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20205#       发表于 2020-12-3 20:55
+
+
+
+
+熟人参加办的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20206#       发表于 2020-12-3 20:57
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-3 21:08 编辑 
+
+说实话，月之这个获奖数，让我想起了最速红白的你白坂，而且又刚好是索尼爹，很难不觉得是靠索，
+
+可转念一想，宣发时月之像抹布一样被扔在地上，怎么会在这时想起她，
+
+这次得奖大概是评委都是老人，年轻的时候爱看低画质动画片吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">。
+
+省一楼，dustcell在best5那里，而且得奖的还是PAIN，为啥啊....
+
+
+顺便，月之马上要播力！月之用了黑纱和服，呼呼，我好开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 20207#       发表于 2020-12-3 21:12
+
+
+
+<blockquote>【第2回Vtuber楽曲大賞】
+
+日程：12/3(木)
+
+会場：LOFT9 Shibuya
+
+出演者：飯寄雄麻、TAKUYA the bringer、ツラニミズ、ワニのヤカ（YACAINDAHOUSE）、森山ド・ロ</blockquote>观众票选，填空
+
+
+
+
+
+
+
+QQ图片20201203210815.jpg
+(311.81 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-3 21:10 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/211038agpnvjugfmmvjqpm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20208#       发表于 2020-12-3 21:12
+
+
+
+
+靠投票上的榜图一乐就行
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20209#       发表于 2020-12-3 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，囚人和玉米人不打钱不看直播，怎么打榜的时候这么积极。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20210#       发表于 2020-12-3 21:21
+
+
+
+ 本帖最后由 katern 于 2020-12-3 21:43 编辑 
+
+补几张嘉宾选的top5
+
+<img src="https://img.saraba1st.com/forum/202012/03/211929ppt9gr52rx23kkxz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoT4A2MVQAI8-42.jpg</strong> (128.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 21:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/211950xihem25yy32hi5lt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoT4A5IUwAI0Mvc.jpg</strong> (137.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 21:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/212002uqcqwe7cg5w5vw2a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoT4A24VEAA8WST.jpg</strong> (123.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 21:20 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/212011f17fqkxjj16bo8b8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoT6bwAVgAcJ0Tp.jpg</strong> (120.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 21:20 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/211941xylkujudy98c4tds.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoT4A2VVEAAbaYe.jpg</strong> (146.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 21:19 上传
+
+
+
+
+
+
+里面还是有几首很不错，我觉得比总榜要靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+♪spaceship/高峰伊織【Official MV】
+[https://www.youtube.com/watch?v=5Gk-lp8a8Mk](https://www.youtube.com/watch?v=5Gk-lp8a8Mk)
+
+
+羽子田チカ × Niwa - 星凪の地 MV
+[https://www.youtube.com/watch?v=kYVYkUUlt7U](https://www.youtube.com/watch?v=kYVYkUUlt7U)
+
+
+ESCOBAR DANCE / BOOGEY VOXX
+[https://www.youtube.com/watch?v=s-uBGRkFtrY](https://www.youtube.com/watch?v=s-uBGRkFtrY)
+
+
+DANCE is the answer / 紡音れい
+[https://www.youtube.com/watch?v=yZiz9xyKseA](https://www.youtube.com/watch?v=yZiz9xyKseA)
+
+
+AMOKA - 不完全存在
+[https://www.youtube.com/watch?v=9uvVhwEj1Zw](https://www.youtube.com/watch?v=9uvVhwEj1Zw)
+
+
+Prologue / アザミと鹿あるく
+[https://www.youtube.com/watch?v=Ze8YE2ijVC0&amp;t=99s](https://www.youtube.com/watch?v=Ze8YE2ijVC0&amp;t=99s)
+
+
+顺便推几首<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">  遣ラズノ雨 / アザミ
+[https://www.youtube.com/watch?v=xjjYYbZXLxk](https://www.youtube.com/watch?v=xjjYYbZXLxk)
+
+
+Ctrl+S / アザミ×隣町本舗
+[https://www.youtube.com/watch?v=zP8ghSlL7as](https://www.youtube.com/watch?v=zP8ghSlL7as)
+
+
+close your eyes - 平田義久 [cover] / BOOGEY VOXX
+[https://www.youtube.com/watch?v=XyxXLDKELr0](https://www.youtube.com/watch?v=XyxXLDKELr0)
+
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 20211#       发表于 2020-12-3 21:26
+
+
+
+
+中卒玩nm的人狼<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20212#       发表于 2020-12-3 21:35
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-3 21:37 编辑 
+
+兔子这嗓子还是不太行啊
+
+
+聊天室已经开始提前庆祝了
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20213#       发表于 2020-12-3 21:41
+
+
+
+
+今天木口的同接看上去舒服多了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20214#       发表于 2020-12-3 21:43
+
+
+
+
+兔子还是不太敢让亲妈直接上直播啊，不过哪怕最后选了录音也算是能听到未来岳母的声音了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20215#       发表于 2020-12-3 21:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">封印海外的木口也就不过如此了。
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 20216#       发表于 2020-12-3 21:44
+
+
+
+
+你确定你父母能同意你姐弟恋么（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20217#       发表于 2020-12-3 21:45
+
+
+
+
+姨怎么了，你对姨性恋有意见吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且兔子本来也不算姨味很重吧
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20218#       发表于 2020-12-3 21:48
+
+
+
+
+110酱我可以<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20219#       发表于 2020-12-3 21:49
+
+
+
+
+其实一开始我还以为黑青蛙会避嫌  甚至以为那个不包括翻唱（cover）是不包括cover 
+
+后来发现我想多了 黑青蛙直接 把azki写在个人五首里
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20220#       发表于 2020-12-3 21:50
+
+
+
+ 本帖最后由 pansherry 于 2020-12-3 21:51 编辑 
+
+明明是兔子想让妈妈直接上，然后野兔子拼命在阻止吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过就算退一万步她妈真的不知道她干V，至少在干直播这行也是知道的吧。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20221#       发表于 2020-12-3 21:51
+
+
+
+
+个人榜第三个那位takuya哥哥挺好的，建议去关注一下他的推，经常转发一些强力底边
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 20222#       发表于 2020-12-3 21:53
+
+
+
+
+露露现在总是玩傻屌小游戏，都不开坑长时间的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20223#       发表于 2020-12-3 21:56
+
+
+
+
+不建议从群众投票&lt;KOL评选来立论，这年头各种婆罗门光挨打了。
+
+
+可以直接说就像买订阅买同接买SC一样，yagoo买票了。
+
+
+YKW（米）说得好：WE WANT EVERY VOTE COUNT<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20224#       发表于 2020-12-3 22:08
+
+
+
+
+害怕聊到pekoland这种问题不知道会怎么回，应该是妈妈不知道设定这方面的东西吧
+
+
+这人是怎么做到看了那么多漫画却不知道动画出来了，洞穴人吗？
+
+
+
+
+
+                         
