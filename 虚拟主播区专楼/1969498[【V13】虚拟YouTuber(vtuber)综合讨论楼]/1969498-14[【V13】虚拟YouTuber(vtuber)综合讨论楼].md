@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 22:09** 
+> ## **本文件最后更新于2020-12-04 02:08** 
 
 
 
@@ -13772,6 +13772,25 @@ close your eyes - 平田義久 [cover] / BOOGEY VOXX
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MisForTunez| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14038,4 +14057,712 @@ YKW（米）说得好：WE WANT EVERY VOTE COUNT<img src="https://static.saraba1
 
 
 
-                         
+
+
+-----
+
+####  Aminor  
+##### 20225#       发表于 2020-12-3 22:10
+
+
+
+ 本帖最后由 Aminor 于 2020-12-3 22:14 编辑 
+
+今晚木口同接异常的低，是404bug吗，白皮密码宇宙人狼只有船长一台2w，上次光兔皇一台就6w了，看了眼5ch都在讨论同接
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20226#       发表于 2020-12-3 22:11
+
+
+
+
+兔子这新的热门漫画都看了点啊 挺好的，心态年轻，甚至还读了推的孩子(忘了中文怎么翻译的就横枪那个)
+比你船上次说自己在看新番然后弹幕猜半天说个新寒蝉出来好多了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20227#       发表于 2020-12-3 22:11
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-3 22:14 编辑 
+
+有2w的，船2w2了已经，不过油管确实bug了，大部分海外和日本本土部分区域同接不计算，船能成为这次同接第一也确实全靠本土强（以及现在在当狼）。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20228#       发表于 2020-12-3 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49601495&amp;ptid=1969498" target="_blank">free 发表于 2020-12-3 21:51</a>
+
+个人榜第三个那位takuya哥哥挺好的，建议去关注一下他的推，经常转发一些强力底边 ...</blockquote>
+其实只要关注几个人就好了，特别是那些作曲的
+
+之前看azami深夜配信说最近认识了好多人，互动还是很频繁的
+
+大多数都是几千订阅，但是很多都会自己作曲或者是前唱见喜欢玩音乐
+
+VMDJ这些活动多搞搞还是能淘不少金<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20229#       发表于 2020-12-3 22:13
+
+
+
+
+兔子装了12个漫画app还行
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20230#       发表于 2020-12-3 22:14
+
+
+
+
+404今天有bug，很多地区的同接不被算上，基本今天的同接可以拿来推算下jp同接
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20231#       发表于 2020-12-3 22:15
+
+
+
+
+月灵姐姐明天就公演了，希望公演之后休息结束能多整点歌……哦还有圣诞啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20232#       发表于 2020-12-3 22:17
+
+
+
+
+刚买了一大堆人上榜油管，这边“绩效维护”没来得及续费，不要急明天就好了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 20233#       发表于 2020-12-3 22:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/222554i3m6j599rdmoam9b.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture .png</strong> (172.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 22:25 上传
+
+
+
+
+
+本社的杂谈橄榄了分社的宇宙80<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20234#       发表于 2020-12-3 22:29
+
+
+
+
+兔子这会限感觉漫区首页出现的漫画都被推了一遍还行
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20235#       发表于 2020-12-3 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49601845&amp;ptid=1969498" target="_blank">sher1ock 发表于 2020-12-3 22:26</a>
+本社的杂谈橄榄了分社的宇宙80</blockquote>
+是实打实的begging stream
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20236#       发表于 2020-12-3 22:51
+
+
+
+
+小天使这存档是保住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20237#       发表于 2020-12-3 22:53
+
+
+
+
+真真正正的本土强者
+
+
+<img src="https://img.saraba1st.com/forum/202012/03/225301enune559ojio3vwv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201203225210.png</strong> (61.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-3 22:53 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 20238#       发表于 2020-12-3 22:53
+
+
+
+
+今晚的黑黑联动气氛好舒缓，bgm也很合适，难得的安静直播
+真是一个好游戏
+要睡着了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20239#       发表于 2020-12-3 23:00
+
+
+
+
+晚上的宇宙人狼有repo吗？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20240#       发表于 2020-12-3 23:05
+
+
+
+ 本帖最后由 空集 于 2020-12-3 23:52 编辑 
+
+宇宙人狼这游戏太零碎repo群里聊聊感觉一般没人高兴整合 
+
+补了补(因为我在看兔皇会限)船当狼两局
+船mio这局船完全就是卖萌 当然这个确实也可以作为个看点 完全不会当狼的无能船长的迷茫
+最后剩三人慌的一比完全给猫狗的两姨气势压倒了
+船35这局就非常有戏剧性了 船长还是全程慌的一比 而且这局35还早早被投 很快变成了4人其中一狼的非常难处理的局面  然而戏剧性的是船长犹豫了很久抱着试试的想法杀了小粥后其他两人走过来没看到尸体就往回走了，混过了cd，翻盘了，船长全程的语无伦次和最后翻盘的反差是看点
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20241#       发表于 2020-12-3 23:11
+
+
+
+
+开启了亡者聊天室，比之前只能自闭或者内置打字交流好很多。
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 20242#       发表于 2020-12-3 23:16
+
+
+
+
+别说
+
+2434这个相羽唱歌还唱得凑合 就是高音太尖了 拉不住
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20243#       发表于 2020-12-3 23:34
+
+
+
+
+月之也要去玩马车诶，上次和德龙临时练车凭着好运入了决赛，这回目指优胜了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，
+年末忙起来了，之后又有练车mc联动的预定，不知道n团感谢祭...
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20244#       发表于 2020-12-3 23:38
+
+
+
+
+黑黑频道今天这个联动就这样普通的结束了，我还以为会说两句年末的安排之类的...
+
+攒着这么多都不想说吗<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 20245#       发表于 2020-12-3 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">patra打棒球不看画面当特种奥数魔刃勉强还行行的，看画面完全是精神污染，为什么要玩这个折磨自己折磨观众的游戏
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 20246#       发表于 2020-12-3 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">明年估计这个棒球游戏就没有了 flash没了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 20247#       发表于 2020-12-3 23:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">总算到头了，完全败北，罗宾赢得透彻
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20248#       发表于 2020-12-4 00:03
+
+
+
+ 本帖最后由 katern 于 2020-12-4 00:05 编辑 
+
+没看直播，纸狐狸新皮还挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+EoUvIlVU0AArtJi.jpg
+(107.75 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 00:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/000155uoeadslbccau0t6e.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EoUvIlVU0AArtJi.jpg
+(107.75 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 00:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/000143v4lvv7k73tpi79pt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EoUvIlVU0AArtJi.jpg
+(107.75 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 00:02 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/000245wonvm5vgtn5hd1n5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EoUvIlVU4AAM7gb.jpg
+(141.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 00:02 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/000234rpsa4z117stj39a9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EoUvIlVUwAA1dMQ.jpg
+(137.45 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 00:02 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/000210roqxzmj7mliuczoj.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20249#       发表于 2020-12-4 00:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/002833cqpugk607g2gyq6g.png" referrerpolicy="no-referrer">
+
+
+<strong>nga.178.com_read.php_tid=24466163.png</strong> (86.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 00:28 上传
+
+
+
+
+
+
+小免什么时候做b站管人好声音啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl  淘到一个惑星ちる-Madoboshi Chiru，声音总感觉很熟悉   存个档 
+
+几个月只发了3首歌，一首法语，平时还要讲童话故事
+
+
+【ちるのお歌】夢見るシャンソン人形【フランス語で#歌ってみた】
+[https://www.youtube.com/watch?v=weyc-WNlsXI](https://www.youtube.com/watch?v=weyc-WNlsXI)
+
+
+【ちるのお歌】風になる【歌ってみた】
+[https://www.youtube.com/watch?v=FmY_jUe3oWc](https://www.youtube.com/watch?v=FmY_jUe3oWc)
+
+
+【ちるのお歌】見上げてごらん夜の星を【歌ってみた】
+[https://www.youtube.com/watch?v=ran_h5GxIyg](https://www.youtube.com/watch?v=ran_h5GxIyg)
+
+
+12号出第一首单曲，作曲是东方同人社团风铃的主催，到时候看看实力
+
+总感觉像某个东方唱见，但是听不出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20250#       发表于 2020-12-4 01:14
+
+
+
+
+听你们说同接被砍了，我上hiyoko看了下晚上的时段榜，这不就是各自中位数水平吗？
+
+今晚没兔子的暴力数字让你们产生了错觉吧。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20251#       发表于 2020-12-4 01:25
+
+
+
+
+没有任何征兆的 24：40 的会限  我去洗澡了 洗完澡看到群友在看才发现。 前半小时时间轴老哥拜托了（）  进去在聊无尽的和Ina联动的卫星。然后聊另一个长期卫星五期联动。然后是回忆和四期等人联动的体验。前面漏的部分 暂定有 无尽的卫星 rimwold，  快要忘记的那个L42D ， 12月官号有两次节目（不一定是3D）要上。
+
+原来昨天桃铁还有个无限四国loop的bug  我去打doom了没看到。
+
+然后由桃铁聊到线下桃铁，讲阿葵是  初见就相性和双方性格原因没太注意距离感  互口嗨 简直要线下打起来（real fight）般这种有些过于“亲近”的感觉 有点反省是不是有些过线的味道（不知道怎么准确表述）。
+
+没留宿 因为本身就比较自由的活动 聊到早上就回去了
+
+和尊妈聊了好多BL 尊妈在安利鬼灭BL本  不过船长没看过原作 人都不是很能认齐  直接BL开始了解了。船长比较喜欢看无惨X炭，然后她xjb然后她妄想一通在某种意味上剧透了最终卷。
+
+咒术回战最近也去看了，然后因为聊到宿摊所以接下来围绕“光堕ち”（评论精准总结）或者说强大的前反派和主角合作  一连串聊了 贝吉塔 西索  猫和老鼠，然后歪到不是反派而是有争议角色，聊到鲁路修和**蜊，讨论了下对这两角色感想的区别。（有段开玩笑像**蜊那样献祭一味的也蛮有趣的）。然后又绕回了鬼灭。
+
+明天又要上舞蹈课，你杏最近上课有点多。然后唱了首歌。
+
+
+读SC纯养gachi 和声真似 ，唯一的信息是说准备花五倍之前的原创曲的钱做新的原创曲（那首100W以上），骗了一些SC，考虑到最近的radio来说有些人猜田中公平不过没确定。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20252#       发表于 2020-12-4 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49601845&amp;ptid=1969498" target="_blank">sher1ock 发表于 2020-12-3 22:26</a>
+
+本社的杂谈橄榄了分社的宇宙80</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我不想用那个形容词，但是好像也没别的词
+
+死神那个阴间车轱辘求P3直播权竟然有2万同接！
+
+
+
+
+
+                        
