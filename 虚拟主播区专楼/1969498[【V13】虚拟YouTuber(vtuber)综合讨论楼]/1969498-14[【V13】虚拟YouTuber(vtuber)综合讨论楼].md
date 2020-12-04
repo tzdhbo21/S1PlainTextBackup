@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 16:10** 
+> ## **本文件最后更新于2020-12-04 18:07** 
 
 
 
@@ -16283,4 +16283,686 @@ sega大礼包已经给了，阿特拉斯大概sega管不了。
 
 
 
-                      
+
+
+-----
+
+####  flyskywalker92  
+##### 20332#       发表于 2020-12-4 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49609078&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2020-12-4 16:06</a>
+发现bora那队人员变了 cpt来了 3个都能韩语 感觉可以看看了</blockquote>
+admin换成cpt了？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20333#       发表于 2020-12-4 16:38
+
+
+
+
+小琥珀开了六万人庆祝歌回啦，唱的也不是很好啦，但感觉喜悦之情完全溢出，年轻女孩真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20334#       发表于 2020-12-4 16:45
+
+
+
+
+団長、何やってんだよ団長😭
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/164530n4772bgm87748c4y.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20201204164419.png</strong> (209.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 16:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 20335#       发表于 2020-12-4 16:51
+
+
+
+<img src="https://p.sda1.dev/0/41826aae65018550168bfbc055ce6ecd/IMG_CMP_190105462.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 20336#       发表于 2020-12-4 16:54
+
+
+
+
+八成毕业艺
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 20337#       发表于 2020-12-4 16:54
+
+
+
+
+这张图还是国人画师画的
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 20338#       发表于 2020-12-4 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国外学校是这会儿毕业的吗,不太懂
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20339#       发表于 2020-12-4 17:02
+
+
+
+
+为啥还要八成 真毕业那是官号发的 估计现实毕业
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20340#       发表于 2020-12-4 17:03
+
+
+
+
+可能是藤木二小姐高中毕业吧，不太清楚土澳高考时间<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20341#       发表于 2020-12-4 17:09
+
+
+
+
+The school year in Australia goes from late January until mid-December，那现在确实是快到学年结束的时候
+
+藤木二小姐这个年纪还在读高中吗？还是说在澳洲读foundation？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20342#       发表于 2020-12-4 17:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/171006bg2si2m5im5249cl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>グループC・Dを公開！.jpg</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 17:10 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/171049yl0ddjzgfgf1ol9z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>グループA・Bを公開！.jpg</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 17:10 上传
+
+
+
+
+
+
+[https://twitter.com/nijisanji_app/status/1334777028495761414](https://twitter.com/nijisanji_app/status/1334777028495761414)
+
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20343#       发表于 2020-12-4 17:11
+
+
+
+ 本帖最后由 过不了审 于 2020-12-4 17:15 编辑 
+
+好早就提了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20344#       发表于 2020-12-4 17:11
+
+
+
+
+藤木小姐留学这么些年英语烂成这个鬼样还是回小岛吧差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 20345#       发表于 2020-12-4 17:18
+
+
+
+
+啊这。。
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/171544ol6ginlwr6w6rc9n.png" referrerpolicy="no-referrer">
+
+
+<strong>201204164129.png</strong> (125.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 17:15 上传
+
+
+
+
+
+
+北京时间18点开始
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/171544r88xr78k3c7pkp9e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1607067533202.jpg</strong> (572.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 17:15 上传
+
+
+
+
+
+
+中场休息后上台
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/171545uksq2ilticc45tck.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoJ1uyPVoAAdATd.jpg</strong> (942.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 17:15 上传
+
+
+
+
+
+
+北京时间19点开始
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20346#       发表于 2020-12-4 17:18
+
+
+
+
+狐皇这次还同时试听吗？
+
+
+
+
+
+
+89820760-C5C0-403A-BCFA-ADB96ED801F6.jpeg
+(43.34 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 17:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/171837xdzf8gdk58xc7gdc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20347#       发表于 2020-12-4 17:27
+
+
+
+
+阿火你再唱这种断气式唱法的歌怕是撑不到40万人就要趴下了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 20348#       发表于 2020-12-4 17:28
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-12-4 17:29 编辑 
+
+老爱这次还是一首歌，选the MIRACLE也够live热闹
+
+歌姬多一首，终于不用憋屈曲间mc了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20349#       发表于 2020-12-4 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">安土桃还是旧皮版……谁？
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20350#       发表于 2020-12-4 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga现在很吃惊，说holo不是被万代拉黑了吗，怎么万代还在和鲨鱼互动。太弱智了，说到底就是他们自己创造了几个谣言，然后自己还相信了，又没有人去辟谣，比如万代拉黑了杏，实际上之前万代商店还在出周边，35回归唱偶像大师曲子侵权，但实际上拿到了授权，35自己还专门开直播解释了，nga大部分人是完全没有自主获得信息的能力吗？
+
+
+
+
+
+
+
+-----
+
+####  老贝  
+##### 20351#       发表于 2020-12-4 17:41
+
+
+
+
+很多人都是只愿意看到自己想看到的东西的，就跟我只看得到v综的月灵姐姐相关一样。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20352#       发表于 2020-12-4 17:41
+
+
+
+
+https://ngabbs.com/read.php?tid=24473447
+
+新时代阳光虹人，好耶
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20353#       发表于 2020-12-4 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610208&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-4 17:37</a>
+
+nga现在很吃惊，说holo不是被万代拉黑了吗，怎么万代还在和鲨鱼互动。太弱智了，说到底就是他们自己 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟万代自己反复横跳打自己脸的事也没少干过，官号私用的中国更是一大把。这瓜还是要先放着的。
+
+35那次回归主要还是imas那边粉丝闹的事吧
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 20354#       发表于 2020-12-4 17:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不愧是新时代
+
+阳光的角度特别**钻
+
+我服了，请不要清算我
+
+我会好好挂路灯的
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20355#       发表于 2020-12-4 17:48
+
+
+
+
+别尬黑，隔壁都是业内大佬，你综阴湿巨魔也配嘲讽他们<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20356#       发表于 2020-12-4 17:49
+
+
+
+
+草 这么精彩吗，新时代人
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20357#       发表于 2020-12-4 17:51
+
+
+
+
+非人生物动捕很难吗。。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20358#       发表于 2020-12-4 17:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几位一直在念叨阳光虹人执念真的很深啊。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20359#       发表于 2020-12-4 17:55
+
+
+
+
+是不是真心喜欢🌈综艺不谈，怎么链接贴的是B站的？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20360#       发表于 2020-12-4 17:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我不用点开都知道就那几个熟悉的ID在带节奏
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20361#       发表于 2020-12-4 18:04
+
+
+
+
+顺便卡婊现在也是FH+反日会社了，能不能把版权都开放给同样FH反日的hololive啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20362#       发表于 2020-12-4 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610541&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-4 18:04</a>
+顺便卡婊现在也是FH+反日会社了，能不能把版权都开放给同样FH反日的hololive啊 ...</blockquote>
+电影？快进太快了
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 20363#       发表于 2020-12-4 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49604625&amp;ptid=1969498" target="_blank">proxima 发表于 2020-12-4 09:20</a>
+日本厂妹打游戏学英语，不行！
+
+日本皇族唱歌学中文，行！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你这理解能力有点捉急，再细品品？
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 20364#       发表于 2020-12-4 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610253&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2020-12-4 17:41</a>
+
+https://ngabbs.com/read.php?tid=24473447
+
+
+新时代阳光虹人，好耶</blockquote>
+上一个这么吹的是点，然后现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     

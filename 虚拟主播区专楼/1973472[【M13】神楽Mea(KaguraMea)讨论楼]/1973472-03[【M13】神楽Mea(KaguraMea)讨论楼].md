@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 20:16** 
+> ## **本文件最后更新于2020-12-04 18:15** 
 
 
 
@@ -21561,4 +21561,545 @@ tc后面说了今天想播来着
 
 
 
-       
+
+
+-----
+
+####  路人庚  
+##### 4265#       发表于 2020-12-3 20:35
+
+
+
+
+标记一下，1203手机tc档56分钟左右捏了个新型萌音（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4266#       发表于 2020-12-3 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，2:00:56这个喷嚏，绝了
+
+
+什么嘛，你咩姐还是能打出awsl级别的喷嚏啊（真）
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4267#       发表于 2020-12-3 22:22
+
+
+
+
+你咩姐想做ASMR并且认真去做，是很有杀伤力的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 4268#       发表于 2020-12-3 22:28
+
+
+
+ 本帖最后由 路人子 于 2020-12-3 22:37 编辑 
+
+笑死了忍不住切了两刀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+粉色的喷嚏.mp3
+(43.63 KB, 下载次数: 87)
+
+
+
+2020-12-3 22:36 上传
+
+点击文件名下载附件
+
+阅读权限: 20
+
+
+
+
+
+
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+以为自己成功斩杀-错斩-斩杀-错斩-最后还是成功斩杀的神乐流傻之逼.mp3.mp3
+(1.06 MB, 下载次数: 68)
+
+
+
+2020-12-3 22:36 上传
+
+点击文件名下载附件
+
+阅读权限: 20
+
+
+
+
+
+
+
+
+（换个mp3格式）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KL25001| + 1|收藏了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4269#       发表于 2020-12-3 22:45
+
+
+
+
+这人玩傻之逼的戏是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 4270#       发表于 2020-12-3 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">才看到bls的公告，阿B这线上票是不准备退了吗。。。。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4271#       发表于 2020-12-3 23:34
+
+
+
+
+线上票的钱已经退了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+12.20之前买过的免费看，但是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 4272#       发表于 2020-12-3 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49602461&amp;ptid=1973472" target="_blank">A2014720 发表于 2020-12-3 23:34</a>
+
+线上票的钱已经退了
+
+
+12.20之前买过的免费看，但是</blockquote>
+额。。我没收到= =我去问问
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4273#       发表于 2020-12-4 07:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/070515o11nlj2jvvj1jifn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CA696D32-A6FA-486E-B05F-05241086AA1B.jpeg</strong> (343.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 07:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4274#       发表于 2020-12-4 08:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49603845&amp;ptid=1973472" target="_blank">路人庚 发表于 2020-12-4 07:05</a></blockquote>
+我喝酒喝多了吗
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4275#       发表于 2020-12-4 10:11
+
+
+
+
+好家伙 起的时间比我还阳间了
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4276#       发表于 2020-12-4 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是幻觉
+
+骗不到我
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4277#       发表于 2020-12-4 11:43
+
+
+
+
+是我拿她手机发的啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4278#       发表于 2020-12-4 12:38
+
+
+
+
+bml的节目单里，咩宝唱两首歌，echo和草莓果酱
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4279#       发表于 2020-12-4 13:00
+
+
+
+
+和叔叔的告别曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4280#       发表于 2020-12-4 13:01
+
+
+
+
+echo草 拉跨英文要来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl 咩去miu评论区了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4281#       发表于 2020-12-4 13:03
+
+
+
+
+果酱和echo
+
+话说不唱《针》么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4282#       发表于 2020-12-4 14:03
+
+
+
+
+可别忘了这个第二天就是线上演唱会啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4283#       发表于 2020-12-4 14:23
+
+
+
+
+bml应该是录播吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4284#       发表于 2020-12-4 14:48
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-4 14:49 编辑 
+
+fw阿b给它送钱都不要，祝bml原地暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+明年bls我必去浅水湾拉闸
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4285#       发表于 2020-12-4 14:59
+
+
+
+
+推特直播时间投票怎么都选的9点啊 作息又要回去了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4286#       发表于 2020-12-4 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我恨
+
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4287#       发表于 2020-12-4 17:29
+
+
+
+
+8点歌回
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4288#       发表于 2020-12-4 17:32
+
+
+
+
+是新封面<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4289#       发表于 2020-12-4 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好耶！！
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4290#       发表于 2020-12-4 17:58
+
+
+
+
+话说为啥bls票不卖了？不是说你麻来定价，收入归麻吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 4291#       发表于 2020-12-4 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610470&amp;ptid=1973472" target="_blank">2111X 发表于 2020-12-4 17:58</a>
+
+话说为啥bls票不卖了？不是说你麻来定价，收入归麻吗</blockquote>
+她好意思收钱么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4292#       发表于 2020-12-4 18:13
+
+
+
+
+新封面好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+      
