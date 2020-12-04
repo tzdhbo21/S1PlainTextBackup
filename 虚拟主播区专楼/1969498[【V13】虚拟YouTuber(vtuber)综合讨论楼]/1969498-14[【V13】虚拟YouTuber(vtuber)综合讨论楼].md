@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 02:08** 
+> ## **本文件最后更新于2020-12-04 12:08** 
 
 
 
@@ -14765,4 +14765,927 @@ syl  淘到一个惑星ちる-Madoboshi Chiru，声音总感觉很熟悉   �
 
 
 
-                        
+
+
+-----
+
+####  zore  
+##### 20253#       发表于 2020-12-4 02:16
+
+
+
+ 本帖最后由 zore 于 2020-12-4 02:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玛德原来都6小时了我这推送出问题了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20254#       发表于 2020-12-4 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49603010&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-4 00:41</a>
+
+小免什么时候做b站管人好声音啊
+
+
+syl  淘到一个惑星ちる-Madoboshi Chiru，声音总感觉很熟悉   存 ...</blockquote>
+vup歌力斗虫吗，绿帽坛有人做了
+[https://bbs.nga.cn/read.php?tid=24169925](https://bbs.nga.cn/read.php?tid=24169925)
+
+
+不过他这个分的比较粗略，T0-T5，T5就一个黑桃影.....基本上T2往上我觉得都算能听了吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20255#       发表于 2020-12-4 03:01
+
+
+
+
+11月30日的杂谈，信息量比较多，写了个前半段repo。对于V综来说值得一车 就是之前说的那个偶像跳舞幕后花絮，还真有可行性，而且船长和楼友想到一块去了该出这种产品。
+
+
+
+
+11月30日杂谈 【舞蹈课部分】杂谈前半小时 8:29-30:48
+
+今天去舞蹈课见到了很多HOLOmem 。阵容是mio 486 ayame 兔船。486 是mood maker，非常元气。
+
+自己练的很拉跨的样子，跳的没节奏，曾在三期线下聚会时被兔子称为片手风车。（这里其实可能还有[https://www.nicovideo.jp/watch/sm36334557](https://www.nicovideo.jp/watch/sm36334557)  这个优秀创作梗在里面）
+
+这次2nd的舞步会相对复杂一些，船长非常拟声抽象的描述了。
+
+然后486聊了屁股打针的话题，船长马上想歪到hs的方面了，被鸭鸭怒斥。（
+
+然后说起在说那个话题的时候脑内其实有flashback 以前自己其实用过座药 ，是手术后。然后作为车万厨当时船长第一联想和我差不多是想到东方。然后在打入的时候第一反应是：啊 这就是BL的时候的感受么。（这也是高中时就一直在考虑的话题）。然后船长喜欢把BL相关的安利和体验去niconico地给兔子讲，甚至包括不习惯的初次插入时这种很污的话题。然后就顺带聊到插入后聊到了**的前列腺高潮，表示男性观众可以试试船长试不了。
+
+然后聊了好久没线下见到的ayame ，说ayame一直都是睁大眼睛盯着别人一种威吓一样的感觉，可能是在人间观察一样（啊 马琳这时候回这样XXX啊 etc）, 似乎是在收集战斗数据一样。但是这次船长一转攻势主动出击，去近距离贴ayame（5cm），对峙一会后ayame逃到mio妈那里去了。形容：像猫一样。
+
+讨论了下是直接睡了还是温习下今天跳舞内容，怕直接睡了全忘了。
+
+练习的时候的一件趣事是他们跳舞练习的时候好像也会录下来看自己跳的对不对  兔子发现自己跳舞跳错了 就突然顿住了 然后后面跳的也很gudaguda  非常可爱，船长表示很喜欢出个跳舞失败花絮DVD。船长的“无限之舞”录下来能让人忘记正确的舞步。在练舞的时候486还曾突然叫起来 哎 哎 的口号 大家都无视了 486吐槽你们也来一起喊啊 www.
+
+船长对唱歌之前还是蛮有兴趣和向上心的（不要吐槽），但是对跳舞就彻底躺平了。不过和大家一起上舞蹈课还是挺开心的。
+
+最后尾声时，船长和mio已经换完衣服准备走了，但是Mio说如果懒狗跳完的时候大家都已经走了会很寂寞，所以要等下懒狗，船长感叹mio妈妈sukisukisuki(此处吮吸脑髓音效）。船长和mio在出道后一年内都没多少联络，顶多是占卜程度，但是线下去吃了一次烤肉说了很多话后，那时候就发现自己很喜欢mio，就表示想更亲近mio，然后在此之后为了更亲近定期交流。
+
+当听到Mio说ayame是小宝宝的时候 心中燃起了对抗之火，觉得Mio明明是marine的妈妈，表示自己也是小宝宝，然而被mio像没有听到一样无视了，然后为此船长又更大声重复了边，被mio敷衍道：是这样嘛。。好吧好吧。但是懒狗：但是我和mio认识更久，马琳的话只能算妹妹。
+
+说mio真好啊，帮船长选了洋服，最近阿火也接受mio选衣服的建议，holomem大家这样连接了起来。
+
+聊起自己和懒狗之前没啥联络和联动，一直还挺有距离感的，这次跳舞线下的尬聊（船长哎嘿嘿笑的挺可爱的。我没怎么哎嘿嘿效果啊。啊，没有啊。这种尬聊）感觉ayame也还没打开内心，说12月还有机会见面。
+
+被吐槽可能是性欲满溢所以才被警戒。然后聊到了之前自己全被黄标的事情，那个事后导致以后别人说自己黄标，自己就觉得“就这”，mio都吐槽马琳到底弄了多HS的配信搞成全黄标啊。接下来讲了之前会限muramura的状态爆钓了许多erogaki。说自己那种模式希望认识的人不要去看，特别是船妈，出于一种思春期叛逆心态（对这个梗水龙敬画过张图）。然后特地提了下水龙敬，说虽然他不是管人妈，但是作为名画师看会限自己也还是有点害羞，不过他经常能画出有梗的有趣图，所以也挺好的。后面是和mio等ayame时聊到的以前没怎么在直播里说过的正太控的故事了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| AKili| + 1|好评加鹅|
+| stedckk| + 1|好评加鹅|
+| 与天争锋_LZ| + 1||
+| 过不了审| + 1|阿火：“船长尽力了”|
+| nowaki| + 1|好评加鹅|
+| -rm7-| + 1|好评加鹅|
+| 璎酪| + 1|好评加鹅|
+| 渡鸦骑士| + 1|好评加鹅|
+| nehon13| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20256#       发表于 2020-12-4 06:26
+
+
+
+
+你船有病啊，自己出钱给cover做原创曲一次就够了，咋还想再花500w去做第二次，她又不算很高收入，这起码也得俩个月多的工资了，自己说的当v虽然能挣很多钱但是不能因此失去理智咋都忘了。
+
+
+
+
+
+
+
+-----
+
+####  s32244153  
+##### 20257#       发表于 2020-12-4 07:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49603782&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-4 06:26</a>
+
+你船有病啊，自己出钱给cover做原创曲一次就够了，咋还想再花500w去做第二次，她又不算很高收入，这起码也 ...</blockquote>
+她的MV点击量广告费、首播SC和卖歌订阅应该差不多就能打平
+
+剩下的音游收权接点相关工商、歌回唱个几次就补回来了吧
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 20258#       发表于 2020-12-4 08:03
+
+
+
+
+cover会不会白嫖上瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20259#       发表于 2020-12-4 08:15
+
+
+
+
+毕竟白皮当中可没有那么多舔狗会免费给他们做pv啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20260#       发表于 2020-12-4 08:16
+
+
+
+
+你以为招en干嘛的，死神编曲，ina画图，花生做pv，白嫖的新境界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20261#       发表于 2020-12-4 08:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我船也没享受过cn给免费做的pv啊，拿她引申到舔狗我觉得不行。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20262#       发表于 2020-12-4 08:33
+
+
+
+
+这种pv都是liver出资吗，那企业的意义呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 20263#       发表于 2020-12-4 08:43
+
+
+
+ 本帖最后由 凯文夏特 于 2020-12-4 08:46 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20264#       发表于 2020-12-4 08:44
+
+
+
+
+企业只负责引流和抽成。不服做个人势去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 20265#       发表于 2020-12-4 08:46
+
+
+
+
+木口不是个人个人势？我记得不是说cover只是个支援平台？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20266#       发表于 2020-12-4 08:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这类额外产能自费很奇怪么，反正木口摇sss大锅饭也给了。
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 20267#       发表于 2020-12-4 08:53
+
+
+
+
+双倍社畜，比996还过分
+这都干得下去。杏🐂🍺
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20268#       发表于 2020-12-4 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49604199&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-04 08:32:21</a>
+我船也没享受过cn给免费做的pv啊，拿她引申到舔狗我觉得不行。</blockquote>佐贺里三期全员都有啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+做PV的白皮不是没有，但是本身性质和字幕组这种直接倒贴的还是不一样
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 20269#       发表于 2020-12-4 09:00
+
+
+
+
+收最高的租干最少的活
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 20270#       发表于 2020-12-4 09:01
+
+
+
+
+无论性质一样不一样，字幕组从杏手中解脱可谓是好事
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20271#       发表于 2020-12-4 09:01
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-4 09:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">企业也是只《收 租》，客观来说版权，3d，联系工商，代缴税，帮忙处理设备故障以及反馈油管bug这些cover应该还是在干的，就是和隔壁一比，显得不思进取，原地踏步。只能说企业没跟上企划的发展速度，产能和人力资源都不足。另外木口v确实说过感觉她们更像个人事业主。
+
+syl，佐贺那你与其说三期享受到了，还不如说三期和字幕组都是给星街帮忙的。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20272#       发表于 2020-12-4 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596425&amp;ptid=1969498" target="_blank">Mafise 发表于 2020-12-3 13:34</a>
+
+我看你们别劝了，要是给劝服了那我可要嘲讽了
+
+这位“纯良”什么时候放下莫名其妙的高贵优越心态，认 ...</blockquote>
+日本厂妹打游戏学英语，不行！
+
+日本皇族唱歌学中文，行！
+
+
+我们s1真是太高贵啦
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20273#       发表于 2020-12-4 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49604625&amp;ptid=1969498" target="_blank">proxima 发表于 2020-12-4 09:20</a>
+日本厂妹打游戏学英语，不行！
+
+日本皇族唱歌学中文，行！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">学英语8行，学中文也8行，只有与评论优质互动无敌节目效果的质最强。
+这就是真正404民的品味么。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20274#       发表于 2020-12-4 09:40
+
+
+
+
+能不能别超时空对线了
+今天不车这事行不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 20275#       发表于 2020-12-4 09:59
+
+
+
+
+别车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月灵姐姐的行动力和学习能力是厂妹们能比的吗？别拿月灵姐姐捅人了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 20276#       发表于 2020-12-4 10:00
+
+
+
+
+那么有反向教学的吗？vtuber教观众自己母语我好像只见过一个播了一次无疾而终的企划。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20277#       发表于 2020-12-4 10:03
+
+
+
+
+今天鲨皇的太鼓达人开始了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20278#       发表于 2020-12-4 10:10
+
+
+
+
+你字幕组对船皇有什么帮助，人跟字幕组是真不熟，更准确的说二期往上的都不熟，能不能不要贷款白嫖
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20279#       发表于 2020-12-4 10:10
+
+
+
+
+油管现在看的少情况不太清楚，批站有泡菜妹v教韩语和樱花妹教日语直播的
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20280#       发表于 2020-12-4 10:13
+
+
+
+ 本帖最后由 nowaki 于 2020-12-4 10:21 编辑 
+
+音游鲨好强好吧 持续拉跨
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20281#       发表于 2020-12-4 10:33
+
+
+
+ 本帖最后由 空集 于 2020-12-4 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49604376&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-4 08:53</a>
+
+佐贺里三期全员都有啊
+
+
+做PV的白皮不是没有，但是本身性质和字幕组这种直接倒贴的还是不一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">   佐贺这歌要论起来又不归属三期， 三期也只是作为个嘉宾性质，正常也不会作为自己的曲子去唱。CN字幕组也没倒贴船皇甚么，木口其他人收了字幕组什么管我屁事。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 20282#       发表于 2020-12-4 10:34
+
+
+
+
+月灵能无障碍理解英语的吧，得亏她油管很少播，不然早被白皮捧上去了😫
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20283#       发表于 2020-12-4 10:42
+
+
+
+
+那确实，不过饭juan粉头至少还有钱拿，字幕组不仅没钱拿还要承受运营和乐子人双重打击，属实人下人。虽然有些麻烦是他们自找的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是白皮粉头以后每天都能舔到那可太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20284#       发表于 2020-12-4 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49605480&amp;ptid=1969498" target="_blank">YODOboi 发表于 2020-12-4 10:34</a>
+月灵能无障碍理解英语的吧，得亏她油管很少播，不然早被白皮捧上去了😫</blockquote>
+没必要，真捧上去难道不好吗？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20285#       发表于 2020-12-4 10:55
+
+
+
+
+现在英语不是眼里管人=holo，其他臭鱼烂虾没啥兴趣吧
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 20286#       发表于 2020-12-4 10:57
+
+
+
+
+等nijien出来之后holo就是德不配位了，等着吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20287#       发表于 2020-12-4 11:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/110011t334i33g2y4pveg6.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20201204110000.png</strong> (405.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 11:00 上传
+
+
+
+
+
+
+
+mmr给我冲了！
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20288#       发表于 2020-12-4 11:01
+
+
+
+
+我倒是好奇虹en男人要是一口正宗尼哥口音，会有人拿这个车holo吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20289#       发表于 2020-12-4 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49605080&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-4 10:00</a>
+
+那么有反向教学的吗？vtuber教观众自己母语我好像只见过一个播了一次无疾而终的企划。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">P家大姐有教过日语。不过这种企划，你总要有一边是双语都懂的。比起人均yhm的VTB，去VUP里找估计比较容易找到
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 20290#       发表于 2020-12-4 11:32
+
+
+
+
+ena这一世，在中国网站上用日语教过中国人韩语啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过趴在地上想一想，学韩语对宅男也没啥用
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20291#       发表于 2020-12-4 11:38
+
+
+
+
+郡道说不想涨粉了，从最近几个月的增速来说，你郡真是心想事成<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，
+能不能跟月之换一下啊，月之自闭养噶吃，郡道外交搞企划吸粉
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 20292#       发表于 2020-12-4 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+aa.png
+(6.08 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-4 11:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/113636sh61t76z6uh7i666.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20293#       发表于 2020-12-4 11:39
+
+
+
+
+说起船组还是出过不少高质量pv的 印象最深的就是一个鬼畜和一个物语，不过也都只是b站专属和404没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20294#       发表于 2020-12-4 11:39
+
+
+
+
+。。
+
+
+
+
+
+
+
+-----
+
+####  索菲超可爱的  
+##### 20295#       发表于 2020-12-4 11:41
+
+
+
+
+今天兔子就可以开百万金盾倒计时了，能不能在今晚发个《King》的翻唱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20296#       发表于 2020-12-4 11:48
+
+
+
+
+看来今天又是车三期的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，兔皇将会永远都登上王座，武运昌隆
+syl 看来不让鲨皇玩音游，路途遥远，mmr给我冲<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20297#       发表于 2020-12-4 11:50
+
+
+
+
+一直在做双语企划的我只知道一个japanese hanjo，但是他主要也是介绍日本文化，语言讲得少。
+其他我看过的v都是搞了一两次，教了几个日常用语（或者整活用语）就无疾而终了。
+很多国v都会双语/三语，完全可以把教日语英语做成固定企划。当年咩栗留学读了一年语言学，比那些普通大学生多少有点语言优势，我就建议过直播教英语。然而他看上去不喜欢这种要事先备课的企划，只喜欢棉花糖杂谈
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20298#       发表于 2020-12-4 11:59
+
+
+
+
+VUP教日语你是想让人家死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20299#       发表于 2020-12-4 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49606423&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-4 11:59</a>
+VUP教日语你是想让人家死啊</blockquote>
+vr好几个都教过吧
+
+
+
+
+
+                       
