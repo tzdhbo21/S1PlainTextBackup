@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 20:09** 
+> ## **本文件最后更新于2020-12-04 22:10** 
 
 
 
@@ -18344,4 +18344,1462 @@ rrm这个脸3d化了之后看上去不太舒服。。。
 
 
 
-                  
+
+
+-----
+
+####  IDIDIDID  
+##### 20444#       发表于 2020-12-4 20:09
+
+
+
+
+阿希这3000都不到的歌回大家就当她《原形毕露》了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20445#       发表于 2020-12-4 20:10
+
+
+
+ 本帖最后由 空集 于 2020-12-4 20:13 编辑 
+
+感觉bug对rrm 3d影响也不小  
+
+分身整活应该更高的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20446#       发表于 2020-12-4 20:10
+
+
+
+[https://www.youtube.com/watch?v=rcF9vmNALw0](https://www.youtube.com/watch?v=rcF9vmNALw0)
+
+【Re:BROADCASTiNG】AZKi 5th LiVE R.I.P AZHOOD #開拓者全滅
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20447#       发表于 2020-12-4 20:12
+
+
+
+
+虽然金盾凸待没了，但是好多同事来评论区庆祝金盾了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20448#       发表于 2020-12-4 20:13
+
+
+
+
+你不说我都快把新衣服忘了......
+算了少车点吧，要不然有些人还得发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20449#       发表于 2020-12-4 20:13
+
+
+
+
+RRM这个同接明明没问题
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20450#       发表于 2020-12-4 20:14
+
+
+
+
+gamers和seeds牢不可破的联盟又来力！
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20451#       发表于 2020-12-4 20:15
+
+
+
+
+果然还得是角色曲结尾啊，pekochan世界第一美味
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/201434og33jj42tj432n0l.png" referrerpolicy="no-referrer">
+
+
+<strong>5.png</strong> (278.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 20:14 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20452#       发表于 2020-12-4 20:15
+
+
+
+
+seeds果然是住在3d棚了
+
+
+
+
+
+
+
+-----
+
+####  索菲超可爱的  
+##### 20453#       发表于 2020-12-4 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611907&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-4 20:13</a>
+ 你不说我都快把新衣服忘了...... 算了少车点吧，要不然有些人还得发病 </blockquote>
+大喜的日子咱就别提这些了......<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+看到会感到很困惑，希望不要再发了，感到好伤心......<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20454#       发表于 2020-12-4 20:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611875&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-4 20:09</a>
+阿希这3000都不到的歌回大家就当她《原形毕露》了吧</blockquote>
+啊祭同接一直不是强项啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+但是祭丝一直等的sc《原形毕露》被抽卡民干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20455#       发表于 2020-12-4 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611936&amp;ptid=1969498" target="_blank">-rm7- 发表于 2020-12-4 20:17</a>
+
+啊祭同接一直不是强项啊
+
+但是祭丝一直等的sc《原形毕露》被抽卡民干碎了 ...</blockquote>
+她唱歌平时还是有个5000+的，今天直接被bug砍对半了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20456#       发表于 2020-12-4 20:21
+
+
+
+
+这个同接不是只是显示bug吗，实际不止显示的这些人人看的
+
+
+
+
+
+
+
+-----
+
+####  天青月白  
+##### 20457#       发表于 2020-12-4 20:22
+
+
+
+
+himehina发歌了，歌词像是唱疫情期间生活的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20458#       发表于 2020-12-4 20:22
+
+
+
+
+但是太紫杂谈还是有1W，24K足金真皇是谁不用我多说了8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20459#       发表于 2020-12-4 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这画面完全是儿童虐待，该打拳了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20460#       发表于 2020-12-4 20:28
+
+
+
+
+看了一下同接不是没问题的么，看其他人像先端琉璃姐都是正常的同接啊，为啥说出问题了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20461#       发表于 2020-12-4 20:29
+
+
+
+
+ninomae inanis至今都没被同期叫姐姐/妈真是非常不合理，
+
+省一楼，这道具新做的吧，刚看完某偶像综艺要幻视了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20462#       发表于 2020-12-4 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611979&amp;ptid=1969498" target="_blank">天青月白 发表于 2020-12-4 20:22</a>
+
+himehina发歌了，歌词像是唱疫情期间生活的</blockquote>
+2：08
+
+i can't breathe
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20463#       发表于 2020-12-4 20:30
+
+
+
+
+海外盘同接有问题吧，SEA部分
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天青月白  
+##### 20464#       发表于 2020-12-4 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49612046&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-4 20:29</a>
+2：08
+
+i can't breathe</blockquote>
+简介里都有I can't breathe 顺便扣个反歧视的点吧。今年以来的各种事吧。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|然而中文版那里是breeze，顺便音质好像也不.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20465#       发表于 2020-12-4 20:46
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/203823sg7n4k5k59ncjc65.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#かえみと一家.jpg</strong> (36.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 20:38 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/203823uoaq6xoqfhlsyxae.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#ド葛本社 .jpg</strong> (40.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 20:38 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/203822hcerq7clurnlncul.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#ガチクズ農家.jpg</strong> (49.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 20:38 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/204618riddykc6nczpnszj.png" referrerpolicy="no-referrer">
+
+
+<strong>【＃魔界ノりりむ３D 】サキュバスだってとこ見せてあげる♡【にじさんじ】.png.png</strong> (325.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 20:46 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=r31Mh5q9Fik&amp;feature=youtu.be](https://www.youtube.com/watch?v=r31Mh5q9Fik&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 20466#       发表于 2020-12-4 20:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/204936ywsfp55r75ppp5ps.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201204214857.png</strong> (354.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 20:49 上传
+
+
+
+
+
+可爱
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20467#       发表于 2020-12-4 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611908&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-4 20:13</a>
+RRM这个同接明明没问题</blockquote>
+主要考虑到虹杏今年数字都特殊节目膨胀了很多，rrm这个有整活还有不少嘉宾3d来玩，现在在打桌球，我感觉5万多峰值低了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20468#       发表于 2020-12-4 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">好女人这转场的loading话面真可爱
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20469#       发表于 2020-12-4 21:00
+
+
+
+
+论幼女 是虹的胜利啊  至福
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20470#       发表于 2020-12-4 21:01
+
+
+
+
+hid的新人僵尸妹开了
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20471#       发表于 2020-12-4 21:02
+
+
+
+
+百鬼是真的自由 撞完星街新衣服来撞aki新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20472#       发表于 2020-12-4 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">id这新人好像还会自己做游戏啊？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20473#       发表于 2020-12-4 21:08
+
+
+
+
+开幕整活挺有趣的但是印尼语.. 虽然有英语字幕
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20474#       发表于 2020-12-4 21:09
+
+
+
+
+这是印尼语吗？浓浓的咖喱味难顶
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20475#       发表于 2020-12-4 21:11
+
+
+
+
+这人夸味好重，要窒息了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20476#       发表于 2020-12-4 21:12
+
+
+
+
+id这僵尸讲话夸味好重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有点火鸡的感觉
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20477#       发表于 2020-12-4 21:13
+
+
+
+
+这是整活还是BUG？模型怎么这样了（虽然皮好好看）
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/211301ukgwgbxnn3otgq4q.png" referrerpolicy="no-referrer">
+
+
+<strong>【DEBUT STREAM】RISING IDOL FROM THE DEAD, KUREIJI OLLIE!!!!!!!!!!【Hololive Ind.png</strong> (372.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 21:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20478#       发表于 2020-12-4 21:14
+
+
+
+
+印尼火鸡
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20479#       发表于 2020-12-4 21:16
+
+
+
+<img src="http://wx4.sinaimg.cn/large/0076wb3Rgy1gl8qbrs1iwj30hs12hwha.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/0076wb3Rgy1gl8qbrzsn0j30hs12hmzu.jpg" referrerpolicy="no-referrer">
+
+
+
+草草草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 20480#       发表于 2020-12-4 21:17
+
+
+
+
+hh不被uyo冲烂
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20481#       发表于 2020-12-4 21:18
+
+
+
+
+id三语高速转换
+本社外语啥都不会  菲拉了()
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20482#       发表于 2020-12-4 21:18
+
+
+
+
+语速也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20483#       发表于 2020-12-4 21:19
+
+
+
+
+这也太熟练了吧，和🦈一样出道首播装都不装一下的……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20484#       发表于 2020-12-4 21:21
+
+
+
+
+simping也太草了，留学生吧
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20485#       发表于 2020-12-4 21:22
+
+
+
+
+阿希，你不要这样，见谁都蹭
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 20486#       发表于 2020-12-4 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">讲道理 是人家先蹭上阿希的
+
+这几天私底下都在跟阿希聊天 
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20487#       发表于 2020-12-4 21:24
+
+
+
+
+simp 所有人包括星还行
+心加夸加希  木口一二期最经典风味全部混合 
+
+对此我表示不是很符合我的口味，不过能做到还是挺有能力的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20488#       发表于 2020-12-4 21:27
+
+
+
+
+这张性能很强，也许生在ID而不是EN数字上会稍微差一点，但是依然爆了JP5期。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 20489#       发表于 2020-12-4 21:27
+
+
+
+
+这个僵尸就透露出一股浓浓的ID阿希味，看看歌力怎么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20490#       发表于 2020-12-4 21:28
+
+
+
+
+这么一看5期地位越发尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 20491#       发表于 2020-12-4 21:30
+
+
+
+
+HH这新曲真好啊，用作告别2020的曲子再好不过了
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20492#       发表于 2020-12-4 21:30
+
+
+
+
+就算是阿希也是上位版阿希啊，阿希会英语吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20493#       发表于 2020-12-4 21:31
+
+
+
+
+越发怀疑是长期学习了阿希风格来蓄意模仿的 太印度阿希了  甚至连迪士尼都有
+介绍了波lam,不过应该也没人不认识lam，你木口现在的画师确实基本都足以拿出来吹一下
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20494#       发表于 2020-12-4 21:32
+
+
+
+
+原来妈是LAM啊……
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 20495#       发表于 2020-12-4 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">各种反应里都有阿希的影子 
+
+希味真的很重 
+
+
+
+
+
+
+
+-----
+
+####  s32244153  
+##### 20496#       发表于 2020-12-4 21:36
+
+
+
+
+希心船长火鸡 这是真缝合怪阿...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20497#       发表于 2020-12-4 21:36
+
+
+
+
+天皇怎么也来看了，难道真的被35踢去ID了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20498#       发表于 2020-12-4 21:38
+
+
+
+
+郡道又炎了，旅游中还被人翻旧账，不快女王程度快赶超siosio了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，
+
+有没有日本税务懂哥来理一理这到底怎么回事啊，我完全不懂法就只听懂个郡道的钱被妈用来买了电视
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20499#       发表于 2020-12-4 21:38
+
+
+
+ 本帖最后由 -rm7- 于 2020-12-4 21:48 编辑 
+
+啊这，我去看一眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尼玛这怪笑声太希味了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+你们是看上啊希咋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要当她的上位替代
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20500#       发表于 2020-12-4 21:40
+
+
+
+
+这位挺会整活的，等一个塔<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 20501#       发表于 2020-12-4 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看到阿希反应比看到天皇大 
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20502#       发表于 2020-12-4 21:43
+
+
+
+
+银盾了
+
+
+SYL：
+
+EN侦探也来看了，看来出道前四处都打点过，野心很大啊。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20503#       发表于 2020-12-4 21:44
+
+
+
+
+珊瑚是声优出身吗
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20504#       发表于 2020-12-4 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">id也能首播10w银盾了，我看id完全是能当小en用的吧。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20505#       发表于 2020-12-4 21:47
+
+
+
+
+请ID摆正联动翻译工具人的位置<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20506#       发表于 2020-12-4 21:49
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-4 21:51 编辑 
+
+ngo应该是有学过的吧，平时读台词的时候变声线跟玩儿一样，
+
+虹5现在还是只特出蓝色向日葵吗，好奇小琥珀到底多大，一定是活力JD/JK吧
+
+id那边火其实也是有EN引流啦，ina直播的时候重大发表+庆祝了一波初次的后辈，还说她们myth像看她们自己初配信一样聚在一起看id初配信.....好大姐姐的东亚女人，LOVE
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20507#       发表于 2020-12-4 21:50
+
+
+
+
+id有一个好处就是配信时间对亚洲观众来说不会那么阴间
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20508#       发表于 2020-12-4 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49612812&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-4 21:38</a>
+
+郡道又炎了，旅游中还被人翻旧账，不快女王程度快赶超siosio了吧，
+
+有没有日本税务懂哥来理一理这到 ...</blockquote>
+看了下11区网站，是郡道给家里买的超大4K电视走了“个体经营户经营成本”这个省税手段，买的时候说自己是做直播的这是要在家里直播用的设备，所以这个电视算进个人经营成本里，在她的收入报税的时候这买电视的钱就作为经营成本被扣除，降低税额。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20509#       发表于 2020-12-4 21:52
+
+
+
+
+这机关枪语速也太。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还在英语里夹印尼语？还有日语单词
+还各种破音大喊  人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20510#       发表于 2020-12-4 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这个做咖喱台本听标题有意思了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20511#       发表于 2020-12-4 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610647&amp;ptid=1969498" target="_blank">759465155 发表于 2020-12-4 18:12</a>
+
+泥潭杏仁不去战一波在这阴湿干嘛武德全没了？还有这贴怎么还能看到虹在日本按着杏锤这种论调的 ...</blockquote>
+看你还不知道跟你说一声，木口本土被虹吊打已经是常识了。
+
+只剩下买的订阅同接sc了
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20512#       发表于 2020-12-4 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">阿希是不是不用担心了，好像有点气短
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20513#       发表于 2020-12-4 21:59
+
+
+
+
+歌力不行，阿希没输~！
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 20514#       发表于 2020-12-4 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">飞鸟p的直播封面好色
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20515#       发表于 2020-12-4 21:59
+
+
+
+
+卡拉OK里的下位水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+没输！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20516#       发表于 2020-12-4 22:01
+
+
+
+
+ID有松鼠当天花板无所谓的，你JP一个都打不过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 20517#       发表于 2020-12-4 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">肯定是藏牛 等一个跟阿希联动歌回歌力全开
+
+把阿希按在地上打
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20518#       发表于 2020-12-4 22:01
+
+
+
+[https://www.youtube.com/watch?v=1f2nexHjlxM](https://www.youtube.com/watch?v=1f2nexHjlxM)
+
+【 #アキロゼ新衣装 】お披露目!!Akirose NEW Costume!【ホロライブ/アキロゼ】
+
+看不了，等坛友返图
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 20519#       发表于 2020-12-4 22:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/220905l10l1zddrel91rk0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoZTDtnVQAE_Nwt.jpg</strong> (155.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 22:09 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/220905r73w5g77kd356brd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoZTJbFVQAAZI8_.jpg</strong> (99.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 22:09 上传
+
+
+
+
+
+乐了
+
+
+
+
+
+                

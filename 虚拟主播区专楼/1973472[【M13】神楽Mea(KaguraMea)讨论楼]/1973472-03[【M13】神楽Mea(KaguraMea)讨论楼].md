@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 18:15** 
+> ## **本文件最后更新于2020-12-04 22:17** 
 
 
 
@@ -21628,7 +21628,7 @@ tc后面说了今天想播来着
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
 
 粉色的喷嚏.mp3
-(43.63 KB, 下载次数: 87)
+(43.63 KB, 下载次数: 89)
 
 
 
@@ -21647,7 +21647,7 @@ tc后面说了今天想播来着
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
 
 以为自己成功斩杀-错斩-斩杀-错斩-最后还是成功斩杀的神乐流傻之逼.mp3.mp3
-(1.06 MB, 下载次数: 68)
+(1.06 MB, 下载次数: 69)
 
 
 
@@ -22102,4 +22102,1362 @@ fw阿b给它送钱都不要，祝bml原地暴毙<img src="https://static.saraba1
 
 
 
-      
+
+
+-----
+
+####  2111X  
+##### 4293#       发表于 2020-12-4 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610629&amp;ptid=1973472" target="_blank">gongge666 发表于 2020-12-4 18:11</a>
+
+她好意思收钱么</blockquote>
+有啥不好意思，前面卖的票钱退了，之后不卖了就很奇怪。
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 4294#       发表于 2020-12-4 18:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阿B真的是，我去客服咨询，跟我说门票钱已经退了，然而我的B币并未到账，现在他们查BUG去了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4295#       发表于 2020-12-4 18:57
+
+
+
+
+阿b我cnm，求求楼友不要再车了，我破防好严重<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4296#       发表于 2020-12-4 18:58
+
+
+
+
+不是早摆明让你咩赶紧爬嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4297#       发表于 2020-12-4 19:04
+
+
+
+
+明年去现场把网线剪了还能退票报销路费，我笑的好大声<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4298#       发表于 2020-12-4 19:09
+
+
+
+
+换个思路嘛 当初只说线上归主播 线下不知道(估计归b) 现在钱全退了 里面应该有相当一部分人会直接打给咩 总之b肯定亏了 麻付出了时间但可能小赚<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4299#       发表于 2020-12-4 19:10
+
+
+
+
+那真是太赚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4300#       发表于 2020-12-4 19:18
+
+
+
+
+且看且珍稀，以后要上大舞台，要靠咩自己争取了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4301#       发表于 2020-12-4 19:19
+
+
+
+
+阿B是不指望了 虽然总劈苔苔 日本那边前段时间的偶像祭说不定真是苔苔推荐的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4302#       发表于 2020-12-4 19:21
+
+
+
+
+还是苔苔好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4303#       发表于 2020-12-4 19:31
+
+
+
+
+东京蛋一场要多少钱啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4304#       发表于 2020-12-4 19:57
+
+
+
+ 本帖最后由 A2014720 于 2020-12-4 20:00 编辑 
+
+别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我擦待机间有毛子？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4305#       发表于 2020-12-4 20:04
+
+
+
+
+那个毛子会员还挺活跃的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4306#       发表于 2020-12-4 20:09
+
+
+
+
+没事了，播了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4307#       发表于 2020-12-4 20:11
+
+
+
+
+上会员能打钱就是好的！<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4308#       发表于 2020-12-4 20:13
+
+
+
+
+鬼灭独轮车草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4309#       发表于 2020-12-4 20:23
+
+
+
+
+新歌<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4310#       发表于 2020-12-4 20:25
+
+
+
+
+太好听了，我化了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 4311#       发表于 2020-12-4 20:28
+
+
+
+
+直接发这里可以吗）
+
+
+开幕翻车 喝念慈菴的时候喷出来了 喷到衣服上都是了 黏糊糊的
+
+昨天momo的新fanart 换了头像 怎么样好看吗 油管头像也换了草莓果酱的头像
+
+有个来剧透鬼灭的 压咩咯！ban了你！虽然自己早上已经看完了
+
+今天学了好多歌 最初还是最后唱？最初？好 我也是这么觉得的 最后怕是已经忘了 很相信自己 按过往的经验 肯定会忘记了 
+
+久违的到了12月呢了 各位多多指教 12月的预定是 还没有定 今天的预定是播完睡觉
+
+圣诞？圣诞会播 但是年末要回家 年末被老妈命令必须回家 不管怎么交涉都还是得回去 作为条件是只回去待三天
+
+老家的小鬼？今年决定肯定回老家不见人了！毕竟还有疫情的原因 mea欧巴桑？才不是欧巴桑啊！叫我欧内桑啊 38岁 38岁也是姐姐啊！
+
+感觉房间里不能太暖和了 不然会睡着 开了空调 结果好冷 主要是电脑开着房间真的很热  
+
+去洗把脸 （回来）感觉清醒多了！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 16战斗力 +19
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|是mul哥！|
+| kerfars| + 2|好评加鹅|
+| WhiteAvalon| + 1|好耶|
+| czkt615477| + 1|好评加鹅|
+| likemike| + 1|能在s1看同传了，好耶|
+| 鷹書たかしょ| + 2|同传好评|
+| whbstc4545| + 1|好评加鹅|
+| LIPP| + 1|好评加鹅|
+| Dualist彩| + 1|mul佬好呀|
+| 草牛| + 1|欢迎欢迎|
+| 兔耳僵尸| + 1|好评加鹅|
+| 我想做mkm的舔狗| + 1|你也来了好耶|
+| Mr.shelter| + 1|啾啾复读机桑|
+| pei23333| + 1||
+| 路人庚| + 2|欢迎同传|
+| A2014720| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4312#       发表于 2020-12-4 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dualist彩| + 1|mul佬好呀|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4313#       发表于 2020-12-4 20:33
+
+
+
+
+好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4314#       发表于 2020-12-4 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4315#       发表于 2020-12-4 20:36
+
+
+
+
+你咩姐阳间作息的结果就是这个点就困的不行还行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4316#       发表于 2020-12-4 20:37
+
+
+
+
+还没调好吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4317#       发表于 2020-12-4 20:38
+
+
+
+
+这首好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+怎么老翻..... 
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4318#       发表于 2020-12-4 20:39
+
+
+
+
+咩宝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4319#       发表于 2020-12-4 20:42
+
+
+
+
+传统艺能雪之华
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4320#       发表于 2020-12-4 20:42
+
+
+
+
+这个雪之华怎么这么生草
+
+我的错觉吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4321#       发表于 2020-12-4 20:43
+
+
+
+
+雪之华这样唱传统异能了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4322#       发表于 2020-12-4 20:43
+
+
+
+
+这人有正常唱过雪之华吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4323#       发表于 2020-12-4 20:44
+
+
+
+
+经典雪之华
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4324#       发表于 2020-12-4 20:46
+
+
+
+
+这就是20年后的咩咩么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 4325#       发表于 2020-12-4 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 就不能好好唱吗?
+
+
+ 她在掩饰什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4326#       发表于 2020-12-4 20:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">她在掩饰爱我的心情
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4327#       发表于 2020-12-4 20:47
+
+
+
+
+唱完了可还行
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4328#       发表于 2020-12-4 20:48
+
+
+
+
+她在掩饰自己根本没有那个年龄
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4329#       发表于 2020-12-4 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这雪之华听着怎么这么生草
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4330#       发表于 2020-12-4 20:50
+
+
+
+
+卧槽好可爱的声线
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4331#       发表于 2020-12-4 20:53
+
+
+
+
+开始闹腾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4332#       发表于 2020-12-4 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这才是我的咩宝
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4333#       发表于 2020-12-4 20:55
+
+
+
+
+新伴奏圣诞歌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4334#       发表于 2020-12-4 21:00
+
+
+
+
+说到圣诞 她是不是有和倪哥精灵的圣诞联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4335#       发表于 2020-12-4 21:03
+
+
+
+
+也没什么取消的必要吧？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4336#       发表于 2020-12-4 21:05
+
+
+
+
+草，油管卡没了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4337#       发表于 2020-12-4 21:06
+
+
+
+
+咩的网络is not good
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4338#       发表于 2020-12-4 21:06
+
+
+
+
+我把网线拔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4339#       发表于 2020-12-4 21:07
+
+
+
+
+跟歌词对上了草生
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4340#       发表于 2020-12-4 21:16
+
+
+
+
+能和尼哥精灵整点活也挺好的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4341#       发表于 2020-12-4 21:21
+
+
+
+
+你麻不是偷偷去进行偶像活动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+             
+
+快去看看哪里有什么新地下偶像团体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4342#       发表于 2020-12-4 21:22
+
+
+
+
+这年龄还玩地下偶像啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4343#       发表于 2020-12-4 21:23
+
+
+
+
+你们连她tc还是showroom小号都没特定出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4344#       发表于 2020-12-4 21:25
+
+
+
+
+小绿小紫为啥那么摸?
+
+
+因为被麻拉去一起当地下偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4345#       发表于 2020-12-4 21:25
+
+
+
+
+什么特出来了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+快分享下啊，我也想当古参<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4346#       发表于 2020-12-4 21:26
+
+
+
+
+19玩地下偶像也不大啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+            
+
+这人今天怎么回事，好兴奋啊
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4347#       发表于 2020-12-4 21:27
+
+
+
+
+我语文不好，我的意思是：“连她tc还是showroom小号都没特定出来，还想一口吃成个胖子特定线下么？”
+
+我情弱的一比，怎么可能特定出来
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4348#       发表于 2020-12-4 21:29
+
+
+
+
+她那些小号只用来看别人直播的 自己又不用那些号播 能特出来有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4349#       发表于 2020-12-4 21:31
+
+
+
+
+她不是说过类似用小号直播的想法么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说不定不是口嗨而是真的做了呢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4350#       发表于 2020-12-4 21:34
+
+
+
+ 本帖最后由 A2014720 于 2020-12-4 21:35 编辑 
+
+不是你们没rp毛子吧，这浓度这么回事<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/04/213545xiovhv5i5kh5izrv.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2020-12-04 213345.png</strong> (68.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 21:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4351#       发表于 2020-12-4 21:37
+
+
+
+
+怎么还有发俄文，括号内日文翻译的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 4352#       发表于 2020-12-4 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这就是外星人电脑吗
+
+
+以后绝对不会买的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4353#       发表于 2020-12-4 21:41
+
+
+
+
+会唱乃团歌的话其实希望她唱三角<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4354#       发表于 2020-12-4 21:41
+
+
+
+
+新萌音好戳我啊，我不行了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4355#       发表于 2020-12-4 21:43
+
+
+
+
+？草
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4356#       发表于 2020-12-4 21:43
+
+
+
+
+亚那来一卡还行
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4357#       发表于 2020-12-4 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚那拉一卡草
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 4358#       发表于 2020-12-4 21:45
+
+
+
+
+气氛蕉灼了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4359#       发表于 2020-12-4 21:45
+
+
+
+
+啊啊啊啊啊这个声音可爱死了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4360#       发表于 2020-12-4 21:45
+
+
+
+
+这人明明会好多东西就是藏着不给观众看，我佛了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4361#       发表于 2020-12-4 21:48
+
+
+
+
+咩宝速速与我击剑<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4362#       发表于 2020-12-4 21:49
+
+
+
+
+这歌出来的时候她才5岁吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4363#       发表于 2020-12-4 21:52
+
+
+
+
+毛子疯啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zz_hina  
+##### 4364#       发表于 2020-12-4 21:55
+
+
+
+
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 4365#       发表于 2020-12-4 21:59
+
+
+
+
+平行线怎么不唱下去<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4366#       发表于 2020-12-4 22:08
+
+
+
+
+疯出画面感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4367#       发表于 2020-12-4 22:09
+
+
+
+
+嘿！耶！噢！<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4368#       发表于 2020-12-4 22:09
+
+
+
+
+该吸氧了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4369#       发表于 2020-12-4 22:13
+
+
+
+
+唱这个减肥，多来点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4370#       发表于 2020-12-4 22:13
+
+
+
+
+一人四役<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
