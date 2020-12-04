@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-03 00:02** 
+> ## **本文件最后更新于2020-12-05 00:02** 
 
 
 
@@ -25992,6 +25992,464 @@ https://www.youtube.com/watch?v=2uCgjikjo40
 
 
 猴楼的live都是录像，你说真跳我也不信啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ichirukia1566  
+##### 10473#       发表于 2020-12-3 09:22
+
+
+
+ 本帖最后由 ichirukia1566 于 2020-12-3 09:41 编辑 
+
+每次不开心了就来看看你楼，谢谢你，人生不如一行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+如果ky了实在抱歉
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10474#       发表于 2020-12-3 12:23
+
+
+
+
+不算会限的话 又是快一周没有播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+今天唱歌练习，所以今天也没有了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vindicator  
+##### 10475#       发表于 2020-12-3 12:48
+
+
+
+
+昨天跳舞今天唱歌 绫总这是打回幼儿园重修了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10476#       发表于 2020-12-3 14:03
+
+
+
+
+绫总nmd练成这样live拉胯我就极度舒适了，哦录像的，那没事了，肯定是绫总犯病了不想直播而已
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10477#       发表于 2020-12-3 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">真好啊 建议绫总直接练习到开live
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10478#       发表于 2020-12-3 19:53
+
+
+
+
+百鬼あやめ😈ホロライブ2期生
+
+@nakiriayame
+
+お歌のレッスンおわた！！☺️✨✨✨
+
+今日は寒いからお鍋食べようかな〜🍲
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 10479#       发表于 2020-12-3 21:09
+
+
+
+
+绫总太努力了，不是唱歌课就是跳舞课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10480#       发表于 2020-12-3 21:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">那么是跟谁一起吃火锅呢
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10481#       发表于 2020-12-3 21:48
+
+
+
+
+明知故问，小坏蛋<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10482#       发表于 2020-12-3 21:51
+
+
+
+
+给谁喂火锅还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10483#       发表于 2020-12-3 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这下面还一大堆人说辛苦了
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10484#       发表于 2020-12-3 22:13
+
+
+
+
+辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10485#       发表于 2020-12-3 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好家伙 明天的假也请了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10486#       发表于 2020-12-3 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唱歌跳舞有那么累吗，最后还不忘pua一下粉
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10487#       发表于 2020-12-3 22:43
+
+
+
+
+“反正我还有一生可以浪费”<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10488#       发表于 2020-12-3 22:47
+
+
+
+
+当然是原谅她啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10489#       发表于 2020-12-3 22:57
+
+
+
+
+辛苦了，给人做火锅<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10490#       发表于 2020-12-3 22:59
+
+
+
+
+给大伙表演一个火锅炖<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">献丑了！“扑通”
+又一位百鬼众失去了梦想
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10491#       发表于 2020-12-3 23:20
+
+
+
+
+早就该死心了，不会有人觉得绫总是dt是纯情少女吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10492#       发表于 2020-12-4 20:45
+
+
+
+
+十点歌会<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10493#       发表于 2020-12-4 20:58
+
+
+
+
+逼急了
+
+
+按墙上强吻←本阶段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10494#       发表于 2020-12-4 21:17
+
+
+
+
+摸余 打炮 打LOL
+
+不尊重箱推 不尊重狐 不尊重35 不尊重星街 不尊重Aki（New）
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10495#       发表于 2020-12-4 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自由
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10496#       发表于 2020-12-4 21:33
+
+
+
+
+你教我绫总做事？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10497#       发表于 2020-12-4 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没开播就61踩 是心碎的百鬼众还是大家庭粉啊
+
+
+
+
+
+
+
+-----
+
+####  Vindicator  
+##### 10498#       发表于 2020-12-4 22:08
+
+
+
+
+踩是啥情况 有啥新瓜么
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10499#       发表于 2020-12-4 22:10
+
+
+
+
+草 原来知道aki在新衣回啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10500#       发表于 2020-12-4 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
 

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 22:17** 
+> ## **本文件最后更新于2020-12-05 00:20** 
 
 
 
@@ -22435,10 +22435,12 @@ fw阿b给它送钱都不要，祝bml原地暴毙<img src="https://static.saraba1
 
 
 
- 参与人数 16战斗力 +19
+ 参与人数 18战斗力 +21
 
 |昵称|战斗力|理由|
 |----|---|---|
+| jhouo8989| + 1|是复读机|
+| Cushaw| + 1|欢迎!|
 | 素人不相识| + 1|是mul哥！|
 | kerfars| + 2|好评加鹅|
 | WhiteAvalon| + 1|好耶|
@@ -23460,4 +23462,515 @@ fw阿b给它送钱都不要，祝bml原地暴毙<img src="https://static.saraba1
 
 
 
-    
+
+
+-----
+
+####  Mr.shelter  
+##### 4371#       发表于 2020-12-4 22:20
+
+
+
+
+喜欢这首！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4372#       发表于 2020-12-4 22:20
+
+
+
+
+瞅了一眼，原来你麻早就食杀名取了呀，我的期望终于达成了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 4373#       发表于 2020-12-4 22:23
+
+
+
+
+好消息是今年她基本不会主动联动了，所以只要倪哥不自己找上门应该就不会有联动了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4374#       发表于 2020-12-4 22:25
+
+
+
+
+毒唯的野望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 4375#       发表于 2020-12-4 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4376#       发表于 2020-12-4 22:26
+
+
+
+
+越累越闹腾可能是缺乏安全感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+育儿宝典有望成为泡麻酱秘籍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4377#       发表于 2020-12-4 22:51
+
+
+
+
+笨笨土妹子，肯定很好骗<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4378#       发表于 2020-12-4 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我看是你们被骗了很多钱吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4379#       发表于 2020-12-4 22:53
+
+
+
+
+不止一次的想到和她结婚后的生活，有吵有闹，有说有笑，从二人世界到四口之家，生老病死<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4380#       发表于 2020-12-4 22:55
+
+
+
+
+为什么是四口之家，相应国家二胎号召么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4381#       发表于 2020-12-4 22:56
+
+
+
+
+儿女成双啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4382#       发表于 2020-12-4 22:57
+
+
+
+
+我要生一对双胞胎小小麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4383#       发表于 2020-12-4 22:58
+
+
+
+
+群友生了小小麻联系我可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vegetable  
+##### 4384#       发表于 2020-12-4 23:00
+
+
+
+
+又是毛子又是棒子 国际咩！
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4385#       发表于 2020-12-4 23:05
+
+
+
+
+屁股大就是那么自信要几个就几个
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4386#       发表于 2020-12-4 23:05
+
+
+
+
+灰青
+忍着困意听到现在，不亏
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 4387#       发表于 2020-12-4 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">才发现变成17w人气小主播了，好耶
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4388#       发表于 2020-12-4 23:08
+
+
+
+
+中间断了而已，跑油管看了）
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4389#       发表于 2020-12-4 23:12
+
+
+
+
+夜空ノムコウ
+这家伙老是在直播后半段唱我喜欢的歌，想早睡都不行，烦
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4390#       发表于 2020-12-4 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4391#       发表于 2020-12-4 23:33
+
+
+
+
+困成一坨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4392#       发表于 2020-12-4 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49614081&amp;ptid=1973472" target="_blank">路人庚 发表于 2020-12-4 23:33</a>
+困成一坨</blockquote>
+这量词不太好<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4393#       发表于 2020-12-4 23:37
+
+
+
+
+这都要一点了调了个锤子作息<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4394#       发表于 2020-12-4 23:40
+
+
+
+
+平时这个点是刚起床2小时，现在是困得不行，已经是精致作息了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4395#       发表于 2020-12-4 23:41
+
+
+
+
+相比较她通宵才睡，这已经很调作息了好吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4396#       发表于 2020-12-4 23:42
+
+
+
+
+在下也困得要死，该携夫人入榻就寝了（
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4397#       发表于 2020-12-4 23:42
+
+
+
+
+她这个调作息跨度有点大，换我肯定睡不好了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4398#       发表于 2020-12-4 23:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/234209kec5zc21drf2fu21.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C7F8293F-A479-4283-AD16-609DDCCA5548.jpeg</strong> (379.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 23:42 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/234212dv04n1wt00f7a7ro.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3FE94113-486D-4B6C-8688-BC71B9287701.jpeg</strong> (364.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 23:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4399#       发表于 2020-12-5 00:00
+
+
+
+
+她现在睡的话 作息还勉强算阳间
+
+
+我也是现在睡 麻的作息要和我一致了吗 好耶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4400#       发表于 2020-12-5 00:08
+
+
+
+
+如果无法提早睡眠， 只要推迟睡眠到后一天的健康睡眠时间不就好了吗
+
+
+
+
+
+   
