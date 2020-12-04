@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 18:07** 
+> ## **本文件最后更新于2020-12-04 20:09** 
 
 
 
@@ -16965,4 +16965,1383 @@ https://ngabbs.com/read.php?tid=24473447
 
 
 
-                     
+
+
+-----
+
+####  Mafise  
+##### 20365#       发表于 2020-12-4 18:10
+
+
+
+
+学个语言就ptsd，就伏拉夫，这个群体也看不起那个群体也看不起，就自己最有礼貌最能理解主播提供的高品质内容的是哪位呢？反正不是我<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 20366#       发表于 2020-12-4 18:12
+
+
+
+
+泥潭杏仁不去战一波在这阴湿干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武德全没了？还有这贴怎么还能看到虹在日本按着杏锤这种论调的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20367#       发表于 2020-12-4 18:12
+
+
+
+
+郡郡真的开始玩战双了，明明没有帅气中年男人和性恶颜好女人的，为什么<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">。
+今天也依然猜不出郡道到底在哪旅游
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20368#       发表于 2020-12-4 18:15
+
+
+
+
+那帖子我说了一句杏也有综艺企划结果被踩惨了，可能这就是新时代人吧，这种捧一踩一的帖子能活着就离谱
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 20369#       发表于 2020-12-4 18:15
+
+
+
+
+开个杏综艺贴安利啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 拉点阳光杏仁
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20370#       发表于 2020-12-4 18:19
+
+
+
+
+阿道算阳光虹人吗？
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 20371#       发表于 2020-12-4 18:21
+
+
+
+
+要是lga有点踩显示泥潭杏仁早就踩爆了好吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20372#       发表于 2020-12-4 18:21
+
+
+
+
+可不可以不要再转NGA的阳光内容了，你们要晒死V综的阴湿巨魔吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20373#       发表于 2020-12-4 18:24
+
+
+
+
+为什么要跟那群懂哥解释，而且咱呆在路灯上挺暖和的，没必要去逆风输出
+希望不要再发了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 20374#       发表于 2020-12-4 18:24
+
+
+
+ 本帖最后由 759465155 于 2020-12-4 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49610747&amp;ptid=1969498" target="_blank">mmbk 发表于 2020-12-4 18:21</a>
+
+要是lga有点踩显示泥潭杏仁早就踩爆了好吧</blockquote>
+nga虹人在虹楼里说走廊发的虹相关帖都有被不少踩的情况，还要虹相关帖基本都yygq引战的，泥潭杏仁这不是早就在做了吗，太阴湿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20375#       发表于 2020-12-4 18:28
+
+
+
+
+我也想问，你们华语第一虚拟主播讨论区的东西能不能不要转到我们<strong>阴湿巨魔路灯下的帝国情弱老害激光2000论坛</strong>来
+
+
+你们___没有自己的论坛吗？
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 20376#       发表于 2020-12-4 18:33
+
+
+
+
+看s1v版天天发ngav区相关，原来这里不是华语第一ngav区讨论区吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20377#       发表于 2020-12-4 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49609569&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-4 16:45</a>
+
+団長、何やってんだよ団長😭</blockquote>
+官号这niconico会员是掉了多少阿，
+
+连会限内容都拿出来切片了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20378#       发表于 2020-12-4 18:35
+
+
+
+
+谁稀罕去那边点踩......
+而且隔壁现在各种激寒发言都能300+的赞，你综连活跃人数都没过百吧，打不过打不过
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20379#       发表于 2020-12-4 18:38
+
+
+
+
+反日卖国会社在网右视频网站被用户用脚投票不是当然的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20380#       发表于 2020-12-4 18:39
+
+
+
+<blockquote>真飞鸟i 发表于 2020-12-4 18:19
+阿道算阳光虹人吗？</blockquote>
+当然算，他肯定不会放过任何一个能劈杏的机会的
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20381#       发表于 2020-12-4 18:39
+
+
+
+
+卡婊赶紧给holo开放版权叭……我想看大烟花<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20382#       发表于 2020-12-4 18:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">回想起阴湿虹人只能龟缩专楼和QQ群的日子，就好像在一个半月前一般。现在阳光虹人却站在太阳底下，世界真奇妙。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20383#       发表于 2020-12-4 18:41
+
+
+
+<blockquote>目力干员leison 发表于 2020-12-4 18:35
+谁稀罕去那边点踩......
+
+而且隔壁现在各种激寒发言都能300+的赞，你综连活跃人数都没过百吧，打不过打不过
+
+ ...</blockquote>
+我在贵版开的投票有400人参与
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20384#       发表于 2020-12-4 18:43
+
+
+
+
+阿希怎么又去舔叛忍了
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 20385#       发表于 2020-12-4 18:44
+
+
+
+
+都怪2k哥哥不给力，没把虹fh八天王名号打出去，挂路灯上的明明应该是虹人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 20386#       发表于 2020-12-4 18:46
+
+
+
+
+因为踩的是在cn实质死亡的木口啊，你要把这个换成vup那不得在锁之前立刻就被冲碎<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 20387#       发表于 2020-12-4 18:48
+
+
+
+
+nga踩杏s1隔空高潮也算是奇景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 20388#       发表于 2020-12-4 18:49
+
+
+
+
+谁叫holo冲国盘碎的一干二净，不踩你holo踩谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 20389#       发表于 2020-12-4 18:52
+
+
+
+
+原来婆罗门还在意nga的吗，小学男生？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20390#       发表于 2020-12-4 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">泥潭坛友真傲娇，爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20391#       发表于 2020-12-4 18:55
+
+
+
+
+郡道做什么配信者！？
+竟然在直播外氪了4900円就抽到了fgo当季五星<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 20392#       发表于 2020-12-4 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611097&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-4 18:55</a>
+
+郡道做什么配信者！？
+
+竟然在直播外氪了4900円就抽到了fgo当季五星，但是评论劝她搞五宝耐久也过于 ...</blockquote>
+7号还要直播
+
+不知道是怎么说了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20393#       发表于 2020-12-4 19:02
+
+
+
+
+关键以前吹杏踩虹踩的是粉丝，现在吹虹踩杏踩的是liver说实话还是有点过分的
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20394#       发表于 2020-12-4 19:03
+
+
+
+
+倒石爱国杏奴一无所有
+
+阴湿乳化太监应有尽有
+
+虹又赢，虹总赢，虹赢麻了
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 20395#       发表于 2020-12-4 19:04
+
+
+
+ 本帖最后由 帕克桑 于 2020-12-4 19:09 编辑 
+
+你杏这几天同接怎么回事 二军对半砍 开始卷了吗 还是我印象错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20396#       发表于 2020-12-4 19:06
+
+
+
+
+没钱买量了呗，泥潭这么爱NGA去那边推广一下这个理论吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20397#       发表于 2020-12-4 19:10
+
+
+
+
+阿火40万下播完美衔接兔皇100万守望
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20398#       发表于 2020-12-4 19:12
+
+
+
+
+油管最近有点bug 各家管人都有观测到掉同接 具体原因目前研究不出
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20399#       发表于 2020-12-4 19:15
+
+
+
+ 本帖最后由 admentus 于 2020-12-4 19:17 编辑 
+
+瞎几把唱的兔子可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+这人开播16分钟涨了2k，又是不到半小时达成目标了...说好的耐久呢耐久呢？
+
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 20400#       发表于 2020-12-4 19:15
+
+
+
+ 本帖最后由 opersuper 于 2020-12-4 19:19 编辑 
+
+木口fh自上而下，彩虹fh从下而上我寻思也没开错啊
+
+毕竟杏仁也不能替木口拟阴阳公告，月之也只是repo了一下2000的野粪而已
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20401#       发表于 2020-12-4 19:18
+
+
+
+
+黛 灰(まゆずみ かい)@ボイス販売中@mayuzumi_X
+
+
+【告知】
+
+明日 12/5 21:00～
+
+男だらけのAmongUs #にじさんじAmonGUYs をやる。
+
+
+メンバーは
+
+葛葉
+
+叶
+
+三枝明那
+
+エクス・アルビオ
+
+加賀美ハヤト
+
+黛灰
+
+不破湊
+
+イブラヒム
+
+甲斐田晴
+
+
+<img src="https://img.saraba1st.com/forum/202012/04/191452hz80inwv37i0j9w0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>男だらけのAmongUs.jpg</strong> (77.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-4 19:14 上传
+
+
+
+
+
+
+
+黑客，你好牛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 
+
+一决雌雄是什么意思，输了的以后...?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 20402#       发表于 2020-12-4 19:19
+
+
+
+
+哈哈 你们最爱的KING来了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20403#       发表于 2020-12-4 19:19
+
+
+
+
+偶像男V大集合不带下巴玩是什么意思？
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20404#       发表于 2020-12-4 19:19
+
+
+
+
+20分钟都没撑到啊兔子
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 20405#       发表于 2020-12-4 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611330&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-4 19:18</a>
+
+黛 灰(まゆずみ かい)@ボイス販売中@mayuzumi_X
+
+
+【告知】</blockquote>
+这人物大小有啥说法么
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20406#       发表于 2020-12-4 19:20
+
+
+
+
+唱着king达成百万，登基了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20407#       发表于 2020-12-4 19:21
+
+
+
+
+这就100w了可以下班了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20408#       发表于 2020-12-4 19:23
+
+
+
+
+兔皇，这是天下布武的宣告吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20409#       发表于 2020-12-4 19:24
+
+
+
+
+兔皇登基这才5W棒你杏这同接不管什么原因确实有大问题了
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20410#       发表于 2020-12-4 19:24
+
+
+
+
+兔皇带着King宣布正式登基
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20411#       发表于 2020-12-4 19:24
+
+
+
+
+离上次兔子这样在直播上控制不住得来情绪已经挺长时间了吧...能看到她达成百万真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20412#       发表于 2020-12-4 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611361&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-4 19:20</a>
+
+这人物大小有啥说法么</blockquote>
+告知画像はアベンジャーズを意識したらなんか面白い感じになったやつ。お楽しみに。
+
+
+按复联风格做的，可以开始发散了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20413#       发表于 2020-12-4 19:26
+
+
+
+
+哭了，情绪失控了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">一笑起来，气氛全崩
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20414#       发表于 2020-12-4 19:27
+
+
+
+
+内心毫无波动，可能人变👻之后就不怎么会zqsg了吧，唉......
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20415#       发表于 2020-12-4 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还是海外的量bug的问题   目前来看用本土数字基本能正确显示还都能解释 例如船昨天的2.5W 阿火的问题1W多  兔皇现在的5.8W  
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20416#       发表于 2020-12-4 19:32
+
+
+
+
+myy,yyds<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 20417#       发表于 2020-12-4 19:32
+
+
+
+
+「白上你把皇冠给我交了」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20418#       发表于 2020-12-4 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20419#       发表于 2020-12-4 19:35
+
+
+
+
+兔子每次哭都被感动到，3d唱fbd边跳舞边抹眼泪到现在都是我最喜欢的片段之一，看到她今天达成目标情绪失控被净化了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 20420#       发表于 2020-12-4 19:35
+
+
+
+
+迎接HOLO JP一姐真正的兔皇归位
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20421#       发表于 2020-12-4 19:37
+
+
+
+
+holo三大天王就位，第四大会是谁呢
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 20422#       发表于 2020-12-4 19:37
+
+
+
+
+りんこ你也要金盾哦，等着你哦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20423#       发表于 2020-12-4 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">果然我还是野兔子
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20424#       发表于 2020-12-4 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是金盾约定啊
+
+りんこ<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 锁了锁了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20425#       发表于 2020-12-4 19:41
+
+
+
+
+第四大应该还是夸皇，死神不异军突起的话。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20426#       发表于 2020-12-4 19:45
+
+
+
+
+按照现在的月增死神和夸皇谁先到不一定，夸还是年底福报一下冲一冲比较稳。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 20427#       发表于 2020-12-4 19:51
+
+
+
+
+夸宝预告了要搬家，福报什么的应该不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20428#       发表于 2020-12-4 19:51
+
+
+
+
+黛灰@机台：我们都是向往却无法成为阳角所以才如此憎恨阳角<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20429#       发表于 2020-12-4 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49611313&amp;ptid=1969498" target="_blank">opersuper 发表于 2020-12-4 19:15</a>
+木口fh自上而下，彩虹fh从下而上我寻思也没开错啊
+
+毕竟杏仁也不能替木口拟阴阳公告，月之也只是repo了一下2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">holo一二期被石先生教了又教，到最后踩雷最多，也太不上心了。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20430#       发表于 2020-12-4 19:52
+
+
+
+
+想了想，明明兔皇就是第四大啊，是鲨皇太猛了被不算进常规战斗力了吗。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 20431#       发表于 2020-12-4 19:54
+
+
+
+<blockquote>真飞鸟i 发表于 2020-12-4 19:52
+想了想，明明兔皇就是第四大啊，是鲨皇太猛了被不算进常规战斗力了吗。</blockquote>
+JP四大∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20432#       发表于 2020-12-4 19:55
+
+
+
+
+只有置身事外才能享受最大的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+另外也别给石先生招魂了，那是泥哥和pxj该干的事
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 20433#       发表于 2020-12-4 19:58
+
+
+
+
+下一个就是夸或船了吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20434#       发表于 2020-12-4 20:00
+
+
+
+
+啥？夸皇要上京了？
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20435#       发表于 2020-12-4 20:02
+
+
+
+
+夸皇上京，赤井心回国，你杏现在想搞全社大联动倒是挺方便的。就是liver不一定愿意。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20436#       发表于 2020-12-4 20:03
+
+
+
+[https://youtu.be/r31Mh5q9Fik](https://youtu.be/r31Mh5q9Fik)
+
+【＃魔界ノりりむ３D 】サキュバスだってとこ見せてあげる♡【にじさんじ】
+
+
+好女人的3D披露回开始了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20437#       发表于 2020-12-4 20:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">lack人设3D化是木口赢了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20438#       发表于 2020-12-4 20:05
+
+
+
+
+好像今天ID2期那个僵尸出道？可能是这生涯最高的同接装上油管bug也太惨了。
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 20439#       发表于 2020-12-4 20:05
+
+
+
+<img src="https://p.sda1.dev/0/c6eb8cf2c5dd47b92ed2189268a03531/5e6e9235e1118757.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20440#       发表于 2020-12-4 20:06
+
+
+
+
+这么一想cover可能要等油管bug结束在放兔皇新衣服出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20441#       发表于 2020-12-4 20:06
+
+
+
+
+不要忘了lack还有个儿子啊<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20442#       发表于 2020-12-4 20:06
+
+
+
+
+莉莉姆这个模有点厉害，羡慕啊
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20443#       发表于 2020-12-4 20:07
+
+
+
+
+rrm这个脸3d化了之后看上去不太舒服。。。
+
+
+
+
+
+                  
