@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-04 12:08** 
+> ## **本文件最后更新于2020-12-04 16:10** 
 
 
 
@@ -14743,6 +14743,25 @@ syl  淘到一个惑星ちる-Madoboshi Chiru，声音总感觉很熟悉   �
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14862,10 +14881,12 @@ vup歌力斗虫吗，绿帽坛有人做了
 
 
 
- 参与人数 9战斗力 +9
+ 参与人数 11战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 絵生voice| + 1|好评加鹅|
+| admentus| + 1|好评加鹅|
 | AKili| + 1|好评加鹅|
 | stedckk| + 1|好评加鹅|
 | 与天争锋_LZ| + 1||
@@ -15688,4 +15709,578 @@ vr好几个都教过吧
 
 
 
-                       
+
+
+-----
+
+####  darkpiece365  
+##### 20300#       发表于 2020-12-4 12:08
+
+
+
+
+真有人看好nijien吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝逼是底边批发器好吧，就和统合前seed三期一样
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20301#       发表于 2020-12-4 12:20
+
+
+
+
+兔皇作为JP鲨皇就该把金盾当作无事发生这样逼格才高，反正之前整数回也都不办的。当然被运营逼着开纪念回恰钱就没办法了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20302#       发表于 2020-12-4 12:31
+
+
+
+
+鲨皇狐皇又收不到几个百万纪念sc，开不开当然随便，兔子这指着纪念回冲业绩呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 20303#       发表于 2020-12-4 12:35
+
+
+
+
+兔子之前说的百万凸待怕是当无事发生了，不过让妈说点啥倒是准备兑现，就看她是放录音还是头铁直接连麦了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20304#       发表于 2020-12-4 12:53
+
+
+
+
+只差5k了，别到时候晚上百万见证又是不到半小时完成...
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20305#       发表于 2020-12-4 13:35
+
+
+
+
+叶师玩个原神都能玩成竞速耐久，这就是gamer吗…快三小时了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20306#       发表于 2020-12-4 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这不给兔妈安排各皮套，该virtual一下了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 20307#       发表于 2020-12-4 13:51
+
+
+
+
+我觉得虹EN男人还是可以期待下的，毕竟那片还是空白
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20308#       发表于 2020-12-4 13:59
+
+
+
+
+可惜外国lex是个铁杏奴，不然直接抽他就得了。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20309#       发表于 2020-12-4 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49605792&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-4 11:00</a>
+
+mmr给我冲了！</blockquote>
+这到底是不是工商阿，一般厂商会跑到chat下面留言么？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20310#       发表于 2020-12-4 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49607829&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-4 14:09</a>
+
+这到底是不是工商阿，一般厂商会跑到chat下面留言么？</blockquote>
+工商的话直播里会显示includes paid promotion，没有的话基本就不是。
+
+
+游戏厂商舔大主播也不是第一次了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20311#       发表于 2020-12-4 14:18
+
+
+
+
+不是工商，工商一般都会写提供者是谁，然后视频会显示有收费内容，只是单纯取得了万代（部分）的版权许可吧。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20312#       发表于 2020-12-4 14:18
+
+
+
+
+希望厂妹教外语不如去新东方或者沪江报个课
+
+像火鸡和伃珍一样当个固定企划就顶天了
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20313#       发表于 2020-12-4 14:21
+
+
+
+
+https://twitter.com/EPICENTERVT/status/1333697344647225344?s=19
+想要更多企鹅<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20314#       发表于 2020-12-4 14:29
+
+
+
+
+虹en男人有什么可期待的，多半是个en哈哥
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 20315#       发表于 2020-12-4 14:32
+
+
+
+ 本帖最后由 凯文夏特 于 2020-12-4 14:34 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 20316#       发表于 2020-12-4 14:34
+
+
+
+
+昨晚holoen的死神 森美声直播有够阴间的 一直复读想要播游戏女神异闻录P3  那么世嘉会给授权吗 不过今天10点鲨皇播太鼓达人 万代都给播了还在直播间里回复呢 世嘉也不是不可能吧
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20317#       发表于 2020-12-4 14:35
+
+
+
+
+聊一点火星发现，有关niji的二次创作条例：
+
+之前19年12月niji发过一则推特，特地声明禁止fanbox发布付费niji二创。
+[https://twitter.com/nijisanji_app/status/1204657435631337472](https://twitter.com/nijisanji_app/status/1204657435631337472) <blockquote>【注意】
+
+
+複数お問い合わせを頂いていた、「有償FANBOXにおけるにじさんじ二次創作コンテンツの扱い」について、弊社二次創作ガイドライン([https://event.nijisanji.app/guidelines/](https://event.nijisanji.app/guidelines/)) 第3条の5「他の活動促進を目的として」にあたるため、有償FANBOXでの配布等はお控えください。</blockquote>
+[https://web.archive.org/web/20190901000000](https://web.archive.org/web/20190901000000)*/https://event.nijisanji.app/guidelines/ <blockquote>たとえ無償の頒布であっても、他の活動促進を目的として、本コンテンツとその二次創作作品を利用することはできません。</blockquote>
+
+然后在今年6月5日更新了二创条例，把这一条删掉了
+[https://twitter.com/Ichikara_Inc/status/1268854560145043456](https://twitter.com/Ichikara_Inc/status/1268854560145043456) <blockquote>いちから株式会社の二次創作ガイドラインを更新いたしました。
+
+
+本ガイドラインを遵守のうえ、「にじさんじ」をはじめとする当社コンテンツの二次創作をお楽しみください。
+
+
+更新されたガイドラインはこちら▽</blockquote>
+[https://event.nijisanji.app/guidelines/](https://event.nijisanji.app/guidelines/)
+
+移到了 第６条(販売について)
+
+
+不过为什么今天提起，因为这周才发现有画师陆续开始投稿有料niji插图。
+
+比如：
+[https://sekinor18.fanbox.cc/posts/1652117](https://sekinor18.fanbox.cc/posts/1652117)
+
+今後のにじさんじに関する絵の有料プランでの取り扱いに関して
+
+
+
+懒人包总结。之后niji相关付费色图可能会变多（？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20318#       发表于 2020-12-4 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 招个像神田一样的大嘴巴，大谈和en女liver一起线下快乐趴体，
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20319#       发表于 2020-12-4 14:40
+
+
+
+
+感觉招个黑客那种的混血、或者旅居/留学生作为男性一期生可能会稳妥一点
+
+
+但我也觉得会招到EN哈哥<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20320#       发表于 2020-12-4 14:47
+
+
+
+
+总结：
+
+要PC：黑人
+
+要哈哥：喜欢玩车
+
+要神田：大嘴巴
+
+
+答案：
+
+开F1那个汉密尔顿
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 20321#       发表于 2020-12-4 14:48
+
+
+
+
+来个en社筑吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 20322#       发表于 2020-12-4 14:48
+
+
+
+
+风怒了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20323#       发表于 2020-12-4 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49608061&amp;ptid=1969498" target="_blank">凯文夏特 发表于 2020-12-4 14:34</a>
+
+昨晚holoen的死神 森美声直播有够阴间的 一直复读想要播游戏女神异闻录P3  那么世嘉会给授权吗 不过今天10 ...</blockquote>
+sega大礼包已经给了，阿特拉斯大概sega管不了。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20324#       发表于 2020-12-4 14:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">招个八美肉才是正道！
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20325#       发表于 2020-12-4 14:59
+
+
+
+
+黑人汉密尔顿...大脑被百老汇的关键词击中
+
+
+既然这样那我许愿个西区宽街卡司降维成为虹EN一期生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20326#       发表于 2020-12-4 15:05
+
+
+
+
+以后会是杏en倪哥浓度高还是虹en倪哥浓度高呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20327#       发表于 2020-12-4 15:26
+
+
+
+
+就算招到汉密尔顿也要有火星车给他开啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 20328#       发表于 2020-12-4 15:26
+
+
+
+
+尼哥音是什么音？直播自带rap吗？
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 20329#       发表于 2020-12-4 15:49
+
+
+
+
+开三轮车一样赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20330#       发表于 2020-12-4 16:06
+
+
+
+
+发现bora那队人员变了 cpt来了 3个都能韩语 感觉可以看看了
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 20331#       发表于 2020-12-4 16:07
+
+
+
+
+大概就是一直mumble那种吧，一口一个ya nigga啥的
+
+
+
+
+
+                      
