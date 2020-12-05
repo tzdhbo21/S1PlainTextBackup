@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 12:10** 
+> ## **本文件最后更新于2020-12-05 16:08** 
 
 
 
@@ -21291,4 +21291,546 @@ syl
 
 
 
-             
+
+
+-----
+
+####  smy20011  
+##### 20588#       发表于 2020-12-5 12:23
+
+
+
+
+有个问题我想问一下，在holo出事之前你们是如何理解心的直播的？看了看切片有种面对古神的感觉
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 20589#       发表于 2020-12-5 12:32
+
+
+
+
+本来就挺疯癫的学力低下的学生妹，以前还收敛一点，自从澳洲封锁之后彻底疯了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20590#       发表于 2020-12-5 12:35
+
+
+
+
+藤木二小姐当初还因为阴间整活视频在阿批吸引了一堆烂梗小鬼，官号日增一度破两千
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20591#       发表于 2020-12-5 12:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心心以前重心还在cn的时候不就一口一个中文草 泥 马（那个表情包当时还挺火），一开始就不太正常。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 20592#       发表于 2020-12-5 12:38
+
+
+
+
+心心那些视频节奏把控和剪辑都不错
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20593#       发表于 2020-12-5 12:46
+
+
+
+
+臭脚心主要是行动力够强，出事之前怎么从心心便乘哈恰玛就不说了，出事之后舔白皮比蝗都狠，毅然决然的那种，当然订阅增速上也体现出回报了。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20594#       发表于 2020-12-5 12:50
+
+
+
+
+心心变成哈恰玛不是主要是傲娇人设不吃香了吗？一路看下来她做事确实很果断而且很敢做，比起变成哈恰玛，直播看自己的色图是真的很下限和大胆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20595#       发表于 2020-12-5 12:59
+
+
+
+
+不过阿心还是缺核心粉，之前心组空有全官组第四的订阅数却一直缺人烤肉，现在白皮buff消退了不少，同接也掉回去了
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 20596#       发表于 2020-12-5 13:04
+
+
+
+
+本来就是澳洲留学生 说不定不止在网上舔白皮呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 20597#       发表于 2020-12-5 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20598#       发表于 2020-12-5 13:06
+
+
+
+
+臭脚心转型可太成功了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">值得所有人学习
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20599#       发表于 2020-12-5 13:08
+
+
+
+
+AKI新衣有两组激光，兔王百万见守没有
+这是一个标志  新一代杏人不再追求数字和热度 而是优质内容
+Hololive退出中国后  cn圈的holo相关才算好起来了!
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20600#       发表于 2020-12-5 13:11
+
+
+
+
+但是臭脚心这么玩的代价就是gachi粉（指日本ATM）都给赶跑了，当然人家铁后浪，这是最无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20601#       发表于 2020-12-5 13:14
+
+
+
+
+BSYL：
+
+天皇（FH）这直播标题也太嗯混了，点进去一看在舔白皮学英语，免费不出来魔怔一下吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20602#       发表于 2020-12-5 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49617921&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-5 13:11</a>
+
+但是臭脚心这么玩的代价就是gachi粉（指日本ATM）都给赶跑了，当然人家铁后浪，这是最无所谓的 ...</blockquote>
+留学英文那么差的基本上铁后浪，没钱走寄宿家庭的英文早就练好了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20603#       发表于 2020-12-5 13:16
+
+
+
+
+PS: 侦探的晚安ASMR，睡不着的各位可以试一下
+[https://www.youtube.com/watch?v=cOgynhXPKKw](https://www.youtube.com/watch?v=cOgynhXPKKw)
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20604#       发表于 2020-12-5 13:17
+
+
+
+
+兔子百万切片大部分是4V人烤的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这边哪来的冠军粉野兔子，都吊半年路灯了难不成还赖在阿B不走？
+
+不过4V那边野兔子是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20605#       发表于 2020-12-5 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但心心sc其实还行的，最近俩个月都在500w左右，稳定上位。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20606#       发表于 2020-12-5 13:53
+
+
+
+
+垃圾圆脸这周算今天都播了五次，今天这都不知道该播啥了，只能讲几句英语凑数，就算这样都不带练歌的，真是垃圾，吐了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20607#       发表于 2020-12-5 14:09
+
+
+
+
+维阿都抽新卡了彩虹能不能跟上啊？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20608#       发表于 2020-12-5 14:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">艾琳那套youtuber玩法宝刀未老，心也来个360VR吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20609#       发表于 2020-12-5 14:11
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20610#       发表于 2020-12-5 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49617886&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-5 13:08</a>
+AKI新衣有两组激光，兔王百万见守没有
+这是一个标志  新一代杏人不再追求数字和热度 而是优质内容
+Hololive ...</blockquote>
+“一分耕耘一份收获”
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20611#       发表于 2020-12-5 14:22
+
+
+
+
+🌈en本社在抽了，jp分社顾全大局再等等
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 20612#       发表于 2020-12-5 14:41
+
+
+
+ 本帖最后由 ひびき 于 2020-12-5 14:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49617679&amp;ptid=1969498" target="_blank"> 心垂万刃 发表于 2020-12-5 12:50</a> 心心变成哈恰玛不是主要是傲娇人设不吃香了吗？一路看下来她做事确实很果断而且很敢做，比起变成哈恰玛，直播看自己的色图是真的很下限和大胆 </blockquote>
+看皮的色图又不是看本人色图<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">有什么下不去的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 20613#       发表于 2020-12-5 14:46
+
+
+
+ 本帖最后由 ひびき 于 2020-12-5 14:51 编辑 
+
+阿希这种lsp罗莉控，拿小祭的皮发电过也说不定来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 20614#       发表于 2020-12-5 14:57
+
+
+
+<blockquote>ひびき 发表于 2020-12-5 14:46
+阿希这种lsp罗莉控，拿小祭的皮发电过也说不定</blockquote>
+佐藤希对着夏色祭发电，想想有点带感
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20615#       发表于 2020-12-5 15:16
+
+
+
+
+说不定直球点赞的色图就是本人认证的发电素材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+比如fuhikiko老师之类的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20616#       发表于 2020-12-5 15:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 椎名去本社参加莉莉姆3D看到了新人，，值得kmm一提的人，应该还是老生主吧，
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20617#       发表于 2020-12-5 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹的大物新人要出道了吗？
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 20618#       发表于 2020-12-5 15:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/154220s4mwpp2simywprgs.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201205154210.png</strong> (58.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 15:42 上传
+
+
+
+
+
+
+作词的术版
+[https://www.youtube.com/watch?v=G3cVAbzmFRU&amp;feature=youtu.be](https://www.youtube.com/watch?v=G3cVAbzmFRU&amp;feature=youtu.be)
+
+
+有兴趣的可以去听听看。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20619#       发表于 2020-12-5 15:48
+
+
+
+
+是要抽卡还是指之前的世怜女？
+
+
+
+
+
+            

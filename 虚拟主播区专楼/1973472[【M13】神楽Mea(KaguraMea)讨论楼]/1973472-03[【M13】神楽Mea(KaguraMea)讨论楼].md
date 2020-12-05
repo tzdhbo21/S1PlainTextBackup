@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 12:18** 
+> ## **本文件最后更新于2020-12-05 16:15** 
 
 
 
@@ -24343,4 +24343,445 @@ bls精彩纷呈，去现场的天狗都疯了<img src="https://static.saraba1st.
 
 
 
-  
+
+
+-----
+
+####  Dualist彩  
+##### 4422#       发表于 2020-12-5 12:29
+
+
+
+
+你们对楼友也太残忍了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4423#       发表于 2020-12-5 12:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不可以 你不可以这么做
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4424#       发表于 2020-12-5 12:39
+
+
+
+
+ 呀买咯！！！！！
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4425#       发表于 2020-12-5 12:40
+
+
+
+
+楼友都那么残忍那么变态，小麻怎么可以交给你们
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4426#       发表于 2020-12-5 12:45
+
+
+
+
+懂了，那交给我吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+我会好好地帮她彻底调整好作息，教她做饭，收拾东西。<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4427#       发表于 2020-12-5 12:57
+
+
+
+
+你能让她偶尔学学🐏叫么，好久没听到了，最近都是🐱赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 4428#       发表于 2020-12-5 13:18
+
+
+
+
+bls我大概知道什么情况,算了吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4429#       发表于 2020-12-5 13:25
+
+
+
+
+lol有几段节目效果不错的 最近估计是为了避节奏 开的都是歌回 不过歌回里面也有穿插杂谈 可以看下同传总结 定位自己感兴趣的部分
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4430#       发表于 2020-12-5 13:29
+
+
+
+
+有意思的片段都烤出来了，看就行
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4431#       发表于 2020-12-5 13:36
+
+
+
+
+凌晨的tc都挺不错，这人精神好的时候骚话不带停的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4432#       发表于 2020-12-5 13:37
+
+
+
+
+啊 对了 lol当时她的桌面是花篮 讲真 看到桌面的那一瞬间我真的飙泪了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 4433#       发表于 2020-12-5 14:35
+
+
+
+
+断网一个月 发生了啥 感觉变了好多 
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4434#       发表于 2020-12-5 14:38
+
+
+
+
+法兰西投了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4435#       发表于 2020-12-5 14:45
+
+
+
+
+法国投降了 现在是维希法国了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4436#       发表于 2020-12-5 15:01
+
+
+
+
+法国被除名五常了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4437#       发表于 2020-12-5 15:03
+
+
+
+
+现在不是没辣条了么？怎么阿b直播间现在还有好多挂机脚本的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+                                 
+
+想上书把轮播开了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4438#       发表于 2020-12-5 15:06
+
+
+
+
+其实没什么变化，去补补这两天的录播档乐一乐，自然就明白了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4439#       发表于 2020-12-5 15:09
+
+
+
+
+那三个小时的手机tc还是挺不错的，有丶可爱
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4440#       发表于 2020-12-5 15:32
+
+
+
+
+多补点TC能拯救天狗脆弱精神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4441#       发表于 2020-12-5 15:38
+
+
+
+ 本帖最后由 2111X 于 2020-12-5 15:42 编辑 
+
+神楽mea近期事件三分钟简介（mea视角）[https://b23.tv/G8d6zc](https://b23.tv/G8d6zc)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4442#       发表于 2020-12-5 15:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49619295&amp;ptid=1973472" target="_blank">2111X 发表于 2020-12-5 15:38</a>
+
+神楽mea近期事件三分钟简介（mea视角）https://b23.tv/G8d6zc</blockquote>
+我看到标题就叉了
+
+我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4443#       发表于 2020-12-5 15:56
+
+
+
+
+楼友破人防有一手的，在外面都没这么崩过<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4444#       发表于 2020-12-5 15:59
+
+
+
+
+标题我看到就想吐
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4445#       发表于 2020-12-5 16:00
+
+
+
+
+老是破防，甲这么低吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4446#       发表于 2020-12-5 16:03
+
+
+
+
+哪有什么甲，不过是你麻奶量大，再自闭只要她正常一播就能回个七七八八<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4447#       发表于 2020-12-5 16:07
+
+
+
+
+姨化罢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4448#       发表于 2020-12-5 16:10
+
+
+
+
+只有天狗才知道怎么破天狗的防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
