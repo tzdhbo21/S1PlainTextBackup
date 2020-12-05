@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 00:12** 
+> ## **本文件最后更新于2020-12-05 12:10** 
 
 
 
@@ -20711,7 +20711,7 @@ Snowflake  Birthday cake  Santa Claus  Christmas tree  Snowflake
 <img src="https://img.saraba1st.com/forum/202012/05/000137ojjsw8tjrbjlmwp4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EoZq2JtVQAASvVP.jpg</strong> (628.64 KB, 下载次数: 0)
+<strong>EoZq2JtVQAASvVP.jpg</strong> (628.64 KB, 下载次数: 1)
 
 下载附件
 
@@ -20771,10 +20771,13 @@ Snowflake  Birthday cake  Santa Claus  Christmas tree  Snowflake
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士| + 1|爱美之心，人皆有之|
+| 空集| + 1|好评加鹅|
+| JoelBirch| + 1|第一张有点好看|
 | 目力干员leison| + 1|好评加鹅|
 
 
@@ -20799,4 +20802,493 @@ Snowflake  Birthday cake  Santa Claus  Christmas tree  Snowflake
 
 
 
-              
+
+
+-----
+
+####  Tierrrrr  
+##### 20563#       发表于 2020-12-5 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">失格了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20564#       发表于 2020-12-5 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49614373&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-05 00:04:52</a>
+选了几张今晚比较喜欢的庆祝fanart</blockquote>希望你综所有野兔子都能安稳地走完剩下的路<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20565#       发表于 2020-12-5 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49614452&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-5 00:13</a>
+
+希望你综所有野兔子都能安稳地走完剩下的路
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+已经被天使的眼泪净化了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20566#       发表于 2020-12-5 00:19
+
+
+
+
+月灵姐这周末会播吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  U2FsdGVk  
+##### 20567#       发表于 2020-12-5 00:28
+
+
+
+
+所以图在哪儿<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20568#       发表于 2020-12-5 00:39
+
+
+
+
+兔宝真好，我又希望木口晚点爆炸了
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 20569#       发表于 2020-12-5 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49609951&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2020-12-4 17:18</a>
+
+啊这。。</blockquote>
+我看看...某个红发团长唱单相思？
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 20570#       发表于 2020-12-5 02:36
+
+
+
+
+紫宝从奶奶那里收到橘子了 那前段时间去世的家人怕不是紫爷？
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20571#       发表于 2020-12-5 03:40
+
+
+
+
+
+&gt;&gt;Chat tells her that she shouldn't worry the poor guy
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/05/033725o697kzw9kcjczk9h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2020-12-05 033559.jpg</strong> (379.05 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 03:37 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/033726w0livx6n5x0s5inl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2020-12-05 033620.jpg</strong> (271.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 03:37 上传
+
+
+
+
+
+[https://boards.4channel.org/jp/thread/30185675#p30187159](https://boards.4channel.org/jp/thread/30185675#p30187159)
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 20572#       发表于 2020-12-5 03:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">恭喜贺喜。
+
+<img src="https://img.saraba1st.com/forum/202012/05/035815zmhzny27mk6h16ek.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eoas5q-U0AAb5DQ.jpg</strong> (72.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 03:58 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 20573#       发表于 2020-12-5 08:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">404散装个人势不是一直都这么惨
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 20574#       发表于 2020-12-5 08:22
+
+
+
+
+カタオモイ这首歌对红团长的声线来说太年轻了，唱不出阿希那种透明感（网抑云评论並感）
+
+
+
+
+
+
+
+-----
+
+####  夜玄言  
+##### 20575#       发表于 2020-12-5 09:22
+
+
+
+
+那会的阿希还是有点歌力的，而且还有各种buff和传说度加成
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20576#       发表于 2020-12-5 09:35
+
+
+
+
+YT这同接算法绝对有问题，火鸡这个holotalk的chat就跟喷泉一样（开了慢速）。同接3w5
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20577#       发表于 2020-12-5 09:45
+
+
+
+
+讨论过很多次了油管这几天bug，部分同接没有被算到统计里，至于到底哪部分没有可能每个频道都不一样，虹杏都有明显被减了的和看起来没怎么减的，应该不是单一地区的问题而是全球都有随机的会漏掉
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 20578#       发表于 2020-12-5 10:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">火鸡狐姨对坦有点遭不住，等楼友repo了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20579#       发表于 2020-12-5 10:26
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-5 10:30 编辑 
+
+真的有人会听日南唱歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 火鸡不算坦吧
+
+点进去就听见糊在鬼叫，也就白皮爱看这个
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20580#       发表于 2020-12-5 10:45
+
+
+
+
+听了一下hh的新歌，松下这首感觉进步好大啊<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">，也可能是aya这首唱的少的原因吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20581#       发表于 2020-12-5 10:49
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-5 11:07 编辑 
+
+今早的t台郡好甜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，还有快一周才回来啊.....
+
+但今天月之会播<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+省一楼，郡郡微胖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+郡：こんなストレートな罵倒ある？
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/110539hgzuttgogw4q5obr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EocKyGbUUAA1bGX.jpg</strong> (111.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 11:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 20582#       发表于 2020-12-5 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49615714&amp;ptid=1969498" target="_blank">opersuper 发表于 2020-12-5 08:22</a>
+
+カタオモイ这首歌对红团长的声线来说太年轻了，唱不出阿希那种透明感（网抑云评论並感） ...</blockquote>
+我也喜欢阿希的版本，但我除了在你综都不敢这样说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20583#       发表于 2020-12-5 11:04
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-5 11:18 编辑 
+
+カタオモイ这歌讲的是一个少女怀春，看看歌词就知道不是姨唱的，与其说是阿希赢得是透明感不如说是青春感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 20584#       发表于 2020-12-5 11:24
+
+
+
+
+飞鸟P的新衣封面太涩了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20585#       发表于 2020-12-5 11:31
+
+
+
+
+啊希，我的阿希<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+在夏色祭回来之前不要再唱单恋了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 20586#       发表于 2020-12-5 11:49
+
+
+
+
+カタオモイ确实阿希那版比较有味道……
+
+大概是唱出了……届不到的真情实感？
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 20587#       发表于 2020-12-5 11:56
+
+syl
+
+
+ 本帖最后由 ylssb10438 于 2020-12-5 11:58 编辑 
+
+这首除了原唱感觉都不太对味<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">syl   ikura14岁这个现场是什么水平BV1Zy4y1b7PV
+
+
+
+
+
+             

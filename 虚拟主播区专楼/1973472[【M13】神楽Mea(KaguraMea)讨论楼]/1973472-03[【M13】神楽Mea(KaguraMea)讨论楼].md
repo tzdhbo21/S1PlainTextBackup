@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 00:20** 
+> ## **本文件最后更新于2020-12-05 12:18** 
 
 
 
@@ -21628,7 +21628,7 @@ tc后面说了今天想播来着
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
 
 粉色的喷嚏.mp3
-(43.63 KB, 下载次数: 89)
+(43.63 KB, 下载次数: 90)
 
 
 
@@ -21676,10 +21676,11 @@ tc后面说了今天想播来着
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| DDWarrior| + 1|好评加鹅|
 | KL25001| + 1|收藏了|
 
 
@@ -23973,4 +23974,373 @@ fw阿b给它送钱都不要，祝bml原地暴毙<img src="https://static.saraba1
 
 
 
-   
+
+
+-----
+
+####  JustW  
+##### 4401#       发表于 2020-12-5 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49599903&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2020-12-3 18:40</a>
+
+补图
+
+这也实在是太小了，这玩意值99块钱？徽章和挂件可以理解，毕竟就为了买个名而已。但这钱包多少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还真的装不进去，我草了。本来还想在人前拿出这个会不会社死，这下彻底不用担心了。
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4402#       发表于 2020-12-5 08:03
+
+
+
+
+她竟然已经醒了 过于阳间
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4403#       发表于 2020-12-5 08:32
+
+
+
+
+醒的比我还早<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4404#       发表于 2020-12-5 09:11
+
+
+
+
+我跟她一起醒的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4405#       发表于 2020-12-5 10:11
+
+
+
+
+今天12月5号，这种作息起码还能保持三天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4406#       发表于 2020-12-5 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">没有阴间tc就是好作息
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4407#       发表于 2020-12-5 10:22
+
+
+
+
+不过你麻的鬼故事也蛮怪的，果然以后结婚了只要不在她身边就要把她关起来，我是为了你好啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 4408#       发表于 2020-12-5 10:38
+
+
+
+
+你楼友老变态了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+小麻不会幸福的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4409#       发表于 2020-12-5 10:40
+
+
+
+
+监禁和变相dv有什么区别，我劝楼友好自为之<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4410#       发表于 2020-12-5 11:03
+
+
+
+
+你们怎么这样<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+果然为了她好不得不由我来娶她吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4411#       发表于 2020-12-5 11:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4412#       发表于 2020-12-5 11:08
+
+
+
+
+那和楼友结婚是不是也可以避免这种事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4413#       发表于 2020-12-5 11:17
+
+
+
+
+只要楼友们都内部消化了，小麻就不会遇到变态了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4414#       发表于 2020-12-5 11:41
+
+
+
+
+我可以跟小麻涉谷结婚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 4415#       发表于 2020-12-5 11:45
+
+
+
+ 本帖最后由 rosevalley46 于 2020-12-5 11:47 编辑 
+
+被破防了退了一个月坑,感觉还是舍不得她,又重新回来了
+
+翻了下最近都是歌回啊,有没有特别值得补的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4416#       发表于 2020-12-5 11:49
+
+
+
+
+昨天的歌回前三首是新歌 挺好听的 可以看看 其他的也没啥大事
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4417#       发表于 2020-12-5 11:52
+
+
+
+
+只有我一直觉得她是很适合被dv的那种吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dualist彩| + 1|同意|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4418#       发表于 2020-12-5 11:53
+
+
+
+
+歌回中间的小细节不看亏了好吧
+
+                
+
+昨天歌回好玩
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4419#       发表于 2020-12-5 11:56
+
+
+
+
+建议补道歉回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦还有bls<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4420#       发表于 2020-12-5 12:12
+
+
+
+
+bls真的是史无前例的大事件 非常值得观看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4421#       发表于 2020-12-5 12:15
+
+
+
+
+bls精彩纷呈，去现场的天狗都疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，此生难遇，一定要补！
+
+
+
+
+
+  
