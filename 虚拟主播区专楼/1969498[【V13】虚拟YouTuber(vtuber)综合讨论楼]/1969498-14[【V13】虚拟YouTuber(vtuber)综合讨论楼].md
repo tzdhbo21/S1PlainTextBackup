@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 20:08** 
+> ## **本文件最后更新于2020-12-05 22:09** 
 
 
 
@@ -22635,12 +22635,13 @@ tskk好像到现在都没能和en联动过？
 
 
 
+ 本帖最后由 alcoholic1000 于 2020-12-5 20:14 编辑 
 
 男だらけのAmongUs #にじさんじAmonGUYs 
 
 
 葛葉
-
+[https://www.youtube.com/watch?v=oJnaSssOplc](https://www.youtube.com/watch?v=oJnaSssOplc)
 
 叶
 [https://www.youtube.com/watch?v=AZUeOoTvxAU](https://www.youtube.com/watch?v=AZUeOoTvxAU)
@@ -22667,7 +22668,899 @@ tskk好像到现在都没能和en联动过？
 [https://www.youtube.com/watch?v=ekJq8h5Wck0](https://www.youtube.com/watch?v=ekJq8h5Wck0)
 
 
+这也太吵了，别看了，快跑
 
 
 
-           
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20666#       发表于 2020-12-5 20:09
+
+
+
+
+那我可太想看tskk对鲨皇下手yagoo纠结到底保大还是保小了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20667#       发表于 2020-12-5 20:15
+
+
+
+ 本帖最后由 katern 于 2020-12-5 20:16 编辑 
+
+二鬼子能斗得过真洋人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+たばこ / HACHI.cover 【歌ってみた】
+[https://www.youtube.com/watch?v=GcKrt3s0xFE](https://www.youtube.com/watch?v=GcKrt3s0xFE)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 20668#       发表于 2020-12-5 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49621435&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-5 20:07</a>
+男だらけのAmongUs #にじさんじAmonGUYs 
+
+
+葛葉</blockquote>
+已经被吵死了，耳膜也已经摘掉了
+小学生吵架
+把最吵的票出去吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+被高音攻击现在我还有点心颤，妈的，听多了会折寿啊
+syl恢复正常音量了，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20669#       发表于 2020-12-5 20:21
+
+
+
+
+飞鸟P这个衣服适合配r18音声
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20670#       发表于 2020-12-5 20:22
+
+
+
+
+谁
+
+<img src="https://img.saraba1st.com/forum/202012/05/202219i14c15jfce5eceez.png" referrerpolicy="no-referrer">
+
+
+<strong>【#飛鳥ひな新モデル】飛鳥ひな、○○になる。.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 20:22 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=0SMLjOacTIk](https://www.youtube.com/watch?v=0SMLjOacTIk)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20671#       发表于 2020-12-5 20:23
+
+
+
+
+这皮两个拉链真是性暗示
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20672#       发表于 2020-12-5 20:27
+
+
+
+
+谁能给我解释解释这胖狐狸是几个意思？
+
+<img src="https://img.saraba1st.com/forum/202012/05/202703zr2g7grn8w2f2iww.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2624.jpg</strong> (151.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 20:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20673#       发表于 2020-12-5 20:28
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-5 20:34 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/202748w1w10zt59t1d1wtm.png" referrerpolicy="no-referrer">
+
+
+<strong>【#飛鳥ひな新モデル】飛鳥ひな、○○になる。-2.png</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 20:27 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/203441jh5ag45uyk4q4rhh.png" referrerpolicy="no-referrer">
+
+
+<strong>【#飛鳥ひな新モデル】飛鳥ひな、○○になる。-4.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 20:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/202747voleyo1333auwqy1.png" referrerpolicy="no-referrer">
+
+
+<strong>【#飛鳥ひな新モデル】飛鳥ひな、○○になる。-3.png</strong> (1.88 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 20:27 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">hso
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20674#       发表于 2020-12-5 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49621615&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-5 20:27</a>
+
+谁能给我解释解释这胖狐狸是几个意思？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/05/203023sdld2esc1e29dr9z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoeL3sqU8AEHFhS.jpg</strong> (54.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 20:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20675#       发表于 2020-12-5 20:33
+
+
+
+
+巧可老师输了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 20676#       发表于 2020-12-5 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">叶师好强啊，在这凶险的周六晚黄金时间，B站转播牛郎狼人杀有10万人气
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20677#       发表于 2020-12-5 20:43
+
+
+
+
+mgs要出电影了？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 20678#       发表于 2020-12-5 20:43
+
+
+
+
+兔鞠天下第一
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20679#       发表于 2020-12-5 20:44
+
+
+
+
+兔皇马车才2w6，fh企业买数字石锤了
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 20680#       发表于 2020-12-5 20:45
+
+
+
+<img src="https://p.sda1.dev/0/9c24032ae3a8245b857dff2db3522726/IMG_CMP_263654563.jpeg" referrerpolicy="no-referrer">
+zea新衣服，可爱
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20681#       发表于 2020-12-5 20:49
+
+
+
+
+其实这样也好，毕竟如果数字过度膨胀的话，人心也会跟着膨胀啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 20682#       发表于 2020-12-5 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49621356&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-5 19:59</a>
+
+因为太困所以展露出病娇本性的郡道概念推します</blockquote>
+模仿指示厨的郡郡可爱
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 20683#       发表于 2020-12-5 21:03
+
+
+
+
+虫皇休息，cover同接就原形毕露 证明虫皇粉丝最多，
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20684#       发表于 2020-12-5 21:06
+
+
+
+[https://bbs.nga.cn/read.php?tid=24484191](https://bbs.nga.cn/read.php?tid=24484191)
+
+绿帽坛的糊黑料收集专楼
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 20685#       发表于 2020-12-5 21:07
+
+
+
+ 本帖最后由 sher1ock 于 2020-12-5 21:11 编辑 
+
+id这新人初配信就迟到嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">https://www.youtube.com/watch?v=BET9wXW37mw
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20686#       发表于 2020-12-5 21:13
+
+
+
+
+开幕galgame
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20687#       发表于 2020-12-5 21:19
+
+
+
+
+樋口枫专辑第二首主打的mv出了，歌我蛮喜欢的，但感觉mv制作经费被第一首吃掉了，画面很有风格也很不商业，饭制感很强，
+如果真没经费搞个mmd多好，前几天那个mapledancer靠德龙3D俊脸就撑住了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。
+说到mmd，虹cover砖这是画了饼就没后续啦？虽然卖得不错啦，但出个mmd宣传一下继续卖不更好<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20688#       发表于 2020-12-5 21:20
+
+
+
+
+说日语还挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20689#       发表于 2020-12-5 21:21
+
+
+
+
+月灵姐姐又发合照了！笑得越来越夸张！嘴一张比一张咧得大！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20690#       发表于 2020-12-5 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">id新liver又是个三语手，id看来在跨国联动的时候会有很大发挥空间吧。
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20691#       发表于 2020-12-5 21:26
+
+
+
+
+月灵几张合照气质都蛮好的 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 20692#       发表于 2020-12-5 21:27
+
+
+
+
+居然是狐推，这么稀有的生物<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">为什么不抱个能干的大腿，比如直接说gura
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 20693#       发表于 2020-12-5 21:28
+
+
+
+
+好きなもの：白上フブキさん<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20694#       发表于 2020-12-5 21:29
+
+
+
+
+挖草 这声告白震耳欲聋
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20695#       发表于 2020-12-5 21:31
+
+
+
+
+喜欢gura的话也太功利了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20696#       发表于 2020-12-5 21:33
+
+
+
+
+来个喜欢tskk的啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 20697#       发表于 2020-12-5 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20698#       发表于 2020-12-5 21:33
+
+
+
+
+那么火鸡也功利咯，但人家是真的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20699#       发表于 2020-12-5 21:33
+
+
+
+
+白上フブキ@ShirakamiFubuki
+
+@shirakamifubuki
+
+大哭脸大哭脸大哭脸大哭脸大哭脸大哭脸大哭脸大哭脸大哭脸
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20700#       发表于 2020-12-5 21:36
+
+
+
+
+这感觉像是在印度尼西亚哪个大学集体抽卡了阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20701#       发表于 2020-12-5 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49621806&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-5 20:43</a>
+
+mgs要出电影了？</blockquote>
+昨天宣布了Oscar Isaac演snake
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20702#       发表于 2020-12-5 21:41
+
+
+
+[https://www.youtube.com/watch?v=yz3fTxlPx5s](https://www.youtube.com/watch?v=yz3fTxlPx5s)
+
+春猿火这个还没删，保留到明天中午12点，谁有兴趣抓紧拖下来
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 20703#       发表于 2020-12-5 21:43
+
+
+
+
+飞鸟P的音声铁公鸡已经是最大限度了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20704#       发表于 2020-12-5 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 呵呵，支持飞鸟P不如支持一之濑，买飞鸟P的还要被田角分成，
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 20705#       发表于 2020-12-5 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发点楼友没什么兴趣的
+[https://www.youtube.com/watch?v=_vU6XtXz3nE](https://www.youtube.com/watch?v=_vU6XtXz3nE)
+
+我很喜欢的一位画师套皮了
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虽然前面10分钟全在调整直播设置，但是还挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20706#       发表于 2020-12-5 21:47
+
+
+
+
+只要叶师没有在前两局被刀，他就是狼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+Syl，ABO这有点厉害，对叶宝具啊果然惩恶扬善的英雄
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20707#       发表于 2020-12-5 21:53
+
+
+
+<img src="https://p.sda1.dev/0/5b1e4c4500e56cea4cf2e680a50e7573/IMG_CMP_51105841.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20708#       发表于 2020-12-5 21:54
+
+
+
+ 本帖最后由 十四洲 于 2020-12-5 22:02 编辑 
+
+叶话术强但没人听的话完全没辙啊，今晚游戏体验为零
+
+syl，没看到叶黛双狼好可惜，这俩都被刀得好早
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20709#       发表于 2020-12-5 21:59
+
+
+
+
+ID 人均三语 大学生   JP 分社UCCU  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
+
+有奖竞猜 6期会有多拉跨
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20710#       发表于 2020-12-5 22:02
+
+
+
+
+bsyl  这位很诚实  说自己不会唱歌，然后确实不会。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20711#       发表于 2020-12-5 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49622621&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-5 21:59</a>
+
+ID 人均三语 大学生   JP 分社UCCU    
+
+有奖竞猜 6期会有多拉跨</blockquote>
+我都想从日本内卷的社会环境来论证本土没人才了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有一说一音乐圈真卷……，有才的天生音乐世家，从小培养。甚至早早进了自家的事务所……。
+
+野路子不仅仅没的补课，还不见得能上音乐方面的大学，还不见得有人脉。
+
+（这个状态真恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20712#       发表于 2020-12-5 22:09
+
+
+
+
+グウェル にじさんじ@Gwelu_os_gar
+
+
+12/6(日)19時より 星川サラ/夢追翔/犬山たまき/神楽めあ の4名にご参加頂き エピソード人狼を開催いたします。
+
+
+？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
