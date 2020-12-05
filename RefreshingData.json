@@ -257,9 +257,9 @@
   },
   {
     "id": "1921517",
-    "totalpage": 35,
+    "totalpage": 36,
     "title": "[A站虚拟偶像（AVUP）同好楼]",
-    "lastedit": 1607018497,
+    "lastedit": 1607144136,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -337,9 +337,9 @@
   },
   {
     "id": "1811212",
-    "totalpage": 19,
+    "totalpage": 20,
     "title": "[20.10『在地下城寻求邂逅是否搞错了什么 第3季』专楼]",
-    "lastedit": 1606701932,
+    "lastedit": 1607144173,
     "category": "漫区专楼",
     "active": true
   },
@@ -5573,6 +5573,14 @@
     "title": "[赛博朋克2077 讨论专楼]",
     "lastedit": 1607084349,
     "category": "游戏区专楼",
+    "active": true
+  },
+  {
+    "id": "1975720",
+    "totalpage": 27,
+    "title": "[怪物猎人电影版开篇辱华]",
+    "lastedit": 1607145083,
+    "category": "外野",
     "active": true
   }
 ]
