@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 22:09** 
+> ## **本文件最后更新于2020-12-06 02:11** 
 
 
 
@@ -23563,4 +23563,876 @@ ID 人均三语 大学生   JP 分社UCCU   
 
 
 
-         
+
+
+-----
+
+####  eksPeg  
+##### 20713#       发表于 2020-12-5 22:16
+
+
+
+
+内卷不是反而更有人才么 就是有很多怀才不遇的惨人
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20714#       发表于 2020-12-5 22:18
+
+
+
+
+苔总怎么每次都跟人唱lion啊，她是不是只会这一首啊。
+
+
+我囸，第二首红莲华，主播你唱的是个jb
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20715#       发表于 2020-12-5 22:19
+
+
+
+
+hachi这たばこ不行，完全莫得感情，感觉就和平时直播唱着玩似的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20716#       发表于 2020-12-5 22:27
+
+
+
+
+没人才是不可能的 看不上做直播而已
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 20717#       发表于 2020-12-5 22:28
+
+
+
+
+ HACHI的翻唱PV投稿一直有这种毛病
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 20718#       发表于 2020-12-5 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49622621&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-5 21:59</a>
+
+ID 人均三语 大学生   JP 分社UCCU    
+
+有奖竞猜 6期会有多拉跨</blockquote>
+分社招六期自取灭亡，本社招二期才是中兴
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20719#       发表于 2020-12-5 22:40
+
+
+
+
+holo这套同期出道造箱互相引流的程序真是成熟又浩大……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+推特营业开始聊动一批人，然后每人每天单独出道以后再接个同期杂谈回……。
+
+就算是五期出了个炸弹都稳定了一批五期观众。
+
+成熟的不像holo能想出来的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 20720#       发表于 2020-12-5 22:50
+
+
+
+
+这套东西不就是偶像团体搬过来的
+
+长尾哥都车过多少次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+yagoo借鉴偶像营运不是乱说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 20721#       发表于 2020-12-5 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到分社爆炸，从此只专注白皮市场
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20722#       发表于 2020-12-5 23:00
+
+
+
+
+出道回顾直播不是4期就开始了吗，不新鲜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20723#       发表于 2020-12-5 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49622437&amp;ptid=1969498" target="_blank">free 发表于 2020-12-5 21:41</a>
+https://www.youtube.com/watch?v=yz3fTxlPx5s
+
+春猿火这个还没删，保留到明天中午12点，谁有兴趣抓紧拖下来 ...</blockquote>
+全程读稿和弹幕没有互动，说话中途还有多次底噪突然消失，判断是剪过的录播，不是live。
+歌与歌之间底噪没有中断，说明歌是一次唱完的，没有剪辑。有没有修过不知道
+
+
+
+
+
+
+
+-----
+
+####  tewaku  
+##### 20724#       发表于 2020-12-5 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49621120&amp;ptid=1969498" target="_blank">proxima 发表于 2020-12-5 19:33</a>
+
+别尬黑，mhy给金憨憨打的钱太多都把她吓到了好吧</blockquote>
+你一定没看后续，最早发这消息的人就是个完全不会日语只看机器翻译的，后面有人解释了是本月还款账单金额太大吓到她了而不是什么工资太多。
+
+
+
+
+
+
+
+-----
+
+####  Tierrrrr  
+##### 20725#       发表于 2020-12-5 23:54
+
+
+
+
+02姐姐终于能睡个安稳觉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20726#       发表于 2020-12-5 23:59
+
+
+
+ 本帖最后由 NBXX 于 2020-12-6 00:01 编辑 
+
+[https://twitter.com/ekureea/status/1335228007884017664](https://twitter.com/ekureea/status/1335228007884017664) <blockquote>上倉エク🌷Eku Uekura @ekureea
+
+ホロライブID・2期生「Anya Melfissa(アーニャ)@anyamelfissa」ちゃんのデザインを担当させていただきました。ねむねむKris Girlをよろしくお願いいたします🍂✨
+
+
+Please get along with Anya🥰💓</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/05/235917k33foqifzebiefve.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoeufLvUUAArApc.jpg</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 23:59 上传
+
+
+
+
+
+[https://twitter.com/Shin_umiushi_O/status/1335229891365593089](https://twitter.com/Shin_umiushi_O/status/1335229891365593089) <blockquote>深海潮
+
+@Shin_umiushi_O
+
+ホロライブインドネシア2期生のAnya Melfissa(アーニャ・メルフィッサ)さんのモデリングを担当させていただきました！
+
+デビュー配信お疲れさまでした！！
+
+日本語が上手で、ゲームが大好きなアーニャちゃんのこれからの活躍が楽しみです！
+
+イラスト:上倉エク 先生(@ekureea)</blockquote>
+<[img src="https://i.loli.net/2020/12/06/exYRocCkpi8qF43.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 20727#       发表于 2020-12-6 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623561&amp;ptid=1969498" target="_blank">tewaku 发表于 2020-12-5 23:50</a>
+
+你一定没看后续，最早发这消息的人就是个完全不会日语只看机器翻译的，后面有人解释了是本月还款账单金额 ...</blockquote>
+虽然但是，MHY的工商还是很大方的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki|-1|大方个锤子|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20728#       发表于 2020-12-6 00:17
+
+
+
+
+不会S1真有米卫兵吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20729#       发表于 2020-12-6 00:19
+
+
+
+
+《mhy以八位数工商扭转虹杏收入差》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 20730#       发表于 2020-12-6 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623654&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-5 23:59</a>
+https://twitter.com/ekureea/status/1335228007884017664</blockquote>
+这个画师我关注好久了，终于也画了管人皮套了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20731#       发表于 2020-12-6 00:23
+
+
+
+
+关于这种有能力大量出翻唱的人还挺微妙的。
+无情的翻唱机器，莫得感情。
+审美疲劳以后就很难听出好坏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20732#       发表于 2020-12-6 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623654&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-5 23:59</a>
+https://twitter.com/ekureea/status/1335228007884017664</blockquote>
+这位之前是不是画过狐狸一周年的主视觉图啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20733#       发表于 2020-12-6 00:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/06/003004k5xc7ouccy3447r7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201206002936.png</strong> (486.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 00:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 20734#       发表于 2020-12-6 00:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">等会，真有工商其实没给多少钱的说法么。。。？
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20735#       发表于 2020-12-6 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623830&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-6 00:23</a>
+
+关于这种有能力大量出翻唱的人还挺微妙的。
+
+无情的翻唱机器，莫得感情。
+
+审美疲劳以后就很难听出好坏了[f:0 ...</blockquote>
+莫得感情肯定就是坏了，没有疑问的。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20736#       发表于 2020-12-6 00:39
+
+
+
+ 本帖最后由 NBXX 于 2020-12-6 00:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623823&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-6 00:22</a>
+
+这个画师我关注好久了，终于也画了管人皮套了嘛</blockquote>
+之前画过 ころねぽち ，是我很喜欢的歌势。
+
+今天 ころねぽち 也做了 Anya 的出道直播同时视听
+[https://youtu.be/GoKokz2U3Pw](https://youtu.be/GoKokz2U3Pw)
+
+
+歌曲推荐：
+
+ポッピンキャンディ☆フィーバー！Poppin' Candy☆Fever! キノシタ/ころねぽち【歌ってみた】
+[https://www.youtube.com/watch?v=ol-FduC0t6s](https://www.youtube.com/watch?v=ol-FduC0t6s)
+
+「ぼくの夢、メチャクソ無限湧き」ARuFa/ころねぽち【歌ってみた】
+[https://www.youtube.com/watch?v=h_P4asdLgDY](https://www.youtube.com/watch?v=h_P4asdLgDY)
+
+【Acapella】Panzer Vor! 戦車道行進曲 Girls Und Panzer Senshadou March ガールズ&amp;パンツァー パンツァーフォー!歌ってみた/全部ぽち【多重録音】
+[https://www.youtube.com/watch?v=JmUoksugFzw](https://www.youtube.com/watch?v=JmUoksugFzw)
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 20737#       发表于 2020-12-6 00:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">趴在地上想一想，金憨憨工商之前先发了个十万粉丝感谢的动态
+
+很有可能是按十万粉丝的b站给的工商的价，我觉得大概不会多的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20738#       发表于 2020-12-6 00:40
+
+
+
+
+想听月灵姐唱歌啊。还不播<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  藤宮はすみ  
+##### 20739#       发表于 2020-12-6 00:55
+
+
+
+
+唱歌有感情这种东西太主观了，不都是靠自我感动嘛。
+
+
+
+
+
+
+
+-----
+
+####  Tierrrrr  
+##### 20740#       发表于 2020-12-6 01:07
+
+
+
+
+那倒不完全是  客观上的感情是存在的  只是像有人说什么迪玛希唱歌没感情那种感情就是玄学了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20741#       发表于 2020-12-6 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623918&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-6 00:34</a>
+等会，真有工商其实没给多少钱的说法么。。。？</blockquote>
+和工商收入有关的我只知道一个德龙说的工商收入在几千~几十万（日元）这个范围，至于这给的算多还是算少，德龙能接到的工商价格是高还是低，mhy是不是人傻钱多会拿出远超行业标准的工商报价，这些问题就自由心证吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20742#       发表于 2020-12-6 01:24
+
+
+
+ 本帖最后由 katern 于 2020-12-6 01:28 编辑 
+
+歌声里的“感情”外行人又听不明白的，大部分感觉都是通过声调的变化和唱法感受的，有多少感情不一定听得出来，但没感情还是挺容易判断的
+
+syl  以前听说国内二次元工商普遍给的很低，不知道是不是真的
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 20743#       发表于 2020-12-6 01:26
+
+
+
+
+唱歌有感情大概是指能调动听众的情绪吧，比如 可能否 比起木小雅的我就是更喜欢面筋哥的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20744#       发表于 2020-12-6 01:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 4ID不是说过国内的价格么？你虹没B数漫天要价，木口按订阅算钱，
+
+
+JP那边估计也是按人气、订阅算的，你虹有没有B数就另说了，
+
+
+
+
+
+
+
+
+-----
+
+####  藤宮はすみ  
+##### 20745#       发表于 2020-12-6 01:33
+
+
+
+
+你们说的感情说不定就只是一种演唱技巧。但是这种东西现场听听还行，但混音过后又能留下多少，除非是故意追求这种效果，不然不都要给修掉吗。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20746#       发表于 2020-12-6 01:39
+
+
+
+
+上学的时候语文老师总让声情并茂感情充沛的朗读课文......咬字发声的抑扬顿挫，强弱轻重就是感情的一部分了
+
+每个人表达的方式不一样，有的人就更喜欢表达感情含而不露一点
+
+
+春猿火今天的歌，话说人家在B站有官号的，我要是发B是不是不太好...
+
+
+20:19開始
+
+22:39Twig/大沼パセリ
+
+26:01colors/大沼パセリ
+
+29:56トーク
+
+31:32ミュージック/Guiano
+
+34:40死んでしまったのだろうか/Guiano
+
+38:04トーク
+
+39:39最後の晩餐/misumi
+
+43:19君の神様になりたい/カンザキイオリ
+
+48:22トークとお水タイム
+
+50:26ピロウトーク/理芽
+
+54:06糸/花譜
+
+58:00CU LT/DUSTSEEL
+
+1:01:11トーク
+
+1:03:17腐りきった人生だ。/たかやん
+
+1:07:24iのアンサー/春猿火
+
+1:09:14トークと10分休憩
+
+1:24:23Mela！/緑黄色社会
+
+1:28:49caffein/秋山黄色
+
+1:32:59トークとお水タイム
+
+1:34:48CITI/ぼくのりりっくのぼうよみ
+
+1:38:17snow jam/rin音
+
+1:41:24開戦前夜/あっこごりら
+
+1:44:26トーク
+
+1:46:23藍二乗/ヨルシカ
+
+1:50:33たぶん/YOASOBI
+
+1:54:55トーク
+
+1:56:39C.h.a.o.s.m.y.t.h/ＯＮＥ OK ＲＯＣＫ
+
+2:02:02告げ口/春猿火
+
+2:06:02トークお水タイム
+
+2:08:50理芽ちゃん
+
+2:13:17ずるいね(feat理芽)/chelmico
+
+2:17:15トーク
+
+2:21:27エンドロール 夢の中/くるり
+
+2:26:52台風の目 予告
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 20747#       发表于 2020-12-6 01:40
+
+
+
+
+中岛美嘉15年一了百了的现场算不算是感情拉满
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20748#       发表于 2020-12-6 01:48
+
+
+
+ 本帖最后由 ShuTk4O 于 2020-12-6 01:50 编辑 
+
+反正本外行说感情的时候主要是指强弱和节奏上的变化。“感情”这个词太抽象的话，也可以叫“韵律”。
+hachi的歌各段之间会稍微有点变化，但是变化幅度不是很大。同一个小节里，则是每个字的强弱、长度都差不多，就很棒读的感觉
+---
+wiki:
+在语言学，韵律（英语：prosody）指的是讲话的过程中非独立音段（元音和辅音）的成分，即音节或更大单位的性质。这些性质形成语调、声调、重读和节奏等语言功能。韵律可以反映出说话者或话语的多种特征：说话者的感情状态、话语的形式（陈述、疑问还是命令）、是否存在反讽或挖苦、强调、对比、焦点，以及其他无法由语法和词汇表达来编码的语言元素。 
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 20749#       发表于 2020-12-6 01:49
+
+
+
+
+以前垃圾圆脸在B也有官号，免费也没觉得有啥不太好
+
+
+
+
+
+
+
+-----
+
+####  Tierrrrr  
+##### 20750#       发表于 2020-12-6 01:53
+
+
+
+
+举个直观的例子
+
+rolling in the deep这首歌 linkin park主唱CC在现场演绎蛮精彩的，能带动起观众的情绪
+
+但是adele的album version，从演唱的角度感情也是丰富的
+
+这两种感情我觉得前者是更加主观的，后者是更加客观的
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 20751#       发表于 2020-12-6 02:04
+
+
+
+ 本帖最后由 TiHaru 于 2020-12-6 02:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">声乐还有语言表演想要演绎感情，不是天才或者没个十几年功力行个jb，不zqsg立马就被看穿了
+
+
+学一下怎么丰富想象力和作品共情比整天抠几个音节抑扬顿挫靠谱得多
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 20752#       发表于 2020-12-6 02:07
+
+
+
+
+没去系统了解的话，听歌纯粹出于感官而已
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 20753#       发表于 2020-12-6 02:10
+
+
+
+
+我本来是想看看apex的 结果一进大猩猩直播间就看见他在唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
