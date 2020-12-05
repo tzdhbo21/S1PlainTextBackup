@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-05 16:08** 
+> ## **本文件最后更新于2020-12-05 20:08** 
 
 
 
@@ -21833,4 +21833,841 @@ Hololive ...</blockquote>
 
 
 
-            
+
+
+-----
+
+####  smy20011  
+##### 20620#       发表于 2020-12-5 16:45
+
+
+
+
+AME: 帮火鸡剪片头，帮鲨鱼装采集卡
+
+
+HOLO一个人当两个人用啊
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20621#       发表于 2020-12-5 16:50
+
+
+
+
+holoen再招个几期怕不是自己都能成立公司了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 20622#       发表于 2020-12-5 16:52
+
+
+
+
+ina画画，ame剪辑和负责设备，火鸡教日语，死神出歌，鲨皇负责carry<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20623#       发表于 2020-12-5 17:06
+
+
+
+
+彩虹mc大赛开了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 20624#       发表于 2020-12-5 17:38
+
+
+
+
+阿喵喵 一骑绝尘
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20625#       发表于 2020-12-5 17:51
+
+
+
+ 本帖最后由 Hemis 于 2020-12-5 17:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到holoen不鸟分社  
+
+类似segay英国与segay日本的关系
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20626#       发表于 2020-12-5 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 明天椎名战双案件，
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20627#       发表于 2020-12-5 18:30
+
+
+
+
+2000是转推了么，西西浓度好高
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20628#       发表于 2020-12-5 18:33
+
+
+
+
+出差住店打开电视就是歌姬给元气森林的广告，真的好起来了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20629#       发表于 2020-12-5 18:35
+
+
+
+
+好奇这个pekora杯算是啥意思，不会真要由她来组社内马车杯吧，虽然的确是说了挺长时间的...
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/183521zm5ebp02e6ocpwe6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201205_183348.jpg</strong> (260.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 18:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20630#       发表于 2020-12-5 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49620627&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-5 18:35</a>
+
+好奇这个pekora杯算是啥意思，不会真要由她来组社内马车杯吧，虽然的确是说了挺长时间的...
+
+ ...</blockquote>
+就是观众参加型，往以前的配信翻就知道了，比如这个2019年最后的ぺこら杯
+[https://twitter.com/usadapekora/status/1211623375358947328](https://twitter.com/usadapekora/status/1211623375358947328)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20631#       发表于 2020-12-5 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49617055&amp;ptid=1969498" target="_blank">Kanchiki 发表于 2020-12-5 11:49</a>
+
+カタオモイ确实阿希那版比较有味道……
+
+大概是唱出了……届不到的真情实感？ ...</blockquote>
+大胆一点，唱给夸夸的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 20632#       发表于 2020-12-5 18:43
+
+
+
+
+什么，天皇现在指时乃空了？
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 20633#       发表于 2020-12-5 18:48
+
+
+
+
+不可能吧，这还能换的？不是说好的万世一系吗？
+
+就算改朝换代也只能称Hololive幕府将军。。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20634#       发表于 2020-12-5 18:56
+
+
+
+
+天皇和亲分一样本来就看语境使用。
+
+syl マイクラ腕試し にじさんじ杯 找个窗随便看看好像还蛮有意思的 有没有楼友能让我云下基本的规则和组织形式
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 20635#       发表于 2020-12-5 18:59
+
+
+
+
+明治都认南朝天皇为正统了，祖宗费拉不堪，不是正统<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+时乃空就是后龟山天皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20636#       发表于 2020-12-5 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战双好像在日本人气还不错，我看日服刚开服俩天推特就有10.7w关注了，看官推上pv画风还挺不错的，有机会成为下一款在日本火爆的中国手游吗  ？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 20637#       发表于 2020-12-5 19:12
+
+
+
+
+hololive： 希望不会
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20638#       发表于 2020-12-5 19:13
+
+
+
+
+就算火了也不会让FH主播玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20639#       发表于 2020-12-5 19:16
+
+
+
+
+就算战双没🔥，中国手游在日本爆款越来越多也是趋势，fh会社一边去酸就完事了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20640#       发表于 2020-12-5 19:20
+
+
+
+[https://www.youtube.com/watch?v=yz3fTxlPx5s](https://www.youtube.com/watch?v=yz3fTxlPx5s)
+
+春猿火 STREAMING COVER LIVE「シュークリームライブ」
+
+
+不知道留不留档
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20641#       发表于 2020-12-5 19:22
+
+
+
+
+那你日的手游公司都是些什么gree，gumi这种货色，游戏大厂做手游也是se，sega这种货色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20642#       发表于 2020-12-5 19:23
+
+
+
+
+应该是删档的，不知道有没有精锐韩国人盗录
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20643#       发表于 2020-12-5 19:23
+
+
+
+
+无论哪个天皇都rh就是了。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20644#       发表于 2020-12-5 19:24
+
+
+
+
+holo还有强无敌的白皮订阅和本土sc，中国工商也没什么大不了的。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20645#       发表于 2020-12-5 19:26
+
+
+
+
+原神工商都抵你holo一个月sc了，这还不够吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 20646#       发表于 2020-12-5 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">今晚八点b站大主播都挤一块播，监控室大爷mode on
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20647#       发表于 2020-12-5 19:29
+
+
+
+
+新八字母啥都好，唯一的问题就是白皮烂梗刷屏比较烦
+
+
+syl 没有授权和工商你呆就等着慢性死亡吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20648#       发表于 2020-12-5 19:30
+
+
+
+
+原神工商价格已经披露了？还是nga懂哥的消息？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20649#       发表于 2020-12-5 19:31
+
+
+
+ 本帖最后由 空集 于 2020-12-5 19:32 编辑 
+
+当然是nga懂哥的梗
+
+syl nga的新精神胜利版本已经是  工商最近太多显示是急了   拿版权是亏钱拿版权拿的越多越快破产  不得不说永远赢
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20650#       发表于 2020-12-5 19:33
+
+
+
+
+别尬黑，mhy给金憨憨打的钱太多都把她吓到了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20651#       发表于 2020-12-5 19:33
+
+
+
+
+当初舔久点，这笔钱就是蠢坏双雄的了，不过这种偶然必然的东西也没什么好假设的。现在我只希望holo爆炸时烟花能大一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 20652#       发表于 2020-12-5 19:35
+
+
+
+
+同接和订阅搁那摆着怎么可能没工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20653#       发表于 2020-12-5 19:37
+
+
+
+
+分社3d问题无限拖是目前最有可能看烟花的，本社的话看tskk搞不搞事了，其他人感觉无论怎么样都只会继续苟着播了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20654#       发表于 2020-12-5 19:37
+
+
+
+
+接不到工商不现实，最多就是天朝手游和几个特别重视天朝市场的游戏厂商的工商基本不可能接到了而已<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 20655#       发表于 2020-12-5 19:45
+
+
+
+
+holo主播再不济也是个稳定收入，在家里坐着插科打诨不比冒感染风险去刷盘子当服务员爽
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20656#       发表于 2020-12-5 19:50
+
+
+
+
+tskk还能搞什么事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 20657#       发表于 2020-12-5 19:51
+
+
+
+
+tskk好像到现在都没能和en联动过？
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 20658#       发表于 2020-12-5 19:57
+
+
+
+
+到了第四年惊天逆转
+
+大TOP大脸猫进入地狱开始无限卖店
+
+48虐绝好调第四年第一次进站
+
+
+所以桃铁要好看，就要放得开，还是越熟越好
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20659#       发表于 2020-12-5 19:58
+
+
+
+
+至少tskk在sc上还是无敌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20660#       发表于 2020-12-5 19:59
+
+
+
+
+买的sc算什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 20661#       发表于 2020-12-5 19:59
+
+
+
+
+马车同接毒药？兔皇播都只有2万5
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20662#       发表于 2020-12-5 19:59
+
+
+
+
+因为太困所以展露出病娇本性的郡道概念推します<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20663#       发表于 2020-12-5 20:01
+
+
+
+[https://www.youtube.com/watch?v=b3f1nBZlpTE](https://www.youtube.com/watch?v=b3f1nBZlpTE)
+
+垃圾圆脸和azki的live要再放送了，有人看吗，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20664#       发表于 2020-12-5 20:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">飞鸟P搞这么大阵仗，现在又搞饮酒ASMR。哦，是开门限定变化。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20665#       发表于 2020-12-5 20:07
+
+
+
+
+男だらけのAmongUs #にじさんじAmonGUYs 
+
+
+葛葉
+
+
+叶
+[https://www.youtube.com/watch?v=AZUeOoTvxAU](https://www.youtube.com/watch?v=AZUeOoTvxAU)
+
+三枝明那
+[https://www.youtube.com/watch?v=Gbf7IGahUA8&amp;feature=youtu.be](https://www.youtube.com/watch?v=Gbf7IGahUA8&amp;feature=youtu.be)
+
+エクス・アルビオ
+[https://www.youtube.com/watch?v=n2rF8omLDGk&amp;feature=youtu.be](https://www.youtube.com/watch?v=n2rF8omLDGk&amp;feature=youtu.be)
+
+加賀美ハヤト
+[https://www.youtube.com/watch?v=bdMa4G9KFpU](https://www.youtube.com/watch?v=bdMa4G9KFpU)
+
+黛灰
+[https://www.youtube.com/watch?v=ivcPFLvdrA8](https://www.youtube.com/watch?v=ivcPFLvdrA8)
+
+不破湊
+[https://www.youtube.com/watch?v=9LdRjSNvmO8](https://www.youtube.com/watch?v=9LdRjSNvmO8)
+
+イブラヒム
+[https://www.youtube.com/watch?v=Feoo1RrN8HI&amp;feature=youtu.be](https://www.youtube.com/watch?v=Feoo1RrN8HI&amp;feature=youtu.be)
+
+甲斐田晴
+[https://www.youtube.com/watch?v=ekJq8h5Wck0](https://www.youtube.com/watch?v=ekJq8h5Wck0)
+
+
+
+
+
+           
