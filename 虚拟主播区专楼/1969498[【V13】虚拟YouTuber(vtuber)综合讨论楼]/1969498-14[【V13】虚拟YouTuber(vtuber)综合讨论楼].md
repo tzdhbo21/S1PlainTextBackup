@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-06 16:11** 
+> ## **本文件最后更新于2020-12-06 20:11** 
 
 
 
@@ -25068,6 +25068,25 @@ karory准备画皮受肉</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tankai| + 1|多谢|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25322,4 +25341,766 @@ AFA Singapore 2020 Online DAY 2 - SUN 6 DEC Broadcast</blockquote>
 
 
 
-      
+
+
+-----
+
+####  AKili  
+##### 20797#       发表于 2020-12-6 16:14
+
+
+
+
+狼的2周年3d已经来了 鸭的2周年3d还不见踪影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 20798#       发表于 2020-12-6 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49628300&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-6 15:05</a>
+
+之前翻出去的石油佬99%都跑路了......夸还算好的吧，那天至少三个cncrew打的红SC，其他杏女肯定都没这待 ...</blockquote>
+不奇怪啊，4v又不看4v自己的管人对底边也不感兴趣，那不自然交米给木口嘛
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20799#       发表于 2020-12-6 16:20
+
+
+
+
+讲道理，翻出去又不是不能用日元打钱了，只看油管统计不可取
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20800#       发表于 2020-12-6 16:27
+
+
+
+
+杏en已经在姐妹黑楼了，宫皇的fnv在哪里
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 20801#       发表于 2020-12-6 16:46
+
+
+
+
+https://b23.tv/yxRZNo
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">叔叔税前抽50%，然后有一定免费提现的限额，超过之后就开始计算个人所得税了。
+
+这里面提现2000，扣除掉不用交税的800，按20%税率，1200×0.2=240
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20802#       发表于 2020-12-6 16:55
+
+
+
+
+这是没签约的扣法吧，不了解行情，叔叔这算高还是低啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20803#       发表于 2020-12-6 16:56
+
+
+
+
+税部分国家规定的，没啥好说的。国内平台抽50%也算是行规了。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 20804#       发表于 2020-12-6 16:58
+
+
+
+
+主要不是之前总有人传叔叔给包税吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 20805#       发表于 2020-12-6 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49629187&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-06 16:55:26</a>
+这是没签约的扣法吧，不了解行情，叔叔这算高还是低啊</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是高啊，不然B站怎么会留不住人，出头就跳槽其他平台，得了个新手村之名
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20806#       发表于 2020-12-6 17:05
+
+
+
+
+尼哥的鬼话你们别瞎信啊，能不能有点mmr巨魔论坛该有的样子。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20807#       发表于 2020-12-6 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49628942&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-6 16:27</a>
+
+杏en已经在姐妹黑楼了，宫皇的fnv在哪里</blockquote>
+当然是以同样的理由和hcn一块消失了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20808#       发表于 2020-12-6 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">nga开始开朵莉丝了，风向还是很一致的指责，我原本以为nga不会开og的。。。。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20809#       发表于 2020-12-6 17:17
+
+
+
+
+逛绿帽坛看到朵利丝的瓜，这操作也太熟练了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/read/cv8692372](https://www.bilibili.com/read/cv8692372)
+
+
+记得绿帽坛还给og买了地，还有爽球，想想还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20810#       发表于 2020-12-6 17:19
+
+
+
+
+税是交给国家的又不是交给叔叔的，哪来什么高还是低的说法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+或者说其他平台不签约不是按偶然所得税算的？
+
+
+
+
+
+
+
+-----
+
+####  DenkiBran  
+##### 20811#       发表于 2020-12-6 17:20
+
+
+
+
+直播撕皮养噶吃，魂号大谈字幕组，本来就是最套皮女主播的那个，能拖到现在才开才是意外<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20812#       发表于 2020-12-6 17:21
+
+
+
+
+鱼人本来就是最女主播的那个
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20813#       发表于 2020-12-6 17:25
+
+
+
+
+wtm今天这涨粉啥情况😯
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20814#       发表于 2020-12-6 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49629499&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-6 17:25</a>
+ wtm今天这涨粉啥情况😯</blockquote>
+60w歌回，holo当前标配操作
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20815#       发表于 2020-12-6 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49629499&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-6 17:25</a>
+
+wtm今天这涨粉啥情况😯</blockquote>
+差7000 粉丝开了60w冲击歌回，最近你杏订阅乞讨有点过分的。
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 20816#       发表于 2020-12-6 17:59
+
+
+
+
+毕竟是前世是开了八次毕业直播的女人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 20817#       发表于 2020-12-6 18:15
+
+
+
+
+这种耐久涨粉到底是什么原理，404的机制路人又看不到直播，难道光靠粉丝到处宣传吗
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20818#       发表于 2020-12-6 18:20
+
+
+
+ 本帖最后由 winda 于 2020-12-6 18:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">nrk推上说可能二动真二动了啊，今天刮的什么风
+
+另外之前一直准备的宝可梦rank好像要被马车挤掉了
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 20819#       发表于 2020-12-6 18:20
+
+
+
+
+大福在战双工商啊，下手这么快的
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 20820#       发表于 2020-12-6 18:22
+
+
+
+
+还地区统计呢 国内流传最广门槛最低的打钱方式就是谷歌play礼品卡
+
+很多人看V之前玩日服手游氪金就都有在用了 打的SC自然都是日元
+
+“SC大头都是日元所以海外SC不存在” ——为什么有的楼友思维竟然和cover在同一个蠢度
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20821#       发表于 2020-12-6 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49630212&amp;ptid=1969498" target="_blank">Kanchiki 发表于 2020-12-6 18:22</a>
+
+还地区统计呢 国内流传最广门槛最低的打钱方式就是谷歌play礼品卡
+
+很多人看V之前玩日服手游氪金就都有在用 ...</blockquote>
+但是事件前后木口sc并没有出现断崖下跌啊，这证明国内占比肯定很小。
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20822#       发表于 2020-12-6 18:35
+
+
+
+
+不合理，不合理，叔叔抽税前50%也太黑了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20823#       发表于 2020-12-6 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">  没人否认冲国crew翻墙打钱的多，但是那些b限都没多少打钱和舰长的你要谈其实很多人翻墙打日元打了很多啥的，我只能说差不多得了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20824#       发表于 2020-12-6 18:36
+
+
+
+
+北京时间8点月灵魂SR直播
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20825#       发表于 2020-12-6 18:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点叔叔倒是没啥黑的吧，听说国内各平台都是抽成这么多来着。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20826#       发表于 2020-12-6 18:46
+
+
+
+
+想打钱的话能打美元不要打日元，前段时间看到日元比美元多出来10%消费税来着
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20827#       发表于 2020-12-6 18:49
+
+
+
+<img src="https://p.sda1.dev/0/899a943b6a14aadfe96ab6d41c3c7585/IMG_CMP_74046.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20828#       发表于 2020-12-6 18:51
+
+
+
+
+大家都是抽50啊，这有什么黑的。
+
+
+syl，楼友要认识到有的人打钱的时候不关心主播到底拿到多少的，所以打日元有消费税跟打美元没有消费税对他们来说没有本质区别<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20829#       发表于 2020-12-6 18:51
+
+
+
+
+叔叔是好人呀，率先抽成50%，逼得其他平台只能跟着一起，不然现在抽成会更高
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20830#       发表于 2020-12-6 18:54
+
+
+
+
+说起来打美元的话税怎么算？查了下美国大部分州也收消费税，是不是油管按照ip所在州代扣？
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20831#       发表于 2020-12-6 18:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无脑加州完事，电子消费税0 
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20832#       发表于 2020-12-6 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">战双也挺有钱的阿，找完椎名，又找了社筑来
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 20833#       发表于 2020-12-6 19:07
+
+
+
+
+楼友打钱的时候关心的是自己打了多少钱还是live能到手多少钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20834#       发表于 2020-12-6 19:11
+
+
+
+
+希望今天的showroom没有龙龙的蜘蛛<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 20835#       发表于 2020-12-6 19:28
+
+
+
+
+y1s1战双初见观赏性是相当高的，但是社筑和西西一个劲抽卡没意思啊，用里子哥刷图不还是挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 20836#       发表于 2020-12-6 19:35
+
+
+
+
+没做功课是这样的，抽完卡，就看看家具小人卡哇伊到下播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  runmanrun  
+##### 20837#       发表于 2020-12-6 19:36
+
+
+
+ 本帖最后由 runmanrun 于 2020-12-6 19:44 编辑 
+
+草，飞鸟p怎么变这样了，忍不住本性暴露了吗，我还是喜欢那个清楚的人设啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+看了会居然有点香，我接受了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，这免费的DL音声
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 20838#       发表于 2020-12-6 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打美元岂不是把liver往白皮推？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 20839#       发表于 2020-12-6 19:41
+
+
+
+
+大福还是有一段用里刷图，很帅的，只不过只不过时间短
+
+虽然打深渊比较手残，但是一用里子哥，大福这比社筑强多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有点怀疑是不是代打
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20840#       发表于 2020-12-6 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻阿希不是都推不动的吗 
+
+怀疑太重了x
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20841#       发表于 2020-12-6 20:07
+
+
+
+ 本帖最后由 caupollen 于 2020-12-6 20:10 编辑 
+
+月灵开了😊
+
+syl 不怎么了解sr，怎么还有两个noir的小人在里面啊
+
+
+
+
+
+     
