@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-06 02:11** 
+> ## **本文件最后更新于2020-12-06 10:09** 
 
 
 
@@ -24435,4 +24435,158 @@ rolling in the deep这首歌 linkin park主唱CC在现场演绎蛮精彩的，�
 
 
 
-        
+
+
+-----
+
+####  好德我基  
+##### 20754#       发表于 2020-12-6 02:13
+
+
+
+
+狐皇输血木口星
+holoen输血木口星
+holoid输血木口星←new！
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 20755#       发表于 2020-12-6 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49624461&amp;ptid=1969498" target="_blank">好德我基 发表于 2020-12-6 02:13</a>
+狐皇输血木口星
+holoen输血木口星
+holoid输血木口星←new！</blockquote>
+<img src="https://p.sda1.dev/0/d68fb316a3d85e3382160b9b80aea2c0/IMG_CMP_116554413.jpeg" referrerpolicy="no-referrer">
+new！
+木口星输出田角
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20756#       发表于 2020-12-6 02:22
+
+
+
+ 本帖最后由 ShuTk4O 于 2020-12-6 02:43 编辑 
+
+编辑掉算了。我一个外行在一个讨论管人的楼里（甚至还不是歌力斗虫楼）一本正经讨论演唱技巧真是太奇怪了
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 20757#       发表于 2020-12-6 02:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49624504&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-6 02:22</a>
+编辑掉算了。我一个外行在一个讨论管人的楼里（甚至还不是歌力斗虫楼）一本正经讨论演唱技巧真是太奇怪了 ...</blockquote>
+表达自己的感情是固有能力没问题，仅这个能力存在的个体差异我们也暂且不论
+
+非本人的作品中出现的情感，用纯粹的韵律去凹是有界限的，非常吃功底，没接受过常年训练的话基本都是弄巧成拙，反而是真情实感能别有一番风味
+
+至于你说的外星人语言，我没听过，但只要有想表达的主题就一定有对应的情感，我觉得不存在无法真情实感的情况
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 20758#       发表于 2020-12-6 03:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49624450&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2020-12-6 02:10</a>
+
+我本来是想看看apex的 结果一进大猩猩直播间就看见他在唱歌</blockquote>
+我刚刚想发和你一样的内容<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也就是说他已经唱了一个小时了？
+
+
+
+
+
+
+
+-----
+
+####  长短音  
+##### 20759#       发表于 2020-12-6 03:34
+
+
+
+
+不太懂hachi的状态，她好像是缺团队支持
+
+
+好像有些问题她自己发现不了，即使发现了自己也没法解决
+
+
+像HH那样比较好。有人分工协作、互相补充，作品就能有文化，表演中也能藏拙
+
+
+如果解决不了这个，那她武道馆的梦想是有点高了吧
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20760#       发表于 2020-12-6 10:05
+
+
+
+
+鲨皇健身环<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20761#       发表于 2020-12-6 10:08
+
+
+
+
+鲨鲨小短腿i了i了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+       
