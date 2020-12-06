@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-06 00:18** 
+> ## **本文件最后更新于2020-12-06 12:15** 
 
 
 
@@ -25301,6 +25301,416 @@ lol有几段节目效果不错的 最近估计是为了避节奏 开的都是歌
 
 
 羊腿羊腿羊腿<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4478#       发表于 2020-12-6 00:35
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-12-6 01:35 编辑 
+
+因为她昨天唱了バラライカ所以去阿B搜了久住小春的原版，下面有gibara的札幌公演版，点进去看到挥着荧光棒的观众又想到BLS忽然有心肺停止的感觉
+估计这症状要持续到她下次线下live之前了
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 4479#       发表于 2020-12-6 00:40
+
+
+
+
+今天要考n1了，小麻保佑我上130<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4480#       发表于 2020-12-6 00:43
+
+
+
+
+还会有线下live嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4481#       发表于 2020-12-6 00:49
+
+
+
+
+时间长着呢，等呗
+
+都说她年轻能熬死一群姨，只要我不被她熬死就能等到线下live
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 4482#       发表于 2020-12-6 00:55
+
+
+
+
+以她对线下live的执念,自己掏钱估计也会办的,等着就行了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4483#       发表于 2020-12-6 00:59
+
+
+
+
+能直播心态没啥问题那无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4484#       发表于 2020-12-6 01:10
+
+
+
+
+啊 刚刚看她说自己想被催眠的那段熟肉 突然觉得这人要是直播鉴赏各种AV一定很有意思
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4485#       发表于 2020-12-6 01:23
+
+
+
+
+直播观看观众发来的催眠视频 结果混入了真正的大师作品然后变成直播发情现场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|笔给你，gkd|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4486#       发表于 2020-12-6 01:47
+
+
+
+
+啊 比起催眠她更想被她催眠
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 4487#       发表于 2020-12-6 02:07
+
+
+
+
+你什么时候产生了没有被她催眠的错觉
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4488#       发表于 2020-12-6 09:30
+
+
+
+
+飞狗好急啊，让他那个crew基友调一个再发不好么？上次的言って。也是，明明去年1118那次纯钢琴的更好一点
+
+                       
+
+哦，组里没人了呀，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4489#       发表于 2020-12-6 10:16
+
+
+
+
+之前不调音直接发的时候还有人夸这样有时效性没必要等调音再发来着
+
+另外言って。最好的版本是18.11.14
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4490#       发表于 2020-12-6 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49622955&amp;ptid=1973472" target="_blank">路人庚 发表于 2020-12-5 22:39</a>
+
+梦追不是很熟，有女性cp吗？</blockquote>
+翔哥的女性cp难道不就是星川吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+绿仙跟苔苔都不是女性，而且也不怎么有cp感（x
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4491#       发表于 2020-12-6 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49625798&amp;ptid=1973472" target="_blank">proxima 发表于 2020-12-6 10:45</a>
+
+翔哥的女性cp难道不就是星川吗
+
+绿仙跟苔苔都不是女性，而且也不怎么有cp感（x
+
+ ...</blockquote>
+原来如此，那今天大概无事发生了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4492#       发表于 2020-12-6 11:16
+
+
+
+
+没有<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">吗(失望
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4493#       发表于 2020-12-6 11:26
+
+
+
+
+醒醒，倪哥圣诞直播间还没关呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+真就开一年我没想到的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4494#       发表于 2020-12-6 11:29
+
+
+
+
+话说 倪哥不是有现实老婆吗 圣诞不陪老婆却跑去和未成年小姑娘直播玩 不太好吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4495#       发表于 2020-12-6 11:31
+
+
+
+
+这就是专业vtuber啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4496#       发表于 2020-12-6 11:34
+
+
+
+
+miu名言记于心<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4497#       发表于 2020-12-6 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这节奏不太对阿
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4498#       发表于 2020-12-6 11:36
+
+
+
+
+说不定那个所谓的圭利儿子是假的 其实那就是小小麻 照片不是圭利给小麻看而是小麻发去给圭利看 让人以为那个是圭利的儿子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4499#       发表于 2020-12-6 11:40
+
+
+
+
+冒菜病毒什么时候在你楼开始蔓延的
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4500#       发表于 2020-12-6 11:42
+
+
+
+
+现在弱智gachi都不动了 这群弱智冒菜民不就冒出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
