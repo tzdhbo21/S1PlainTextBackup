@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-06 20:11** 
+> ## **本文件最后更新于2020-12-07 00:08** 
 
 
 
@@ -26103,4 +26103,1607 @@ syl 不怎么了解sr，怎么还有两个noir的小人在里面啊
 
 
 
-     
+
+
+-----
+
+####  Ronso  
+##### 20842#       发表于 2020-12-6 20:17
+
+
+
+
+干，错过月灵姐姐直播了，今天sr开色相头吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 20843#       发表于 2020-12-6 20:21
+
+
+
+[https://www.bilibili.com/video/BV1KX4y1u7T8](https://www.bilibili.com/video/BV1KX4y1u7T8)
+
+刚刚看隔壁推的一个showroom樱花妹，我还第一次看见v能唱野子这首歌，而且唱的还相当不错
+
+我感觉这歌的咬字不少国人都不太唱的明白
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 20844#       发表于 2020-12-6 20:31
+
+
+
+
+露露又打只狼了！刚好可以看了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20845#       发表于 2020-12-6 20:32
+
+
+
+ 本帖最后由 caupollen 于 2020-12-6 20:36 编辑 
+
+怎么有国人发韩语，麻了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20846#       发表于 2020-12-6 20:35
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-6 20:37 编辑 
+
+不要韩语不要韩语学习！
+
+syl，这草莓说得也太可爱了叭<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20847#       发表于 2020-12-6 20:35
+
+
+
+
+tc豪华阵容
+
+
+<img src="https://img.saraba1st.com/forum/202012/06/203552z1yybncvv11brqr7.png" referrerpolicy="no-referrer">
+
+
+<strong>c1dbfe52ea5b588366432573e5d4344211b39489.png@1036w.png</strong> (476.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 20:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 20848#       发表于 2020-12-6 20:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">月灵姐姐声音真好听
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20849#       发表于 2020-12-6 20:39
+
+
+
+
+古守怎么还播老号的，不是在阿批赚疯了吗...
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20850#       发表于 2020-12-6 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">韩语，合理怀疑是2000小号
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20851#       发表于 2020-12-6 20:41
+
+
+
+
+光速下播……为什么，为什么不能再播一会
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20852#       发表于 2020-12-6 20:41
+
+
+
+
+信息量好大的一天<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">，
+ina学新软件学得人没了，
+郡道回家t台直播，还没听不知道会不会有郡道妈，
+鸣神裁开郡道，不是很喜欢这位而且也估计没什么新信息就不看了，
+inui的live相关信息直播（正在播），
+一会儿郡道继续播还有小琥珀做45分钟休15分钟jk/jd感溢出的作业直播，
+充实<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20853#       发表于 2020-12-6 20:45
+
+
+
+
+拟音笑得肚子痛
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20854#       发表于 2020-12-6 20:55
+
+
+
+
+这几个拟声里就兔子的还算有点头绪，其他完全没听懂为什么会是这答案...
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20855#       发表于 2020-12-6 20:56
+
+
+
+
+提前看答案倒是能明白为什么这么模仿……
+
+完全反过来理解不了，这就是日语吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20856#       发表于 2020-12-6 21:00
+
+
+
+
+towa这活整得太好玩了
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20857#       发表于 2020-12-6 21:15
+
+
+
+
+孔雀这live2d可动性好强
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 20858#       发表于 2020-12-6 21:18
+
+
+
+
+这事之后猴楼浓度明显降低了 都是好事.jpg
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20859#       发表于 2020-12-6 21:21
+
+
+
+
+孔雀喜欢GTO和another……有意思
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20860#       发表于 2020-12-6 21:22
+
+
+
+
+喜欢bangdream d4dj 少歌的曲子
+
+好，你是武士道厨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 20861#       发表于 2020-12-6 21:23
+
+
+
+
+id二期人均三语<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 20862#       发表于 2020-12-6 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49630371&amp;ptid=1969498" target="_blank">fghc_h 发表于 2020-12-6 18:35</a>
+不合理，不合理，叔叔抽税前50%也太黑了</blockquote>
+B站的税前只是个人所得税前，起码什么增值税消费税是没有的，油管应该这些都不包，看各地政策吧
+
+
+算下来差距应该没有20%
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20863#       发表于 2020-12-6 21:28
+
+
+
+
+喷了，才发现pochi开了个窗同时视听孔雀出道，还有4千多同接
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20864#       发表于 2020-12-6 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位的趣味看着就不会比船长年轻  
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20865#       发表于 2020-12-6 21:30
+
+
+
+
+她那个song produce是什么意思……
+
+旁边是bgm提供我倒是能理解……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20866#       发表于 2020-12-6 21:32
+
+
+
+
+那么Reine和Kiara谁才是真火鸡
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 20867#       发表于 2020-12-6 21:35
+
+
+
+
+啊。。今天肝游戏错过灵儿姐直播<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20868#       发表于 2020-12-6 21:37
+
+
+
+
+ID这三张都是哪里找的，JP支社文化水平全社垫底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 20869#       发表于 2020-12-6 21:38
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glegrq1m5pj20r807ijxo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20870#       发表于 2020-12-6 21:43
+
+
+
+
+这个姨味我有点喜欢，就是印尼语还听不太惯<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20871#       发表于 2020-12-6 21:47
+
+
+
+
+确实，这声线和皮很搭，很有姨味，可惜听不太懂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 20872#       发表于 2020-12-6 21:56
+
+
+
+
+你综被隔壁潭开团了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20873#       发表于 2020-12-6 21:57
+
+
+
+
+果然是已经有一首原创曲了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20874#       发表于 2020-12-6 22:01
+
+
+
+
+不说技能搭配，这个出道配信很有446和鲨皇的节奏感，突出一个游刃有余。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20875#       发表于 2020-12-6 22:02
+
+
+
+
+时间控制的比前两个好，前两个都超时了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 20876#       发表于 2020-12-6 22:07
+
+
+
+
+开什么团啊？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20877#       发表于 2020-12-6 22:09
+
+
+
+
+隔壁说你综在路灯上跳舞的杏奴太多
+请好自为之<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20878#       发表于 2020-12-6 22:10
+
+
+
+
+原来孔雀老妈是你妈平A风怒带顺劈的画师，这ID的妈也都可以了。你杏在找妈身上倒是舍得花钱，下一轮杏星抽卡直接找三轮士郎吧，立刻就好起来了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20879#       发表于 2020-12-6 22:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/06/221310h6myhb96ezjmebsf.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20201206221303.png</strong> (662.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 22:13 上传
+
+
+
+
+
+
+
+446：你好~
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20880#       发表于 2020-12-6 22:14
+
+
+
+ 本帖最后由 katern 于 2020-12-6 22:18 编辑 
+
+饭田妈就在旁边播呢，等一个联动呗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+syl s1和尼哥坛69喂屎又不是一天两天了，不该早就习惯了吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20881#       发表于 2020-12-6 22:15
+
+
+
+ 本帖最后由 admentus 于 2020-12-6 22:21 编辑 
+
+那帖里有一万甚至九千的s1管人粉在钓鱼，proxima id大 大得摆在那，你综要是真能被这种东西钓到还转回来讨论那就真的泥哥不如，太丢人了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20882#       发表于 2020-12-6 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">能不能找雷太画杏星。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20883#       发表于 2020-12-6 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  和皮真的有关么  ，我觉得还是和木口还是彩虹关系更大。
+
+syl  今天船久违的歌单是老歌  
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20884#       发表于 2020-12-6 22:21
+
+
+
+ 本帖最后由 空集 于 2020-12-6 22:22 编辑 
+
+久违的风怒 那就顺便说下吧 现在你木口新人ID  出道人均畅想3D 我觉得cover如果脑瘫到真的完全不考虑这些发展非常挺好的分社的3D 那真的是傻逼到极限了。。。我觉得砸钱弄个简陋棚都是值得的。
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 20885#       发表于 2020-12-6 22:22
+
+
+
+
+泥哥这个天才般的称呼到底是哪里发明的，v8还s1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20886#       发表于 2020-12-6 22:23
+
+
+
+
+光把这帮画师捆进holo的战车……。
+
+不对阿，为什么ip营销这么熟练的。
+
+实际运营和ip营销的差距也太大了吧，
+
+营销部门怕不是想杀了这批傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20887#       发表于 2020-12-6 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632665&amp;ptid=1969498" target="_blank">斯大林的拖拉机 发表于 2020-12-6 22:22</a>
+
+泥哥这个天才般的称呼到底是哪里发明的，v8还s1</blockquote>
+我最早看见是在v8。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20888#       发表于 2020-12-6 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632673&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-6 22:23</a>
+
+光把这帮画师捆进holo的战车……。
+
+不对阿，为什么ip营销这么熟练的。
+
+实际运营和ip营销的差距也太大了吧， ...</blockquote>
+画师collection这种东西手游不早干了，又不是啥新玩意儿
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 20889#       发表于 2020-12-6 22:26
+
+
+
+ 本帖最后由 sher1ock 于 2020-12-6 23:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632665&amp;ptid=1969498" target="_blank">斯大林的拖拉机 发表于 2020-12-6 22:22</a>
+
+泥哥这个天才般的称呼到底是哪里发明的，v8还s1</blockquote>
+。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20890#       发表于 2020-12-6 22:26
+
+
+
+
+久违的看了会446的直播，真就是退休老太栽花种菜，非常能让人心绪平静，还是那个holo最自由的女人。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20891#       发表于 2020-12-6 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632688&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-6 22:25</a>
+
+画师collection这种东西手游不早干了，又不是啥新玩意儿</blockquote>
+holo现在出道直播一鱼多吃的水平和她们其他纪念回完全不是一个水平这你总看得出来吧？
+
+要说holo现在最商业化的地方恐怕就是这个出道环节了……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20892#       发表于 2020-12-6 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632673&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-6 22:23</a>
+
+光把这帮画师捆进holo的战车……。
+
+不对阿，为什么ip营销这么熟练的。
+
+实际运营和ip营销的差距也太大了吧， ...</blockquote>
+苔总就说过了，这波营销是双向的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+能在首播十万人面前介绍自己对画师来说就不是好处了吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20893#       发表于 2020-12-6 22:34
+
+
+
+
+鲨皇一天两动，我宣布跌落神坛了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20894#       发表于 2020-12-6 22:34
+
+
+
+
+金憨憨原神转播24.5w人气了，虹真的不考虑让金憨憨特攻一下吗？感觉很有潜力成为虹在cn新的头牌。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20895#       发表于 2020-12-6 22:41
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/06/223750ic7v62as73qmv7kk.png" referrerpolicy="no-referrer">
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  望月のあ推し  
+##### 20896#       发表于 2020-12-6 22:41
+
+
+
+
+没意思，这就锁隐了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20897#       发表于 2020-12-6 22:41
+
+
+
+ 本帖最后由 NBXX 于 2020-12-6 22:45 编辑 
+
+[https://twitter.com/HiinaTenshouin/status/1335589914721669123](https://twitter.com/HiinaTenshouin/status/1335589914721669123) <blockquote>【🦋重大発表🌟】
+
+
+オナ活サークル始動！！
+
+ひいなのリア友がPinkPunkProから
+
+ついにVtuberデビューします`(    °꒳°    )´
+
+
+天翔院ひいな🦋🌟（膣爆リーダー）
+
+瑠璃川えみり💍🎀（性欲モンスター）
+
+園原あいり💛🍒（バブみ系ギャル）
+
+
+パワーオナガールズ！！
+
+応援よろしくお願いします💙💜💛</blockquote>
+PinkPunkPro的两位新人。
+[https://twitter.com/EmiriRurikawa](https://twitter.com/EmiriRurikawa)
+
+瑠璃川えみり ← 性欲モンスター
+
+<img src="https://img.saraba1st.com/forum/202012/06/224053jav7yh786a2ahogi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eoj20w-VQAAtAsw.jpg</strong> (122.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 22:40 上传
+
+
+
+
+
+[https://twitter.com/AiriSonohara](https://twitter.com/AiriSonohara)
+
+園原あいり ← バブみ系ギャル
+
+<img src="https://img.saraba1st.com/forum/202012/06/224150amvdjze06066wjug.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eoj2rTgUwAIkvpK.jpg</strong> (237.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 22:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 20898#       发表于 2020-12-6 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632847&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-6 22:41</a>
+PinkPunkPro的两位新人。
+
+https://twitter.com/EmiriRurikawa
+
+瑠璃川えみり ← 性欲モンスター</blockquote>
+艾莉好援哦
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20899#       发表于 2020-12-6 22:44
+
+
+
+
+
+都已经联动播过一次了，还会深夜突击开次单人回，她真好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/06/224318zc7ux6ludnn7n5e8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4219.jpg</strong> (49.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 22:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 20900#       发表于 2020-12-6 22:45
+
+
+
+
+你虹运营但凡当初上心一点都不至于让杏躺着收租<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20901#       发表于 2020-12-6 22:46
+
+
+
+
+彩虹现在开始舔mhy还有机会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  藤宮はすみ  
+##### 20902#       发表于 2020-12-6 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632847&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-6 22:41</a>
+
+https://twitter.com/HiinaTenshouin/status/1335589914721669123
+
+
+PinkPunkPro的两位新人。</blockquote>
+ギャル都长一个样
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20903#       发表于 2020-12-6 22:49
+
+
+
+
+现在虹杏在本土都搞不出第二个3d棚，哪里有钱管海外的，反正en都是高收入自己买一个应该是可以的吧
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20904#       发表于 2020-12-6 22:52
+
+
+
+ 本帖最后由 admentus 于 2020-12-6 22:55 编辑 
+
+3d棚这种东西可以临时租吗？可以的话没必要弄吧，地理位置不在日本的也没几个
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20905#       发表于 2020-12-6 22:54
+
+
+
+
+今天是整活日吗，狗子这又是在整什么活……
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 20906#       发表于 2020-12-6 23:05
+
+
+
+
+当然可以租啊，为什么一定要给en买棚子
+
+使用频率/概率、场地、设备、人员……肯定不是1开头的七位人民币起算吧，还有源源不断后续投入
+
+目前怎么看都不可能划算
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20907#       发表于 2020-12-6 23:17
+
+
+
+
+又是lv30，还是睡醒第二天，这么拼的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天城サリー  
+##### 20908#       发表于 2020-12-6 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49626351&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2020-12-6 11:59</a>
+
+雪花 ラミィ 直播多asmr水平非常一般但是深白也不怎么样，如果对不上眼让阳光虹人给你推下 ...</blockquote>
+可能是深白的睡眠导入熟肉更新得快吧，所以看得比较多 其他vtb还不了解
+
+
+
+
+
+
+
+-----
+
+####  天城サリー  
+##### 20909#       发表于 2020-12-6 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49626798&amp;ptid=1969498" target="_blank">proxima 发表于 2020-12-6 12:40</a>
+
+当然是周防帕特拉
+
+
+单说asmr的话彩虹害得小熊猫，不过她平时都在打枪 ...</blockquote>
+ptara找了几个听了一下 是挺高质量的
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 20910#       发表于 2020-12-6 23:21
+
+
+
+ 本帖最后由 fghc_h 于 2020-12-6 23:23 编辑 
+
+今晚是大乱斗的日子，鲨皇最强
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 20911#       发表于 2020-12-6 23:22
+
+
+
+
+鲨皇直播中文浓度**提高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20912#       发表于 2020-12-6 23:22
+
+
+
+
+原来奥数还需要熟肉的吗，想了想可能是倾向不太一样
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20913#       发表于 2020-12-6 23:23
+
+
+
+
+这个时间点木口大撞车啊，夸船兔鲨都在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 20914#       发表于 2020-12-6 23:23
+
+
+
+
+目标: 三语(加少数小语种)直播间
+
+
+
+
+
+
+
+-----
+
+####  天城サリー  
+##### 20915#       发表于 2020-12-6 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49627527&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-6 13:44</a>
+
+我想知道清楚的定义是啥，做asmr也可以算清楚吗</blockquote>
+不是说深白是noripro里面的清楚担当吗？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 20916#       发表于 2020-12-6 23:30
+
+
+
+
+之前b站有各种holo的asmr的熟肉，又不是剧情向的，也不是r18，费力烤这个我实在是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20917#       发表于 2020-12-6 23:30
+
+
+
+
+是mc赢了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20918#       发表于 2020-12-6 23:31
+
+
+
+
+ID要是不分流，那必然是鲨皇的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20919#       发表于 2020-12-6 23:32
+
+
+
+
+今晚战局已定，一兔二鲨三船。是本社的胜利！
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20920#       发表于 2020-12-6 23:34
+
+
+
+
+鲨皇是阴间时间，胜之不武
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 20921#       发表于 2020-12-6 23:37
+
+
+
+
+兔皇，jp本社（暂时）的最后防线！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 20922#       发表于 2020-12-6 23:37
+
+
+
+
+谁来repo一下月灵姐姐showroom说啥了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 20923#       发表于 2020-12-6 23:38
+
+
+
+
+ぺっさん最強！！！ぺっさん最強！！！ぺっさん最強！！！
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20924#       发表于 2020-12-6 23:39
+
+
+
+
+“时差不是真的”，“地球是平的”，今天又出现了“外星人是真的”，就这样兔子还自称自己的直播适合各种年龄的“教育节目”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20925#       发表于 2020-12-6 23:43
+
+
+
+
+单论平A，ぺっさん以鲨鱼2/3的订阅一直都能A出相同水准的同接，说明她才是更强的那个，无非巅峰数据不如鲨皇罢了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20926#       发表于 2020-12-6 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49633248&amp;ptid=1969498" target="_blank">天城サリー 发表于 2020-12-6 23:21</a>
+
+ptara找了几个听了一下 是挺高质量的</blockquote>
+asmr其实也不一定要熟肉吧。。除了有的比较偏情景的。
+
+
+可以搜一下ラトナ・プティ 拉特娜·噗蒂
+
+我先放一个跟童田的联动在这里
+[https://www.bilibili.com/video/BV1mv411k7mv?](https://www.bilibili.com/video/BV1mv411k7mv?)
+
+不一定非要管人的话你甚至可以看mkt，虽然这位要说清楚的话。。
+
+まこと-Official  [https://space.bilibili.com/472135480](https://space.bilibili.com/472135480)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20927#       发表于 2020-12-6 23:50
+
+
+
+
+露露现在只狼打这么好了？可以当大亏看了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20928#       发表于 2020-12-6 23:53
+
+
+
+
+大家都是大亏上位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 20929#       发表于 2020-12-7 00:04
+
+
+
+
+只狼不就是个纯靠熟练度的游戏，不知道为啥有人说只狼难，我只狼通了8周目双难只感觉mhxx的超特和g5多怪同场比只狼难一万倍
+
+
+
+
+
+  

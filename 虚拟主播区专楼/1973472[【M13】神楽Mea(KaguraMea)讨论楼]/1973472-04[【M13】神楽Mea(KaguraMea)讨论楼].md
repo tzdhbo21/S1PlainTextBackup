@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-06 20:18** 
+> ## **本文件最后更新于2020-12-07 00:15** 
 
 
 
@@ -912,10 +912,11 @@ gueru提到这个是两周前给的话题 犬山问咩：刚刚说的是真的�
 
 
 
- 参与人数 9战斗力 +10
+ 参与人数 10战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 素人不相识| + 1|好评加鹅|
 | Dualist彩| + 1|好评加鹅|
 | 鷹書たかしょ| + 2|好评加鹅|
 | thisisaspider| + 1|在外面只看了后半帮大忙了|
@@ -1042,6 +1043,25 @@ gueru提到这个是两周前给的话题 犬山问咩：刚刚说的是真的�
 
 倪哥mc挺安稳的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -1199,4 +1219,434 @@ gueru提到这个是两周前给的话题 犬山问咩：刚刚说的是真的�
 
 
 
-                                               
+
+
+-----
+
+####  十九号大侠  
+##### 4569#       发表于 2020-12-6 20:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">啊咩给我 的虚拟感还可以
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4570#       发表于 2020-12-6 20:30
+
+
+
+
+准备补下后半段的时候发现noe只有60的同接，也不知道小僵尸现在有多少？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4571#       发表于 2020-12-6 20:39
+
+
+
+
+在200左右徘徊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4572#       发表于 2020-12-6 21:14
+
+
+
+
+今晚无了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这样的日子什么时候才能过去<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 4573#       发表于 2020-12-6 21:15
+
+
+
+
+草，小紫的关注怎么才七千不到啊，小绿也才一万七，个人势也太惨了吧，这还是有人带路呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4574#       发表于 2020-12-6 21:15
+
+
+
+ 本帖最后由 Cushaw 于 2020-12-6 21:32 编辑 
+
+还有四天，就算是阿咩当天按我家门铃也不能阻止我玩20.......<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 4575#       发表于 2020-12-6 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49631983&amp;ptid=1973472" target="_blank">Cortana 发表于 2020-12-6 21:15</a>
+
+草，小紫的关注怎么才七千不到啊，小绿也才一万七，个人势也太惨了吧，这还是有人带路呢 ...</blockquote>
+那一方面也有noe之前很长时间摸鱼的原因 开始还是一百左右的 
+
+noe的学业明显比小僵尸还要繁重 自己tc都不太能保障时间
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4576#       发表于 2020-12-6 21:38
+
+
+
+
+小紫也就联动了一次<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4577#       发表于 2020-12-6 21:55
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-6 21:59 编辑 
+
+你麻带路跟其他人带路能一样么，你自己会去看小绿小紫吗.jpg
+
+又不搞cp密码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从侧面说明了绿紫不是真的，俩人都是正常取向，只有你麻。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4578#       发表于 2020-12-6 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">小紫没怎么看 但是小绿其实蛮猛的
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4579#       发表于 2020-12-6 22:11
+
+
+
+
+如月其实挺不错的，杂谈唱歌都挺在行
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4580#       发表于 2020-12-6 22:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如月感觉还不错
+
+就是不知道为什么就不温不火
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4581#       发表于 2020-12-6 22:28
+
+
+
+
+没人引流，在y站玩不动的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4582#       发表于 2020-12-6 22:36
+
+
+
+
+不是第一批，又没资本扶持，有个引流的还是你咩这种粉丝极度扭曲的，在自由的市场里是这样的
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4583#       发表于 2020-12-6 23:12
+
+
+
+ 本帖最后由 thisisaspider 于 2020-12-6 23:14 编辑 
+
+我觉得kyr和noe都还行吧 没把直播当主业来做才是一般人的选择
+
+而且kyr行动力挺高的 慢慢来呗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+主播这东西又不是想火就火的 也不是想一直火就一直火的
+
+比如经典例子大司马
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4584#       发表于 2020-12-6 23:14
+
+
+
+ 本帖最后由 A2014720 于 2020-12-6 23:15 编辑 
+
+真是为了事业早就过来当散装yhm了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但小僵尸这次上bw有点东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4585#       发表于 2020-12-6 23:33
+
+
+
+
+那我觉得大概mea组本来是阿b原定在holo爆炸以后推出来填补空缺的计划之一
+
+现在结果新时代壬入场 显示出了他们的打钱能力
+
+咩又被带节奏成了这样 怀疑阿B都没念想了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4586#       发表于 2020-12-6 23:35
+
+
+
+ 本帖最后由 A2014720 于 2020-12-6 23:38 编辑 
+
+不觉得有这么多七七八八<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+两人明显没把b当主场，副业随便玩玩得了，还有tc要应付呢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4587#       发表于 2020-12-6 23:38
+
+
+
+
+别阿b了，实在晦气
+
+               
+
+她那边已经12.7了呀，估计明天也不会播吧，毕竟。。。
+
+                     
+
+也快泰坦尼克号两周年了呀，今年还有哪个组再放送吗？我看酒厂这是亡了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4588#       发表于 2020-12-6 23:47
+
+
+
+
+支持秘密结社重放泰坦尼克号<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我们连轮播都没有，一年一次搞一次不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+不行还是想半年搞一次<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4589#       发表于 2020-12-6 23:48
+
+
+
+
+说不定等会马自立tc开了呢<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">直播给rinco唱灰色与青祝贺生日快乐
+到时候你们这些老害都要跟着我上路灯<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4590#       发表于 2020-12-6 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4591#       发表于 2020-12-6 23:55
+
+
+
+ 本帖最后由 A2014720 于 2020-12-7 00:02 编辑 
+
+还是给当代马自立唱去吧，不招魂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又是直播稀疏的一个月
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4592#       发表于 2020-12-7 00:00
+
+
+
+
+这能复活吊路灯也值了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
