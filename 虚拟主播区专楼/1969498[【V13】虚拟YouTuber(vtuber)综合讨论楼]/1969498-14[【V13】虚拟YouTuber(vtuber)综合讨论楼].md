@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-07 00:08** 
+> ## **本文件最后更新于2020-12-07 02:08** 
 
 
 
@@ -27706,4 +27706,311 @@ asmr其实也不一定要熟肉吧。。除了有的比较偏情景的。
 
 
 
-  
+
+
+-----
+
+####  目力干员leison  
+##### 20930#       发表于 2020-12-7 00:10
+
+
+
+
+不要什么上位替代，挺没意思的我觉得<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+另外我其实蛮期待能有更多人来挑战兔子的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 20931#       发表于 2020-12-7 00:12
+
+
+
+ 本帖最后由 凯文夏特 于 2020-12-7 00:18 编辑 
+
+现在同接数 兔皇目前暂时第一 领先鲨皇 MC同接永远的神
+
+
+<img src="https://img.saraba1st.com/forum/202012/07/001802lnltccqtsefsnqev.png" referrerpolicy="no-referrer">
+
+
+<strong>超级截屏_20201207_001529.png</strong> (867.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-7 00:18 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/07/001842d0u603dxnhz4h63h.png" referrerpolicy="no-referrer">
+
+
+<strong>超级截屏_20201207_001546.png</strong> (698.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-7 00:18 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20932#       发表于 2020-12-7 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632767&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-6 22:34</a>
+
+鲨皇一天两动，我宣布跌落神坛了</blockquote>
+一天两动LV30的健身环，tql
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 20933#       发表于 2020-12-7 00:14
+
+
+
+
+兔子看到今天moona身边的peko cos，被吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20934#       发表于 2020-12-7 00:21
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1glelhp9i6sg20jb0b4u11.gif" referrerpolicy="no-referrer">
+
+
+高光时刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20935#       发表于 2020-12-7 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49633957&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-7 00:21</a>
+
+高光时刻</blockquote>
+我还真没见过跳起来弹刀的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 20936#       发表于 2020-12-7 00:26
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-7 00:27 编辑 
+
+果然抽卡是模仿节目
+
+今天模仿龙的频率好多
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20937#       发表于 2020-12-7 00:30
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-6 22:41
+</blockquote>
+绿了绿了，尊妈绿了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20938#       发表于 2020-12-7 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49632658&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-6 22:21</a>
+
+久违的风怒 那就顺便说下吧 现在你木口新人ID  出道人均畅想3D 我觉得cover如果脑瘫到真的完全不考虑这些发 ...</blockquote>
+人手不够+动捕设备不好调试，现在疫情还挺严重的，人不好飞来飞去吧
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20939#       发表于 2020-12-7 00:52
+
+
+
+
+之所以会做ASMR的熟肉是因为……
+
+说话清晰语速慢，话少好做（
+
+
+咳咳，说到推荐的话，噗酱的ASMR我每期都有听，上面坛友proxima发的那个更是精品，我一直想做字幕来着。
+
+不过最近忙着学习还有みやまん这边。
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20940#       发表于 2020-12-7 00:53
+
+
+
+
+已经没有人对着月神的晚安推发情了吗
+月综，亡了！
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20941#       发表于 2020-12-7 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49633444&amp;ptid=1969498" target="_blank">Mafise 发表于 2020-12-6 23:37</a>
+
+谁来repo一下月灵姐姐showroom说啥了
+
+
+— from samsung SM-G970F, Android 10 of S1 Next Goose v2. ...</blockquote>
+主要是聊演出的感想，后面又说了一点中国很火为了交流学中文的事
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mafise| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20942#       发表于 2020-12-7 01:07
+
+
+
+
+说到葛皇这个🦊，应该是来自他葛语里的「こん」?
+
+感觉是「早上好中午好晚上好我起了」的复合型问候语，不知道楼里有没有比较了解的火畜，我记得他大约一个月前就在这么说了…
+
+
+Syl，他今天又跑叶师傅家睡觉了，两人收录完吃了烤肉然后一起爆睡，中间叶师爬起来播了一小时糞…原神
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20943#       发表于 2020-12-7 01:45
+
+
+
+
+刚打完游戏，才看见晚安推<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+晚安推啊，请稳定地出现吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
