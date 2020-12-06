@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-06 10:09** 
+> ## **本文件最后更新于2020-12-06 16:11** 
 
 
 
@@ -24060,6 +24060,25 @@ https://twitter.com/ekureea/status/1335228007884017664</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -24589,4 +24608,718 @@ new！
 
 
 
-       
+
+
+-----
+
+####  smy20011  
+##### 20762#       发表于 2020-12-6 10:17
+
+
+
+
+鲨鱼健身环快5w同接。。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20763#       发表于 2020-12-6 10:28
+
+
+
+
+鲨皇叫的不够色<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20764#       发表于 2020-12-6 10:31
+
+
+
+ 本帖最后由 过不了审 于 2020-12-6 10:40 编辑 
+
+某些地方就等着鲨皇健身环来扣帽子呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鲨皇要是心里有数就该克制，对大家都好
+当然忽略掉也没什么问题
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20765#       发表于 2020-12-6 10:42
+
+
+
+
+谁TM让鲨鱼玩难度30的
+
+
+
+
+
+
+
+-----
+
+####  天城サリー  
+##### 20766#       发表于 2020-12-6 10:49
+
+
+
+
+想问问各位大佬，有没有像深白这类清楚系的vtb推荐？最好有asmr的
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 20767#       发表于 2020-12-6 11:28
+
+
+
+
+健身环管人最高几W？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20768#       发表于 2020-12-6 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">白皮mmr的第一次绿帽
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 20769#       发表于 2020-12-6 11:59
+
+
+
+<blockquote>天城サリー 发表于 2020-12-6 10:49
+想问问各位大佬，有没有像深白这类清楚系的vtb推荐？最好有asmr的</blockquote>
+雪花 ラミィ 直播多asmr水平非常一般但是深白也不怎么样，如果对不上眼让阳光虹人给你推下
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20770#       发表于 2020-12-6 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49625705&amp;ptid=1969498" target="_blank">过不了审 发表于 2020-12-6 10:31</a>
+
+某些地方就等着鲨皇健身环来扣帽子呢鲨皇要是心里有数就该克制，对大家都好
+
+当然忽略掉也没什么问题 ...</blockquote>
+看了下这个stream，应该没啥色情的东西。
+
+
+
+
+
+
+
+-----
+
+####  DenkiBran  
+##### 20771#       发表于 2020-12-6 12:09
+
+
+
+
+然后鲨皇就隐藏了，十分钟前看还在来着。
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 20772#       发表于 2020-12-6 12:11
+
+
+
+<blockquote>karory🍨🎂はたケット参加
+
+
+[配信告知] 
+
+バーチャルの第一歩へ！
+
+自分のバーチャルの器をお絵描きする配信します🍨
+
+
+12月6日（日） 18:00～　start✨</blockquote>
+
+karory准备画皮受肉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20773#       发表于 2020-12-6 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49625822&amp;ptid=1969498" target="_blank">天城サリー 发表于 2020-12-6 10:49</a>
+
+想问问各位大佬，有没有像深白这类清楚系的vtb推荐？最好有asmr的</blockquote>
+当然是周防帕特拉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+单说asmr的话彩虹害得小熊猫，不过她平时都在打枪
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20774#       发表于 2020-12-6 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49626473&amp;ptid=1969498" target="_blank">sgssk 发表于 2020-12-6 12:11</a>
+
+karory准备画皮受肉</blockquote>
+梱妈都播了一年多了，怎么好姬友karory现在才想起来
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20775#       发表于 2020-12-6 13:08
+
+
+
+
+麦麦荣登11月最可爱虹人
+
+
+<img src="https://img.saraba1st.com/forum/202012/06/130844jm7jhu6ea7jce3z7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EocCK8qU8AA766J.jpg</strong> (138.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-6 13:08 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20776#       发表于 2020-12-6 13:12
+
+
+
+
+25. 花畑チャイカ
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20777#       发表于 2020-12-6 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49625822&amp;ptid=1969498" target="_blank">天城サリー 发表于 2020-12-6 10:49</a>
+想问问各位大佬，有没有像深白这类清楚系的vtb推荐？最好有asmr的</blockquote>
+那我就推荐西园寺mary吧，技术和设备都不如ptr但母性光辉非常让人安心
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 20778#       发表于 2020-12-6 13:31
+
+
+
+
+美夜子为什么这么高
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 20779#       发表于 2020-12-6 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49627422&amp;ptid=1969498" target="_blank">超能力者stven 发表于 2020-12-6 13:31</a>
+
+美夜子为什么这么高</blockquote>
+路人比例低，粉丝比例高
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 20780#       发表于 2020-12-6 13:44
+
+
+
+
+我想知道清楚的定义是啥，做asmr也可以算清楚吗
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20781#       发表于 2020-12-6 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社长生日俩次集金回合计530多万，虹女粉真的太武德了，这绝对是虹的宝藏而且也没人能抢得走，顺便看了眼夸皇俩次生日，290w。。。。居然还没fh团长高吗，crew不行（可能是跑掉的cncrew太多了吗）。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20782#       发表于 2020-12-6 13:47
+
+
+
+ 本帖最后由 NBXX 于 2020-12-6 13:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49626111&amp;ptid=1969498" target="_blank">tankai 发表于 2020-12-6 11:28</a>
+
+健身环管人最高几W？</blockquote>
+最近好像玩的人不是很多，去年最火的时候有人统计过虹的
+[https://egg.5ch.net/test/read.cgi/streaming/1573509877/](https://egg.5ch.net/test/read.cgi/streaming/1573509877/) <blockquote>65名無しさん＠お腹いっぱい。2019/11/12(火) 07:24:03.61ID:O0bdO98va
+
+
+にじさんじRF最高同接
+
+
+ﾘｾﾞｱ 25894
+
+るる 23553
+
+ＪＫ 22965
+
+月ノ 20024
+
+ひま 20000
+
+アレ 18293
+
+椎名 17000
+
+ドｰﾗ 16357
+
+アﾙｽ 15699
+
+森森 13882
+
+黛灰 12579
+
+社築 11434
+
+ロア 11259
+
+樋口 9456
+
+叶　 7822
+
+シス 7664
+
+ンボ 7360
+
+でび 7230
+
+郡道 7061
+
+健屋 6907
+
+詩子 6721
+
+りﾘﾑ 6286
+
+ハｶｾ 6005
+
+リｵﾝ 5949
+
+相羽 5559
+
+探偵 4198
+
+神田 3933
+
+天宮 3913
+
+有栖 3756
+
+京子 2381
+
+勝　 2210
+
+レジ 2206
+
+える 2004
+
+瀬戸 1819
+
+春崎 1810
+
+釜山 1724
+
+出雲 1697
+
+女将 1224</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20783#       发表于 2020-12-6 14:00
+
+
+
+
+对一般观众来说，只要v声音温柔一点都算清楚<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20784#       发表于 2020-12-6 14:03
+
+
+
+ 本帖最后由 NBXX 于 2020-12-6 14:13 编辑 
+
+[https://www.youtube.com/watch?v=PzF3vHiMUd0](https://www.youtube.com/watch?v=PzF3vHiMUd0)
+
+AFA Singapore 2020 Online DAY 2 - SUN 6 DEC Broadcast
+
+
+Featured Content:
+
+Hey Moona! Can You Spot The Anime? supported by JNTO
+<[img src="https://i.loli.net/2020/12/06/pxGPWrl7eRUwXOd.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 20785#       发表于 2020-12-6 14:16
+
+
+
+ 本帖最后由 过不了审 于 2020-12-6 14:38 编辑 
+
+这个兔子cos看得我好窒息，无尽回声更是让我倍感不安<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">moona表现还是挺好的
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 20786#       发表于 2020-12-6 14:17
+
+
+
+
+我觉得清楚重在清<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 20787#       发表于 2020-12-6 14:43
+
+
+
+
+rika<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20788#       发表于 2020-12-6 14:45
+
+
+
+
+bora野队好强，可是救命啊为什么我每次想看bora打枪就无比卡<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20789#       发表于 2020-12-6 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49627698&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-6 14:03</a>
+
+https://www.youtube.com/watch?v=PzF3vHiMUd0
+
+AFA Singapore 2020 Online DAY 2 - SUN 6 DEC Broadcast</blockquote>
+Moona要杀人的感觉XD
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20790#       发表于 2020-12-6 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49627547&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-6 13:46</a>
+
+社长生日俩次集金回合计530多万，虹女粉真的太武德了，这绝对是虹的宝藏而且也没人能抢得走，顺便看 ...</blockquote>
+之前翻出去的石油佬99%都跑路了......夸还算好的吧，那天至少三个cncrew打的红SC，其他杏女肯定都没这待遇
+
+
+讽刺的是现在呆本社除了本土观众打钱最厉害的是4V人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 20791#       发表于 2020-12-6 15:06
+
+
+
+<img src="https://p.sda1.dev/0/1976826e05ab11a9114e02e86e2b0797/873879066.jpg" referrerpolicy="no-referrer">
+这TM找的什么鬼coser<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 20792#       发表于 2020-12-6 15:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能这就是不可突破的次元壁障吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 20793#       发表于 2020-12-6 15:15
+
+
+
+<blockquote>真飞鸟i 发表于 2020-12-6 13:46
+社长生日俩次集金回合计530多万，虹女粉真的太武德了，这绝对是虹的宝藏而且也没人能抢得走，顺便看 ...</blockquote>
+其实夸这次生日sc（195w）已经破了她个人单次sc记录了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20794#       发表于 2020-12-6 15:29
+
+
+
+
+我觉得是打光的问题，至少弄个美白啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20795#       发表于 2020-12-6 15:57
+
+
+
+ 本帖最后由 caupollen 于 2020-12-6 15:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49627698&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-6 14:03</a>
+[https://www.youtube.com/watch?v=PzF3vHiMUd0](https://www.youtube.com/watch?v=PzF3vHiMUd0)
+
+AFA Singapore 2020 Online DAY 2 - SUN 6 DEC Broadcast</blockquote>
+这个圆帽大胡子，holo女人**都爱看啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20796#       发表于 2020-12-6 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49628300&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-6 15:05</a>
+之前翻出去的石油佬99%都跑路了......夸还算好的吧，那天至少三个cncrew打的红SC，其他杏女肯定都没这待 ...</blockquote>
+。。。。。。。还翻出去的石油佬呢，本来就没多少翻出去的石油佬，sc地区数据统计也很多了，大部分人本土都是大头，海外地区无论是nt还是美元都在那一小块里面
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+      
