@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-07 00:15** 
+> ## **本文件最后更新于2020-12-07 12:13** 
 
 
 
@@ -1649,4 +1649,545 @@ noe的学业明显比小僵尸还要繁重 自己tc都不太能保障时间
 
 
 
-                                              
+
+
+-----
+
+####  sw11133  
+##### 4593#       发表于 2020-12-7 10:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">慢慢来，不着急指不定只要活着那天又好起来了呢？
+
+反正这几天吃瓜吃的好爽
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4594#       发表于 2020-12-7 11:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">我现在才知道，p家箱推对mea与处置而后快
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4595#       发表于 2020-12-7 11:06
+
+
+
+
+这次炎上事件里我观察到的人中最恶心的几个就是所谓的“P家箱推”
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4596#       发表于 2020-12-7 11:15
+
+
+
+
+mea老早就脱离p家了 不理解p家箱推还想干嘛 当初的炸箱又不是mea干的
+
+
+
+
+
+
+
+-----
+
+####  npfjcg  
+##### 4597#       发表于 2020-12-7 11:17
+
+
+
+
+又想起来之前楼里说的又是P家箱推又是miu粉的迷之生物<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 4598#       发表于 2020-12-7 11:20
+
+
+
+
+你咩当初不给引流老人怀恨在心，天狗黑屁井皇，孝子报复，新时代p箱大家庭粉驱除玷污p家名头的异类
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4599#       发表于 2020-12-7 11:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我搞不明白的是p家箱推这种万剑齐发之后才出现的东西
+
+为什么装的一副存在已久的模样
+
+只能说确实魔幻
+
+我一直以为团长出来之前p箱推是不存在的生物
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4600#       发表于 2020-12-7 11:22
+
+
+
+
+说白了就只是想车咩和天狗罢了 直接车不就完了 为啥还要戴个xx粉的帽子 整个cnvjuan里对于咩和天狗能有个中立生物都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4601#       发表于 2020-12-7 11:22
+
+
+
+
+p家可不是帕里坡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4602#       发表于 2020-12-7 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就推p家5个，算吗
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4603#       发表于 2020-12-7 11:23
+
+
+
+ 本帖最后由 sw11133 于 2020-12-7 11:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">问题是黑屁＃皇也不止吊人啊反正p箱推我是当v8帆船看
+
+也就那群人有动机又闲的无聊这么干
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4604#       发表于 2020-12-7 11:23
+
+
+
+
+你如果不推咩的话就是高贵的新时代贵族了 可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4605#       发表于 2020-12-7 11:25
+
+
+
+
+拿踩一捧一来拔高推不是再正常不过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 4606#       发表于 2020-12-7 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得彩虹人里中立还多点，当然要限定是19以后的
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4607#       发表于 2020-12-7 11:28
+
+
+
+
+指望这个圈子存在中立是不是搞错了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小小个人势就别和大家庭粉斗了，双拳难敌四手的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 4608#       发表于 2020-12-7 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49636885&amp;ptid=1973472" target="_blank">sw11133 发表于 2020-12-7 11:21</a>
+
+我搞不明白的是p家箱推这种万剑齐发之后才出现的东西
+
+为什么装的一副存在已久的模样
+
+只能说确实魔幻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P家箱推确实由来已久啊，从放大姐鸽子/抱怨不给mana让时段/P家联动统计发言数量的时候就开始车mea了呀
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4609#       发表于 2020-12-7 11:30
+
+
+
+
+至于中立生物
+
+只要不混倪哥圈 台球 阿b博
+
+那中立生物多的是
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4610#       发表于 2020-12-7 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49636973&amp;ptid=1973472" target="_blank">qfqczr 发表于 2020-12-7 11:28</a>
+
+P家箱推确实由来已久啊，从放大姐鸽子/抱怨不给mana让时段/P家联动统计发言数量的时候就开始车mea ...</blockquote>
+那可太草了
+
+
+
+
+
+
+
+-----
+
+####  npfjcg  
+##### 4611#       发表于 2020-12-7 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49636973&amp;ptid=1973472" target="_blank">qfqczr 发表于 2020-12-7 11:28</a>
+P家箱推确实由来已久啊，从放大姐鸽子/抱怨不给mana让时段/P家联动统计发言数量的时候就开始车mea ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">结果亲女儿mana直接换皮跑了，现在新时代迫真P家还有她吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呐，你现在是什么心情？
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4612#       发表于 2020-12-7 11:41
+
+
+
+
+在鲸落之前，哪还有多少箱推粉，只不过是很多人现在为了方便踩一脚，于是跟着潮流带一个高帽子而已
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4613#       发表于 2020-12-7 11:48
+
+
+
+
+懂了，都是吃尸体的分解者
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4614#       发表于 2020-12-7 11:48
+
+
+
+ 本帖最后由 十九号大侠 于 2020-12-7 11:50 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4615#       发表于 2020-12-7 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49637019&amp;ptid=1973472" target="_blank">npfjcg 发表于 2020-12-7 11:32</a>
+结果亲女儿mana直接换皮跑了，现在新时代迫真P家还有她吗？
+呐，你现在是什么心情？[/s ...</blockquote>
+你这消息太落后，人家都复活了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 4616#       发表于 2020-12-7 11:53
+
+
+
+
+说实话不是很懂骂不引流的，要一个17 18岁自己直播时间都没法掌握的未成年给一群成年社会人引流真的好意思吗？一边骂holo带家庭一边又自己整起了p家带家庭?况且当初要不是靠你麻的热度p家能有冲国盘吗?
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4617#       发表于 2020-12-7 11:55
+
+
+
+
+还是那句话，你们要清楚观众主体年龄啊，时代真的变了，在这个白皮公知思想工作做的风生水起的网络环境上是这样的
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4618#       发表于 2020-12-7 11:55
+
+
+
+
+以前p家活动，mea都是有参加的，我觉得算引流了吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4619#       发表于 2020-12-7 11:58
+
+
+
+
+这你就说错了，曾经生活在病栋的“P家箱推”在病栋爆炸后就基本不关心你麻了——虽然爆炸前他们在病栋也是讨论P家相关几乎不谈你麻的，不过你麻吃水忘了挖井人先富不带后富的“自私自利”和在病栋受天狗“打压”的屈辱可能实在难以忘怀所以铭刻至今，这回终于等到你麻烧起来那不可得使劲落井下石，顺便还能说个“我这个以前混病栋的粉丝都转黑了blabla”
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4620#       发表于 2020-12-7 11:59
+
+
+
+
+别梦回了，讨论多少遍的车轱辘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后的结论永远是人类无法互相理解
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4621#       发表于 2020-12-7 12:00
+
+
+
+
+好了好了别聊这些东西了，整不好又被当做什么罪状以后挨批
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4622#       发表于 2020-12-7 12:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谈那群晦气玩意干嘛
+
+还不如发情当mmr
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4623#       发表于 2020-12-7 12:01
+
+
+
+
+感觉话题继续下去有点危险了 pxj马上就到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 4624#       发表于 2020-12-7 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">周一了，咩咩什么时候上班，啊是上播
+
+
+
+
+
+                                             
