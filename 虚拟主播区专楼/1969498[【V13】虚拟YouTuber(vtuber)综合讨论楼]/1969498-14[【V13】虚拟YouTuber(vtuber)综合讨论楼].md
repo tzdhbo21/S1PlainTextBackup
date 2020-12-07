@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-07 14:11** 
+> ## **本文件最后更新于2020-12-07 16:09** 
 
 
 
@@ -28105,7 +28105,7 @@ syl，兔子说这周有桃铁联动，会是之前说的和446以及几个其�
 
 
 IMG_20201207_092113.jpg
-(98.04 KB, 下载次数: 0)
+(98.04 KB, 下载次数: 1)
 
 
 
@@ -28660,6 +28660,25 @@ Syl，面对quiz knock这种东大生团队，黑客+周力一+小护士应该�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Eugeo0| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -28742,6 +28761,394 @@ AME新电脑配置：5800X + 3080 + 32G + 水冷
 可能火星/Vtuber微相关
 [https://space.bilibili.com/1188981217](https://space.bilibili.com/1188981217)
 <[img src="https://i.loli.net/2020/12/07/idWmZE6MSY1O2HJ.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 20980#       发表于 2020-12-7 14:13
+
+
+
+
+your mom is a dead game...
+
+
+我宣布tskk输了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20981#       发表于 2020-12-7 14:19
+
+
+
+
+？yyut都有小闪电号了？
+我02的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  goudante  
+##### 20982#       发表于 2020-12-7 14:24
+
+
+
+
+YYUT之前不是因为和panpiano联动导致字幕组散了吗，这波在敏感时期下本人入驻怕是会掀起点风浪吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 20983#       发表于 2020-12-7 14:25
+
+
+
+
+yyut是金盾大物19w同接，02往后稍稍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20984#       发表于 2020-12-7 14:37
+
+
+
+
+我灵儿姐姐是恶俗兰人能碰瓷的吗<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 20985#       发表于 2020-12-7 14:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49638488&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-7 13:45</a>
+
+AME新电脑配置：5800X + 3080 + 32G + 水冷
+
+土豪啊</blockquote>
+那这人的码率能不能调高点，真的很菜<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 20986#       发表于 2020-12-7 14:44
+
+
+
+
+搬运组作妖和我yyut有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20987#       发表于 2020-12-7 14:46
+
+
+
+ 本帖最后由 winda 于 2020-12-7 14:47 编辑 
+<blockquote>【いちから プレスリリース！】
+
+いちから株式会社が運営する『ユメノグラフィア』が、総務省主催「異能vation」2020年度ジェネレーションアワード部門にノミネートされました！
+
+また、ユメノグラフィアはおかげさまで正式リリース【1周年】を迎えました！
+
+詳細はこちら▽
+https://t.co/BDuMkf2g8B https://t.co/DaKJjmHh0y</blockquote>
+总务省……<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+<blockquote>■ 「異能vation」とは
+異能vationプログラムは、 ICT（※）分野において破壊的な地球規模の価値創造を生み出すために、 大いなる可能性がある奇想天外でアンビシャスな技術課題への挑戦を支援します。
+既存の常識にとらわれない独創的な「変わった事を考え、 実行する人（通称「へんな人」）」の、 「なにもないゼロのところから、 イチを生む」失敗を恐れない果敢な挑戦を支援するとともに、 そうした方々が交流し、 異能と異能が掛け合わさることで、 さらなる独創的な発想が生まれるような環境を提供します。
+人類史上、 既存の枠にとらわれない破壊的なイノベーションを起こしてきたのは、 こうした奇想天外でアンビシャスな技術課題に挑戦する「へんな人」でした。 異能vation プログラムは、 こうした人たちがのびやかに活躍することが日本の新たな未来を創る、 と信じて取り組んでいるものです。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20988#       发表于 2020-12-7 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49639075&amp;ptid=1969498" target="_blank">味增味增 发表于 2020-12-7 14:43</a>
+
+那这人的码率能不能调高点，真的很菜</blockquote>
+零件还没到，尽情期待
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 20989#       发表于 2020-12-7 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">虹都开始和总务省合作了。。。好强，顺带一提我才发现虹的资本准备金（26e）和武士道的资本准备金（30e）差不多。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20990#       发表于 2020-12-7 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49639159&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-7 14:49</a>
+虹都开始和总务省合作了。。。好强，顺带一提我才发现虹的资本准备金（26e）和武士道的资本准备金（ ...</blockquote>
+https://www.inno.go.jp/result/2020/generation/nominate/
+不先看下一起被提名的项目么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Abyssmarionette  
+##### 20991#       发表于 2020-12-7 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49638226&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-7 13:18</a>
+
+https://twitter.com/Hana_Macchia/status/1335539393210114051
+
+
+看直球辱骂NGA不如看直球辱骂（ry ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">好一个nmsl，怕不是印尼华裔
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20992#       发表于 2020-12-7 15:05
+
+
+
+
+获奖的
+[https://www.inno.go.jp/result/2020/generation/winner/](https://www.inno.go.jp/result/2020/generation/winner/)
+
+
+部分名单：
+
+测温度的筷子
+
+人可以吃的宠物粮
+
+家庭垃圾作燃料的车
+
+治愈心灵的自动贩卖机
+
+放音乐的扫把
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 20993#       发表于 2020-12-7 15:08
+
+
+
+
+yyut和卖肉弹琴姐联动时她还能正常在批站发视频甚至陈睿还本人关注了呢，这你要另一日本人明白她是个什么独是否有点😅而且看了那个推性质和oto 狮白没太大区别好吧，还没实锤就要yyut表态，不想干字幕组了直说不就得了，况且yyut还真表态了，态度还挺好的🤔
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 20994#       发表于 2020-12-7 15:13
+
+
+
+
+主要之前有字幕组得时候感觉yyut都没啥往国内发展的意向
+
+现在反而下场开官号，是要传音乐视频吗？
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20995#       发表于 2020-12-7 15:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">音乐没有国籍但音乐家有国籍
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 20996#       发表于 2020-12-7 15:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">补了一下露露昨天会限，边弹吉他边唱比直接唱还棒啊
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 20997#       发表于 2020-12-7 15:20
+
+
+
+
+手机上不了网站，有人细说彩虹这有什么可以吹的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 20998#       发表于 2020-12-7 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49639485&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-7 15:20</a>
+
+手机上不了网站，有人细说彩虹这有什么可以吹的吗</blockquote>
+相当于勇夺大学生创新实践优秀项目提名
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 20999#       发表于 2020-12-7 15:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">id这也太武德了
+
+
+
+
+
+
+
+-----
+
+####  矮矮人  
+##### 21000#       发表于 2020-12-7 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49636846&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-7 11:17</a>
+
+Bsyl，
+
+【新番組『にじクイ』 12/13(日)〜月1放送決定！】
+
+公式新番組！</blockquote>
+感觉改下标题可以当弹丸论破4的宣传图了
 
 
 
