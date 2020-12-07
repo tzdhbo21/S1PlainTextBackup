@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-07 02:08** 
+> ## **本文件最后更新于2020-12-07 14:11** 
 
 
 
@@ -22871,7 +22871,7 @@ syl恢复正常音量了，太好了<img src="https://static.saraba1st.com/image
 <img src="https://img.saraba1st.com/forum/202012/05/202747voleyo1333auwqy1.png" referrerpolicy="no-referrer">
 
 
-<strong>【#飛鳥ひな新モデル】飛鳥ひな、○○になる。-3.png</strong> (1.88 MB, 下载次数: 0)
+<strong>【#飛鳥ひな新モデル】飛鳥ひな、○○になる。-3.png</strong> (1.88 MB, 下载次数: 1)
 
 下载附件
 
@@ -28013,4 +28013,737 @@ Syl，他今天又跑叶师傅家睡觉了，两人收录完吃了烤肉然后�
 
 
 
- 
+
+
+-----
+
+####  admentus  
+##### 20944#       发表于 2020-12-7 02:48
+
+
+
+
+pekora是国王
+
+要在每天三个特定时间高呼pekora万岁
+
+不许反叛
+
+
+这就是金盾主播的气魄吗？
+
+
+syl，兔子说这周有桃铁联动，会是之前说的和446以及几个其他人的那场联动吗？
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 20945#       发表于 2020-12-7 08:25
+
+
+
+
+昨天露露竟然会限唱歌了
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 20946#       发表于 2020-12-7 09:21
+
+
+
+
+月浓度急降<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 20947#       发表于 2020-12-7 09:25
+
+
+
+
+是倦怠期了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20948#       发表于 2020-12-7 09:29
+
+
+
+
+苔总赚惨了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+IMG_20201207_092113.jpg
+(98.04 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-7 09:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/07/092922dzzrx086g0r63r80.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 20949#       发表于 2020-12-7 09:34
+
+
+
+
+最近忙着演出，推特也不怎么动了怎么办嘛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20950#       发表于 2020-12-7 09:49
+
+
+
+
+bora原来上钻二了啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">这是虹人apex上过的最高段位么
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20951#       发表于 2020-12-7 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49635294&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-7 08:25</a>
+
+昨天露露竟然会限唱歌了</blockquote>
+还弹奏了，露露的solo live什么时候落地<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+你虹给偶像的live拖拖拉拉，给不能唱不能跳的游戏势积极开live倒是有一手
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20952#       发表于 2020-12-7 11:09
+
+
+
+
+02姐确实是肉眼可见的忙，早上还要去练舞，圣诞肯定还有活动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+能不能期待一个元旦歌回啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 20953#       发表于 2020-12-7 11:15
+
+
+
+
+02姐正式进阿B的话，算不算资本入场
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20954#       发表于 2020-12-7 11:17
+
+
+
+
+Bsyl，
+
+【新番組『にじクイ』 12/13(日)〜月1放送決定！】
+
+公式新番組！
+
+クイズバラエティ『にじクイ』月1レギュラー放送決定！
+
+
+初回は生放送スペシャル、12/13(日)18:00〜放送！
+
+問題はQuizKnock様が制作協力！
+
+
+初回放送待機場所▽
+[https://youtu.be/tfS01BpGFIc](https://youtu.be/tfS01BpGFIc)
+
+詳細▽
+[https://prtimes.jp/main/html/rd/p/000000222.000030865.html](https://prtimes.jp/main/html/rd/p/000000222.000030865.html)
+
+#にじクイ
+
+<img src="https://img.saraba1st.com/forum/202012/07/111706lp476y6xxbt88740.jpg" referrerpolicy="no-referrer">
+
+
+<strong>新番組『にじクイ』 12:13(日)〜月1放送決定！】.jpg</strong> (217.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-7 11:17 上传
+
+
+
+
+
+
+
+
+■ 初回放送
+
+・司会：ジョー・力一、解説：黛灰、解答者：健屋花那、不破湊
+
+・ゲスト：月ノ美兎、剣持刀也、舞元啓介、リゼ・ヘルエスタ
+
+
+『#にじクイ』初回は生放送！「にじさんじ」をテーマに、様々な形式のクイズが牙をむく！
+
+番組後半には、QuizKnockからの挑戦状も！？
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 20955#       发表于 2020-12-7 11:19
+
+
+
+
+灵儿不播 我想整活都没得整<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20956#       发表于 2020-12-7 11:26
+
+
+
+
+嘉宾阵容感觉好强 还差个同接之鬼 
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 20957#       发表于 2020-12-7 11:28
+
+
+
+
+阿宅的年终奖还顶得住吗？
+
+年末年初管人有料live，还有无补充？
+<img src="https://p.sda1.dev/0/db627500fe1450a6101d6fd0fb2052e5/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 20958#       发表于 2020-12-7 11:28
+
+
+
+
+还要自己捏皮吧，月灵是那种什么事情都要自己做的人吗？
+视频字幕翻译全部自己包
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20959#       发表于 2020-12-7 11:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 刀也和舞元换成黑黑就是你虹现时段最强了，
+
+
+不过黑黑应该会和sakuyui一起，
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20960#       发表于 2020-12-7 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49636958&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-7 11:28</a>
+
+阿宅的年终奖还顶得住吗？
+
+年末年初管人有料live，还有无补充？</blockquote>
+你杏门票卖的也太贵了吧
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 20961#       发表于 2020-12-7 12:02
+
+
+
+
+真自己捏皮的话，那我觉得2021见了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+阿批这联络到底靠不靠谱啊草<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 20962#       发表于 2020-12-7 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49637272&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-7 11:54</a>
+你杏门票卖的也太贵了吧</blockquote>
+是两天门票 一天5500 要说也是正常价格
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 20963#       发表于 2020-12-7 12:09
+
+
+
+
+02姐姐不开live2d，放个图直接唱也行<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20964#       发表于 2020-12-7 12:09
+
+
+
+<blockquote>LAMHigh voltage sign12/4アルトデウスBC発売
+
+@ramdayo1122
+
+·
+
+8h
+
+I want to improve my English skills！！！！！</blockquote>
+
+
+近朱者赤，近holo者_______。必须对反日卖国会社进行天诛了。
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20965#       发表于 2020-12-7 12:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己捏皮也太魔幻了，她还是个画伯级别的
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">大小姐求求你雇个管家吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20966#       发表于 2020-12-7 12:14
+
+
+
+
+にじさんじ公式
+
+@nijisanji_app
+
+【新衣装 Coming Soon…！】
+
+
+まもなく公開！！
+
+にじさんじライバーが新衣装で登場！
+
+<img src="https://img.saraba1st.com/forum/202012/07/121457m97g49p5k2vd4siz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eomzje-VQAQqfoQ.jpg</strong> (147.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-7 12:14 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20967#       发表于 2020-12-7 12:18
+
+
+
+
+这是铁T通风口实装了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20968#       发表于 2020-12-7 12:22
+
+
+
+
+蝗应该会在全员live前复播吧，还有半个月，等着看好戏了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 20969#       发表于 2020-12-7 12:28
+
+
+
+
+搜了一下，官号似乎还没有单发过新衣装，之前最少也是两个人。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 20970#       发表于 2020-12-7 12:29
+
+
+
+
+感觉好飒啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20971#       发表于 2020-12-7 12:42
+
+
+
+
+随口一说，黑客的新衣装也还没披露，按预定本应该是十一月，延后到了本月...
+
+
+Syl，面对quiz knock这种东大生团队，黑客+周力一+小护士应该是虹相对能拿出手的常识人团队了（不破solo接近9w，他就是同接之鬼）
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 20972#       发表于 2020-12-7 12:47
+
+
+
+
+这个新衣装风格我喜！就是看不出来是谁
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 20973#       发表于 2020-12-7 13:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外面那个直球辱骂NGA的楼是咋回事
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20974#       发表于 2020-12-7 13:18
+
+
+
+ 本帖最后由 NBXX 于 2020-12-7 13:22 编辑 
+
+[https://twitter.com/Hana_Macchia/status/1335539393210114051](https://twitter.com/Hana_Macchia/status/1335539393210114051)
+<[img src="https://i.loli.net/2020/12/07/N3KiH4tLyOqfPmE.png" referrerpolicy="no-referrer">
+
+看直球辱骂NGA不如看直球辱骂（ry
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 20975#       发表于 2020-12-7 13:18
+
+
+
+
+去看了看虹的每周歌曲播放量排行榜，起步5w播放，厉害厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 20976#       发表于 2020-12-7 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49638131&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-7 13:08</a>
+
+外面那个直球辱骂NGA的楼是咋回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">左右互搏 毕竟能看这个帖子的所谓ngaer都是有s1账号的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 20977#       发表于 2020-12-7 13:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 三小只赶快成长起来啊，不想继续看不破和女人搭台了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 20978#       发表于 2020-12-7 13:45
+
+
+
+
+AME新电脑配置：5800X + 3080 + 32G + 水冷
+
+土豪啊
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 20979#       发表于 2020-12-7 13:46
+
+
+
+
+可能火星/Vtuber微相关
+[https://space.bilibili.com/1188981217](https://space.bilibili.com/1188981217)
+<[img src="https://i.loli.net/2020/12/07/idWmZE6MSY1O2HJ.png" referrerpolicy="no-referrer">
+
+
+
+
+
