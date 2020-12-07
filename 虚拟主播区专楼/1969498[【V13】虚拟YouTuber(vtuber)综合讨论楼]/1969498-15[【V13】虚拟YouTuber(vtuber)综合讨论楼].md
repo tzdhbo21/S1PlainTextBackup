@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-07 22:10** 
+> ## **本文件最后更新于2020-12-08 00:08** 
 
 
 
@@ -497,10 +497,11 @@ md ichikira，live结束后杂谈还放一半到niconico会员里面……<img s
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| SuntoryNomu| + 1|噗葵好，拒绝梁木|
 | CAserlumos| + 1|噗：阿葵你又胖了|
 
 
@@ -1193,4 +1194,348 @@ tc宇宙人狼梦幻联动开始了
 
 
 
-                                                
+
+
+-----
+
+####  Ketestrait  
+##### 21060#       发表于 2020-12-7 22:17
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1glfnifxv1ij20xx0j10vv.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 21061#       发表于 2020-12-7 22:22
+
+
+
+
+哈恰玛回国了，要隔离14天。虽然按照日本的情况并没有什么卵用。
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 21062#       发表于 2020-12-7 22:23
+
+
+
+[https://www.youtube.com/watch?v=cd0ACzB_Q-A](https://www.youtube.com/watch?v=cd0ACzB_Q-A)  おしゃかしゃま - RADWIMPS ( Cover ) / VESPERBELL ヨミ
+
+这歌好魔性···<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21063#       发表于 2020-12-7 22:36
+
+
+
+
+看虹楼repo说的是今晚狼人葵皇临时找的三枝和免费，结合夜见说的本来今天的联动会推迟，说明应该是有人临时有事来不了，和上次一比就会发现是西西没来，所以葵皇在西西临时有事来不了大家逗准备推迟的情况下临时又找了人让这次联动正常进行了，所以葵西不仲是不是又实锤了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21064#       发表于 2020-12-7 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49643851&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-7 22:36</a>
+看虹楼repo说的是今晚狼人葵皇临时找的三枝和免费，结合夜见说的本来今天的联动会推迟，说明应该是有人临时 ...</blockquote>
+https://b23.tv/A3r3kR
+正好这剪辑有熟肉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sasaki和rrm不仲可是从sasaki毕业前就有的经典了。
+备胎傻葵有点惨也有点喜感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21065#       发表于 2020-12-7 22:42
+
+
+
+[https://bbs.nga.cn/read.php?tid=24528996](https://bbs.nga.cn/read.php?tid=24528996)
+
+谱皇答中国粉丝问
+
+最后一个问题
+
+Q：花花喜欢玩什么游戏？
+
+花谱：最近在玩喷射战士！！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21066#       发表于 2020-12-7 22:42
+
+
+
+
+熊猫人今天晚上也说了这个钥匙丢本社了回去进不了门只好找葵皇代打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21067#       发表于 2020-12-7 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这不是你葵和莉莉姆不仲么？在计划中3D都没叫你葵，
+
+
+椎名和你葵、笹木和你葵都不仲的
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 21068#       发表于 2020-12-7 22:56
+
+
+
+
+rrm3d  gamers就葛皇、熊猫人推特上毫无表示，葛皇也和rrm不仲么<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21069#       发表于 2020-12-7 23:01
+
+
+
+
+ID二期还没收益化就直接开streamlab太武德了……
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 21070#       发表于 2020-12-7 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49644082&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-7 23:01</a>
+
+ID二期还没收益化就直接开streamlab太武德了……</blockquote>
+一期就是这样的啊……
+
+
+不是因为印尼本土是打不了SC的吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21071#       发表于 2020-12-7 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49644082&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-7 23:01</a>
+
+ID二期还没收益化就直接开streamlab太武德了……</blockquote>
+一期的传统吧，印尼本土打不了sc，所以一期也开了SL。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 21072#       发表于 2020-12-7 23:06
+
+
+
+
+紫宝又长了一岁<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21073#       发表于 2020-12-7 23:07
+
+
+
+
+是我云了
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 21074#       发表于 2020-12-7 23:09
+
+
+
+
+所以有人翻墙出去给杏打钱我是毫无惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21075#       发表于 2020-12-7 23:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 釜山都病倒住院了，你葵还在快乐联动，懂了吧，没有什么是真的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21076#       发表于 2020-12-7 23:21
+
+
+
+
+日本时间今天就是我们家大葵3周年了，晚上8点直播应该会说一下新衣服和原创曲的事，一定要来看！
+[https://www.youtube.com/watch?v=xf8Ackp4jy4](https://www.youtube.com/watch?v=xf8Ackp4jy4)
+
+
+垃圾圆脸本来也预定的8点播，发现和我们家大葵撞了，赶快改到9点，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 21077#       发表于 2020-12-7 23:28
+
+
+
+
+这么好的学妹，免费能免黑一小时吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21078#       发表于 2020-12-7 23:33
+
+
+
+
+垃圾圆脸是第一个给我们家大葵来祝贺的，可以免黑24小时，到我们家大葵过完3周年为止
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 21079#       发表于 2020-12-7 23:58
+
+
+
+
+可能没人关心不fq的cn杏奴，但那个aki激光熟肉撞车看来字幕组人都还在的嘛，杏奴转化新时代人的比例其实并不高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                               
