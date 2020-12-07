@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-07 12:13** 
+> ## **本文件最后更新于2020-12-07 20:15** 
 
 
 
@@ -2190,4 +2190,1115 @@ P家箱推确实由来已久啊，从放大姐鸽子/抱怨不给mana让时段/P
 
 
 
-                                             
+
+
+-----
+
+####  A2014720  
+##### 4625#       发表于 2020-12-7 12:16
+
+
+
+
+新人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+以后少说得了，人家又跟你不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4626#       发表于 2020-12-7 12:47
+
+
+
+ 本帖最后由 GRMeA104 于 2020-12-7 15:28 编辑 
+
+12号9点半有个anmr组长带新雪山人狼,你麻带如月进去玩,伊东兔鞠也来参加了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4627#       发表于 2020-12-7 12:48
+
+
+
+
+好 兔妈妈好
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4628#       发表于 2020-12-7 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">还是老一套好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4629#       发表于 2020-12-7 13:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+不行，我之后要去黄兔子那问一句“跟舞mea的测谎仪将棋联动还没好吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 4630#       发表于 2020-12-7 13:19
+
+
+
+ 本帖最后由 素人不相识 于 2020-12-7 13:27 编辑 
+
+草，一边看m楼，一边下本子，
+
+一边看到m楼在聊p1箱推，一边刷到一本[小心P1箱漢化組]汉化的大姐本子
+
+这共时性草到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4631#       发表于 2020-12-7 14:06
+
+
+
+
+你麻和咩粉真实虚拟哥谭的虚拟黑暗骑士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 4632#       发表于 2020-12-7 14:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是虚拟小丑吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4633#       发表于 2020-12-7 14:15
+
+
+
+
+虚拟谜语人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4634#       发表于 2020-12-7 16:47
+
+
+
+
+虚拟达利特
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4635#       发表于 2020-12-7 16:51
+
+
+
+
+你哥谭的污妖王又不是小丑，是蝙蝠啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+                  
+
+syl，今晚小麻一定很幸福吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4636#       发表于 2020-12-7 17:15
+
+
+
+
+6点歌回<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4637#       发表于 2020-12-7 17:16
+
+
+
+
+猜歌单时间到～<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4638#       发表于 2020-12-7 17:17
+
+
+
+
+好时间
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4639#       发表于 2020-12-7 17:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+今晚有播，破防了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4640#       发表于 2020-12-7 17:57
+
+
+
+
+话说12月7日发生了啥
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4641#       发表于 2020-12-7 18:02
+
+
+
+
+苹果酱生日
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 4642#       发表于 2020-12-7 18:02
+
+
+
+
+输了，加班没办法听歌了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4643#       发表于 2020-12-7 18:03
+
+
+
+
+要错过开头惹
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4644#       发表于 2020-12-7 18:11
+
+
+
+ 本帖最后由 A2014720 于 2020-12-7 18:12 编辑 
+
+说了就开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4645#       发表于 2020-12-7 18:16
+
+
+
+
+怎么还有钓鱼的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4646#       发表于 2020-12-7 18:16
+
+
+
+
+你麻好巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4647#       发表于 2020-12-7 18:16
+
+
+
+
+我麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4648#       发表于 2020-12-7 18:18
+
+
+
+
+刚点开，发生甚么事情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么一堆生日快乐
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4649#       发表于 2020-12-7 18:24
+
+
+
+
+呐，nga傻狗在看吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 4650#       发表于 2020-12-7 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天生日的能进来打个钱吗
+
+她刚才唱生日歌 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4651#       发表于 2020-12-7 18:24
+
+
+
+
+姨化！姨化！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4652#       发表于 2020-12-7 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4653#       发表于 2020-12-7 18:25
+
+
+
+
+以后除了本土还要和毛子一起分享小麻了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4654#       发表于 2020-12-7 18:26
+
+
+
+
+这毛子真就住下了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 4655#       发表于 2020-12-7 18:26
+
+
+
+
+说起来大亏也是今天才点赞生日贺图 都是巨魔 贴贴
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4656#       发表于 2020-12-7 18:27
+
+
+
+
+国际化有什么不好么
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4657#       发表于 2020-12-7 18:27
+
+
+
+
+呜呜，是真的，她们是真的。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4658#       发表于 2020-12-7 18:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的笑死我了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4659#       发表于 2020-12-7 18:28
+
+
+
+
+贴贴人们能多打点钱吗 都这么真了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4660#       发表于 2020-12-7 18:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4661#       发表于 2020-12-7 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，我错过了什么
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4662#       发表于 2020-12-7 18:38
+
+，
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-7 18:41 编辑 
+
+有段时间没看了，转播的弹幕姬怎么换了个这么垃圾的，啥都显示不出来，还难看。
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4663#       发表于 2020-12-7 18:41
+
+
+
+
+因为今天她换背景了，还没准备好合适的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这个弹幕姬确实离谱
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4664#       发表于 2020-12-7 18:42
+
+
+
+
+大龄老阿姨已经与小朋友们产生代沟了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4665#       发表于 2020-12-7 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49641522&amp;ptid=1973472" target="_blank">KL25001 发表于 2020-12-7 18:41</a>
+
+因为今天她换背景了，还没准备好合适的吧
+
+不过这个弹幕姬确实离谱
+
+ ...</blockquote>
+那你转播直接一张图打码得了。
+
+
+<img src="https://img.saraba1st.com/forum/202012/07/184247txn8xxxhjoh69wnh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20201207184234532.jpg</strong> (11.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-7 18:42 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4666#       发表于 2020-12-7 18:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4667#       发表于 2020-12-7 18:53
+
+
+
+
+快进到字幕组辱华
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4668#       发表于 2020-12-7 18:54
+
+
+
+
+换背景了没整好？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4669#       发表于 2020-12-7 19:03
+
+
+
+
+好开心啊，楼友啊你们感受到了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冬瓜饭  
+##### 4670#       发表于 2020-12-7 19:05
+
+
+
+
+这弹幕姬只能识别英文字母字符和数字了？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4671#       发表于 2020-12-7 19:06
+
+
+
+
+这首endless story完成度高啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4672#       发表于 2020-12-7 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4673#       发表于 2020-12-7 19:08
+
+
+
+
+声线就很还原，爱了
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 4674#       发表于 2020-12-7 19:12
+
+
+
+
+今天早点发 后面的再补(
+
+好困 生活节奏太好了 今天醒了7小时 如果说是出去做事的话还好 无所事事过了7小时的话好困的 就像是放假的时候会很困是一样的 出去也很难啊 
+
+开窗不就好了？开窗也太阳角了 这是阳角才会做的事啊 手碰到窗户就开始发抖了 大家都会开窗的么 这样么 （？）  我是大家的同伴 我是阿宅的同伴啊
+
+ 今天有人生日么 学了一首生日歌 
+
+
+今天谁生日呢所以 你吗？那祝贺金呢 神乐mea要的祝贺费很贵的呢 要多少？这可不是我这边提的呢 得按你那边的想法给 这可是社会人的基础
+
+这就是神乐mea的做法吗！社会人很辛苦的 想提前告诉大家社会的艰辛
+
+
+看到评论区有个人的会员标志是默认的标志 吓了一跳 明明自己是设定过的 就他一个人这样 好像是bug
+
+
+唱的时候有点卡 问大家还好么 结果没人回 唱完吐槽怎么没人回自己 跟早上打招呼没人理自己一样
+
+和朋友聊天的时候朋友说到しゃふ自己不知道啥意思然后被朋友吐槽就是社会不适格者啊居然不知道 为什么要这么缩写啊 这么潮流的说法怎么可能知道啊 不知道这个缩写以及不知道这个缩写显得自己更社会不适格者搞的自己很不爽 
+
+唱how far i will go的时候套成被甩男女的词了
+
+
+唱到什么时候？你说到啥时候好 一直唱下去？才不要啊 我还要打游戏的啊 要我和阿宅一直在一块才不要 死也不要 不对 死了就无所谓了
+
+
+act-age进趋势了 很好奇是有啥发表么自己完全不清楚（好像是出手办了）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 7战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|好评加鹅|
+| WhiteAvalon| + 1||
+| 路人庚| + 1|好评加鹅|
+| onlv星骸| + 2|好评加鹅|
+| 鷹書たかしょ| + 2||
+| Dualist彩| + 1|好评加鹅|
+| likemike| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4675#       发表于 2020-12-7 19:14
+
+
+
+
+汉堡肉啊，必须是亲手做的，给谁吃的呀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4676#       发表于 2020-12-7 19:14
+
+
+
+
+给我吃
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4677#       发表于 2020-12-7 19:20
+
+
+
+
+在回大亏消息？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4678#       发表于 2020-12-7 19:21
+
+
+
+
+又和伴奏打架了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不应该啊
+
+
+
+
+
+
+
+-----
+
+####  清枝  
+##### 4679#       发表于 2020-12-7 19:23
+
+
+
+
+这个伴奏感觉不是自己点的一样
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4680#       发表于 2020-12-7 19:24
+
+
+
+
+可爱死了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4681#       发表于 2020-12-7 19:40
+
+
+
+
+今天也是人狼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（看了眼tc台，确实）
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4682#       发表于 2020-12-7 19:47
+
+
+
+
+她唱カワキヲアメク再怎么喊都有一股奶味，没美波那种嘶吼感
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4683#       发表于 2020-12-7 19:48
+
+
+
+
+她故意的，不过今天还是认真了一点的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4684#       发表于 2020-12-7 19:49
+
+
+
+
+闹腾起来真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4685#       发表于 2020-12-7 19:49
+
+
+
+
+艹，这翻脸的速度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4686#       发表于 2020-12-7 19:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4687#       发表于 2020-12-7 20:03
+
+
+
+
+这个好
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4688#       发表于 2020-12-7 20:06
+
+
+
+
+今天真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
