@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 18:09** 
+> ## **本文件最后更新于2020-12-08 20:11** 
 
 
 
@@ -3790,7 +3790,7 @@ jp分社一个假鬼子几个老nico生把剩下的厂妹吊起来打，不过�
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-8 18:09 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-8 18:37 编辑 
 
 演小品啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
@@ -3822,6 +3822,37 @@ jp分社一个假鬼子几个老nico生把剩下的厂妹吊起来打，不过�
 
 
 
+<img src="https://img.saraba1st.com/forum/202012/08/182049xojz5lrt5l7ytcms.png" referrerpolicy="no-referrer">
+
+
+<strong>【#みんなで行こうぜ社ん家 まもなく本番！】-3.png</strong> (375.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 18:20 上传
+
+
+
+
+
+
+设备拉垮了，现在四个人在后台闲谈，本来想试着唱社歌vtl，四个人没一个知道词的你们都是叛忍吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+菜鸡啊
+
+<img src="https://img.saraba1st.com/forum/202012/08/183737ibxvdtabteymtw4r.png" referrerpolicy="no-referrer">
+
+
+<strong>【#みんなで行こうぜ社ん家 まもなく本番！】-4.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 18:37 上传
+
+
+
+
+
 
 [https://live2.nicovideo.jp/watch/lv329203189](https://live2.nicovideo.jp/watch/lv329203189)
 
@@ -3831,4 +3862,297 @@ jp分社一个假鬼子几个老nico生把剩下的厂妹吊起来打，不过�
 
 
 
-                                           
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21196#       发表于 2020-12-8 18:10
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-8 18:18 编辑 
+
+機材トラブル！？是纯正的日本躬匠精神味儿！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl
+
+尬聊了10分钟终于修好了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21197#       发表于 2020-12-8 18:21
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-8 18:25 编辑 
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bgy1glgmfblaj5j20zk0js0vx.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bgy1glgmfv6fnpj20zk0jswh0.jpg" referrerpolicy="no-referrer">
+
+
+现场用的3D模型的骨架增加了，所以熊猫人和社的动作都更自然，社也不驼背了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21198#       发表于 2020-12-8 18:28
+
+
+
+
+【30曲以上】これが本気の歌詞乗っ取りゲーム！！！！！
+[https://www.youtube.com/watch?v=MkLuyoTU95w](https://www.youtube.com/watch?v=MkLuyoTU95w)
+
+
+7点HH歌战
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21199#       发表于 2020-12-8 18:31
+
+
+
+
+virtual to live 排面阿，这就上封面了阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21200#       发表于 2020-12-8 18:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是龙皇无聊老梗，狗皇才是jp喷神，真正的质，这种展开么。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21201#       发表于 2020-12-8 18:42
+
+
+
+
+有料の男シェリン<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21202#       发表于 2020-12-8 18:56
+
+
+
+[https://www.nicovideo.jp/watch/sm37924404](https://www.nicovideo.jp/watch/sm37924404)
+
+勇気ちひろ「楓ぇ！休止するか？心こわれるか！」<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21203#       发表于 2020-12-8 19:00
+
+
+
+
+鲨皇老德不配位了，还不如黑鲨皇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/08/185954u62rley7303167dq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201123170633.png</strong> (710.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 18:59 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21204#       发表于 2020-12-8 19:00
+
+
+
+
+【＃無音ポケモン】【VΔLZオフコラボ】ハルにBGM、SE、フルボイス付きリマスター版サファイアやらせてみた【長尾景/弦月藤士郎/甲斐田晴/にじさんじ】
+
+[https://youtu.be/xNEoxIlMfc4](https://youtu.be/xNEoxIlMfc4)
+
+
+又在整活，一个负责玩一个负责BGM一个负责配音<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21205#       发表于 2020-12-8 19:01
+
+
+
+
+続！キズナー電話企画！「みんなの4周年」延長戦！
+[https://www.youtube.com/watch?v=ogtUTNKnGbQ](https://www.youtube.com/watch?v=ogtUTNKnGbQ)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21206#       发表于 2020-12-8 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 谢林这3D有点东西
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21207#       发表于 2020-12-8 19:29
+
+
+
+
+2000居然买了有料部分<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21208#       发表于 2020-12-8 19:40
+
+
+
+
+真正的虹人.jpg<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 21209#       发表于 2020-12-8 19:41
+
+
+
+
+有料部分居然一个小时就结束了，好坑
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21210#       发表于 2020-12-8 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 总结一下，神七＞机台
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21211#       发表于 2020-12-8 20:05
+
+
+
+[https://www.youtube.com/watch?v=xf8Ackp4jy4](https://www.youtube.com/watch?v=xf8Ackp4jy4)
+
+大葵三周年开啦，今天居然的用的是二代模型
+
+
+
+
+
+                                          
