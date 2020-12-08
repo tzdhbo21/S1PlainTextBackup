@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 04:06** 
+> ## **本文件最后更新于2020-12-08 12:08** 
 
 
 
@@ -1738,4 +1738,670 @@ hololive，他改变了日本油管
 
 
 
-                                              
+
+
+-----
+
+####  stygian  
+##### 21092#       发表于 2020-12-8 04:08
+
+
+
+
+现在有公言要第一时间播2077的管人了吗
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 21093#       发表于 2020-12-8 04:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内阿婆主大多9号晚上就能体验了
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 21094#       发表于 2020-12-8 05:57
+
+
+
+
+2077来了自己不第一时间开玩去看管人玩？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21095#       发表于 2020-12-8 06:58
+
+
+
+
+我就知道DID这个六点Apex晨练计划是不可能实现的，老懒鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+Syl,黑客深夜自爆：进入2434找到女朋友了
+
+好家伙，牛还是你牛（猜拳企划也真的是他出资的100w奖励金）
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21096#       发表于 2020-12-8 08:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">做v好爽，又能赚大钱又能找到女友（虽然我看repo这女友不是真的交到女友的意思来着）。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21097#       发表于 2020-12-8 08:48
+
+
+
+
+所以你虹主播挣不到sc ，就算我们观众有99%的问题，你liver难道就没有1%的问题吗？都这么后浪谁还想打钱
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 21098#       发表于 2020-12-8 08:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 21099#       发表于 2020-12-8 08:52
+
+
+
+ 本帖最后由 TRW 于 2020-12-8 08:55 编辑 
+
+<strong>DJKG(影山ヒロノブ)・樋口楓[size=2.5]Virtual anisong power JAM!!! Produce By Lantis DAY3</strong>2021.01.11[size=1.5]20:00～21:00
+アニソンに特化したレーベル「Lantis」のアーティストが3日間にわたって出演をする
+
+アニソンオンラインライブイベント　『Virtual anisong power JAM!!!』
+
+ 最終日は、アニソンシンガー影山ヒロノブが、ＤＪとしても活動をする「DJKG」と、
+
+ランティスレーベル初のバーチャルライバーアーティストとして2020年3月に
+
+メジャーデビューを果たした　樋口楓　2組が出演！
+
+ランティスレーベルの、新たなライブ展開を繰り広げる最終日に要注目！！
+
+<img src="https://img.saraba1st.com/forum/202012/08/085001y13y15083o0312gm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20201208_084525.jpg</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 08:50 上传
+
+
+
+
+
+当v必然爽啊，楼友们什么时候出道？
+
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 21100#       发表于 2020-12-8 09:27
+
+
+
+
+两边都有日清live了，像是日清宣传自己的live house
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 21101#       发表于 2020-12-8 09:45
+
+
+
+
+前天是kmnz，过几天有花铗，再过几天有狮子神，也有不少三次元组合，这个日清站在十二月和一月的live很多，大概是开业酬宾、冲着折扣来的。
+
+回放只有一天，直播/回放码率只有360p和720p，这个新站点完全是十年前的水平。叔叔该去踏平岛国了……
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21102#       发表于 2020-12-8 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49646390&amp;ptid=1969498" target="_blank">TRW 发表于 2020-12-8 08:52</a>DJKG(影山ヒロノブ)・樋口楓Virtual anisong power JAM!!! Produce By Lantis DAY32021.01.1120:00 ...</blockquote>
+我酸了，为什么我不是yhm<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21103#       发表于 2020-12-8 10:24
+
+
+
+
+cdpr的版权应该随便拿的吧，但是yhm不指望了，看看EN吧
+
+
+
+
+
+
+
+-----
+
+####  ERIC_LAWSEN  
+##### 21104#       发表于 2020-12-8 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49645809&amp;ptid=1969498" target="_blank">stygian 发表于 2020-12-8 04:08</a>
+
+现在有公言要第一时间播2077的管人了吗</blockquote>
+华生
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21105#       发表于 2020-12-8 10:25
+
+
+
+ 本帖最后由 winda 于 2020-12-8 11:02 编辑 
+
+[https://twitter.com/MahiroYukish ... 17205683580928?s=20](https://twitter.com/MahiroYukishiro/status/1336017205683580928?s=20)
+
+还是宣传holo比较香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ho又赢
+
+今天可是敲机台活动啊喂
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21106#       发表于 2020-12-8 10:34
+
+
+
+<blockquote>alcoholic1000 发表于 2020-12-8 06:58
+我就知道DID这个六点Apex晨练计划是不可能实现的，老懒鬼了
+
+
+Syl,黑客深夜自爆：进入2434找到女朋友 ...</blockquote>
+不要偏向报道啊，他本意是想顺着大家的“2434真好”玩自己因为2434朋友多了事业顺利了交到女朋友了etc的广告定型文梗的()
+
+结果因为上来就说女朋友导致大家都没反应过来冷场了才搞的像真的一样
+
+后面有解释的
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 21107#       发表于 2020-12-8 10:40
+
+
+
+
+2077来了就算云国内主机区也不会云管人的吧😅
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21108#       发表于 2020-12-8 10:47
+
+
+
+
+2077当然是看泥潭唯一指定男管人小秦播啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 21109#       发表于 2020-12-8 10:49
+
+
+
+
+2077真的能播吗？
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 21110#       发表于 2020-12-8 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭最看不起的不就是没文化的zz狗头人吗
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 21111#       发表于 2020-12-8 10:52
+
+
+
+
+这种剧情占比重的游戏还是看寅子播代入感最强吧
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21112#       发表于 2020-12-8 10:55
+
+
+
+
+总比隔壁无脑吹秦爽二人，碰倒任何阿B游戏UP都要来一句“如何评价”再yygq要好吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21113#       发表于 2020-12-8 10:58
+
+
+
+
+所以你呆谁会先播2077呢？en?446?狗子?大亏？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21114#       发表于 2020-12-8 11:00
+
+
+
+
+2077据说是有直播模式的，会和谐掉很多东西，虹这边说要玩的也挺多的，比如牛姨这种蠢驴粉
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21115#       发表于 2020-12-8 11:02
+
+
+
+
+花生的表已经排上2077了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21116#       发表于 2020-12-8 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 还不如猜猜看哪家第一个恰到蠢驴的饭来的实在，
+
+
+别又是八竿子打不着的人恰到饭
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21117#       发表于 2020-12-8 11:11
+
+
+
+
+蠢驴恰饭可能性比2077里出现管人主播还低
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 21118#       发表于 2020-12-8 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21119#       发表于 2020-12-8 11:18
+
+
+
+
+真的有玩家在先玩游戏之前看秦爽吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+小秦和爽球直播间唯一的乐子不就是放空大脑当个梗小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21120#       发表于 2020-12-8 11:19
+
+
+
+
+快进到C菌事件复刻？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 21121#       发表于 2020-12-8 11:25
+
+
+
+
+卧槽通风口这和JAM同台有点牛皮啊…等级会不会差的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21122#       发表于 2020-12-8 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 他们都把主播配音做进去了，招管人恰饭又有什么不可能呢？
+
+
+我觉得把狗子、狐狸做进去，比主播配音赛博多了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21123#       发表于 2020-12-8 11:35
+
+
+
+
+那能不能让夜见恰个饭啊，好歹tgs当了官方转播间同时视听了2077发布会的，还把2077使劲吹了一通的，虽然我知道她当时说的一定会玩2077是骗人的
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 21124#       发表于 2020-12-8 11:43
+
+
+
+
+我听朋友说2077改个启动器就能玩了 1qcSdRj6CxILASbwnfbEGxg 2222，我还没试过，但是没有40G的首日补丁怕是bug满天飞啊
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21125#       发表于 2020-12-8 11:46
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/114559f9a009onduhoh9md.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EorUwvmU8AEZK0H.jpeg</strong> (268.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 11:45 上传
+
+
+
+
+
+
+华生一周14场直播
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 21126#       发表于 2020-12-8 11:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">小红也出生日谷了，这生日谷出是什么根据的啊
+
+
+
+
+
+
+
+-----
+
+####  _68_  
+##### 21127#       发表于 2020-12-8 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49648280&amp;ptid=1969498" target="_blank">ylssb10438 发表于 2020-12-8 11:43</a>
+我听朋友说2077改个启动器就能玩了 1qcSdRj6CxILASbwnfbEGxg 2222，我还没试过，但是没有40G的首日补丁怕是 ...</blockquote>
+fake news
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21128#       发表于 2020-12-8 12:02
+
+
+
+<blockquote>死体残留 发表于 2020-12-8 11:50
+小红也出生日谷了，这生日谷出是什么根据的啊</blockquote>
+就是个人意愿吧
+
+
+
+
+
+                                             
