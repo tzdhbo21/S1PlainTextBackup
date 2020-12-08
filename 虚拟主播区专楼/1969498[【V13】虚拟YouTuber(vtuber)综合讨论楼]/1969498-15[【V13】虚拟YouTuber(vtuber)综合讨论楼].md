@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 12:08** 
+> ## **本文件最后更新于2020-12-08 14:08** 
 
 
 
@@ -2318,8 +2318,98 @@ Syl,黑客深夜自爆：进入2434找到女朋友 ...</blockquote>
 
 
 
+ 本帖最后由 ylssb10438 于 2020-12-8 12:09 编辑 
 
-我听朋友说2077改个启动器就能玩了 1qcSdRj6CxILASbwnfbEGxg 2222，我还没试过，但是没有40G的首日补丁怕是bug满天飞啊
+我听朋友说2077改个启动器就能玩了 ，我还没试过，但是没有40G的首日补丁怕是bug满天飞啊 。syl没有首日补丁游戏是这样的
+
+
+
+
+
+
+QQ图片20201208120829.jpg
+(57.89 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-8 12:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/120909zmtvmvqqvm13hxmz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20201208120836.jpg
+(28.89 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-8 12:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/120913fdeqeojnd13u1wlo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20201208120845.jpg
+(57.53 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-8 12:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/120916xas7686g1i8naa38.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
 
 
 
@@ -2404,4 +2494,655 @@ fake news
 
 
 
-                                             
+
+
+-----
+
+####  yla  
+##### 21129#       发表于 2020-12-8 12:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看朋友给我发的图，鲨皇的男友被人查到了？holo en原来也是独角兽密集区吗
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 21130#       发表于 2020-12-8 12:22
+
+
+
+
+。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21131#       发表于 2020-12-8 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49648733&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-8 12:19</a>
+
+看朋友给我发的图，鲨皇的男友被人查到了？holo en原来也是独角兽密集区吗 ...</blockquote>
+假的
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 21132#       发表于 2020-12-8 12:31
+
+
+
+
+假的是指鲨皇有男友是假的，还是查出来的“男友”是假的，还是独角兽密集区是假的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 21133#       发表于 2020-12-8 12:34
+
+
+
+
+欧美都能有独角兽？他们心里没逼数的？
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21134#       发表于 2020-12-8 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49648733&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-8 12:19</a>
+
+看朋友给我发的图，鲨皇的男友被人查到了？holo en原来也是独角兽密集区吗 ...</blockquote>
+4chan老哥你还信么（
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21135#       发表于 2020-12-8 12:39
+
+
+
+
+去翻了下，好像也就只是个关系密切，没有石锤明确关系
+
+不过我震惊的终究是独角兽部分，那可是en
+
+你说土奥留学的没男友我姑且还能勉强信一下
+
+en那边怎么可能对吧
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21136#       发表于 2020-12-8 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49648988&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-8 12:39</a>
+
+去翻了下，好像也就只是个关系密切，没有石锤明确关系
+
+不过我震惊的终究是独角兽部分，那可是en
+
+你说土奥留 ...</blockquote>
+一般来说独角兽都是处男，欧美就算开放，也有不少处男的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21137#       发表于 2020-12-8 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49648901&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2020-12-8 12:31</a>
+
+假的是指鲨皇有男友是假的，还是查出来的“男友”是假的，还是独角兽密集区是假的？ ...</blockquote>
+鲨鱼有男友：目前没有有效信息证明这一点
+
+查出来的“男友”：假的，5ch转4ch编的屎再被垃圾回收到了国内
+
+国外独角兽密集：国外独角兽要发疯也应该是先对kiara和ame发疯
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21138#       发表于 2020-12-8 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649005&amp;ptid=1969498" target="_blank">colodes 发表于 2020-12-8 12:40</a>
+
+鲨鱼有男友：目前没有有效信息证明这一点
+
+查出来的“男友”：假的，5ch转4ch编的屎再被垃圾回收到了国内
+
+ ...</blockquote>
+ame已经发疯过了就是了，被ame呛回去了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21139#       发表于 2020-12-8 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49647652&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-8 10:55</a>
+
+总比隔壁无脑吹秦爽二人，碰倒任何阿B游戏UP都要来一句“如何评价”再yygq要好吧
+
+
+  -- 来自 能看大 ...</blockquote>
+秦川也就算了，好歹是个游戏主播。爽球不就是砍口雷版主吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21140#       发表于 2020-12-8 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649001&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-8 12:40</a>
+
+一般来说独角兽都是处男，欧美就算开放，也有不少处男的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">终究是太年轻
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21141#       发表于 2020-12-8 12:56
+
+
+
+[https://www.bilibili.com/video/bv1fa411F7oZ](https://www.bilibili.com/video/bv1fa411F7oZ)
+
+奇袭之风这边没发过阿，
+
+好歹是z5的文本，看看吧，
+
+话说还有零人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21142#       发表于 2020-12-8 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶山也上钻了，接下来就看花妈和elu了
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 21143#       发表于 2020-12-8 13:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个jay和佐藤希和risu都认识的，具体身份我暂且蒙古
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21144#       发表于 2020-12-8 13:08
+
+
+
+
+鲨皇都没特出来，男友就算了吧。宅宅没有sen还可以拿nyan来yy。
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 21145#       发表于 2020-12-8 13:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的世界线和你是不是不太一样 sena howard都没特出来了
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21146#       发表于 2020-12-8 13:14
+
+
+
+
+Jay，我懂了，是杰伦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AliceCrazy  
+##### 21147#       发表于 2020-12-8 13:15
+
+
+
+
+有没有老哥发点鲨皇塔照 EN的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21148#       发表于 2020-12-8 13:16
+
+
+
+
+鲨皇目前没塔照，之前有找到的那个是假的
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21149#       发表于 2020-12-8 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649328&amp;ptid=1969498" target="_blank">AliceCrazy 发表于 2020-12-8 13:15</a>
+
+有没有老哥发点鲨皇塔照 EN的</blockquote>
+鲨鱼个人信息保护的超级紧，看了下火鸡和死神的塔照，我倒是对火鸡X死神感兴趣了XD
+
+
+
+
+
+
+
+-----
+
+####  AliceCrazy  
+##### 21150#       发表于 2020-12-8 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649365&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-8 13:18</a>
+
+鲨鱼个人信息保护的超级紧，看了下火鸡和死神的塔照，我倒是对火鸡X死神感兴趣了XD ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/08/131934yzhfkkfhbdwbtfio.jpg" referrerpolicy="no-referrer">
+
+
+<strong>%%RYHOH`K]V}_PRU55K1_)0.jpg</strong> (132.97 KB, 下载次数: 25)
+
+下载附件
+
+2020-12-8 13:19 上传
+
+
+
+
+
+上次看到过这个感觉可信度还是有点的
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21151#       发表于 2020-12-8 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649387&amp;ptid=1969498" target="_blank">AliceCrazy 发表于 2020-12-8 13:20</a>
+上次看到过这个感觉可信度还是有点的</blockquote>
+不是的，这个是她注销的旧账号的新持有者的照片
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21152#       发表于 2020-12-8 13:25
+
+
+
+
+不管真的假的，感觉还阔以<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+至少没有像糊皇那个等级的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21153#       发表于 2020-12-8 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649387&amp;ptid=1969498" target="_blank">AliceCrazy 发表于 2020-12-8 13:20</a>
+
+上次看到过这个感觉可信度还是有点的</blockquote>
+鲨鱼那个好像没有确证
+
+[https://luna.komica.org/19/pixmicat.php?res=1819963](https://luna.komica.org/19/pixmicat.php?res=1819963)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21154#       发表于 2020-12-8 13:27
+
+
+
+<blockquote>TiHaru 发表于 2020-12-8 13:10
+我的世界线和你是不是不太一样 sena howard都没特出来了</blockquote>
+那张黑发白皮眼镜nerd girl据说是假的
+
+ina没有，华生死神蛋糕姬有
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21155#       发表于 2020-12-8 13:31
+
+
+
+
+还是说一下吧，上图是确证过的，但是高度美颜，你要问为什么，因为有另一个账号也被突破了，从2015年的某张照片来看，除了瘦了一点，五官基本一致
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 心垂万刃| + 1|yyds|
+| A2014720| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21156#       发表于 2020-12-8 13:34
+
+
+
+
+原图来源是facebook，说个jb呢
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21157#       发表于 2020-12-8 13:34
+
+
+
+
+原图来源是facebook，说个jb呢
+
+<img src="https://img.saraba1st.com/forum/202012/08/133357m95ujgch6vj39jjx.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2020-12-08 133339.png</strong> (18.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 13:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21158#       发表于 2020-12-8 13:35
+
+
+
+
+多谢colo哥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21159#       发表于 2020-12-8 13:36
+
+
+
+
+yyds
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21160#       发表于 2020-12-8 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649387&amp;ptid=1969498" target="_blank">AliceCrazy 发表于 2020-12-8 13:20</a>
+
+上次看到过这个感觉可信度还是有点的</blockquote>
+ina那张不对，是同名用户
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21161#       发表于 2020-12-8 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649518&amp;ptid=1969498" target="_blank">colodes 发表于 2020-12-8 13:31</a>
+
+还是说一下吧，上图是确证过的，但是高度美颜，你要问为什么，因为有另一个账号也被突破了，从2015年的某张 ...</blockquote>
+求另一个账号
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21162#       发表于 2020-12-8 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649678&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-8 13:46</a>
+
+求另一个账号</blockquote>
+准确的说应该是两个，另一个涉及现实生活的已爆破，只能给你这一个了
+[https://www.facebook.com/brownbeetv/](https://www.facebook.com/brownbeetv/)
+
+
+
+
+
+                                            
