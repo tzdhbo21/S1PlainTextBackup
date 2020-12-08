@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 14:08** 
+> ## **本文件最后更新于2020-12-08 18:09** 
 
 
 
@@ -2025,6 +2025,25 @@ Syl,黑客深夜自爆：进入2434找到女朋友 ...</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|没说清楚我的我的，但应该也不会有人误会.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -2825,14 +2844,7 @@ Jay，我懂了，是杰伦<img src="https://static.saraba1st.com/image/smiley/f
 ####  AliceCrazy  
 ##### 21147#       发表于 2020-12-8 13:15
 
-
-
-
-有没有老哥发点鲨皇塔照 EN的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2875,30 +2887,7 @@ Jay，我懂了，是杰伦<img src="https://static.saraba1st.com/image/smiley/f
 ####  AliceCrazy  
 ##### 21150#       发表于 2020-12-8 13:20
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649365&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-8 13:18</a>
-
-鲨鱼个人信息保护的超级紧，看了下火鸡和死神的塔照，我倒是对火鸡X死神感兴趣了XD ...</blockquote>
-
-<img src="https://img.saraba1st.com/forum/202012/08/131934yzhfkkfhbdwbtfio.jpg" referrerpolicy="no-referrer">
-
-
-<strong>%%RYHOH`K]V}_PRU55K1_)0.jpg</strong> (132.97 KB, 下载次数: 25)
-
-下载附件
-
-2020-12-8 13:19 上传
-
-
-
-
-
-上次看到过这个感觉可信度还是有点的
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3145,4 +3134,701 @@ ina那张不对，是同名用户
 
 
 
-                                            
+
+
+-----
+
+####  smy20011  
+##### 21163#       发表于 2020-12-8 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649774&amp;ptid=1969498" target="_blank">colodes 发表于 2020-12-8 13:57</a>
+
+准确的说应该是两个，另一个涉及现实生活的已爆破，只能给你这一个了
+
+https://www.facebook.com/brownbee ...</blockquote>
+搜了半天人设更混乱了= =
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21164#       发表于 2020-12-8 14:19
+
+
+
+
+所以说冲塔点到为止就行了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21165#       发表于 2020-12-8 14:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649960&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2020-12-8 14:19</a>
+
+所以说冲塔点到为止就行了</blockquote>
+信息对不起来，然后和holo一贯的作风也不符= =，不知道应该信哪个
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21166#       发表于 2020-12-8 14:23
+
+
+
+
+小秦不是S1唯一指定游戏主播吗？什么时候地位已经变成最看不起的了<img src="https://static.saraba1st.com/image/smiley/carton2017/335.gif" referrerpolicy="no-referrer">
+
+至于管人播2077，快算了吧，这帮小姑娘哪有那个心性，有那个时间，逛该才是正道
+
+
+
+
+
+
+
+-----
+
+####  藤堂加奈  
+##### 21167#       发表于 2020-12-8 14:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海鲜那几个肯定都要播，随便挑一个不比yhm强。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21168#       发表于 2020-12-8 14:28
+
+
+
+
+2077自己玩不好吗
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21169#       发表于 2020-12-8 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650002&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-8 14:23</a>
+
+小秦不是S1唯一指定游戏主播吗？什么时候地位已经变成最看不起的了
+
+
+至于管人播2077，快算了吧，这 ...</blockquote>
+这周华生有播，其他人不知道
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21170#       发表于 2020-12-8 14:29
+
+
+
+
+看不懂，所以到底有多少种…
+
+
+
+
+
+
+B069E25B-4EB5-450B-95DD-4CE5E7241FED.jpeg
+(65.85 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-8 14:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/142926l2nszkshn2b3svdl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+E1E974A5-25B0-4B5C-BAD5-A98A44401098.jpeg
+(47.07 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-8 14:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/142934ggjs93t9779ptgtb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+169834EF-6DB5-46AD-9BFB-B9FCEA016F49.jpeg
+(31.42 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-8 14:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/142938frppzezgkwa5gqj0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 21171#       发表于 2020-12-8 14:31
+
+
+
+
+看管人播2077有什么意思吗？想得脑溢血？只看的下管人播无脑游戏<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21172#       发表于 2020-12-8 14:35
+
+
+
+
+U1S1，不少游戏我都是先看再玩的，毕竟……敌不过新西兰人啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21173#       发表于 2020-12-8 14:41
+
+
+
+
+欧美rpg都是多线路，和jrpg单线区别还是挺大的，云一下影响不大
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21174#       发表于 2020-12-8 14:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49649992&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-8 14:22</a>
+信息对不起来，然后和holo一贯的作风也不符= =，不知道应该信哪个</blockquote>
+正常，五年前连v都没有何况木口<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21175#       发表于 2020-12-8 15:04
+
+
+
+
+佛了 最近船长天天要被ban一次直播间 油管咋回事啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 21176#       发表于 2020-12-8 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650002&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-8 14:23</a>
+
+小秦不是S1唯一指定游戏主播吗？什么时候地位已经变成最看不起的了
+
+
+至于管人播2077，快算了吧，这 ...</blockquote>
+你去游戏区超级小桀那贴逛一圈看看
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 21177#       发表于 2020-12-8 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650392&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-8 15:04</a>
+ 你去游戏区超级小桀那贴逛一圈看看</blockquote>
+那可是段东桀啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+你把狗头人单拎出来，虽然也有人不喜欢，但总体口碑还可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21178#       发表于 2020-12-8 15:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这里唯二不会有人黑的不就只有热心网友谜之声和专门推荐自己不卖的书的魔法师么
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21179#       发表于 2020-12-8 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650056&amp;ptid=1969498" target="_blank">bluebaby 发表于 2020-12-8 14:29</a>
+
+看不懂，所以到底有多少种…</blockquote>
+38个人，46种卡啊
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21180#       发表于 2020-12-8 15:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650352&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2020-12-8 14:59</a>
+
+正常，五年前连v都没有何况木口</blockquote>
+倒不是这个意思。。不过不讨论好了，事情真真假假的
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21181#       发表于 2020-12-8 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650392&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-8 15:04</a>
+你去游戏区超级小桀那贴逛一圈看看</blockquote>
+也就那贴吐槽了一圈而已，泥潭小秦的真爱楼可比桀哥那楼高多了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21182#       发表于 2020-12-8 16:30
+
+
+
+ 本帖最后由 nowaki 于 2020-12-8 16:41 编辑 
+
+看错了，再宣传而已
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 21183#       发表于 2020-12-8 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨皇张的不行或者一般妨碍你们用鲨皇的数字压别人吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21184#       发表于 2020-12-8 16:45
+
+
+
+[https://www.bilibili.com/video/BV1DA411j7fc](https://www.bilibili.com/video/BV1DA411j7fc)
+
+
+管人微相关
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21185#       发表于 2020-12-8 16:50
+
+
+
+<blockquote>味增味增 发表于 2020-12-8 16:36
+鲨皇张的不行或者一般妨碍你们用鲨皇的数字压别人吗</blockquote>
+不妨碍，但长得行就可以用同时用数字和颜值碾压了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21186#       发表于 2020-12-8 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49651380&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-8 16:45</a>
+
+https://www.bilibili.com/video/BV1DA411j7fc
+
+
+管人微相关</blockquote>
+居然是774……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 21187#       发表于 2020-12-8 17:10
+
+
+
+
+774好
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21188#       发表于 2020-12-8 17:19
+
+
+
+
+真正的强者就应该各方面都胜过别人，当然那种什么cjb的几边形战士就不要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21189#       发表于 2020-12-8 17:39
+
+
+
+
+正好相反，那边很多人觉得鲨鱼“德不配位”，holoJP才是“质”的。
+
+当然这也不能算是主流意见，不过什么是主流意见也只是由不同的时局、立场以及观察者所能获取的最大信息量决定的就是了
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 21190#       发表于 2020-12-8 17:40
+
+
+
+
+jp的质论白皮懂么
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21191#       发表于 2020-12-8 17:46
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-8 17:48 编辑 
+
+不愧是蠢驴日本钟爱的女人，明天晚上牛姨拿到了2077的首播资格要播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+PS：是蠢驴主动找的牛姨
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 21192#       发表于 2020-12-8 17:47
+
+
+
+
+古参白皮不过是落入了sharkids制造的婆罗门陷阱罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21193#       发表于 2020-12-8 18:03
+
+
+
+
+jp分社一个假鬼子几个老nico生把剩下的厂妹吊起来打，不过考虑到厉外拉同是婆罗门刻在dna里的天赋，有这个想法也很正常。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21194#       发表于 2020-12-8 18:03
+
+
+
+
+牛姨经常转蠢驴的推特的，这算是圆梦了吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21195#       发表于 2020-12-8 18:03
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-8 18:09 编辑 
+
+演小品啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/08/180345q3xjk3xvcc32hvcp.png" referrerpolicy="no-referrer">
+
+
+<strong>ww.png</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 18:03 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/180926taweka5mwv5wlkej.png" referrerpolicy="no-referrer">
+
+
+<strong>【#みんなで行こうぜ社ん家 まもなく本番！】-2.png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 18:09 上传
+
+
+
+
+
+
+
+[https://live2.nicovideo.jp/watch/lv329203189](https://live2.nicovideo.jp/watch/lv329203189)
+
+
+
+
+
+
+
+                                           
