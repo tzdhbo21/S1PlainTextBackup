@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 20:11** 
+> ## **本文件最后更新于2020-12-08 22:08** 
 
 
 
@@ -4155,4 +4155,795 @@ virtual to live 排面阿，这就上封面了阿<img src="https://static.saraba
 
 
 
-                                          
+
+
+-----
+
+####  SuntoryNomu  
+##### 21212#       发表于 2020-12-8 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+にじさんじ公式🌈🕒 @nijisanji_app
+
+【🎉#にじさんじアーカイブス 2020-2021　販売決定＆予約開始！🌈】
+
+
+「にじさんじアーカイブス 2020-2021」が来年2021/2/26(金)、オフィシャルストア・全国書店にて 販売決定！
+
+
+予約受付は≪ 本日２１時 ≫より開始！！
+
+
+詳細情報はこちら！▽
+[https://ichikara.co.jp/news/11667/](https://ichikara.co.jp/news/11667/)
+
+<img src="https://img.saraba1st.com/forum/202012/08/201254dgjvi64fblllisf6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EotrjjCU8AA7Gu7.jpg</strong> (196.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 20:12 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21213#       发表于 2020-12-8 20:16
+
+
+
+
+这出得比我看得快，二周年还没捂热乎呢...
+
+
+
+
+
+（掏钱
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21214#       发表于 2020-12-8 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/08/201852r8uag7g350g3g6a5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>photo_2020-12-08_16-26-43.jpg</strong> (39.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 20:18 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -rm7-| + 1|武德充沛....不对，武德爆表|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21215#       发表于 2020-12-8 20:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/202044m575zssudsiisky7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201208202013.png</strong> (267.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 20:20 上传
+
+
+
+
+
+   装大脸猫的船长
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21216#       发表于 2020-12-8 20:23
+
+
+
+
+fight me like a true man.
+
+F U and never come back.
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 21217#       发表于 2020-12-8 20:25
+
+
+
+
+武德充沛啊
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 21218#       发表于 2020-12-8 20:26
+
+
+
+
+我紫宝今天就叫你们知道什么叫做万国来朝
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21219#       发表于 2020-12-8 20:32
+
+
+
+
+等一个鲨皇发来贺电
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OldGlory| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 21220#       发表于 2020-12-8 20:34
+
+
+
+ 本帖最后由 kk89897 于 2020-12-8 20:36 编辑 
+
+草 ID武德充沛 我宣布是tskk输了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虹人不可战胜
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21221#       发表于 2020-12-8 20:38
+
+
+
+
+感觉486和傻紫的感觉比甚么夏紫好多了（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+路西法开场惊艳
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21222#       发表于 2020-12-8 20:39
+
+
+
+
+粽子还挺稀客的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21223#       发表于 2020-12-8 20:43
+
+
+
+
+那天一起排的两位野队这么让人在意的么
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/204212cqz1eq4gjq49t7hv.png" referrerpolicy="no-referrer">
+
+
+<strong>bora.png</strong> (88.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 20:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 21224#       发表于 2020-12-8 20:53
+
+
+
+
+鲨皇真来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真万国来朝
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 21225#       发表于 2020-12-8 20:53
+
+
+
+
+草草草 鲨皇真来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太紫面子真大啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21226#       发表于 2020-12-8 20:53
+
+
+
+
+什么叫太紫啊 这就叫太紫 
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 21227#       发表于 2020-12-8 20:53
+
+
+
+
+鲨皇真来了(录像
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21228#       发表于 2020-12-8 20:53
+
+
+
+
+草，鲨皇庆祝太紫生日<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21229#       发表于 2020-12-8 20:53
+
+
+
+
+什么叫太紫啊 这就叫太紫 
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 21230#       发表于 2020-12-8 20:53
+
+
+
+
+这就是太紫的牌面吗
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 21231#       发表于 2020-12-8 20:54
+
+
+
+
+草，隔壁游戏区看到的，不知道是不是火星了，这和阿b铺天盖地的桥本环奈相比哪个更膈应人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/6a6837858c697eeb470ba7e56841e879/IMG_CMP_152589001.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 21232#       发表于 2020-12-8 20:55
+
+
+
+
+沙皇真来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">夸果然压轴
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21233#       发表于 2020-12-8 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653720&amp;ptid=1969498" target="_blank">Mafise 发表于 2020-12-8 20:54</a>
+
+草，隔壁游戏区看到的，不知道是不是火星了，这和阿b铺天盖地的桥本环奈相比哪个更膈应人？[ ...</blockquote>
+难道不是游戏区觉悟很高主动给tskk打码吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21234#       发表于 2020-12-8 20:57
+
+
+
+
+太紫！（震声）
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 21235#       发表于 2020-12-8 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653746&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-8 20:56</a>
+难道不是游戏区觉悟很高主动给tskk打码吗</blockquote>
+草，你不说我都没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我带入一个日本游戏婆罗门的视角走进店里看到铺天盖地这些玩意估计肺要气炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21236#       发表于 2020-12-8 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653720&amp;ptid=1969498" target="_blank">Mafise 发表于 2020-12-8 20:54</a>
+草，隔壁游戏区看到的，不知道是不是火星了，这和阿b铺天盖地的桥本环奈相比哪个更膈应人？[ ...</blockquote>
+草，这也太JB弱智了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21237#       发表于 2020-12-8 21:02
+
+
+
+
+虚假的牌面，真正的牌面.jpg
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21238#       发表于 2020-12-8 21:05
+
+
+
+
+这孩子气战争还改词了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21239#       发表于 2020-12-8 21:08
+
+
+
+
+连阿B顶流游戏up都能被主机婆罗门堵泉水，区区几个套皮主播算什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 21240#       发表于 2020-12-8 21:11
+
+
+
+ 本帖最后由 希望之花 于 2020-12-8 21:16 编辑 
+
+大葵生日回怎么一堆内嵌广告的看错了应该是刚才玩页游的界面里有广告
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 21241#       发表于 2020-12-8 21:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/211612ksftb3bsexwjsw1j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ED559380-4E71-4F96-A033-D96C9665BF73.jpeg</strong> (135.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 21:16 上传
+
+
+
+
+
+
+逛推看见一个评论乐到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21242#       发表于 2020-12-8 21:19
+
+
+
+ 本帖最后由 free 于 2020-12-8 21:21 编辑 
+
+大葵29号重大发表，估计就是新衣服和原创曲了
+
+
+新衣服剪影
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/212111bsdehbzi1ucsclcw.png" referrerpolicy="no-referrer">
+
+
+<strong>衣服.png</strong> (430.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 21:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21243#       发表于 2020-12-8 21:19
+
+
+
+
+又是兔夸
+谁再黑屁不仲就跟咱一起挂路灯<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 21244#       发表于 2020-12-8 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653374&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-8 20:18</a></blockquote>
+这英语怎么这么奇怪，不都是a real man 吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 21245#       发表于 2020-12-8 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653934&amp;ptid=1969498" target="_blank">Miduki 发表于 2020-12-8 21:16</a>
+
+逛推看见一个评论乐到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">草……哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 21246#       发表于 2020-12-8 21:29
+
+
+
+
+hana推特这么战斗力高么，直播时候看不出来啊
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21247#       发表于 2020-12-8 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653934&amp;ptid=1969498" target="_blank">Miduki 发表于 2020-12-8 21:16</a>
+
+逛推看见一个评论乐到了</blockquote>
+大作ソシャゲ不会指的是原神吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21248#       发表于 2020-12-8 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653960&amp;ptid=1969498" target="_blank">free 发表于 2020-12-8 21:19</a>
+
+大葵29号重大发表，估计就是新衣服和原创曲了
+
+
+新衣服剪影</blockquote>
+这裙子真的不会漏吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl   原神也就骗骗母猪日本人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  s32244153  
+##### 21249#       发表于 2020-12-8 22:02
+
+
+
+
+快2021的动物之森....<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
