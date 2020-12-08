@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 22:08** 
+> ## **本文件最后更新于2020-12-09 00:10** 
 
 
 
@@ -4946,4 +4946,604 @@ syl   原神也就骗骗母猪日本人了<img src="https://static.saraba1st.c
 
 
 
-                                         
+
+
+-----
+
+####  深渊萃取  
+##### 21250#       发表于 2020-12-8 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">朵莉丝又是什么瓜，有懂哥内总结一下吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21251#       发表于 2020-12-8 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654557&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-8 22:21</a>
+
+朵莉丝又是什么瓜，有懂哥内总结一下吗？</blockquote>
+最近爆的瓜是私联金主，临近毕业金主不想继续了，就和朋友聊这个事儿，被朋友嘲笑舔狗然后发出来了。
+
+本质上我觉得没啥，去掉皮的话这种事每天都在发生就是了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21252#       发表于 2020-12-8 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654112&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-8 21:37</a>
+
+大作ソシャゲ不会指的是原神吧</blockquote>
+给我arknights一个面子
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 21253#       发表于 2020-12-8 22:25
+
+
+
+
+social game, social
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21254#       发表于 2020-12-8 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654586&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-8 22:23</a>
+
+最近爆的瓜是私联金主，临近毕业金主不想继续了，就和朋友聊这个事儿，被朋友嘲笑舔狗然后发出来了。
+
+本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">好吧，原来这就是背叛吗
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 21255#       发表于 2020-12-8 22:33
+
+
+
+
+高贵的婆罗门原来还会屈尊迈出家门进这种店吗？不都是靠网购？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 21256#       发表于 2020-12-8 22:36
+
+
+
+<blockquote>艾米亚是🐟榜一的萌萌痴情石油佬，前前后后给🐟打的钱有六十余万。10月份其好友得知艾米亚有🐟的qq账号并一直保持着私联关系，而qq号则是🐟在6月份主动提供给艾米亚的
+
+10月份，🐟暗示报销全新iphone12 Pro，艾老板也欣然接受，pua初显成效
+
+11月份holo退出中国，艾米亚意识到舔狗，尤其是管人舔狗的无趣，决定主动减少与朵莉丝之间的接触。这期间朵莉丝在直播间哭的时候有不止一个传话太监鱼子酱跑去私聊艾米亚为什么不在，这种将金主与主播绑定的行为让他终于受够这些表演并且明确表示和朵莉丝割席。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/08/223523e63z6z4g0t2djjj6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>66d0a8fb513d269724a1041942fbb2fb4216d8c6.jpg</strong> (261.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 22:35 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/223542x6xus0mem56x0mjm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>696d53dfb48f8c544ab0c96b2d292df5e1fe7fd5.jpg</strong> (203.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 22:35 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/223555t4kt9zzt74tau8rk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0fd6b5cf36d3d539136a03872d87e950342ab0d9.jpg</strong> (212.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 22:35 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/223618o625a55y565555a6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11f6dbca0a46f21f31845217e1246b600d33ae84.jpg</strong> (119.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 22:36 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/223639uux708834d8u07hc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f31fbe096b63f6249f6530479044ebf81a4ca3be.jpg</strong> (58.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 22:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 21257#       发表于 2020-12-8 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">游戏有店铺特典，谁是婆罗门还不一定呢
+怎么没人repo一下v桃铁的分组
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21258#       发表于 2020-12-8 22:39
+
+
+
+
+太V了太V了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天地鬼  
+##### 21259#       发表于 2020-12-8 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654557&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-8 22:21</a>
+
+朵莉丝又是什么瓜，有懂哥内总结一下吗？</blockquote>
+金主割席后 毕业回没来朋友帮打了个告别sc朵子哥一句让金主死过来让金主被粉丝私信轰炸了 朋友在群里拿这事黑屁朵子哥被内鬼截图到nga开朋友调拨朵子哥和金主关系 然后朋友把当初朵子哥私联金主向金主要东西的聊天截图全放出来了
+
+现在是前世得罪的同事下场开前世的黑料了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21260#       发表于 2020-12-8 22:45
+
+
+
+
+爱园这品味可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21261#       发表于 2020-12-8 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/250.png" referrerpolicy="no-referrer">和斗鱼的差距大概就是没线下环节罢
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 21262#       发表于 2020-12-8 22:49
+
+
+
+
+别尬黑，她这水平六千线下都亏得批爆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21263#       发表于 2020-12-8 22:50
+
+
+
+
+YYSY。死宅做女神的观音兵没点B数么XD
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 21264#       发表于 2020-12-8 23:02
+
+
+
+
+同事爆了啥黑料？国v圈果然还是这种味<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 21265#       发表于 2020-12-8 23:10
+
+
+
+
+我比较好奇是哪位同事<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21266#       发表于 2020-12-8 23:13
+
+
+
+
+阿火，周五，睡船长家预定<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21267#       发表于 2020-12-8 23:16
+
+
+
+
+人家长尾景都买贝斯了，叶师傅你说好的贝斯呢<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+叶师傅说好的长号呢
+
+
+管人善说谎话...
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 21268#       发表于 2020-12-8 23:28
+
+
+
+
+解决不了袖子的穿模问题就解决掉袖子<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+戌亥 とこ热带饮料12/10ソロライブ
+
+@inui_toko
+
+この前スタジオでのリハーサルが終わった後にバンドのみんなと写真を撮ってもらいました热带饮料
+
+
+バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
+
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_a7766" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_V8sl7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+下午11:22 · 2020年12月8日·Twitter for iPhone
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21269#       发表于 2020-12-8 23:30
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-9 00:10 编辑 
+
+撞了。
+
+
+分享一张FA，
+
+很喜欢的电竞女孩。
+
+<img src="https://img.saraba1st.com/forum/202012/09/000349ji6bg75x0sz98022.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EodkY_iU0AAApOO.jpg</strong> (192.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 00:03 上传
+
+
+
+
+
+[https://twitter.com/n9gfsz/status/1335146198991130624](https://twitter.com/n9gfsz/status/1335146198991130624)
+
+
+
+以下内容需要积分高于 10110 才可浏览
+
+啊，其实这里是第1011个发帖的纪念哦，
+
+1011,loli，真有趣。
+
+
+
+老炼铜了。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21270#       发表于 2020-12-8 23:33
+
+
+
+
+从根本解决穿模问题，一劳永逸，为ichikara点赞<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|察觉|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  扶桑洛槿  
+##### 21271#       发表于 2020-12-8 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655132&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-08 23:16:56</a>
+人家长尾景都买贝斯了，叶师傅你说好的贝斯呢
+
+叶师傅说好的长号呢
+
+
+管人善说谎话... ...</blockquote>都氪原神了，建议联系mhy出个乐器卡池<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21272#       发表于 2020-12-8 23:37
+
+
+
+
+这胳膊看上去好细
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21273#       发表于 2020-12-8 23:49
+
+
+
+
+垃圾圆脸又玩了两个小时动森了，垃圾，真想狠狠掐她的圆脸
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 21274#       发表于 2020-12-8 23:56
+
+
+
+
+
+牛姨这是届到了cdpr啊，在官方直播间先行体验2077
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21275#       发表于 2020-12-8 23:59
+
+
+
+<blockquote>烯丝短尾猫 发表于 2020-12-8 23:56
+牛姨这是届到了cdpr啊，在官方直播间先行体验2077</blockquote>
+她待机间建好了的，就在自己频道播
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 21276#       发表于 2020-12-9 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655505&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-8 23:59</a>
+
+她待机间建好了的，就在自己频道播</blockquote>
+点了进去才看到是她自己的（
+
+
+
+
+
+                                        

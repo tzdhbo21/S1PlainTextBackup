@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 22:15** 
+> ## **本文件最后更新于2020-12-09 00:17** 
 
 
 
@@ -4362,10 +4362,12 @@ hello i am cute very very cute yeah~！im otaku？oh thank you yeah！
 
 
 
- 参与人数 11战斗力 +12
+ 参与人数 13战斗力 +15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 鷹書たかしょ| + 2|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
 | elect| + 1|好评加鹅|
 | thisisaspider| + 1|好评加鹅|
 | 素人不相识| + 1|好评加鹅|
@@ -4520,4 +4522,617 @@ syl，话说我是这段时间才知道原来法人也是天狗<img src="https:/
 
 
 
-                                         
+
+
+-----
+
+####  Mr.shelter  
+##### 4750#       发表于 2020-12-8 22:20
+
+
+
+
+sai酱身份一直不明的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 4751#       发表于 2020-12-8 22:20
+
+
+
+
+就她无意中吐露的信息，似乎是她每次一打游戏就有人私信喷她，人数还不少，所以就懒得打游戏了。更何况自己本来就不喜欢打游戏。其实我感觉在nico和tc时期yhm主播几乎是从不打游戏的，大多数就是聊天唱歌，牛逼一点的要么就是asmr和露奶，直到vtuber的发展越来越需要各种游戏来涨粉和维持人气，直播游戏的风气才起来的。她现在的直播方式有点回归了老式的nico生和tc时代，尬聊+脑死唱歌，这也算是她的舒适区吧，今年线下偷偷玩游戏也是屈指可数了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4752#       发表于 2020-12-8 22:22
+
+
+
+
+私信喷，啊这
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4753#       发表于 2020-12-8 22:27
+
+
+
+ 本帖最后由 路人庚 于 2020-12-8 22:34 编辑 
+
+她哪有私信渠道（可见口口相传的信息到最后会有多失真
+
+
+她聊为什么不直播玩游戏，印象中说的原因是这么几点：不想直播自己不爱玩的游戏觉得那只是演技、会有评论区指示厨指指点点、认为自己没办法做到一边说骚话一边玩的溜
+
+
+所以才不爱直播玩
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4754#       发表于 2020-12-8 22:29
+
+
+
+
+我感觉她只是单纯的不想被啊宅指指点点吧
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4755#       发表于 2020-12-8 22:33
+
+
+
+
+这女人打游戏心态有点不太好，又不喜欢指示厨。
+另外不打top了大概是因为当时被几个出名的教官军训，也是不喜欢这种被人放水还压着打的感觉吧
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4756#       发表于 2020-12-8 22:35
+
+
+
+
+所以来b打游戏不挺好的 指示厨和喷她菜的弹幕她又看不懂 也不需要互动 她现在在玩的播出来有点效果的游戏只有lol了吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4757#       发表于 2020-12-8 22:35
+
+
+
+
+啊 话说希望她能回到去年生日后那种干劲满满的状态
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 4758#       发表于 2020-12-8 22:37
+
+
+
+
+可以考虑下连连看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有以前那种STEAM小游戏也不错，懂哥少，大家都可以看个乐子。
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4759#       发表于 2020-12-8 22:38
+
+
+
+
+但她打LOL实在是折磨啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+就不能去找找些有意思的小游戏之类的玩吗，轻松点
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4760#       发表于 2020-12-8 22:38
+
+
+
+
+跟阿b的各种线下活动逐渐脱绑之后大概会慢慢有干劲的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4761#       发表于 2020-12-8 22:40
+
+
+
+
+前几天把今年的熟肉翻了翻 有意思的片段和企划还是不少的 比如那个占卜
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4762#       发表于 2020-12-8 22:41
+
+
+
+
+屑营业还是好看啊 怎么都看不腻 还有黄段子和吃瘪
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4763#       发表于 2020-12-8 22:41
+
+
+
+
+等她没钱了就有干劲了吧 这就去当渣男把小麻钱全骗走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4764#       发表于 2020-12-8 22:42
+
+
+
+
+还有 这吊人的Ｂ限熟肉中都一堆说 以为Ｂ站都是只会说喜欢自己的人了 怎么还能有粉丝误解她对这边印象不好的 无语
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4765#       发表于 2020-12-8 22:42
+
+
+
+
+她去年生日可没少拿钱...
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4766#       发表于 2020-12-8 22:43
+
+
+
+
+对啊 她之前也是说 还是想把重心放在直播上
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4767#       发表于 2020-12-8 22:45
+
+
+
+
+我觉得她对b站粉丝的印象可能比日本粉丝印象还好些 她有印象的b站粉丝都是画手大佬和女粉 对日本粉丝的印象就是mix<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4768#       发表于 2020-12-8 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过说来说去我是觉得多来点精神好的直播就足够了，像今年夏天跟阿b线下活动多的那几个月，有挺多次mea都是闷声闷气开播聊到中途才逐渐恢复精神，这明摆着就是被线下给折腾了（而且她还是顶着日本疫情跑出门搞线下）
+
+
+说到底主播整一堆线下就不是好事
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4769#       发表于 2020-12-8 22:47
+
+
+
+
+对啊……听软软冰说 排练就是把人叫到那里等八九个小时
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 4770#       发表于 2020-12-8 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 4771#       发表于 2020-12-8 22:55
+
+
+
+
+袜子那段大概内容
+
+评论:BLS的袜子是过膝袜、吊带袜还是连**
+
+MEA:不知道，没有想过，问画师
+
+是想着**从透明的连**透出来，还是穿着吊带袜分开腿露出**
+
+我可是知道的，为什么你会在意袜子是什么，肯定是这种目的吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4772#       发表于 2020-12-8 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我早他妈看这些个破活动不爽了，一年搞一次简单的就差不多得了，他妈一搞一年不带停的，真你妈蛋疼
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4773#       发表于 2020-12-8 22:58
+
+
+
+
+茶哥专业
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4774#       发表于 2020-12-8 23:01
+
+
+
+
+感觉错过一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4775#       发表于 2020-12-8 23:05
+
+
+
+
+事业民大概是真的全部暴毙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看不下去就不要勉强自己看了，即使在这里抱怨直播内容也没用啊，快去跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4776#       发表于 2020-12-8 23:11
+
+
+
+
+唉，说到底还是因为我不是她男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+要不然她休想睡懒觉，到时候b限每周五晚上先直播吃饭，然后搞点有意思的棉花糖主题杂谈，同时玩个蜘蛛纸牌，五子棋之类的反正可以暂停且不需要太动脑子的玩意。
+每周六来直播一下午欧陆风云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选法兰西
+周日搞LOL中路solo赛和大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+有我在，休想作息颠倒
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4777#       发表于 2020-12-8 23:12
+
+
+
+
+也许还是文化差异的问题 之前杏那里一直播mc/ark的时期不少中国杏仁都表示看吐了 可霓虹人就是喜欢看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4778#       发表于 2020-12-8 23:12
+
+
+
+ 本帖最后由 路人庚 于 2020-12-8 23:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这不是男友也不是老公，是她爹吧
+
+一直播lol我觉得只是因为真的喜欢玩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4779#       发表于 2020-12-8 23:14
+
+
+
+
+p社游戏直播不是攻略的话真的有人看吗 看人填色<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4780#       发表于 2020-12-8 23:19
+
+
+
+
+可以玩梗啊，契合法国女仆身份和乳法特色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然了，更重要的是我想看
+或者直播练吉他或者琴也不错？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">虽然说不知道都吃灰多久了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 4781#       发表于 2020-12-8 23:28
+
+
+
+
+播杂谈不好吗。
+
+取消一句话封面后杂谈次数显著下降，有理由怀疑做封面抑制了表达欲<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4782#       发表于 2020-12-8 23:32
+
+
+
+
+因为懒狗觉得杂谈要准备很烦 没人踩刹车还会不小心说错话 就不搞了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+说到底还是太安逸了 等我把小麻钱全骗走她就会勤快起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4783#       发表于 2020-12-8 23:45
+
+
+
+
+又开始不把tc当杂谈了，同传man那些字真是白打了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Eutopia  
+##### 4784#       发表于 2020-12-9 00:01
+
+
+
+
+在b打lol受众面又够广，又能满足b站特供的要求，一把就大半小时容易刷时长，还是在自己舒适圈，感觉短期走不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+虽然事业民之心该自裁，但是还是挺希望她能再次走出自己舒适圈去尝试一下一些新游戏或者是别的直播内容。如果只杂谈和唱歌，直播频率一高起来素材用完了太容易虚无了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4785#       发表于 2020-12-9 00:15
+
+
+
+
+我老游戏玩家了，就你咩姐那个水平，一看就是半点游戏理解没有，一个新游戏摆在眼前，根本没有摸索游戏机制的想法，简单来讲就是一边缘玩家
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不是体谅她或者怎样，我单纯就是看不起她
+
+
+
+
+
+                                        
