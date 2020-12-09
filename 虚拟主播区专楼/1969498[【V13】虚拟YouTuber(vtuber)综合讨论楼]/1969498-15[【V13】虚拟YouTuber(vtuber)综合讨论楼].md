@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 14:08** 
+> ## **本文件最后更新于2020-12-09 18:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Z9Ukt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_X8w8b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Kqv84" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_TZwPB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -6012,7 +6012,7 @@ cnV圈 ×
 
 
 C5B841B0-4658-4E1E-A155-EDC6AB887D44.jpeg
-(58.19 KB, 下载次数: 0)
+(58.19 KB, 下载次数: 2)
 
 
 
@@ -6771,7 +6771,7 @@ zanato虽然是个绝代神必人，但还真有信了的
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-9 11:03 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-9 15:24 编辑 
 
 2020.7.2
 
@@ -6789,7 +6789,7 @@ zanato虽然是个绝代神必人，但还真有信了的
 
 
 
-文美、白雪巴、阿喵喵、小红帽、舞元、？、星川、？
+文美、爱园、阿喵喵、小红帽、舞元、？、星川、ars
 
 
 2020.8.7
@@ -6827,7 +6827,7 @@ mahiro、rrm、山神、rion、绿仙、？、？
 
 
 
-？（黑客？）、？、翔哥、？、gaku
+？（黑客？）、噗、翔哥、？、gaku
 
 
 2020.10.6
@@ -7419,10 +7419,11 @@ https://www.c-agent.net/kenketsu/index.html</blockquote>
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| alcoholic1000| + 1|有能|
 | Mr.shelter| + 1|好评加鹅|
 
 
@@ -7448,4 +7449,870 @@ https://www.c-agent.net/kenketsu/index.html</blockquote>
 
 
 
-                                     
+
+
+-----
+
+####  絵生voice  
+##### 21375#       发表于 2020-12-9 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49660510&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-9 13:48</a>
+这个是不是就是以前茄子接的那个工商？看起来holo影响力大了之后这种献血工商都是holo了的啊 ...</blockquote>
+不是，茄子那个跟地区联动更厉害
+这个在昨年holo不火的时候已经找过空妈梅露了，之后是阿夸船长
+<img src="https://p.sda1.dev/0/256c3ee942779966df4294a496015dfd/IMG_CMP_185223537.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 21376#       发表于 2020-12-9 14:26
+
+
+
+
+v综最近流量少就算了，楼友竟然还开始车圣地的烂瓜，坏起来了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 17, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21377#       发表于 2020-12-9 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49660565&amp;ptid=1969498" target="_blank">Bondrewd 发表于 2020-12-9 13:52</a>
+
+建议虚拟主播区改名虚拟偶像区，看了一圈原来是日式偶像的互联网二次元分支啊，确实比海鲜台的土味 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么要改？12月过去，就不存在虚拟偶像了啊。holo是偶像团体，其他人又不是。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21378#       发表于 2020-12-9 14:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 按照隔壁NGA阳光虹人的说法，应该叫虚拟综艺区
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21379#       发表于 2020-12-9 14:48
+
+
+
+
+改称虚拟艺人吧
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 21380#       发表于 2020-12-9 14:50
+
+
+
+
+人家日本偶像是踩zz地雷了还是私联金主了，为什么要被拿来和套皮女主播相提并论？
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 21381#       发表于 2020-12-9 14:51
+
+
+
+
+那日本偶像这些瓜就更多了，毕竟地下偶像也叫偶像
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21382#       发表于 2020-12-9 15:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 15:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49659298&amp;ptid=1969498" target="_blank">nocode 发表于 2020-12-9 12:12</a>
+
+7月最右是ars已发布，用的去头饰长发版差分的剪影；剩下一个大概率gbr，首先要让她播
+
+
+9月第二个是小熊猫 ...</blockquote>
+好的改了，ars这个我猜可能是但没有大帽子不太敢认（x<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+感谢各位老哥，那这样算下来卫星也不算多了
+
+
+
+Syl，【卯月コウ 3Dお披露目配信決定！！】
+
+
+卯月コウ(@udukikohh)の、3Dお披露目配信日が決定いたしました！
+
+
+≪ 12/16(水) 21:00 ≫ 配信開始！！
+
+
+月牙待機場所はこちら▽
+[https://youtu.be/LjU5OOHu_As](https://youtu.be/LjU5OOHu_As)
+
+ぜひ「リマインダーを設定」に！お見逃しなく！
+
+<img src="https://img.saraba1st.com/forum/202012/09/152559yldkxl3kll9nai9y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【派对爆竹卯月コウ 3Dお披露目配信決定！！】.jpg</strong> (216.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 15:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 21383#       发表于 2020-12-9 15:24
+
+
+
+<img src="https://p.sda1.dev/0/38243ef4e4200fa470414cff6192c5d9/1607498538637.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 21384#       发表于 2020-12-9 15:26
+
+
+
+
+期待3D莉光
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21385#       发表于 2020-12-9 15:33
+
+
+
+
+好耶，小少爷3d了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 21386#       发表于 2020-12-9 15:40
+
+
+
+
+赌五鹅没有rrm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21387#       发表于 2020-12-9 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 小少爷的话不用担心节目流程了，肯定是超完美无敌整活了，
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21388#       发表于 2020-12-9 15:51
+
+
+
+ 本帖最后由 qq845629713 于 2020-12-9 16:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然我对今天的虚空集会毫无兴趣，但不得不说，现场花篮数量明显比昨天多很多
+
+<img src="https://img.saraba1st.com/forum/202012/09/160439tipijbsopicipo7j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eox9sLYUwAIukvB.jpg</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 16:04 上传
+
+
+
+
+
+
+
+到时候你虹最擅长的抠图人又要扣掉某人了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21389#       发表于 2020-12-9 16:42
+
+
+
+
+某姨要真这么扭，不仅手折，腰也要折了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21390#       发表于 2020-12-9 16:45
+
+
+
+
+喷了，江皇一脚踹死郡道xsl
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甜甜圈与棒棒糖| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 21391#       发表于 2020-12-9 16:48
+
+
+
+
+说到莉光第一反应还是莉泽和卯月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 21392#       发表于 2020-12-9 16:49
+
+
+
+ 本帖最后由 poipanchao 于 2020-12-9 16:51 编辑 
+
+这话题虹楼没法说
+一时兴起查了之前的图，似乎top都放图的中心位或者前排，比如gamers是黑黑笹，这张是江社长lizelulu
+连这里也要斗虫吗？
+
+顺便葵皇在后排角落<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21393#       发表于 2020-12-9 16:50
+
+
+
+
+牛姨这个首播2077在CST8点  看预定表那个点两大箱很巧合的无任何预定好像 ，本质油管管人全让路，这不奶个10W？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21394#       发表于 2020-12-9 16:55
+
+
+
+
+郡道这明显在图的中心位，周围是三姐和最强组合3bk，底边站C哪斗虫啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+省一楼，你郡，平时同事3D都不发tag，轮到卯月就连预告都转，也不必这么差别待遇<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> （还是有看的哈，虹杏都看，就是一般都会在t台聊）
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21395#       发表于 2020-12-9 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49662800&amp;ptid=1969498" target="_blank">poipanchao 发表于 2020-12-9 16:49</a>
+
+这话题虹楼没法说
+
+一时兴起查了之前的图，似乎top都放图的中心位或者前排，比如gamers是黑黑笹，这张是江社 ...</blockquote>
+我们就c位这个问题已经斗了很久的虫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+绝对是有意的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 21396#       发表于 2020-12-9 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663002&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 17:02</a>
+我们就c位这个问题已经斗了很久的虫了
+
+绝对是有意的</blockquote>
+本间桑<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21397#       发表于 2020-12-9 17:04
+
+
+
+<blockquote>空集 发表于 2020-12-9 16:50
+牛姨这个首播2077在CST8点  看预定表那个点两大箱很巧合的无任何预定好像 ，本质油管管人全让路，这不奶个1 ...</blockquote>
+我觉得蠢驴在日本没那么高的人气的，tgs2077发布会的同时视听同接是夜见所有发布会里第二低的一场，被原神和微软暴打，和光荣的发布会55开
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21398#       发表于 2020-12-9 17:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 肯定是斗虫阿，发配边缘的都是垃圾底边，社内热门都是在中央的，黑黑不说了，笹木机台核心
+
+
+边缘人你葵建议早点毕业引退把资源留给需要的人^^
+
+
+到时候第二套3D就交给笹木、椎名来替代本人发布，报当初你葵、叶子发布笹木新衣服的仇
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21399#       发表于 2020-12-9 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 顺带一提，gamers那张图里，除了阿叶，其他人还没有葛叶的腿长，这绝不是社内地位斗虫阿！绝对不是！（笑
+
+
+你虹现在斗虫订阅是一方面，斗得更狠的是人脉、资源，能给本社带来利益的人就奉为上宾，垃圾杂碎就边缘化，
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 21400#       发表于 2020-12-9 17:13
+
+
+
+ 本帖最后由 poipanchao 于 2020-12-9 17:16 编辑 
+
+挺好的，小废物少吃点资源
+每次看到小废物占用直播时间就烦
+我只需要有趣的直播，尸位素餐的能走就走啦
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21401#       发表于 2020-12-9 17:17
+
+
+
+
+2000这话虽然难听，但你虹现在就是这样。资源和「高质量内容」就是衡量liver的标准，虚无的、没有天赋的人早晚会被ickr抛弃的
+
+
+订阅是暂时的、不要问ickr能为你做什么，要多想想你能为ickr带来什么
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21402#       发表于 2020-12-9 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那虹现在地位最高的是德龙吗？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21403#       发表于 2020-12-9 17:21
+
+
+
+
+狼性企业文化
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21404#       发表于 2020-12-9 17:21
+
+
+
+
+那郡道、郡道这站位是.....作为未来的彩虹暗部被寄予厚望<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21405#       发表于 2020-12-9 17:22
+
+
+
+
+被抛弃的能学mrr来杏么，六期到现在没消息呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 21406#       发表于 2020-12-9 17:22
+
+
+
+
+郡道有价值啊，以前的百合，后来的网课，最近的麻将
+更别说是最重要的不仲要员
+不过口了人都快没了，需要一对新的不仲
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 21407#       发表于 2020-12-9 17:23
+
+
+
+
+别啊  刚随到一首歌賊难听一看是通风口唱的
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 21408#       发表于 2020-12-9 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到现在大家都还不知道mrr说的那位原单位有个为了利益交朋友的人是谁
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21409#       发表于 2020-12-9 17:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 太狼性了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21410#       发表于 2020-12-9 17:26
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 17:32 编辑 
+
+剑酱，男粉真多呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到做到好男人！！
+
+<img src="https://img.saraba1st.com/forum/202012/09/173228q7j9o001z955w1jo.png" referrerpolicy="no-referrer">
+
+
+<strong>！！！.png</strong> (619.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 17:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21411#       发表于 2020-12-9 17:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这张上不就有个不宣传自家三天活动宣传隔壁2nd的主，原来的饭盒关了后还出了催债退款的事，差不多要准备下家了吧。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21412#       发表于 2020-12-9 17:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> mrr说的那个人不就是表面上朋友很多，最后一个都没剩下的么？
+
+10w家族也好，本间丿葛也也好，都只有一个为了利益不择手段的人被隔离了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21413#       发表于 2020-12-9 17:38
+
+
+
+<blockquote>JOYSOUND公式🎁 @JOYSOUND_PR
+
+
+バーチャルシンガー・花譜の記念すべき🎉1st ONE-MAN LIVE「不可解」＆「不可解(再)」をJOYSOUNDの #みるハコ でダイジェスト映像無料配信決定🎬
+
+花譜の世界を堪能しよう✨
+
+
+📆12/15(火)～
+
+🎟️無料</blockquote>
+🔽詳しくはコチラ
+[https://bddy.me/39V9ZSP](https://bddy.me/39V9ZSP)
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/173847p6215qyyz1225y7j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>TDWh4OIr.jpg</strong> (116.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 17:38 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 21414#       发表于 2020-12-9 17:41
+
+
+
+
+虹昨天免费部分b站有吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21415#       发表于 2020-12-9 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657220&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-9 09:13</a>
+
+金主的存在本身就够恶心了，还私联金主讨钱？在线pua？
+
+真女人都是靠实力挣钱。有本事去卖上万份音声啊挣路 ...</blockquote>
+你怎么能这么说tskk呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21416#       发表于 2020-12-9 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663402&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-9 17:34</a>
+mrr说的那个人不就是表面上朋友很多，最后一个都没剩下的么？
+
+10w家族也好，本间丿葛也也好，都只 ...</blockquote>
+gamers里有被叫胖虎的，有日照权纷争的，有这边复活那边毕业的，2000还选葵，这就是真爱么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21417#       发表于 2020-12-9 17:56
+
+
+
+
+什么叫日照权？
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 21418#       发表于 2020-12-9 17:59
+
+
+
+
+说起日照权第一反应是大亏和太紫的邻里战争
+
+
+
+
+
+                                    
