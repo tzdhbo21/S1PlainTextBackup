@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 10:07** 
+> ## **本文件最后更新于2020-12-09 12:10** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_n7KvH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_puZ17" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_uvVCx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cwX4x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -6537,4 +6537,555 @@ b综都20了，这话题是真的多，
 
 
 
-                                       
+
+
+-----
+
+####  Suny08  
+##### 21331#       发表于 2020-12-9 10:09
+
+
+
+<blockquote>alcoholic1000 发表于 2020-12-9 09:47
+被抢先一步了...!修女12日新衣装，顺便整理一下虹本月新衣装：
+
+修女 
+
+白雪巴（？）
+</blockquote>
+其实还有夜见的，她上个月月底杂谈告知了，不过她说这个月很忙不知道能不能赶上今年年底前披露
+
+
+
+
+
+
+
+-----
+
+####  TBBZZ  
+##### 21332#       发表于 2020-12-9 10:13
+
+
+
+<blockquote>深渊萃取 发表于 2020-12-9 10:07
+当初利香被金主逼着不讲话不表态的传言不是传为美谈么，那实际上到底有没有金主 ...</blockquote>
+就顺着楼友嘛，别戳破那层纸
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21333#       发表于 2020-12-9 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657776&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-9 10:09</a>
+
+其实还有夜见的，她上个月月底杂谈告知了，不过她说这个月很忙不知道能不能赶上今年年底前披露 ...</blockquote>
+好耶！！
+
+说起来印象中nrk和安啾（？）也还有新衣装捏在手里一直没发
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21334#       发表于 2020-12-9 10:18
+
+
+
+
+你花钱可以直接和利香一起吃饭，私联太低端
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21335#       发表于 2020-12-9 10:18
+
+
+
+
+楼里总有群友造谣og，我澄清一下，lga已经把人鱼开除og了，虽然og这名字就是人鱼起的。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21336#       发表于 2020-12-9 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657843&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 10:16</a>
+好耶！！
+
+说起来印象中nrk和安啾（？）也还有新衣装捏在手里一直没发</blockquote>
+nrk mnnt联动马车已经提过新衣服了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21337#       发表于 2020-12-9 10:22
+
+
+
+<blockquote>掉头学姐 发表于 2020-12-9 09:57
+vr才是最搞笑的，holo和咩最近的风波也不知道vr有没有什么操作，赶走了收租的holo，b限yhm都起来了，vr的更 ...</blockquote>
+怎么就更糊了？现在维阿不明显好起来了么，8910三期抽卡的质量都不错，小箱化也挺明显的，虹浓度提升所以也拉了很多虹人跑去看了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21338#       发表于 2020-12-9 10:25
+
+
+
+
+明码标价提供该服务就不能算私联，确实是这个道理
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21339#       发表于 2020-12-9 10:26
+
+
+
+
+利香那事不是某Z开头谜语人前组长说的吗，不会真的有人信他们吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21340#       发表于 2020-12-9 10:27
+
+
+
+
+zanato虽然是个绝代神必人，但还真有信了的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 21341#       发表于 2020-12-9 10:29
+
+
+
+
+鱼皇这事前前后后放到海鲜台都得被开，别说是b站了。除非是那种直播颜出并明牌钓金主的幕刃
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21342#       发表于 2020-12-9 10:39
+
+
+
+
+利香明码标价线下吃饭的主，怎么和金主联也不奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 21343#       发表于 2020-12-9 10:40
+
+
+
+
+按照s1的惯例，谜语人是要封到石锤，人心不古啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21344#       发表于 2020-12-9 10:41
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 11:03 编辑 
+
+2020.7.2
+
+<img src="https://img.saraba1st.com/forum/202012/09/102559zcaqtp38sdappd83.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2020年7月2日.jpg</strong> (123.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 10:25 上传
+
+
+
+
+
+
+文美、白雪巴、阿喵喵、小红帽、舞元、？、星川、？
+
+
+2020.8.7
+
+<img src="https://img.saraba1st.com/forum/202012/09/102601cq5qq888n18j4i1w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2020年8月7日.jpg</strong> (137.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 10:26 上传
+
+
+
+
+
+
+mahiro、rrm、山神、rion、绿仙、？、？
+
+
+2020.9.10
+
+<img src="https://img.saraba1st.com/forum/202012/09/102602awweblwwdcer2gf6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2020年9月10日.jpg</strong> (125.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 10:26 上传
+
+
+
+
+
+
+？（黑客？）、？、翔哥、？、gaku
+
+
+2020.10.6
+
+<img src="https://img.saraba1st.com/forum/202012/09/102603c66b69r4osd669wd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2020年10月6日.jpg</strong> (231.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 10:26 上传
+
+
+
+
+
+
+未来人、熊猫人
+
+
+怎么感觉好多没披露的...（应该有我漏看的<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21345#       发表于 2020-12-9 10:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">私连不就突出个私，明码标价那是卖
+
+爱抖圈私连更是死刑
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 21346#       发表于 2020-12-9 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657911&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-9 10:22</a>
+怎么就更糊了？现在维阿不明显好起来了么，8910三期抽卡的质量都不错，小箱化也挺明显的，虹浓度提升所以 ...</blockquote>
+偶尔看版主的路过，我只是看现在vr要往下拉好多行才能看见，以前罗伊aza七海还能在前几行看见来着，惹你不快了对不起
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 21347#       发表于 2020-12-9 10:44
+
+
+
+
+很好理解，有没有金主，知道内幕的人在不在乎，你没爆出来，不代表。这事说出来不会炸。这个说私联行，那个说私联没事，那你看当事人敢自己直播正大光明爆出来试试嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，赚的什么钱，心里还是有逼数的，几个人说的不算数，咱们的V圈骑士团nga说的才算数
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 21348#       发表于 2020-12-9 10:44
+
+
+
+
+很好理解，有没有金主，知道内幕的人在不在乎，你没爆出来，不代表。这事说出来不会炸。这个说私联行，那个说私联没事，那你看当事人敢自己直播正大光明爆出来试试嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，赚的什么钱，心里还是有逼数的，几个人说的不算数，咱们的V圈骑士团nga说的才算数
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21349#       发表于 2020-12-9 10:48
+
+
+
+
+八月最右应该就是郡道。
+六月说有衣服，八月放图，十二月估计也出不来，就当没这事了，
+七月放图的三姐（大概）同理<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21350#       发表于 2020-12-9 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658125&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 10:41</a>
+
+2020.7.2
+
+
+文美、白雪巴、阿喵喵、小红帽、舞元、？、星川、？</blockquote>
+8月中间是金憨憨的DJ服
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 21351#       发表于 2020-12-9 10:54
+
+
+
+
+八月第一个是mahimahi，和熊猫人一起的应该是夕阳莉莉
+
+—— 来自 HUAWEI JKM-AL00a, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21352#       发表于 2020-12-9 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658256&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-9 10:51</a>
+
+8月中间是金憨憨的DJ服</blockquote>
+啊对，我改一下，剪影太像和服了完全没想起来<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+Syl，不要灰心，可能只是没找到好的时机，憨憨这个拖延了好几个月，披露效果不也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21353#       发表于 2020-12-9 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658310&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 10:56</a>
+
+啊对，我改一下，剪影太像和服了完全没想起来
+
+
+Syl，不要灰心，可能只是没找到好的时机，憨憨这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">9月右2看角和面具，应该是奈罗花
+
+因为我没D过，所以去翻了下萌百，新衣应该也没公布
+
+所以不少卫星应该的确是还在天上
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21354#       发表于 2020-12-9 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658291&amp;ptid=1969498" target="_blank">北山玖公 发表于 2020-12-9 10:54</a>
+
+八月第一个是mahimahi，和熊猫人一起的应该是夕阳莉莉
+
+
+—— 来自 HUAWEI JKM-AL00a, Android 9上的 S1Next ...</blockquote>
+雪城这个军服好飒，遮眼短发很好看，居然不知道有这个...
+
+莉莉这个忘掉不应该x<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21355#       发表于 2020-12-9 11:16
+
+
+
+ 本帖最后由 十四洲 于 2020-12-9 11:29 编辑 
+<blockquote>alcoholic1000 发表于 2020-12-9 10:41
+2020.7.2
+
+
+文美、白雪巴、阿喵喵、小红帽、舞元、？、星川、？
+</blockquote>
+第一个那个应该不是舞元而是社筑来着？
+
+还有图1第二个是爱园来着？巴是之前对对组三人一起发布的新衣
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 21356#       发表于 2020-12-9 11:16
+
+
+
+
+看到泥哥很不安，可以不要再谈泥哥了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
