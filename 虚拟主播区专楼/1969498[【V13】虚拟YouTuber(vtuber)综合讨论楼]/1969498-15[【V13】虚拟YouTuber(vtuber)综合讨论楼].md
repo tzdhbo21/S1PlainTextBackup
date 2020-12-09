@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 18:07** 
+> ## **本文件最后更新于2020-12-09 20:10** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Kqv84" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_TZwPB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_qxBBx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_kO3g5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -7833,8 +7833,11 @@ Syl，【卯月コウ 3Dお披露目配信決定！！】
 
 
 
+ 本帖最后由 空集 于 2020-12-9 19:56 编辑 
 
 牛姨这个首播2077在CST8点  看预定表那个点两大箱很巧合的无任何预定好像 ，本质油管管人全让路，这不奶个10W？
+
+没预定是暂时的 实际撞车撞起来了
 
 
 
@@ -8315,4 +8318,752 @@ gamers里有被叫胖虎的，有日照权纷争的，有这边复活那边毕�
 
 
 
-                                    
+
+
+-----
+
+####  free  
+##### 21419#       发表于 2020-12-9 18:07
+
+
+
+[https://twitter.com/makeagames2018/status/1336612617511608320](https://twitter.com/makeagames2018/status/1336612617511608320)
+
+[#第3回V紅白](https://twitter.com/hashtag/%E7%AC%AC3%E5%9B%9EV%E7%B4%85%E7%99%BD?src=hashtag_click)今年もやります！12月26日（土）開催予定！！
+
+12日（土）の22時から出場者発表放送を行うのでお見逃しなく！↓放送URL[https://youtu.be/n1pxSt8ZRZE](https://t.co/9IgQgRqs0S?amp=1)
+
+
+一般応募ピックアップの募集も本日から行いますので、リプ欄をご覧ください！
+応募期間短いのでご注意を！お楽しみにッ！！！！！！
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/180735o6bxs66b5cqnvajn.png" referrerpolicy="no-referrer">
+
+
+<strong>红白.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 18:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21420#       发表于 2020-12-9 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663726&amp;ptid=1969498" target="_blank">free 发表于 2020-12-9 18:07</a>
+[https://twitter.com/makeagames2018/status/1336612617511608320](https://twitter.com/makeagames2018/status/1336612617511608320)
+
+
+#第3回V紅白今年もやります ...</blockquote>
+都这么喜欢玩看剪影猜人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21421#       发表于 2020-12-9 18:09
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 18:15 编辑 
+
+你们黑黑去表演漫才？
+
+还有小蜜蜂、周力一、枝枝枝
+
+MZM<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+啊，左边还有i‘s
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21422#       发表于 2020-12-9 18:11
+
+
+
+
+话说这左右浓度，差点都以为是男白女红分场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 21423#       发表于 2020-12-9 18:12
+
+
+
+ 本帖最后由 pliee 于 2020-12-9 18:16 编辑 
+
+这2077提前试玩还挺麻烦，三个密码<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">草，输完密码要下载补丁，整出直播下载的事故就好玩了
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 21424#       发表于 2020-12-9 18:14
+
+
+
+
+到时候牛姨试玩2077同接比不过兔子平Amc就好笑了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21425#       发表于 2020-12-9 18:15
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-9 18:32 编辑 
+
+看了下本间觉（CDPR日本市场经理）的推，说世界其他地方2077首播规模更大，但日本我只找了4名我最信任的人来参与这次同步直播，分别是兄者、弟者、おついち、ニュイ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl
+
+
+你们奶同接的是装不懂日本游戏市场吧，牛姨当初播巫师3同接还不如之后紧跟着播的XB2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21426#       发表于 2020-12-9 18:23
+
+
+
+
+就认出这么多，小蜜蜂是三枝上面的短发吗，不敢确定
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/182219tscjmm6vgbhzmobj.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2020-12-09_18-21-59.png</strong> (422.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 18:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21427#       发表于 2020-12-9 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663835&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-9 18:15</a>
+看了下本间觉（CDPR日本市场经理）的推，说世界其他地方2077首播规模更大，但日本我只找了4名我最信任的人 ...</blockquote>
+排面 牛姨可类比国内顶流游戏主播了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21428#       发表于 2020-12-9 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663932&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-9 18:23</a>
+
+就认出这么多，小蜜蜂是三枝上面的短发吗，不敢确定</blockquote>
+尊上面是西园
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 21429#       发表于 2020-12-9 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">黑黑被星包围了 ，星好像全员出场？
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21430#       发表于 2020-12-9 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我不对劲，这图我一眼先认出了葛叶，然后才是皇女和尊妈
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21431#       发表于 2020-12-9 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663932&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-9 18:23</a>
+
+就认出这么多，小蜜蜂是三枝上面的短发吗，不敢确定</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/09/182821ddjppktrpop0vvce.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#新しいプロフィール画像 .jpg</strong> (26.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 18:28 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21432#       发表于 2020-12-9 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663974&amp;ptid=1969498" target="_blank">死体残留 发表于 2020-12-9 18:27</a>
+黑黑被星包围了 ，星好像全员出场？</blockquote>
+慈善yagoo放上来给虹男当质上的陪衬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21433#       发表于 2020-12-9 18:32
+
+
+
+<blockquote>free 发表于 2020-12-9 18:07
+https://twitter.com/makeagames2018/status/1336612617511608320
+
+
+#第3回V紅白今年もやります ...</blockquote>
+
+
+-----
+
+####  NBXX  
+##### 21434#       发表于 2020-12-9 18:35
+
+
+
+ 本帖最后由 NBXX 于 2020-12-9 18:36 编辑 
+
+【Pictoria、今更ながらVLiver始めます。】
+
+VLiverの第1期生オーディションを本日より開催決定！
+
+応募は2週間後の23日23:59まで！
+
+個性豊かな皆様の応募を心よりお待ちしております！！
+
+詳細はこちら：[https://pictoria.co.jp/news/vliver](https://pictoria.co.jp/news/vliver)
+
+
+◆募集要項
+
+・継続的に活動することが可能な方
+
+・女性の方
+
+・18歳以上の方(未成年者は保護者の同意を得ること)
+
+<[img src="https://i.loli.net/2020/12/09/OrfJB1uIxTGae96.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/09/9fIqgiLvVuX4jwZ.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 21435#       发表于 2020-12-9 18:35
+
+
+
+
+力一上面是狮子神吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21436#       发表于 2020-12-9 18:38
+
+
+
+
+左边第一排前四个是まりなす
+
+第二排第一个铃代心音，第二个响重音，第四个音羽拉拉，第五个春歌美琴
+
+第三排最后俩是花剪和狮子神
+
+最下面从左往右是蓝莓，琉璃姐，大葵，宗谷
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21437#       发表于 2020-12-9 18:40
+
+
+
+ 本帖最后由 NBXX 于 2020-12-9 18:41 编辑 
+
+[https://twitter.com/dotLIVEyoutuber/status/1336619250761388038](https://twitter.com/dotLIVEyoutuber/status/1336619250761388038) <blockquote>.LIVE【どっとライブ】
+
+@dotLIVEyoutuber
+
+【お知らせ】
+
+12月30日(水)20時より、音楽イベント「＊ASTERISK」を有料ネット配信いたします。
+
+VTuberによる歌唱パフォーマンスとバーチャルならではの映像体験を是非ご覧ください。
+
+#ASTERISK2020
+
+＜出演者(五十音・敬称略)＞
+
+犬山たまき
+
+花京院ちえり
+
+銀河アリス
+
+Kotone(天神子兎音)
+
+燦鳥ノム
+
+獅子神レオナ
+
+SIRO(電脳少女シロ)
+
+ばあちゃる
+
+花鋏キョウ
+
+もこ田めめめ
+
+八重沢なとり</blockquote>
+<[img src="https://i.loli.net/2020/12/09/uRUTIGcNnHvVt67.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/09/C6XPcrqh4ukGZTQ.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21438#       发表于 2020-12-9 18:45
+
+
+
+
+铁血豆腐应该还有和污物联动是万恶之源的说法，为啥加个格格不入的海苔男
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21439#       发表于 2020-12-9 18:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">巴恰鲁桑
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21440#       发表于 2020-12-9 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664063&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-9 18:35</a>
+
+【Pictoria、今更ながらVLiver始めます。】
+
+VLiverの第1期生オーディションを本日より開催決定！
+
+応募は2週 ...</blockquote>
+tsumuginen(紡ネン)的推特信息 昵称 更新了：
+
+由 紡ネン◎クラファン実施中 更新为 紡ネン
+
+
+准备招紡ネン中之人？
+
+那看来机械学习应该是个噱头
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 21441#       发表于 2020-12-9 18:55
+
+
+
+
+@ishiki_emo
+改めて、Vtuberのお名前での頻出漢字10位まで 集計もとはVtuber post登録の6653名です。
+1位：月　回数：246 
+2位：乃　回数：153 
+3位：子　回数：145 
+4位：星　回数：141 
+5位：音　回数：134 
+6位：夜　回数：126 
+7位：野　回数：124 
+8位：白　回数：123 
+9位：花　回数：122 
+10位：天　回数：119
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21442#       发表于 2020-12-9 18:59
+
+
+
+ 本帖最后由 十四洲 于 2020-12-9 19:08 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/190657bfemz042000pwsf0.png" referrerpolicy="no-referrer">
+
+
+<strong>。.png</strong> (445.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 19:06 上传
+
+
+
+
+
+
+免费哥够D<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有错请指出
+
+图越来越糊了（
+
+
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 21443#       发表于 2020-12-9 19:02
+
+
+
+
+白队左下雨野君，右上第二排应该是boogey voxx的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21444#       发表于 2020-12-9 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664305&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-9 18:59</a>
+
+免费哥够D有错请指出</blockquote>
+花生左边的应该是雨野，就是那个店长。白方第二排右边的那两个应该是BOOGEY VOXX的两位？
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 21445#       发表于 2020-12-9 19:08
+
+
+
+
+阿点怎么还没有吸取教训
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21446#       发表于 2020-12-9 19:10
+
+
+
+
+马这是怪物家长那件事后第一次放出来活动？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21447#       发表于 2020-12-9 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664111&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-9 18:40</a>
+
+https://twitter.com/dotLIVEyoutuber/status/1336619250761388038</blockquote>
+看到那个🐴了吗，有t呢
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 21448#       发表于 2020-12-9 19:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">火鸡。。。
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 21449#       发表于 2020-12-9 19:36
+
+
+
+
+火鸡给ban了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21450#       发表于 2020-12-9 19:38
+
+
+
+<blockquote>ShuTk4O 发表于 2020-12-9 18:55
+@ishiki_emo
+
+改めて、Vtuberのお名前での頻出漢字10位まで 集計もとはVtuber post登録の6653名です。
+
+1位： ...</blockquote>
+星音 月乃子
+
+天野 白夜花
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21451#       发表于 2020-12-9 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是明天火鸡的频道还没恢复，cover就请ptr过来当运营吧。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21452#       发表于 2020-12-9 19:55
+
+
+
+
+ptr vs cover stf   
+怎么感觉后者看着会输
+t chan在reddit倒是说在处理了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                                  

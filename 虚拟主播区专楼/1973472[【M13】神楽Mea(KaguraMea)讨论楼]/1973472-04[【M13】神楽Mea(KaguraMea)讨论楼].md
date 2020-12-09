@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 10:14** 
+> ## **本文件最后更新于2020-12-09 20:16** 
 
 
 
@@ -5443,13 +5443,667 @@ LOL也就听个声音，不如唱歌
 
 
 
+ 本帖最后由 Cushaw 于 2020-12-9 10:16 编辑 
 
 好吃懒做小屁孩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
+syl，为什么我不是yhm<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
 
 
 
-                                       
+
+
+-----
+
+####  Dualist彩  
+##### 4804#       发表于 2020-12-9 11:01
+
+
+
+
+期待小小麻和小小凜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4805#       发表于 2020-12-9 13:46
+
+
+
+
+我还让她念过可畏台词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4806#       发表于 2020-12-9 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49660495&amp;ptid=1973472" target="_blank">physi1202 发表于 2020-12-9 13:46</a>
+
+我还让她念过可畏台词</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪句
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4807#       发表于 2020-12-9 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661804&amp;ptid=1973472" target="_blank">笋狐 发表于 2020-12-9 15:45</a>
+
+哪句</blockquote>
+当然是誓约<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4808#       发表于 2020-12-9 17:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/175001yyv4w64um8yc6wxd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>98480728-9D47-4348-9BA4-4D563CCDBDDB.jpeg</strong> (310.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 17:50 上传
+
+
+
+
+
+
+
+今天应该不播.jpg
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4809#       发表于 2020-12-9 17:58
+
+
+
+
+tc突击了（
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4810#       发表于 2020-12-9 17:58
+
+
+
+
+TC播
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4811#       发表于 2020-12-9 18:05
+
+
+
+
+mixi老哥真是发情民的楷模
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4812#       发表于 2020-12-9 18:14
+
+
+
+
+tc完就要出去吃饭了 
+
+不是化妆直播 看来是一个人吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4813#       发表于 2020-12-9 18:19
+
+
+
+
+吐槽自己一直播lol就像有毛病一样（但是也并不想播别的游戏）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 4814#       发表于 2020-12-9 18:21
+
+
+
+
+  但 我乐意
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4815#       发表于 2020-12-9 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4816#       发表于 2020-12-9 18:28
+
+
+
+
+30分准时下播恰饭，晚上可能会播
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 4817#       发表于 2020-12-9 18:31
+
+
+
+
+从6分钟左右开始
+
+
+处刑mix在sl打的kimo的留言 说本人不在正好说一下的 事实上是在的 超过界限的kimow 其他人？最近倒是只有他一个 每天都来发kimo留言 某天要是他没来的话反而会担心他 怕是会死掉了 到时候大家给他开葬礼吧 会给观众开葬礼的
+
+今天预定播30 40分钟 想出去走走吃烤肉转换下心情 刷刷锅的话家里就能做 回来的时候去超市买点菜做唰唰锅？这个可以有
+
+说吃的 唰唰锅喜欢吃白菜沾酱油 附近的超市明明很多 却没有能凑齐三种酱油的 基本就只买其中的两种  不同的酱油适合干的事不一样 
+
+最近玩osu 去别人的房？不敢和别人交流 很紧张很害怕 就进去打打完然后默默跑了 太阴角了 自己用的是直播里打的号 有点担心被人说这人好菜啊 不换号么 这样打的分就浪费了啊
+
+今天又在mmo里自言自语了 今天也是好天气nya 为什么要这么做呢w
+
+手撞到了 疼 之前玩osu的时候撞到手指就有段时间没玩了 最近才开始玩
+
+游戏直播？没意思啊 不过唯一的游戏直播 有在bilibili lol 一直都在玩lol 这是病吧 每次都觉得无聊结果还是会回去玩
+
+恐怖游戏？才不要啊 玩的时候会心脏骤停死掉的 
+
+一直在打哈欠 在工作？以前打工的时候也睡着过 那个地方是可以自己选什么时段休息的 比如中午休一小时下午休两小时这样的 然后自己在休一小时的时候完美的睡了三小时 之后抓薪水小偷（？）的时候 自己说了睡了三小时结果也没有被扣薪水 想着“我平时的努力被肯定了啊！”然后下个月就被炒了  为什么被炒？不知道呢 
+
+会吵架吗 没有吧 哪有和店长吵过架 都是我被骂 虽然我也没做啥会被骂的事吧 
+
+朋友 打工的地方认识的人现在都没联系了啊 为什么打工的地方能交到朋友啊！
+
+被骂的时候很消沉 等之后回过味怒火就上头了 就一个人心里对着店长发火 数落店长
+
+啊到了三十分钟了 出去吃饭了 回来深夜可能还会播 过来看哦 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鷹書たかしょ| + 2||
+| kerfars| + 1|好评加鹅|
+| jhouo8989| + 1||
+| 路人庚| + 1|好评加鹅|
+| elect| + 1|好评加鹅|
+| Dualist彩| + 1|好评加鹅|
+| Joffre✔| + 1|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
+| LIPP| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4818#       发表于 2020-12-9 18:38
+
+
+
+
+你麻寂寞了呀
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 4819#       发表于 2020-12-9 18:40
+
+
+
+
+今天好好遵守诺言只播30min了，但是反而感觉自己欲求不满了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4820#       发表于 2020-12-9 18:43
+
+
+
+
+11号晚上要去苔苔那里座谈会 snp车轱辘预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4821#       发表于 2020-12-9 18:45
+
+
+
+ 本帖最后由 路人庚 于 2020-12-9 18:47 编辑 
+
+这周预定的联动还蛮多的，11日东京23点在苔苔那边参加个人势座谈会（噗
+
+如果11日东京14点会在黄兔子那边参加“解放舞元”联动的话那算是一天两场联动了啊
+
+
+（苔苔在15号拉着老爱、舞元、时雨打麻将还行，你咩姐离跟老爱联动就差一步啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4822#       发表于 2020-12-9 18:45
+
+
+
+
+可惜sio不在了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4823#       发表于 2020-12-9 18:53
+
+
+
+
+那b限大概率在10号或13号
+
+
+千万不能定在13号啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 4824#       发表于 2020-12-9 18:55
+
+
+
+
+又不是第一次了，会有人和她说的
+
+去年13号特意空出来没播，连是否转播的心都不用操
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4825#       发表于 2020-12-9 18:56
+
+
+
+
+她又不傻（大概），而且官组速度一点可以么？等b博出了再改又是一波
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4826#       发表于 2020-12-9 19:01
+
+
+
+
+不晓得你麻这会儿吃上肉没，一个小女生单独去吃烤肉感觉好容易能钓到凯子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4827#       发表于 2020-12-9 19:02
+
+
+
+
+每年都会忘记这个...
+
+
+字幕组的在看吗，你们该去发个discord了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4828#       发表于 2020-12-9 19:02
+
+
+
+
+官组定给你搞个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4829#       发表于 2020-12-9 19:03
+
+
+
+
+然后今晚不播了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4830#       发表于 2020-12-9 19:06
+
+
+
+
+自己去推上说一句不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4831#       发表于 2020-12-9 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你仔细想想上推特说这种事会引来什么东西？
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 4832#       发表于 2020-12-9 19:09
+
+
+
+ 本帖最后由 kerfars 于 2020-12-9 19:13 编辑 
+
+啊，线下差旅费退了
+
+真的就是全退，哎，希望12月20日能顺顺利利吧
+
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4833#       发表于 2020-12-9 19:10
+
+
+
+
+推上有人说了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4834#       发表于 2020-12-9 19:14
+
+
+
+
+我已经看见nga那边的帖子会是怎样说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4835#       发表于 2020-12-9 19:39
+
+
+
+
+泥哥骑士 正义执行 出击！<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4836#       发表于 2020-12-9 19:50
+
+
+
+
+听说隔壁的mkm小姐没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 4837#       发表于 2020-12-9 20:06
+
+
+
+
+为啥马琪玛和mea联系在一起了....
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4838#       发表于 2020-12-9 20:07
+
+
+
+
+才发现自己的机酒费还没登记
+
+
+
+
+
+                                      
