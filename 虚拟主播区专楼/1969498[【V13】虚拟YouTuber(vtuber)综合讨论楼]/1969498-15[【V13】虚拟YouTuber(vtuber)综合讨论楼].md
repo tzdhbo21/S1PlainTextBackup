@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 20:10** 
+> ## **本文件最后更新于2020-12-09 22:10** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_qxBBx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_kO3g5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_dXJ0A" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_R3ocs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -8143,7 +8143,7 @@ Syl，【卯月コウ 3Dお披露目配信決定！！】
 <img src="https://img.saraba1st.com/forum/202012/09/173228q7j9o001z955w1jo.png" referrerpolicy="no-referrer">
 
 
-<strong>！！！.png</strong> (619.55 KB, 下载次数: 0)
+<strong>！！！.png</strong> (619.55 KB, 下载次数: 1)
 
 下载附件
 
@@ -9066,4 +9066,1249 @@ t chan在reddit倒是说在处理了
 
 
 
-                                  
+
+
+-----
+
+####  Ketestrait  
+##### 21453#       发表于 2020-12-9 20:11
+
+
+
+
+牛姨：CDPR的人问我懂不懂什么是显卡，我说不知道，于是教了我怎么查看，得知是2070后告诉我应该带的动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 21454#       发表于 2020-12-9 20:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/201342tngr4anl44gua5pz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201209200739.png</strong> (101.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:13 上传
+
+
+
+
+
+怎么还单独分区的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 21455#       发表于 2020-12-9 20:15
+
+
+
+
+牛姨直播没了，叔叔不行
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 21456#       发表于 2020-12-9 20:15
+
+
+
+
+果然你心里还是有りんこ的吧，特意提出用りんこ<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 21457#       发表于 2020-12-9 20:17
+
+
+
+
+是因为牛姨的派派没得还是2077没得暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 21458#       发表于 2020-12-9 20:19
+
+
+
+
+啊又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21459#       发表于 2020-12-9 20:23
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 20:45 编辑 
+
+努力了...红组有几个真的认不出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/09/204432ggiid9ibcirqrz1z.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (1.53 MB, 下载次数: 1)
+
+下载附件
+
+2020-12-9 20:44 上传
+
+
+
+
+
+
+白组左上居然还有个奏手一弦，忽视了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21460#       发表于 2020-12-9 20:30
+
+
+
+ 本帖最后由 qq845629713 于 2020-12-9 20:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 牛姨的电脑突然变得奇卡，，估计是你虹的直播软件太占cpu资源了
+
+
+原来是开了光追，关掉就好很多了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21461#       发表于 2020-12-9 20:31
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-9 20:33 编辑 
+
+牛姨开场全面卡顿，一看设置原来是开了光追的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl
+
+不但开了光追还关了DLSS<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 21462#       发表于 2020-12-9 20:32
+
+
+
+
+草这么模糊还掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21463#       发表于 2020-12-9 20:32
+
+
+
+[https://www.youtube.com/watch?v=CAi7rJcXw0E](https://www.youtube.com/watch?v=CAi7rJcXw0E)
+
+小绿的原创曲……
+
+这伴奏感觉又盖过人声了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 21464#       发表于 2020-12-9 20:33
+
+
+
+
+看了眼21453楼
+重新定义带得动
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 21465#       发表于 2020-12-9 20:33
+
+
+
+
+耳朵好像也要播，她的电脑袋带的动吗
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21466#       发表于 2020-12-9 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665240&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-9 20:33</a>
+
+看了眼21453楼
+
+重新定义带得动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 带的动→指2070 1080p开dlss
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 21467#       发表于 2020-12-9 20:34
+
+
+
+
+火——鸡——
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21468#       发表于 2020-12-9 20:35
+
+
+
+
+关掉光追打开DLSS后终于正常了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21469#       发表于 2020-12-9 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665149&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 20:23</a>
+
+努力了...红组有几个真的认不出来</blockquote>
+那个不是糊，是宗谷一花，最右上角的应该是尾丸
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 21470#       发表于 2020-12-9 20:37
+
+
+
+
+看其他主播玩2077，这看着就好玩啊，明天正式发售肯定很多人玩，阿叶小号已经在问了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21471#       发表于 2020-12-9 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665279&amp;ptid=1969498" target="_blank">free 发表于 2020-12-9 20:35</a>
+
+那个不是糊，是宗谷一花，最右上角的应该是尾丸</blockquote>
+这个是糊还是宗谷我也犹豫了半天，对了宗谷的几个立绘都觉得呆毛形状微妙的不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+尾丸这个能认出来也太厉害了！！
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 21472#       发表于 2020-12-9 20:45
+
+
+
+
+光追至少要30系才能开，2070歇歇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21473#       发表于 2020-12-9 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665322&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 20:39</a>
+
+这个是糊还是宗谷我也犹豫了半天，对了宗谷的几个立绘都觉得呆毛形状微妙的不太一样
+
+
+尾丸这个能 ...</blockquote>
+确实是宗谷，仔细看右边耳朵有耳环
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21474#       发表于 2020-12-9 20:52
+
+
+
+[https://www.youtube.com/watch?v= ... b_channel=A.I.Games](https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be&amp;ab_channel=A.I.Games)
+
+
+老爱2小时之后也来2077
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21475#       发表于 2020-12-9 20:52
+
+
+
+
+这游戏中配好接地气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21476#       发表于 2020-12-9 20:56
+
+
+
+<blockquote>カーテン魂 @curtaindamashii
+
+
+VTuberグループ にじさんじ所属の
+
+星川サラさん(@Sara_Hoshikawa)オリジナルグッズが
+
+カーテン魂限定で新登場🌟
+
+
+米白粕先生の描き下ろしイラストや、
+
+すずみしろ先生のミニキャラを使用した豪華グッズをご用意🥳
+
+
+販売期間は2021年1月末まで！お見逃しなく❗❗👀</blockquote>
+
+🌟特設ページ
+[https://curtain-damashii.com/nijisanji_sp01/](https://curtain-damashii.com/nijisanji_sp01/)
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/205614on4tmcnc9o9a91cc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EorP9kuU0AITEZ4.jpg</strong> (169.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:56 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/205614sur02w9smysylrw1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EorP-cxVEAAPM4L.jpg</strong> (153.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:56 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/205615iekknryz5qbibeii.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EorP_EmVEAEwjyp.jpg</strong> (91.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:56 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/205615c2zbl2czk2kqmk7p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EorP_t2U8AEhUUe.jpg</strong> (165.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:56 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21477#       发表于 2020-12-9 20:58
+
+
+
+
+垃圾圆脸又玩动森，唱歌一泡污，就打游戏来劲，烂货
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21478#       发表于 2020-12-9 20:59
+
+
+
+ 本帖最后由 十四洲 于 2020-12-9 21:13 编辑 
+
+原来那是奏手吗！我对了好久，还在想怎么没有他，原来还是戴着帽子的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便总觉得
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/205912lr4soss4911pj17t.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2020-12-09_20-59-00.png</strong> (6.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:59 上传
+
+
+
+
+
+这位的呆毛好眼熟
+
+好吧认错了完全没听过这位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21479#       发表于 2020-12-9 21:05
+
+
+
+<blockquote>弦月 藤士郎🎻🏍 にじさんじ@1O46V
+
+
+【お知らせ】12/12(土)19:00~　新衣装お披露目
+
+
+5万人衣装のお披露目。1時間ほどあけといて。
+
+ハッシュタグ #新衣装でゅ でツイートしてね。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/09/210535hfaefdu7wz74s33n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EozDHqfUUAEEdqN.jpg</strong> (145.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 21:05 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|T.T|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21480#       发表于 2020-12-9 21:09
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665491&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-9 20:59</a>
+
+原来那是奏手吗！我对了好久，还在想怎么没有他，原来还是戴着帽子的嘛
+
+顺便总觉得这位的呆毛好眼熟 ...</blockquote>
+我也找了半天他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+呆毛是esora uma，MZM推朋友认出来的，这我真不认识
+
+
+Syl，【#にじFes前夜祭 開催決定！】にじさんじ Anniversary Festival 2021 前夜祭 feat.FLOW 告知ムービ
+
+
+▼出演ライバー
+
+樋口楓／剣持刀也／緑仙／三枝明那／加賀美ハヤト／星川サラ
+
+▼ゲスト
+<strong>FLOW<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer"> 
+</strong>
+
+<img src="https://img.saraba1st.com/forum/202012/09/210824wvzg11vr1novv8dg.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ Anniversary Festival 2021 前夜祭 feat.FLOW 告知ムービー.png</strong> (246.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 21:08 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/210823v320o044ntcsxknp.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ Anniversary Festival 2021 前夜祭 feat.FLOW 告知ムービー-2.png</strong> (92.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 21:08 上传
+
+
+
+
+
+
+
+
+FLOW！！！
+
+GO!!!那个FLOW！火影op那个GO!!!，sign那个FLOW！！！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21481#       发表于 2020-12-9 21:15
+
+
+
+
+冷知识：FH狐狸也有耳环
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21482#       发表于 2020-12-9 21:20
+
+
+
+
+做不了新西南人的我还有10个半小时才能进游戏，这周应该都不看任何主播了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21483#       发表于 2020-12-9 21:21
+
+
+
+
+BSYL：
+
+德龙到底靠什么当上唯一指定亲女儿的，这都快成田角亲妈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21484#       发表于 2020-12-9 21:22
+
+
+
+ 本帖最后由 十四洲 于 2020-12-9 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665620&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-9 21:15</a>
+
+冷知识：FH狐狸也有耳环</blockquote>
+啊这，我看了看，那应该还是糊皇，呆毛更像（
+
+<img src="https://img.saraba1st.com/forum/202012/09/212217im1xctljn6hnj811.png" referrerpolicy="no-referrer">
+
+
+<strong>对比.png</strong> (334.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 21:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21485#       发表于 2020-12-9 21:24
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1glhx6pnur9j20bm045aa5.jpg" referrerpolicy="no-referrer">
+
+
+官方人员：请不要在格挡教程里xjb打拳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl
+
+
+成功闪退啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 21486#       发表于 2020-12-9 21:27
+
+
+
+
+这黑屏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21487#       发表于 2020-12-9 21:27
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1glhxcatr7gj20c105ht92.jpg" referrerpolicy="no-referrer">
+
+
+蠢驴急了急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21488#       发表于 2020-12-9 21:29
+
+
+
+
+FLOW！！！耶！！！
+
+F！L！O！W！
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+[FLOW - Sign (Music Video)](https://www.youtube.com/watch?v=qpi9YXaChHI)
+[FLOW - Go!!! (Music Video](https://www.youtube.com/watch?v=AE4b9jO1uB4)[)](https://www.youtube.com/watch?v=AE4b9jO1uB4)
+[FLOW - Days](https://www.youtube.com/watch?v=uo0jE0oXITk)
+[FLOW - HERO -Kibou no uta- (Music Video)](https://www.youtube.com/watch?v=3aevyrmqbY0)
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 21489#       发表于 2020-12-9 21:29
+
+
+
+
+discord现场指导闭麦了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 21490#       发表于 2020-12-9 21:30
+
+
+
+
+游戏崩了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21491#       发表于 2020-12-9 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 月之混不进人家音乐圈子限定的fes前夜祭，来参加3D猜拳大会吧，，
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 21492#       发表于 2020-12-9 21:33
+
+
+
+
+我看了眼cdpr日本找了些艺能人偶像什么的试玩，直播好像真没找几个啊，除了牛姨还有谁有人知道么
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21493#       发表于 2020-12-9 21:33
+
+
+
+
+复活了，牛姨说是官方让关掉GOG Overlay之后好了； 不知道steam版到时候会不会有相同的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宫宝兔丁  
+##### 21494#       发表于 2020-12-9 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665737&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 21:29</a>
+
+FLOW！！！耶！！！
+
+F！L！O！W！</blockquote>
+flow现场是蛮好的，但是你可以稍微冷静一点
+
+
+不如来聊聊管人相关比如当日现场唱功如何吊打的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21495#       发表于 2020-12-9 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665776&amp;ptid=1969498" target="_blank">stygian 发表于 2020-12-9 21:33</a>
+
+我看了眼cdpr日本找了些艺能人偶像什么的试玩，直播好像真没找几个啊，除了牛姨还有谁有人知道么 ...</blockquote>
+只找了两组人，共4个，一组是兄者弟者おついち三个人，另一组就是牛姨一个人
+
+
+【コーポレート】弟者の「Cyberpunk 2077（サイバーパンク 2077）」【2BRO.】
+[https://youtu.be/jI1ul4weB88](https://youtu.be/jI1ul4weB88)
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 21496#       发表于 2020-12-9 21:37
+
+
+
+
+发现油管一个不知是特性还是bug：
+投稿设为定时公开的话，正常情况下封面上应该只显示“首播”，不显示时长。详情页也只显示xx小时后首播。
+但是app里有个页面会把时长显示出来
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21497#       发表于 2020-12-9 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665787&amp;ptid=1969498" target="_blank">宫宝兔丁 发表于 2020-12-9 21:34</a>
+
+flow现场是蛮好的，但是你可以稍微冷静一点
+
+
+不如来聊聊管人相关比如当日现场唱功如何吊打的</blockquote>
+首先我是flow的粉丝，管人是谁<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+（其实拉垮不拉垮这种事情已经无所谓了，能和flow同台前夜祭的诸位应该也有了被吊打的觉悟吧...）
+
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202012/09/213725ofzcvvjbfsba7g0c.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 21:37 上传
+
+
+
+
+
+
+宅友那里抄了作业，快填完了
+
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 21498#       发表于 2020-12-9 21:43
+
+
+
+ 本帖最后由 stygian 于 2020-12-9 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665809&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-9 21:36</a>
+
+只找了两组人，共4个，一组是兄者弟者おついち三个人，另一组就是牛姨一个人
+
+
+【コーポレート】弟者の「Cy ...</blockquote>
+说到兄者弟者我就要问了，446呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+SYL，牛姨这太菜了，和女流有一比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 21499#       发表于 2020-12-9 21:43
+
+
+
+
+牛姨这是序章都过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21500#       发表于 2020-12-9 21:47
+
+
+
+
+人生第一次打枪，体谅一下<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 21501#       发表于 2020-12-9 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665437&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-9 20:52</a>
+
+https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be&amp;ab_channel=A.I.Games
+
+
+老爱2小时之后也来 ...</blockquote>
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glhxyzqf1qj20dx0bmq6j.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glhxxb63xhj20hc0br0wq.jpg" referrerpolicy="no-referrer">
+
+
+评论区热闹起来了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 21502#       发表于 2020-12-9 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以拿这个红SC估计工商费，我觉得怎么也得有100w日元才能让他打红sc提醒吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21503#       发表于 2020-12-9 21:59
+
+
+
+
+不愧是葛皇
+
+<img src="https://img.saraba1st.com/forum/202012/09/215837n9hd44s7tdwn0aq4.png" referrerpolicy="no-referrer">
+
+
+<strong>【#にじさんじじゃんけん王】じゃんけん大会 参加者発表＆トーナメント抽選会【黛 灰 .png</strong> (531.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 21:58 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=vd9XBtn7jvA](https://www.youtube.com/watch?v=vd9XBtn7jvA)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21504#       发表于 2020-12-9 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665921&amp;ptid=1969498" target="_blank">喜闻乐见 发表于 2020-12-9 21:49</a>
+
+评论区热闹起来了</blockquote>
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1glhy9pl9zdj20cv01zjrd.jpg" referrerpolicy="no-referrer">
+
+
+那么例のあの人是指……<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
