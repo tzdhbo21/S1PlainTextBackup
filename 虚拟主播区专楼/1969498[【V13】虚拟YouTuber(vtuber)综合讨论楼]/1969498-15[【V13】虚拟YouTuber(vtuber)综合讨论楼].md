@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 12:10** 
+> ## **本文件最后更新于2020-12-09 14:08** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_uvVCx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cwX4x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Z9Ukt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_X8w8b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -7088,4 +7088,364 @@ Syl，不要灰心，可能只是没找到好的时机，憨憨这个 ...</block
 
 
 
-                                      
+
+
+-----
+
+####  nocode  
+##### 21357#       发表于 2020-12-9 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658125&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 10:41</a>
+2020.7.2
+
+
+文美、白雪巴、阿喵喵、小红帽、舞元、？、星川、？</blockquote>
+7月最右是ars已发布，用的去头饰长发版差分的剪影；剩下一个大概率gbr，首先要让她播
+
+9月第二个是小熊猫的也已发布
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 21358#       发表于 2020-12-9 12:22
+
+
+
+
+和利香线下吃饭可以是要不仅要交钱还要交身份证出去的，好像电话私聊也是，
+
+
+我知道的国内的那个利香“金主”只会在群里天天倒利香被黄毛男友ooxx的黑水
+
+
+然后我看不发资源我就走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 21359#       发表于 2020-12-9 12:25
+
+
+
+
+和黄毛ooxx的资源?<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21360#       发表于 2020-12-9 12:26
+
+
+
+
+可日本有身份证吗？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21361#       发表于 2020-12-9 12:35
+
+
+
+
+这金主有点菜啊，这不就是只是个我们pro哥的等级，pro也天天倒苔太被kuma圈圈叉叉的苦水
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21362#       发表于 2020-12-9 12:37
+
+
+
+
+资源是指同人本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 21363#       发表于 2020-12-9 12:39
+
+
+
+
+口述的内容也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21364#       发表于 2020-12-9 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49659607&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-9 12:35</a>
+
+这金主有点菜啊，这不就是只是个我们pro哥的等级，pro也天天倒苔太被kuma圈圈叉叉的苦水
+
+
+—— 来自 Xiaomi ...</blockquote>
+楼友不要莫名其妙败坏我的形象啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21365#       发表于 2020-12-9 13:30
+
+
+
+
+国内的所谓利香金主不就只能这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 21366#       发表于 2020-12-9 13:30
+
+
+
+
+突然发现月灵姐姐的关注的人不升反降，取关了六七个人好像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 21367#       发表于 2020-12-9 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49660319&amp;ptid=1969498" target="_blank">Ronso 发表于 2020-12-9 13:30</a>
+
+突然发现月灵姐姐的关注的人不升反降，取关了六七个人好像</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特是会死号的 
+
+死了就清关注了
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21368#       发表于 2020-12-9 13:37
+
+
+
+
+https://www.c-agent.net/kenketsu/index.html
+<img src="https://p.sda1.dev/0/22b318e19b5d91171dee06d73e46f24e/IMG_CMP_35245150.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21369#       发表于 2020-12-9 13:37
+
+
+
+
+安洁和inui都好久没衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21370#       发表于 2020-12-9 13:48
+
+
+
+<blockquote>絵生voice 发表于 2020-12-9 13:37
+https://www.c-agent.net/kenketsu/index.html</blockquote>
+这个是不是就是以前茄子接的那个工商？看起来holo影响力大了之后这种献血工商都是holo了的啊
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21371#       发表于 2020-12-9 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次金盾庆祝是鲨，狗，狐一起庆祝，这次兔皇金盾，却单独给了一个庆祝，真正的king只有一人！
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 21372#       发表于 2020-12-9 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议虚拟主播区改名虚拟偶像区，看了一圈原来是日式偶像的互联网二次元分支啊，确实比海鲜台的土味国产主播发达不少
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21373#       发表于 2020-12-9 13:55
+
+
+
+
+随便拼了一下
+
+<img src="https://img.saraba1st.com/forum/202012/09/135525cu3z6k5hupu3uzr5.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2020-12-09_13-52-38.png</strong> (936.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 13:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/135522xbbi7idd8tossb5t.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2020-12-09_13-29-36.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 13:55 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21374#       发表于 2020-12-9 13:58
+
+
+
+
+右边这两个像是口了和郡道<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，哪个巨魔staff做的图
+
+
+
+
+
+                                     
