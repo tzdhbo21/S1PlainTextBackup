@@ -1,0 +1,5364 @@
+> ## **本文件最后更新于2020-12-09 16:22** 
+
+
+
+-----
+
+####  ziyo  
+##### 1#       楼主       发表于 2020-9-17 17:18
+
+
+
+ 本帖最后由 ziyo 于 2020-12-8 22:12 编辑 
+
+[https://www.apple.com.cn/airpods-max/](https://www.apple.com.cn/airpods-max/)
+
+<img src="https://img.saraba1st.com/forum/202012/08/221157esbcmcssfcila33i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201208221103.jpg</strong> (62.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 22:11 上传
+
+
+
+
+
+
+
+
+
+
+
+QQ图片20200917171818.png
+(682.8 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-9-17 17:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202009/17/171844k4uzhsz0cmixzhbo.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200917171709.png
+(90.16 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-9-17 17:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202009/17/171810uw26evg6uze6u5v0.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200917171700.png
+(227.54 KB, 下载次数: 7)
+
+
+
+
+下载附件
+
+
+2020-9-17 17:17 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202009/17/171723z3wy31zcvy4zroyy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  4600  
+##### 2#       发表于 2020-9-17 17:22
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  强尼高达  
+##### 3#       发表于 2020-9-17 17:22
+
+
+
+
+没有耳机插孔可以拜拜了
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 4#       发表于 2020-9-17 17:34
+
+
+
+
+不分正反挺好的
+
+
+
+
+
+
+
+-----
+
+####  董卓  
+##### 5#       发表于 2020-9-17 17:36
+
+
+
+
+耳廓检测么？挺有意思呀
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 6#       发表于 2020-9-17 17:40
+
+
+
+
+什么时候上呢？
+
+
+
+
+
+
+
+-----
+
+####  天网  
+##### 7#       发表于 2020-9-17 17:44
+
+
+
+
+这个看起来正常些。
+
+
+之前那张爆料，logo摆得无力吐槽，左右加一个大苹果，还以为是华强北山寨店做出来的
+
+
+<img src="https://img.saraba1st.com/forum/202009/17/174428r5cu56cokq5a8kcw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>AirPods-Studio-1030x687.jpg</strong> (39.64 KB, 下载次数: 6)
+
+下载附件
+
+2020-9-17 17:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  BRRM  
+##### 8#       发表于 2020-9-17 18:38
+
+
+
+
+这种耳罩好像不常见啊，想到了akg kk
+
+
+
+
+
+
+
+-----
+
+####  mcq_2  
+##### 9#       发表于 2020-9-17 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48767384&amp;ptid=1960399" target="_blank">董卓 发表于 2020-9-17 17:36</a>
+
+耳廓检测么？挺有意思呀</blockquote>
+不是，大概率转向角度检测，戴头上基本都是外八字型的。
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 10#       发表于 2020-9-17 19:00
+
+
+
+
+狼来了
+
+传统耳机业那点技术积累，恐怕经不住这一下
+
+
+
+
+
+
+
+-----
+
+####  Icskari  
+##### 11#       发表于 2020-9-17 19:06
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  gugu135  
+##### 12#       发表于 2020-9-17 19:10
+
+
+
+
+这玩意儿主要收割的是2b用户吧，对传统行业威胁不大，大法头上倒是有个危字<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8116, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 13#       发表于 2020-9-17 19:20
+
+
+
+
+持币,出就买
+
+
+
+
+
+
+
+-----
+
+####  拒绝爱讨论  
+##### 14#       发表于 2020-9-17 19:27
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  天网  
+##### 15#       发表于 2020-9-17 19:46
+
+
+
+ 本帖最后由 天网 于 2020-9-17 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48768367&amp;ptid=1960399" target="_blank">gugu135 发表于 2020-9-17 19:10</a>
+
+这玩意儿主要收割的是2b用户吧，对传统行业威胁不大，大法头上倒是有个危字
+
+
+—— 来自 Sony H8116, ...</blockquote>
+这个外观如果属实，我猜测非常像是配合着Mac Pro和Pro display XDR的风格去的。这样一想，那个像医疗器械的金属风就丝毫不突兀了，很搭，完全能搭成套，Studio这个名也满满各种工作室用途的暗示，简直是明示。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉价格也有可能要翻出天，和上面那俩并列成不差钱公司 or 土豪玩具的工作站三件套。至于普通人和消费娱乐级，就是已有的airpod普通系列和pro产品线了。
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 16#       发表于 2020-9-17 19:47
+
+
+
+
+没有耳机插孔飞机上咋用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  结夜野棠.  
+##### 17#       发表于 2020-9-17 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48768724&amp;ptid=1960399" target="_blank">zikimi 发表于 2020-9-17 19:47</a>
+没有耳机插孔飞机上咋用</blockquote>
+现在飞机可以用蓝牙了
+
+
+
+
+
+
+
+-----
+
+####  Diabolosis  
+##### 18#       发表于 2020-9-17 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48768782&amp;ptid=1960399" target="_blank">结夜野棠. 发表于 2020-9-17 19:53</a>
+现在飞机可以用蓝牙了</blockquote>
+大部分还是不行的吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  haruhiismer  
+##### 19#       发表于 2020-9-17 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48767384&amp;ptid=1960399" target="_blank">董卓 发表于 2020-9-17 17:36</a>
+耳廓检测么？挺有意思呀</blockquote>
+akg n90q了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 20#       发表于 2020-9-17 21:24
+
+
+
+ 本帖最后由 fukc 于 2020-9-17 21:26 编辑 
+
+b&amp;w：把我的东西掰直了卖，要点脸不？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202009/17/212403nm969qjmzz6n8n49.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8CC26D97-0E98-4A12-A739-31D5977C0402.jpeg</strong> (88.33 KB, 下载次数: 4)
+
+下载附件
+
+2020-9-17 21:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alpha.h  
+##### 21#       发表于 2020-9-17 21:26
+
+
+
+
+这不宝华吗
+
+
+
+
+
+
+
+-----
+
+####  Licheus  
+##### 22#       发表于 2020-9-17 21:38
+
+
+
+
+戴起来够舒服就成。
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 23#       发表于 2020-9-17 21:58
+
+
+
+
+不知道怕不怕刮
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 24#       发表于 2020-9-17 22:33
+
+
+
+
+耳罩部分怎么是平的，难道是压耳式？不要啊……
+
+
+
+
+
+
+
+-----
+
+####  1stPaleMaster  
+##### 25#       发表于 2020-9-17 23:19
+
+
+
+
+一股老静电的味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kelveen  
+##### 26#       发表于 2020-9-18 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48769124&amp;ptid=1960399" target="_blank">Diabolosis 发表于 2020-9-17 20:31</a>
+大部分还是不行的吧
+
+—— 来自 samsung SM-G9730, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+起飞降落不可以，过程中可以，大部分不可以是啥意思。
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  _47  
+##### 27#       发表于 2020-9-18 00:31
+
+
+
+
+C口？果子开窍了？
+
+
+
+
+
+
+
+-----
+
+####  Diabolosis  
+##### 28#       发表于 2020-9-18 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48771862&amp;ptid=1960399" target="_blank">kelveen 发表于 2020-9-18 00:05</a>
+
+起飞降落不可以，过程中可以，大部分不可以是啥意思。
+
+
+—— 来自 samsung SM-G9750, Android 10上的 S1N ...</blockquote>
+我最近一次坐飞机（7月中旬）的时候，看飞机上的警示牌子还是不让设备间无线连接的，只能用可以启用飞行模式的电子设备
+
+
+
+
+
+
+
+-----
+
+####  hguawolo  
+##### 29#       发表于 2020-9-18 03:05
+
+
+
+
+压耳劝退，眼镜党还要不要活了
+
+
+
+
+
+
+
+-----
+
+####  结夜野棠.  
+##### 30#       发表于 2020-9-18 06:41
+
+
+
+ 本帖最后由 结夜野棠. 于 2020-9-18 06:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48772291&amp;ptid=1960399" target="_blank">Diabolosis 发表于 2020-9-18 00:58</a>
+
+我最近一次坐飞机（7月中旬）的时候，看飞机上的警示牌子还是不让设备间无线连接的，只能用可以启用飞行模 ...</blockquote>
+
+这牌子可能是旧的，现在国内航空公司都可以不开飞行模式了。如果起飞降落过程中不让戴耳机，那也只是怕你在颠簸中受伤，而不是因为蓝牙
+
+
+
+
+
+
+
+-----
+
+####  出轨的三头龙  
+##### 31#       发表于 2020-9-18 08:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48768284&amp;ptid=1960399" target="_blank">Chia 发表于 2020-9-17 19:00</a>
+
+狼来了
+
+传统耳机业那点技术积累，恐怕经不住这一下</blockquote>
+随身这么多年确实没啥长进，家用台性价比还是可以的，但是国内耳机店基本都看不上了
+
+
+
+
+
+
+
+-----
+
+####  momoooo  
+##### 32#       发表于 2020-9-18 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48773013&amp;ptid=1960399" target="_blank">结夜野棠. 发表于 2020-9-18 06:41</a>
+这牌子可能是旧的，现在国内航空公司都可以不开飞行模式了。如果起飞降落过程中不让戴耳机，那也只是怕你 ...</blockquote>
+上两周连续坐还都要飞行模式的
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  出轨的三头龙  
+##### 33#       发表于 2020-9-18 09:07
+
+
+
+
+虽然hifi耳机很多智商税，但是苹果耳机售价也不是盖得，距离打击市场还远得很
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 34#       发表于 2020-9-18 09:23
+
+
+
+<img src="https://img.ithome.com/newsuploadfiles/2020/9/20200917052951_6841.jpg" referrerpolicy="no-referrer">
+
+据说是运动版的谍照，高级版会用皮革耳罩的样子
+
+
+这个风格在办公室里有点太张扬啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tokamak  
+##### 35#       发表于 2020-9-18 10:28
+
+
+
+
+之前那些不分左右和耳廓检测的耳机没人吹，现在苹果出了就和海盗发现宝藏一样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  marsquake  
+##### 36#       发表于 2020-9-18 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48769124&amp;ptid=1960399" target="_blank">Diabolosis 发表于 2020-9-17 20:31</a>
+
+大部分还是不行的吧
+
+
+—— 来自 samsung SM-G9730, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+绝大部分都可以，机上wifi都随便用了
+
+
+
+
+
+
+
+-----
+
+####  sjdup  
+##### 37#       发表于 2020-9-18 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48774771&amp;ptid=1960399" target="_blank">tokamak 发表于 2020-9-18 10:28</a>
+之前那些不分左右和耳廓检测的耳机没人吹，现在苹果出了就和海盗发现宝藏一样
+
+—— 来自 Xiaomi M2 ...</blockquote>
+说明苹果扩展了耳机目标用户群体，一堆没见过世面的涌了进来，好事啊😂
+
+
+
+
+
+
+
+-----
+
+####  风雪天  
+##### 38#       发表于 2020-9-18 11:24
+
+
+
+
+这应该威胁不了传统耳机厂商吧，传统耳机看重的不是hifi吗，那些发烧友能看的上，倒是对beats和大法有威胁
+
+
+
+
+
+
+
+-----
+
+####  kelveen  
+##### 39#       发表于 2020-9-18 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48772291&amp;ptid=1960399" target="_blank">Diabolosis 发表于 2020-9-18 00:58</a>
+我最近一次坐飞机（7月中旬）的时候，看飞机上的警示牌子还是不让设备间无线连接的，只能用可以启用飞行模 ...</blockquote>
+是要飞行模式，但可以开蓝牙。而且起飞降落不是不让戴蓝牙耳机，而是所有耳机都不让戴，防止听不到安全广播。
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 40#       发表于 2020-9-18 11:37
+
+
+
+
+玄学厂产品线长，好东西放到高溢价的旗舰上收割。
+
+
+
+
+
+
+
+-----
+
+####  Icskari  
+##### 41#       发表于 2020-9-18 11:43
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  latale  
+##### 42#       发表于 2020-9-18 11:56
+
+
+
+
+压耳式的？感觉对头大的人来说不会很舒适…
+
+
+
+
+
+
+
+-----
+
+####  畜男不是人  
+##### 43#       发表于 2020-9-18 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48769666&amp;ptid=1960399" target="_blank">fukc 发表于 2020-9-17 08:24</a>
+b&amp;w：把我的东西掰直了卖，要点脸不？</blockquote>
+完全不像啊 形状倒是像某些静电耳机
+
+
+
+
+
+
+
+-----
+
+####  河野贵明  
+##### 44#       发表于 2020-9-18 12:02
+
+
+
+<img src="http://ww3.sinaimg.cn/bmiddle/82d30882gy1gig6y81c68j20qo0e4wfn.jpg" referrerpolicy="no-referrer">
+<img src="http://ww3.sinaimg.cn/bmiddle/82d30882gy1gig6xwiiy3j20hs0phglq.jpg" referrerpolicy="no-referrer">
+<img src="http://ww3.sinaimg.cn/bmiddle/003nChGVgy1gikibak1puj60b80cv40k02.jpg" referrerpolicy="no-referrer">
+
+
+菊花19年已经抄好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就等你开卖这边就跟上
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 45#         楼主| 发表于 2020-9-20 03:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48775860&amp;ptid=1960399" target="_blank">河野贵明 发表于 2020-9-18 12:02</a>
+菊花19年已经抄好了就等你开卖这边就跟上</blockquote>
+还是菊花爆料稳，大概这个风格了
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  netplaying  
+##### 46#       发表于 2020-9-20 10:28
+
+
+
+
+这个C口是仅充电还是可以插线连到电脑或者手机用？
+
+
+
+
+
+
+
+-----
+
+####  deenyao  
+##### 47#       发表于 2020-9-20 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48768339&amp;ptid=1960399" target="_blank">Icskari 发表于 2020-9-17 19:06</a>
+
+国砖韩砖洋塞子，线材解码放大器的智商税割了这么多年韭菜，早该管管了</blockquote>
+苹果怕不是接力棒继续割, 说不定割得更狠
+
+
+
+
+
+
+
+-----
+
+####  lwa190212  
+##### 48#       发表于 2020-9-20 10:36
+
+
+
+
+不分左右那人体工学就限定在那一条轴上了，怎么想都不会是好事才对，妈的世界线又要向这群感官废物倾斜了吗，我好气哦，你们怎么就不用钢门尿尿呢
+
+
+
+
+
+
+
+-----
+
+####  Icskari  
+##### 49#       发表于 2020-9-20 10:40
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  ky怪  
+##### 50#       发表于 2020-9-20 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48792576&amp;ptid=1960399" target="_blank">deenyao 发表于 2020-9-20 10:36</a>
+苹果怕不是接力棒继续割, 说不定割得更狠</blockquote>
+HomePod的dsp处理跟真理GML类似啊...直接下放技术到消费级产品
+
+
+
+
+
+
+
+-----
+
+####  拉沃契金  
+##### 51#       发表于 2020-9-20 16:39
+
+
+
+
+等降噪的pro版
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  nice女武神  
+##### 52#       发表于 2020-9-21 08:20
+
+
+
+<blockquote>tokamak 发表于 2020-9-18 10:28
+之前那些不分左右和耳廓检测的耳机没人吹，现在苹果出了就和海盗发现宝藏一样
+
+
+—— 来自 Xiaomi M2 ...</blockquote>
+重新发明  这个词你难道没听过。。。。
+
+
+
+
+
+
+
+-----
+
+####  Jobtowna  
+##### 53#       发表于 2020-9-21 13:18
+
+
+
+
+大面积金属材质，像是iPhone4时代之前的风格……
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 54#       发表于 2020-9-21 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48792598&amp;ptid=1960399" target="_blank">Icskari 发表于 2020-9-20 10:40</a>
+
+不可能，苹果的存在本身就是反hifi反玄学的。
+
+也许你既不了解hifi，也不了解苹果吧  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">苹果的存在是消费主义，两年耗材烂，三年电池崩，割同一个人的下一茬韭菜
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 55#         楼主| 发表于 2020-9-29 00:21
+
+
+
+ 本帖最后由 ziyo 于 2020-9-29 00:28 编辑 
+
+两张新图
+
+
+<img src="https://img.saraba1st.com/forum/202009/29/002041cv9qdip1ilq1kikl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ei6PVJbX0AYiD48.jpg</strong> (105.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-9-29 00:20 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202009/29/002056j92k0fuv8z002rpo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ei91Pq3U8AAcgih.jpg</strong> (96.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-9-29 00:20 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202009/29/002830m8eoagvgf34vano8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ei6YVOvXkAACyzH.jpg</strong> (79.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-9-29 00:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202009/29/002124x70cj8lrld7fr037.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ei6wERAU0AAjYlQ.jpg</strong> (11.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-9-29 00:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Archlich³  
+##### 56#       发表于 2020-9-29 01:40
+
+
+
+
+本来想买歌德GW100的，观望一下这个好了。
+
+
+
+
+
+
+
+-----
+
+####  MtnDeW  
+##### 57#       发表于 2020-9-29 03:49
+
+
+
+ 本帖最后由 MtnDeW 于 2020-9-28 13:51 编辑 
+
+入了Air pods pro，大为失望，佩戴感极差，换过各种塞子包括第三方还是会戴不稳，一会儿自己就掉下去了。摔了几次之后右耳开始出现细小杂音，电话客服跟我说塞子问题给我寄了一套新的就没管，没有解决问题后续也没有跟进，在美国实体店蠢材吧都关门的情况下看来是要不了了之了。而且要是用金属的话不知道重量怎么样，真的对苹果产品的佩戴感持怀疑态度。
+
+没有耳机孔也是大减分，苹果耳机的无缝切换只存在于自家产品，我除了果机，其他用耳机的场景是WIN本，WIN板，猴副机，几个设备切换起来体验肯定没有苹果生态来得好。
+
+再一个是飞机上使用，一大票老飞机没有蓝牙适用性大减。
+
+目前一代wh-1000还没坏，苟一苟看今年黑五能不能蹲到三代好价。
+
+
+
+
+
+
+
+-----
+
+####  kelveen  
+##### 58#       发表于 2020-9-29 08:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48891234&amp;ptid=1960399" target="_blank">MtnDeW 发表于 2020-9-29 03:49</a>
+入了Air pods pro，大为失望，佩戴感极差，换过各种塞子包括第三方还是会戴不稳，一会儿自己就掉下去了。摔 ...</blockquote>
+你说的基本都不是airpods pro特有的问题，除了佩戴以外，tws基本都这样，甚至还不如app。
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  别叫我宅男  
+##### 59#       发表于 2020-9-29 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48891234&amp;ptid=1960399" target="_blank">MtnDeW 发表于 2020-9-29 03:49</a>
+ 入了Air pods pro，大为失望，佩戴感极差，换过各种塞子包括第三方还是会戴不稳，一会儿自己就掉下去了。摔 ...</blockquote>
+细小杂音是第一批货本身的问题，你可能中奖了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不过果子态度是直接给新的，这点还是蛮不错的
+
+
+
+
+
+
+
+-----
+
+####  7A7  
+##### 60#       发表于 2020-9-29 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48774771&amp;ptid=1960399" target="_blank">tokamak 发表于 2020-9-18 10:28</a>
+
+之前那些不分左右和耳廓检测的耳机没人吹，现在苹果出了就和海盗发现宝藏一样
+
+
+—— 来自 Xiaomi M2 ...</blockquote>
+求展开 之前还真没听说哪个耳机宣传不分左右
+
+
+
+
+
+
+
+-----
+
+####  kingrowing  
+##### 61#       发表于 2020-9-29 09:18
+
+
+
+ 本帖最后由 kingrowing 于 2020-9-29 09:22 编辑 
+
+这是真的丑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，用过几个蓝牙的，音质都不怎么样，不知道这个怎么样
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 62#       发表于 2020-9-29 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48890421&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-9-29 00:21</a>
+两张新图</blockquote>
+自己渲染的吧，两边印着水果标这也太寨了……<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MtnDeW  
+##### 63#       发表于 2020-10-1 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48891801&amp;ptid=1960399" target="_blank">kelveen 发表于 2020-9-28 18:22</a>
+
+你说的基本都不是airpods pro特有的问题，除了佩戴以外，tws基本都这样，甚至还不如app。
+
+
+—— 来自 sam ...</blockquote>
+IOS 14更新以后噪音更严重了...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这周有空去找果子客服撕
+
+
+
+
+
+
+
+-----
+
+####  MtnDeW  
+##### 64#       发表于 2020-10-1 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48891801&amp;ptid=1960399" target="_blank">kelveen 发表于 2020-9-28 18:22</a>
+
+你说的基本都不是airpods pro特有的问题，除了佩戴以外，tws基本都这样，甚至还不如app。
+
+
+—— 来自 sam ...</blockquote>
+换句话说用户这些问题就不该怪果子么？还是说烂就烂反正其他选择也烂或者更烂，要么别买要么受着呗？<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kelveen  
+##### 65#       发表于 2020-10-1 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48914894&amp;ptid=1960399" target="_blank">MtnDeW 发表于 2020-10-1 00:07</a>
+换句话说用户这些问题就不该怪果子么？还是说烂就烂反正其他选择也烂或者更烂，要么别买要么受着呗？[f:0 ...</blockquote>
+质量问题无法评论，毕竟我自己的和我老婆的用了快一年，都没事。身边用的同事也不少，没听过抱怨的。
+
+无缝切换，除了水果设备内闭环以外做的最好的就bose，但也仅限两个设备之间。而且bose新出的两款tws都把这个阉割了，也就是还不如水果。其次是最近出的freebuds pro，但我已经在这版面看到两个说切换有bug的。至于其他tws，充其量是音频通道和语音通道走不同的设备，也不算无缝切换。
+
+至于耳机孔，我是不知道tws怎么设计耳机孔。
+
+所以呢，虽然我不是那个意思，但你要简单粗暴理解的话就是：对，app已经是业界顶尖水平了，这都满足不了你，那别买tws就是了。
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  MtnDeW  
+##### 66#       发表于 2020-10-4 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48920261&amp;ptid=1960399" target="_blank">kelveen 发表于 2020-10-1 02:24</a>
+质量问题无法评论，毕竟我自己的和我老婆的用了快一年，都没事。身边用的同事也不少，没听过抱怨的。
+
+无 ...</blockquote>
+质量问题的话，身边熟人统计不靠谱，样本量如果楼上说的属实，以至于要出台换修政策的话，那可能一个批次都有质量问题。
+我对耳机线和孔的需求是针对头戴式而言。
+只能说目前真无线这类的产品还没有适合我的吧。
+
+
+
+
+
+
+
+-----
+
+####  tency  
+##### 67#       发表于 2020-10-4 09:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48945327&amp;ptid=1960399" target="_blank">MtnDeW 发表于 2020-10-4 08:49</a>
+质量问题的话，身边熟人统计不靠谱，样本量如果楼上说的属实，以至于要出台换修政策的话，那可能一个批次 ...</blockquote>
+你一个真实需求是头戴式的买app然后喷水果垃圾，我觉得脑回路有点问题
+
+
+
+
+
+
+
+-----
+
+####  MtnDeW  
+##### 68#       发表于 2020-10-4 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48945593&amp;ptid=1960399" target="_blank">tency 发表于 2020-10-3 19:30</a>
+你一个真实需求是头戴式的买app然后喷水果垃圾，我觉得脑回路有点问题</blockquote>
+水果要是出过无线头戴肯定是用头戴来说事，硬要说逼侧也算，没用过逼侧头戴无线，不评价。
+那我只能拿我对苹果之前出过的无线耳机作为参考，在没摸到新产品之前，苹果无线耳机给我的印象就是初代产品有缺陷。
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 69#       发表于 2020-10-5 20:36
+
+
+
+
+app都是直接换新啊，干嘛不换啊？
+
+
+
+
+
+
+
+-----
+
+####  恐怖利刃  
+##### 70#       发表于 2020-12-1 01:38
+
+
+
+
+近期还会出吗，app丢了一只，所在的环境没有降噪耳机真的要疯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 71#         楼主| 发表于 2020-12-1 01:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49572043&amp;ptid=1960399" target="_blank">恐怖利刃 发表于 2020-12-1 01:38</a>
+
+近期还会出吗，app丢了一只，所在的环境没有降噪耳机真的要疯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说坑到明年了，买sony吧
+
+
+
+
+
+
+
+-----
+
+####  flyang  
+##### 72#       发表于 2020-12-1 11:35
+
+
+
+
+这个造型看起来完全是开放式耳机啊，没降噪的？
+
+
+
+
+
+
+
+-----
+
+####  奇遇2000  
+##### 73#       发表于 2020-12-1 20:32
+
+
+
+
+这货鸽了多少次了……对得起我们上游打工人的心血吗！我入职的时候就给它生产零件，现在都跑路半年了你果还没有做出来！
+
+
+
+
+
+
+
+-----
+
+####  treexper  
+##### 74#       发表于 2020-12-1 22:21
+
+
+
+
+哎好想要啊。。。
+
+
+
+
+
+
+
+-----
+
+####  eden0412  
+##### 75#       发表于 2020-12-1 22:51
+
+
+
+
+听说今年还有场发布会，苹果开上瘾了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 76#         楼主| 发表于 2020-12-4 14:08
+
+
+
+
+小白测评
+
+19分钟前 来自 微博 weibo.com
+
+AirPods Studio或将于下周二发布？🤔
+
+MacRumors报道称其从可靠来源获得的本周内部备忘录中，Apple告知服务提供商，计划在12月8日（星期二）进行与AppleCare相关的更改。根据备忘录，苹果特别建议技术人员为新产品的SKU，新/更新的产品描述以及新/更新的产品定价做准备。
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 77#       发表于 2020-12-4 14:13
+
+
+
+
+持币等出
+
+
+
+
+
+
+
+-----
+
+####  Litccc  
+##### 78#       发表于 2020-12-4 14:17
+
+
+
+ 本帖最后由 Litccc 于 2020-12-4 14:20 编辑 
+
+赶紧来吧，我的shp9500和sony 1000xm1可以退役了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 79#         楼主| 发表于 2020-12-4 14:28
+
+
+
+
+
+National Business Daily
+
+@NBDPress
+
+Goertek, the exclusive #OEM of #AirPodsStudio, has started to deliver the product. The initial order is not very big, but with high per order price. Insiders expect #Apple will release AirPods Studio soon. (Cailianshe)
+
+
+
+
+
+
+
+-----
+
+####  GeneralSmasher  
+##### 80#       发表于 2020-12-4 16:19
+
+
+
+ 本帖最后由 GeneralSmasher 于 2020-12-4 16:20 编辑 
+
+如果没有新冠，今年的产品除了iPhone和iPad其他应该上半年就发布完了，下半年还有传说中的窄边框iMac，airtag等
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 81#       发表于 2020-12-4 21:18
+
+
+
+
+买买买
+
+
+
+
+
+
+
+-----
+
+####  平井姨夫  
+##### 82#       发表于 2020-12-4 21:22
+
+
+
+
+有降噪吗？
+
+
+
+
+
+
+
+-----
+
+####  鸳鸳相抱  
+##### 83#       发表于 2020-12-4 21:24
+
+
+
+
+家用其实不是很在乎降噪吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">不过那么大空间做个降噪也没啥难度
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 84#       发表于 2020-12-4 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等不及了，我一买qc35你就出了？
+
+
+
+
+
+
+
+-----
+
+####  孜然马牛牛  
+##### 85#       发表于 2020-12-4 22:08
+
+
+
+
+感觉是纯蓝牙啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 86#       发表于 2020-12-5 10:13
+
+
+
+
+鸽很久会不会是因为app太受欢迎所以直接改降噪了（吃桃）
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 87#       发表于 2020-12-5 10:24
+
+
+
+
+今年水果最期待的产品了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还是希望有降噪和能打的音质，只是发布个头戴AirPods没意思
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 88#       发表于 2020-12-5 11:11
+
+
+
+
+蒂姆🍎：用屁股想都知道不带pro后缀就没有降噪，你们的脑子太不环保了。
+
+
+
+
+
+
+
+-----
+
+####  johnie  
+##### 89#       发表于 2020-12-5 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49616755&amp;ptid=1960399" target="_blank">fukc 发表于 2020-12-5 11:11</a>
+蒂姆🍎：用屁股想都知道不带pro后缀就没有降噪，你们的脑子太不环保了。</blockquote>
+beats studio：你不知道死丢丢自带降噪吗
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 90#       发表于 2020-12-5 11:37
+
+
+
+
+搜了下近期爆出来的图确实和以前不一样，有降噪的感觉
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/113625gqo5xhhqcmx3ukwu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EobjxM_W4AETug5.jpeg</strong> (32.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 11:36 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/05/113625xs7o1cucvov7wjoc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EobjwwDXMAI3Y9F.jpeg</strong> (53.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-5 11:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恐怖利刃  
+##### 91#       发表于 2020-12-5 13:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49607815&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-12-4 14:08</a>
+小白测评
+
+19分钟前 来自 微博 weibo.com
+
+AirPods Studio或将于下周二发布？🤔</blockquote>
+听了你的刚买的xm4<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+希望定价5k+，这样就不会后悔了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 92#         楼主| 发表于 2020-12-5 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49618164&amp;ptid=1960399" target="_blank">恐怖利刃 发表于 2020-12-5 13:31</a>
+听了你的刚买的xm4
+希望定价5k+，这样就不会后悔了</blockquote>
+早买早享受，苹果这个价格估计不便宜<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI NOTE Pro, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 93#       发表于 2020-12-5 14:25
+
+
+
+
+这新图跟以前那个爆料图差的有点多啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Licheus  
+##### 94#       发表于 2020-12-5 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49616952&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-5 11:37</a>
+搜了下近期爆出来的图确实和以前不一样，有降噪的感觉</blockquote>
+期待第二张图里的苹果中文
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 95#       发表于 2020-12-5 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49618467&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-12-5 13:55</a>
+早买早享受，苹果这个价格估计不便宜
+
+—— 来自 Xiaomi MI NOTE Pro, Android 7.0上的 S1Next-鹅 ...</blockquote>
+AirPods Pro 249刀，studio估计349吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 96#       发表于 2020-12-6 03:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49616952&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-5 11:37</a>
+
+搜了下近期爆出来的图确实和以前不一样，有降噪的感觉</blockquote>
+这个外观正常了不少
+
+
+
+
+
+
+
+-----
+
+####  bigice  
+##### 97#       发表于 2020-12-8 14:09
+
+
+
+
+貌似有人已经体验到了？
+
+
+
+
+
+
+
+-----
+
+####  bubuyu  
+##### 98#       发表于 2020-12-8 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49623270&amp;ptid=1960399" target="_blank">Licheus 发表于 2020-12-5 23:13</a>
+
+期待第二张图里的苹果中文</blockquote>
+苹果大陆的中文这两年正常多了吧，要看以前内味儿要去湾湾那边。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bigice  
+##### 99#       发表于 2020-12-8 14:51
+
+
+
+
+最新爆料，东西是好东西，价格上天
+
+
+
+
+
+
+
+-----
+
+####  别叫我宅男  
+##### 100#       发表于 2020-12-8 15:48
+
+
+
+ 本帖最后由 别叫我宅男 于 2020-12-8 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650254&amp;ptid=1960399" target="_blank">bigice 发表于 2020-12-8 14:51</a>
+
+ 最新爆料，东西是好东西，价格上天</blockquote>
+那咱们就和厨子多多交朋友嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Re.Troy  
+##### 101#       发表于 2020-12-8 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">总不会贵于500吧
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 102#       发表于 2020-12-8 16:00
+
+
+
+
+有新消息了吗？
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 103#       发表于 2020-12-8 16:22
+
+
+
+
+价格总不会超过4K吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 104#       发表于 2020-12-8 17:38
+
+
+
+
+之前不是说两千多么。
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 105#       发表于 2020-12-8 17:47
+
+
+
+
+基础版应该差不多就是和bose sony b&amp;o 森海对标的价格，真皮版本啥的肯定贵。
+
+
+
+
+
+
+
+-----
+
+####  GeneralSmasher  
+##### 106#       发表于 2020-12-8 17:54
+
+
+
+
+你们哪看的消息
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 107#       发表于 2020-12-8 18:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 消息到底哪来的
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 108#       发表于 2020-12-8 21:09
+
+
+
+
+那么几点发布
+
+
+
+
+
+
+
+-----
+
+####  moekyo  
+##### 109#       发表于 2020-12-8 21:35
+
+
+
+
+来了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 110#         楼主| 发表于 2020-12-8 21:39
+
+
+
+ 本帖最后由 ziyo 于 2020-12-8 21:42 编辑 
+
+苹果正式发布 AirPods Max 头戴式耳机，售价为 549 美元，约合 3600 元人民币。
+
+
+-采用轻量化设计，透气针织网状的头戴、不锈钢材质框架以及记忆海绵材质的耳罩，能够给予使用者舒适的佩戴体验。
+
+
+-灵感来自于 Apple Watch 的 Digital Crown 可以方便地调节音量、暂停播放以及跳转等操作。 ​​​​
+
+
+
+
+
+
+
+-----
+
+####  moekyo  
+##### 111#       发表于 2020-12-8 21:42
+
+
+
+[https://www.apple.com.cn/newsroo ... ng-over-ear-design/](https://www.apple.com.cn/newsroom/2020/12/apple-introduces-airpods-max-the-magic-of-airpods-in-a-stunning-over-ear-design/)
+
+
+
+
+
+
+
+-----
+
+####  白木あえか  
+##### 112#       发表于 2020-12-8 21:42
+
+
+
+
+Pro是249美刀，1999
+Max是549美刀，看来是4K+啊……
+打扰了，还是K701大手办吧，适用性还更广
+
+
+
+
+
+
+
+-----
+
+####  Heliko  
+##### 113#       发表于 2020-12-8 21:44
+
+
+
+
+有点贵，不过🍎，也能理解
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 114#       发表于 2020-12-8 21:44
+
+
+
+
+4399打扰了。
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 115#         楼主| 发表于 2020-12-8 21:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/214441i75eeq75xeqq9zm4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>719f9f6bgy1glgs6g7sgkj20u00zm4qq.jpg</strong> (87.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 21:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  白木あえか  
+##### 116#       发表于 2020-12-8 21:48
+
+
+
+
+印象中这是苹果第一次宣传HiFi，结合4399的价格，苹果对音质肯定是有十足的自信了
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 117#       发表于 2020-12-8 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654166&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-8 21:42</a>
+
+Pro是249美刀，1999
+
+Max是549美刀，看来是4K+啊……
+
+打扰了，还是K701大手办吧，适用性还更广 ...</blockquote>
+这玩意跟K701这种开放大耳都不是一种东西啊…
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 118#       发表于 2020-12-8 21:49
+
+
+
+
+Charging via Lightning connector
+
+
+爬
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 119#       发表于 2020-12-8 21:52
+
+
+
+
+买好了下周到
+
+
+
+
+
+
+
+-----
+
+####  isszs  
+##### 120#       发表于 2020-12-8 21:52
+
+
+
+[https://www.apple.com.cn/airpods-max/](https://www.apple.com.cn/airpods-max/)
+
+
+现在就能买，16号到货<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Litccc  
+##### 121#       发表于 2020-12-8 21:57
+
+
+
+
+打扰了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ballantines  
+##### 122#       发表于 2020-12-8 21:57
+
+
+
+
+HIFI厂的末日，大耳机作为最后的防线都要被攻破了
+
+
+
+
+
+
+
+-----
+
+####  别叫我宅男  
+##### 123#       发表于 2020-12-8 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654223&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-8 21:48</a>
+ 印象中这是苹果第一次宣传HiFi，结合4399的价格，苹果对音质肯定是有十足的自信了 ...</blockquote>
+看官网写没有宣传hifi啊，但是这个价位确实是有十足的自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是把索尼森海拉一块a了（账单上）
+
+
+
+
+
+
+
+-----
+
+####  eden0412  
+##### 124#       发表于 2020-12-8 21:58
+
+
+
+
+所以这玩意凭啥卖4399，难道音质真有突破<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Tochika  
+##### 125#       发表于 2020-12-8 22:00
+
+
+
+
+AAC 蓝牙 音质能好到哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好多大象啊  
+##### 126#       发表于 2020-12-8 22:00
+
+
+
+
+4400，而且耳罩内部有LR字样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我还记得进军玄学的天国的 earpods pro的下场
+
+
+
+
+
+
+
+-----
+
+####  孜然马牛牛  
+##### 127#       发表于 2020-12-8 22:00
+
+
+
+
+红色真好看但<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 128#       发表于 2020-12-8 22:00
+
+
+
+
+总之预出国行1000xm4…看看到手效果
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 129#         楼主| 发表于 2020-12-8 22:01
+
+
+
+
+蓝色已经tm没了，草，4300的耳机，什么jb情况
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 130#       发表于 2020-12-8 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654308&amp;ptid=1960399" target="_blank">ballantines 发表于 2020-12-8 21:57</a>
+HIFI厂的末日，大耳机作为最后的防线都要被攻破了</blockquote>
+想多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 131#       发表于 2020-12-8 22:03
+
+
+
+
+看蓝牙降噪效果如何吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插线看来没啥竞争力，同样价位的有amiron bt和ananda bt
+
+
+
+
+
+
+
+-----
+
+####  重巡羊舰  
+##### 132#       发表于 2020-12-8 22:04
+
+
+
+
+4300 蓝牙……苹果哪来的信心……
+
+
+
+
+
+
+
+-----
+
+####  bubuyu  
+##### 133#       发表于 2020-12-8 22:04
+
+
+
+
+4399喷了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Archlich³  
+##### 134#       发表于 2020-12-8 22:06
+
+
+
+
+40mm动圈，难得写这么清楚
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 135#       发表于 2020-12-8 22:06
+
+
+
+
+不知道Apple Store什么时候到货，有机会去听听
+
+
+
+
+
+
+
+-----
+
+####  拉沃契金  
+##### 136#       发表于 2020-12-8 22:07
+
+
+
+
+虽然看上去很好，但这价格，告辞了
+pdd什么时候到2000再考虑下
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  7A7  
+##### 137#       发表于 2020-12-8 22:07
+
+
+
+
+之前爆料不分左右还觉得好设计 结果还是分左右吗
+
+
+
+
+
+
+
+-----
+
+####  白木あえか  
+##### 138#       发表于 2020-12-8 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654313&amp;ptid=1960399" target="_blank">别叫我宅男 发表于 2020-12-8 21:57</a>
+看官网写没有宣传hifi啊，但是这个价位确实是有十足的自信真是把索尼森海拉一块a了（账单上） ...</blockquote>
+高保真音质 产品介绍直接放在第一条了
+
+
+
+
+
+
+
+-----
+
+####  eden0412  
+##### 139#       发表于 2020-12-8 22:11
+
+
+
+
+把数码表冠放到耳机上了真的很有意思，这里面也有个线性马达？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  isszs  
+##### 140#       发表于 2020-12-8 22:11
+
+
+
+
+生产的不多吧，绿色的已经排到明年二月去了
+
+
+
+
+
+
+
+-----
+
+####  DENHJD  
+##### 141#       发表于 2020-12-8 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654457&amp;ptid=1960399" target="_blank">eden0412 发表于 2020-12-8 22:11</a>
+把数码表冠放到耳机上了真的很有意思，这里面也有个线性马达？</blockquote>
+振膜不就是个大线性马达
+
+
+
+
+
+
+
+-----
+
+####  风流庵TypeC  
+##### 142#       发表于 2020-12-8 22:20
+
+
+
+
+不是不分左右吗，那还有L R标识？
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  isszs  
+##### 143#       发表于 2020-12-8 22:20
+
+
+
+
+我看描述 这耳罩是磁吸上去的？可以随时拆卸？
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人  
+##### 144#       发表于 2020-12-8 22:21
+
+
+
+
+苹果再一次改变世界！未来世界联合政府的第一代领导人画像将是乔布斯
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 145#       发表于 2020-12-8 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">买了，本来12月的，选错信用卡排到1月了，不过4399真是太贵了吧，比iPhone SE还贵
+
+
+
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 146#       发表于 2020-12-8 22:31
+
+
+
+
+这耳机估计要加价买了。
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 147#         楼主| 发表于 2020-12-8 22:32
+
+
+
+<strong>自适应均衡功能</strong>会根据耳垫的贴合情况和密合度为你度身定制音效。内向式麦克风会检测你聆听的内容，并以此调整声音频率，真实还原每一个音符，给你丰富一致的聆听体验。
+
+
+这功能有点意思，app上那个的放大版就厉害了，这东西堆了9个麦克风
+
+
+
+
+
+
+
+-----
+
+####  雪风  
+##### 148#       发表于 2020-12-8 22:33
+
+
+
+
+降不降维不知道,只知道玄学圈的耳机要越来越难卖了.
+
+
+
+
+
+
+
+-----
+
+####  白木あえか  
+##### 149#       发表于 2020-12-8 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654688&amp;ptid=1960399" target="_blank">雪风 发表于 2020-12-8 22:33</a>
+降不降维不知道,只知道玄学圈的耳机要越来越难卖了.</blockquote>
+对消费者来说这是大好事
+
+
+
+
+
+
+
+-----
+
+####  奶香花卷  
+##### 150#       发表于 2020-12-8 22:36
+
+
+
+
+比ps5贵，再见
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nexus1  
+##### 151#       发表于 2020-12-8 22:37
+
+
+
+
+泥潭有钱人太多
+
+
+
+
+
+
+
+-----
+
+####  wzk3232  
+##### 152#       发表于 2020-12-8 22:38
+
+
+
+
+蓝牙耳机里价格只能用AAC吗？
+最起码得支持lighting-3.5吧……
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 153#       发表于 2020-12-8 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654748&amp;ptid=1960399" target="_blank">wzk3232 发表于 2020-12-8 22:38</a>
+蓝牙耳机里价格只能用AAC吗？
+最起码得支持lighting-3.5吧……</blockquote>
+当然支持lightning to 3.5，不过给iPhone怎么有线听，lightning to lightning吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  只等待明天  
+##### 154#       发表于 2020-12-8 22:42
+
+
+
+
+isine20买了还不到半年，心情复杂
+
+
+
+
+
+
+
+-----
+
+####  hoyice  
+##### 155#       发表于 2020-12-8 22:46
+
+
+
+
+说好的typeC呢
+
+
+
+
+
+
+
+-----
+
+####  石化金鱼  
+##### 156#       发表于 2020-12-8 22:49
+
+
+
+
+不是，怎么都这么笃信它能干烂hifi市场啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yst234  
+##### 157#       发表于 2020-12-8 22:49
+
+
+
+
+无责任猜测这耳机最后下场和 HomePod 一样
+
+打 折 出 售 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 只有亮点 但看不到它真正解决了什么痛点
+
+
+
+
+
+
+
+-----
+
+####  毕方  
+##### 158#       发表于 2020-12-8 22:53
+
+
+
+
+过半年会降价吗？好贵啊
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 159#       发表于 2020-12-8 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654863&amp;ptid=1960399" target="_blank">yst234 发表于 2020-12-8 22:49</a>
+
+无责任猜测这耳机最后下场和 HomePod 一样
+
+打 折 出 售  只有亮点 但看不到它真正解决了什么痛点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">无线hifi搭配苹果生态，解决了烧友捆一堆砖头出门。怎么就不能解决痛点
+
+homepod这玩意就是搭配Homekit接入口。
+
+不会有人买Homepad当音箱吧，
+
+
+
+
+
+
+
+-----
+
+####  楚轩  
+##### 160#       发表于 2020-12-8 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654720&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-8 22:35</a>
+
+对消费者来说这是大好事</blockquote>
+都和苹果一样4399起步了
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 161#       发表于 2020-12-8 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654927&amp;ptid=1960399" target="_blank">楚轩 发表于 2020-12-8 22:56</a>
+都和苹果一样4399起步了</blockquote>
+虽然4399的蓝牙耳机是天价但hifi界4399真不算贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gugu135  
+##### 162#       发表于 2020-12-8 22:59
+
+
+
+
+4399太过分了吧，这下和大法算是错开档次了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 163#       发表于 2020-12-8 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654863&amp;ptid=1960399" target="_blank">yst234 发表于 2020-12-8 22:49</a>
+
+无责任猜测这耳机最后下场和 HomePod 一样
+
+打 折 出 售  只有亮点 但看不到它真正解决了什么痛点 ...</blockquote>
+脑补了下国内的鲜肉明星纷纷戴着这玩意出镜，然后粉丝爆买导致加价也买不到的场面…盲猜红色还能涨一大波价格…
+
+
+
+
+
+
+
+-----
+
+####  鸳鸳相抱  
+##### 164#       发表于 2020-12-8 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我是想要一个有低音有空间音频的耳机,但是这个价格果然让我还是得观望下 😂
+
+
+
+
+
+
+
+-----
+
+####  汝者  
+##### 165#       发表于 2020-12-8 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654780&amp;ptid=1960399" target="_blank">zikimi 发表于 2020-12-8 22:41</a>
+
+当然支持lightning to 3.5，不过给iPhone怎么有线听，lightning to lightning吗</blockquote>
+参数页面里面连接方式只有蓝牙
+
+所以 要做好lighting只能充电 真的只有蓝牙的准备 
+
+
+
+
+
+
+
+-----
+
+####  fault  
+##### 166#       发表于 2020-12-8 23:11
+
+
+
+
+打扰了。
+
+我还预期3000就能拿下。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuzhou6058  
+##### 167#       发表于 2020-12-8 23:15
+
+
+
+
+1、“来自手机厂的智商税发布。”
+
+2、“不可明说的产品在试图HiFi。”
+
+3、“卑鄙的基佬打乱了高贵的玄学圣堂。”
+
+4、“Airpids max首发售罄。”
+
+5、“苹果的HiFi设备获得市场认可。”
+
+6、“至高无上的苹果打败了守旧的垃圾们。”
+
+玩个梗，虽然我觉得这玩意从定位到名字都很迷……
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 吃我152大屌| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  畜男不是人  
+##### 168#       发表于 2020-12-8 23:15
+
+
+
+
+下单了骚粉 颜色不错我喜欢
+
+
+
+
+
+
+
+-----
+
+####  畜男不是人  
+##### 169#       发表于 2020-12-8 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655060&amp;ptid=1960399" target="_blank">汝者 发表于 2020-12-8 10:09</a>
+参数页面里面连接方式只有蓝牙
+
+所以 要做好lighting只能充电 真的只有蓝牙的准备  ...</blockquote>
+买的时候会推荐3.5转接线配件倒是
+
+
+
+
+
+
+
+-----
+
+####  无字仓颉  
+##### 170#       发表于 2020-12-8 23:16
+
+
+
+
+这玩意不能有线连接iPhone哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  中村隆太郎  
+##### 171#       发表于 2020-12-8 23:17
+
+
+
+
+这哪儿是耳机的定价，这是奢侈品头饰的定价
+
+你觉得你的脸是什么档次，这东西就值多少钱
+
+
+
+
+
+
+
+-----
+
+####  7A7  
+##### 172#       发表于 2020-12-8 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655007&amp;ptid=1960399" target="_blank">fukc 发表于 2020-12-8 23:04</a>
+
+脑补了下国内的鲜肉明星纷纷戴着这玩意出镜，然后粉丝爆买导致加价也买不到的场面…盲猜红色还能涨一大波 ...</blockquote>
+鲜肉明星哪个不用AirPods 涨价了吗
+
+
+
+
+
+
+
+-----
+
+####  无字仓颉  
+##### 173#       发表于 2020-12-8 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655134&amp;ptid=1960399" target="_blank">中村隆太郎 发表于 2020-12-9 00:17</a>
+
+这哪儿是耳机的定价，这是奢侈品头饰的定价
+
+你觉得你的脸是什么档次，这东西就值多少钱 ...</blockquote>
+还是得看音质，音质到位这价钱没问题的。
+
+问题在于苹果官方这条lightning to 3.5的DAC质量如何。纯无线耳机这价格有点奢侈。
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 174#       发表于 2020-12-8 23:28
+
+
+
+
+等下，这个怎么就变奢侈品了，和旗舰hifi耳机比还是有接近一半价格差啊
+
+
+
+
+
+
+
+-----
+
+####  沧兰殇  
+##### 175#       发表于 2020-12-8 23:31
+
+
+
+
+会是取代bose的新项链吗
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yamato gun  
+##### 176#       发表于 2020-12-8 23:40
+
+
+
+
+拿这玩意听asmr音声会不会很牛逼
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 177#       发表于 2020-12-8 23:41
+
+
+
+
+等波测评，如果佩戴比qc35还舒适、降噪效果比大法的还好的话，还是挺心动的！
+
+
+
+
+
+
+
+-----
+
+####  唯一指定用户名  
+##### 178#       发表于 2020-12-8 23:41
+
+
+
+
+告辞，减个1k还可以考虑一下……来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  平井姨夫  
+##### 179#       发表于 2020-12-8 23:42
+
+
+
+
+刚才撸一管回来发现已经发布了……得二月上旬才能收到了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  唯一指定用户名  
+##### 180#       发表于 2020-12-8 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655378&amp;ptid=1960399" target="_blank"> 平井姨夫 发表于 2020-12-8 23:42</a> 刚才撸一管回来发现已经发布了……得二月上旬才能收到了…… </blockquote>
+应该是bug 随便加个刻字就12月23号了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  小野賢章  
+##### 181#       发表于 2020-12-8 23:59
+
+
+
+ 本帖最后由 小野賢章 于 2020-12-9 00:04 编辑 
+
+苹果出品，知名度过高，这个价位戴不出去，过于高调<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ky怪  
+##### 182#       发表于 2020-12-9 00:08
+
+
+
+
+这耳机声音只要能打过小乌就买一个，正式拥抱流媒体
+
+
+
+
+
+
+
+-----
+
+####  强尼高达  
+##### 183#       发表于 2020-12-9 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654918&amp;ptid=1960399" target="_blank">404489039 发表于 2020-12-8 22:55</a>
+无线hifi搭配苹果生态，解决了烧友捆一堆砖头出门。怎么就不能解决痛点
+
+homepod这玩意就是搭配Hom ...</blockquote>
+你果生态和hifi俩字就不沾边
+
+播放器里码率都看不到，靠什么脑补
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 184#       发表于 2020-12-9 00:20
+
+
+
+
+无线的也就别讲HIFI了
+
+
+
+
+
+
+
+-----
+
+####  宏  
+##### 185#       发表于 2020-12-9 00:21
+
+
+
+<blockquote>大江户战士 发表于 2020-12-9 00:20
+无线的也就别讲HIFI了</blockquote>
+The Verge说可以Lightning转3.5mm
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 186#       发表于 2020-12-9 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655134&amp;ptid=1960399" target="_blank">中村隆太郎 发表于 2020-12-8 23:17</a>
+
+这哪儿是耳机的定价，这是奢侈品头饰的定价
+
+你觉得你的脸是什么档次，这东西就值多少钱 ...</blockquote>
+跟Hi-Fi耳机比真不算贵，前者（做工很差、没有降噪、100%漏音、厂商很Low）甚至还是性价比产品。
+
+当然就声音水平来讲肯定是ANANDA高
+
+
+
+
+
+
+
+
+QQ图片20201209001949.png
+(491.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-9 00:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/002018rf1l0v298fll11ll.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20201209001946.png
+(553.06 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-9 00:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/002017afwu39jb98hafwta.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 187#       发表于 2020-12-9 00:23
+
+
+
+
+说实话盲狙max还是有点赌博心态，纯靠AirPods和AirPods Pro积攒下来的好感
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 188#       发表于 2020-12-9 00:25
+
+
+
+ 本帖最后由 大江户战士 于 2020-12-9 00:27 编辑 
+
+看了，还是H1芯片啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我懂了，在Max面前Pro显得那么有性价比，这波苹果在大气层
+
+
+
+
+
+
+
+-----
+
+####  zhaijiadehuiye  
+##### 189#       发表于 2020-12-9 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654918&amp;ptid=1960399" target="_blank">404489039 发表于 2020-12-8 22:55</a>
+无线hifi搭配苹果生态，解决了烧友捆一堆砖头出门。怎么就不能解决痛点
+
+homepod这玩意就是搭配Hom ...</blockquote>
+烧友在总目标人群的千分之一吗
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  xu5891166  
+##### 190#       发表于 2020-12-9 00:31
+
+
+
+
+35刀，lighting转3.5需要单买，真有你的苹果<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 191#       发表于 2020-12-9 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655674&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 00:21</a>
+
+The Verge说可以Lightning转3.5mm</blockquote>
+这个耳机设计看上去是两个耳包独立驱动，也就是有两块H1
+
+
+这样的话怎么连有线有一只耳朵都会是无线的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 192#       发表于 2020-12-9 00:36
+
+
+
+
+不是苹果强，是hifi厂太菜。没搞出什么技术壁垒。
+
+而这个销量上去后，dolby之类的进来就是降维打击了
+
+
+不过虽然这么说，第一代还是不想买<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 193#       发表于 2020-12-9 00:36
+
+
+
+
+那你能听出来这两个的区别吗？
+
+一个是FLAC，一个是FLAC转成AAC256（也就是苹果默认）再转回FLAC
+
+
+虽然我本地音乐文件都是无损，但我很清楚我极有可能听不出aac256以上有损和无损的区别
+
+
+
+
+
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+
+
+2.flac
+
+
+2020-12-9 00:35 上传
+点击文件名下载附件
+
+
+
+
+1.81 MB, 下载次数: 7
+
+
+
+
+
+
+
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+
+
+1.flac
+
+
+2020-12-9 00:35 上传
+点击文件名下载附件
+
+
+
+
+1.75 MB, 下载次数: 7
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 194#       发表于 2020-12-9 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655703&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 00:25</a>
+
+看了，还是H1芯片啊
+
+我懂了，在Max面前Pro显得那么有性价比，这波苹果在大气层
+
+ ...</blockquote>
+一边一个，俩H1
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 195#       发表于 2020-12-9 00:37
+
+
+
+ 本帖最后由 大江户战士 于 2020-12-9 00:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655772&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 00:36</a>
+
+不是苹果强，是hifi厂太菜。没搞出什么技术壁垒。
+
+而这个销量上去后，dolby之类的进来就是降维打击了</blockquote>
+说白了其实大多数人听不出来区别的，那自然是功能多、易用更好了，就像特斯拉和传统车厂的关系，买HiFi的还会继续买，这是两种人群
+
+
+但是这个价格……推广我估计有难度。大部分人肯定也分不清2000块钱的QC35/WH1000和这东西的差别
+
+
+
+说白了就是定位有点尴尬
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 196#       发表于 2020-12-9 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655783&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 00:37</a>
+
+说白了其实大多数人听不出来区别的，那自然是功能多、易用更好了，就像特斯拉和传统车厂的关系，买HiFi的 ...</blockquote>
+区别是不难的，从区别到优劣比较难。这也是小厂的生存之道（如果音频只有一个指标，那小厂早死完了）
+
+
+果子这个，就是让如今的“大厂”也去当小厂了
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 197#       发表于 2020-12-9 00:45
+
+
+
+ 本帖最后由 大江户战士 于 2020-12-9 00:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655812&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 00:43</a>
+
+区别是不难的，从区别到优劣比较难。这也是小厂的生存之道（如果音频只有一个指标，那小厂早死完了）
+
+
+果 ...</blockquote>
+能区别出来的人，我不觉得会去买这个……
+
+还是觉得价位太高了，定到3000左右会更好，专坑木耳
+
+
+
+
+
+
+
+
+-----
+
+####  peshing  
+##### 198#       发表于 2020-12-9 00:46
+
+
+
+
+via蓝牙的音质就不可能hifi吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宏  
+##### 199#       发表于 2020-12-9 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655751&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 00:33</a>
+
+这个耳机设计看上去是两个耳包独立驱动，也就是有两块H1
+
+
+这样的话怎么连有线有一只耳朵都会是无线的[f:06 ...</blockquote>
+用脚脖子想也知道不可能，难道充电也要左右分别充电这种智障设计？
+
+
+
+
+
+
+
+-----
+
+####  AkaiSuisei  
+##### 200#       发表于 2020-12-9 00:48
+
+
+
+
+别的不说，这个音量旋钮是什么脑残设计，论操作别说大法的触摸，跟传统的上下旋钮也没得比啊
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 201#         楼主| 发表于 2020-12-9 00:50
+
+
+
+
+苹果aac文件去读这个[https://www.apple.com/itunes/docs/apple-digital-masters.pdf](https://www.apple.com/itunes/docs/apple-digital-masters.pdf)
+
+
+改进了AAC的转换和编码苹果公司最新的编码方法是一个两步过程。
+
+第一步编码路径是使用最新的母带质量采样率转换（SRC）将主文件重新采样为生产采样率。此SRC输出一个32位浮点文件，该文件可以保留可能否则落在允许的幅度范围之外。此文件保存在CAF中容器。此关键的中间步骤可防止可能导致锯齿或锯齿的任何现象否则在SRC中发生。正是这个32位浮动文件被用作编码器-这是我们可以获得优异结果的关键原因之一。
+
+
+然后，我们的编码器将使用所有可用的分辨率，并保留所有动态范围24位源文件，并且无需添加抖动。的优势这是双重的。它不仅消除了添加抖动噪声的需要，而且还使编码器工作效率更高，因为它们不需要浪费资源来编码不必要和不必要的噪音。通过直接从我们的SRC使用此高度准确的文件并利用其干净信号，我们的编码器可以提供与艺术家和声音完全相同的最终产品工程师希望它发出声音。
+
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 202#       发表于 2020-12-9 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655838&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 00:47</a>
+
+用脚脖子想也知道不可能，难道充电也要左右分别充电这种智障设计？</blockquote>
+充电不是放套子里的么
+
+
+
+
+
+
+
+-----
+
+####  宏  
+##### 203#       发表于 2020-12-9 00:52
+
+
+
+<blockquote>大江户战士 发表于 2020-12-9 00:51
+充电不是放套子里的么</blockquote>
+那问题来了，lighting线插哪
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 204#       发表于 2020-12-9 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655867&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 00:52</a>
+
+那问题来了，lighting线插哪</blockquote>
+我也在纳闷，现在图太少了看不到耳机接口在哪
+
+
+
+
+
+
+
+-----
+
+####  Sorastlos  
+##### 205#       发表于 2020-12-9 00:58
+
+
+
+
+神经病，4000块我买两只krk的g4音箱还有的找，正经听音乐不秒杀这个。不是我对无线没兴趣，这市场定价硬生生让我戒掉了出门戴耳机的习惯
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 206#       发表于 2020-12-9 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655858&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-12-9 00:50</a>
+
+苹果aac文件去读这个https://www.apple.com/itunes/docs/apple-digital-masters.pdf
+
+
+改进了AAC的转换和编 ...</blockquote>
+说白了其实也是牺牲了音质的压缩算法，只不过常人听不出区别
+
+
+作类比就像JPEG一样
+
+
+
+
+
+
+
+-----
+
+####  Hanzong  
+##### 207#       发表于 2020-12-9 01:02
+
+
+
+
+幸好双十一没继续等，跳车入了1199的wh-1000xm3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+之前传卖2k多的真的是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 208#         楼主| 发表于 2020-12-9 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655913&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 01:00</a>
+
+说白了其实也是牺牲了音质的压缩算法，只不过常人听不出区别
+
+
+作类比就像JPEG一样 ...</blockquote>
+都是常人，就别觉得特殊了，要验证还是老办法foobar2000用abx插件无损和aac做个95%出来。
+
+
+aac的问题在于安卓端那边的蓝牙传输有问题，大多数时候苹果设备连上去那真是可闻劣化。
+
+
+
+
+
+
+
+-----
+
+####  ajunsama  
+##### 209#       发表于 2020-12-9 01:05
+
+
+
+
+Airpods牛逼在把很多人对耳机的预算从200直接拉到2000，但是这个Max看不太出来有这个趋势啊，最多是把索尼Bose这些头戴蓝牙降噪的给秒了，但是价格又差了这么大。
+
+就算是真Hifi，普通人会为了Hifi舍弃AirpodsPro的便携再多花一倍的钱吗。
+
+（关键是头戴还压发型<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 210#         楼主| 发表于 2020-12-9 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655939&amp;ptid=1960399" target="_blank">ajunsama 发表于 2020-12-9 01:05</a>
+
+Airpods牛逼在把很多人对耳机的预算从200直接拉到2000，但是这个Max看不太出来有这个趋势啊，最多是把索尼B ...</blockquote>
+这玩意是个很显眼的穿戴设备，然后价格不菲，就这点对很多普通人来说就够了
+
+
+
+
+
+
+
+-----
+
+####  宏  
+##### 211#       发表于 2020-12-9 01:17
+
+
+
+<blockquote>ajunsama 发表于 2020-12-9 01:05
+Airpods牛逼在把很多人对耳机的预算从200直接拉到2000，但是这个Max看不太出来有这个趋势啊，最多是把索尼B ...</blockquote>
+比起这些，384克颈椎杀手真有人受得了？一个个社畜都脖子僵硬成那样了，要知道G933s也才379克，wh-1000xm3不过255克
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 212#         楼主| 发表于 2020-12-9 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655994&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 01:17</a>
+
+比起这些，384克颈椎杀手真有人受得了？一个个社畜都脖子僵硬成那样了，要知道G933s也才379克，wh-1000xm ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看了一下正在用的hd800也才330g，颈椎病警告
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 213#       发表于 2020-12-9 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655994&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 01:17</a>
+
+比起这些，384克颈椎杀手真有人受得了？一个个社畜都脖子僵硬成那样了，要知道G933s也才379克，wh-1000xm ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/09/012452r2q3vheu3h6hevee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2020.jpg</strong> (158.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 01:24 上传
+
+
+
+
+
+
+
+我手边最重最轻的。
+
+左边这个385g，右边这个240g。
+
+
+轻的固然好，但只要头梁设计没问题，3小时差别不大。
+
+夹头才是主要问题
+
+
+
+
+
+
+
+
+
+-----
+
+####  ajunsama  
+##### 214#       发表于 2020-12-9 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655994&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 01:17</a>
+比起这些，384克颈椎杀手真有人受得了？一个个社畜都脖子僵硬成那样了，要知道G933s也才379克，wh-1000xm ...</blockquote>
+居然这么重……那这个穿戴设备还真有点不优雅
+
+
+
+
+
+
+
+-----
+
+####  lichuan325  
+##### 215#       发表于 2020-12-9 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655881&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 00:54</a>
+
+我也在纳闷，现在图太少了看不到耳机接口在哪</blockquote>
+在耳机上，官网的ar功能下看到的<img src="https://ftp.bmp.ovh/imgs/2020/12/b9c598041fa3633f.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  APP  
+##### 216#       发表于 2020-12-9 02:02
+
+
+
+
+你果的上一个Hi-Fi产品是$349 Homepods，号称"the ultimate music authority"
+再上一个是$349 iPod Hi-Fi，Jobs怎么说的来着？"reinventing the home stereo"
+这么看这次宣传的调门不高嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  佛剑分说  
+##### 217#       发表于 2020-12-9 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655994&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 01:17</a>
+
+比起这些，384克颈椎杀手真有人受得了？一个个社畜都脖子僵硬成那样了，要知道G933s也才379克，wh-1000xm ...</blockquote>
+这个确实才是最要命的……金属用的太多了
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 218#       发表于 2020-12-9 02:35
+
+
+
+
+不买，太贵了
+
+
+
+
+
+
+
+-----
+
+####  belmen  
+##### 219#       发表于 2020-12-9 04:19
+
+
+
+
+HIFI智商税耳机被冲了那是大快人心
+
+可头罩式无线降噪耳机已经有BOSE和大法坐镇了啊，论续航和价格哪个能打得过，真是果标值$300？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 220#       发表于 2020-12-9 04:21
+
+
+
+
+各方面都不太下得去手，蓝色还得等12到14周，等打骨折了再考虑考虑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  765PRO  
+##### 221#       发表于 2020-12-9 04:23
+
+
+
+
+买来跟hd800s比比<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Diabolosis  
+##### 222#       发表于 2020-12-9 05:20
+
+
+
+
+天天车hifi智商税，这果标税不也一大堆么<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 223#       发表于 2020-12-9 06:02
+
+
+
+<blockquote>引用第184楼宏于2020-12-09 00:21发表的  :
+
+引用:大江户战士 发表于 2020-12-9 00:20无线的也就别讲HIFI了The Verge说......</blockquote>
+那个35刀的线说是给飞行用户的
+
+模拟转数字  数字再转一次模拟 
+
+中间有多少损耗呢 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 224#       发表于 2020-12-9 06:15
+
+
+
+
+我人傻了。。。4399也。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sblnrrk  
+##### 225#       发表于 2020-12-9 07:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49656516&amp;ptid=1960399" target="_blank">Cray 发表于 2020-12-9 06:02</a>
+那个35刀的线说是给飞行用户的
+
+模拟转数字  数字再转一次模拟 </blockquote>
+比蓝牙还是强一档的，起码没有延迟
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  sangw  
+##### 226#       发表于 2020-12-9 07:15
+
+
+
+
+割韭菜割的飞起
+人傻钱多速来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HTC U11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 227#       发表于 2020-12-9 07:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">信仰无价
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  大宇宙銀河  
+##### 228#       发表于 2020-12-9 08:07
+
+
+
+
+等一个佩戴体验吧，主要是这种音质短板的蓝牙头戴装饰物有个B&amp;O和木馒头了，带着舒服还是可以再买一个，辨识度还是蛮高的。
+
+
+
+
+
+
+
+-----
+
+####  8400gs  
+##### 229#       发表于 2020-12-9 08:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655772&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 00:36</a>
+
+不是苹果强，是hifi厂太菜。没搞出什么技术壁垒。
+
+而这个销量上去后，dolby之类的进来就是降维打击了</blockquote>
+hifi厂有什么技术壁垒，脑放？头梁铁丝？
+
+
+正经点说可能在电声转换和声学上有积累，但是在无线传输、降噪算法等方面被数码出身的厂家吊打也正常，毕竟传统hifi厂销量太小甚至比不过beats，哪有钱去搞这些……
+
+
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 230#       发表于 2020-12-9 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49656516&amp;ptid=1960399" target="_blank">Cray 发表于 2020-12-9 06:02</a>
+
+那个35刀的线说是给飞行用户的
+
+
+模拟转数字  数字再转一次模拟 </blockquote>
+难道现在的蓝牙降噪你都是直接听模拟来用的？
+
+
+
+
+
+
+
+-----
+
+####  8400gs  
+##### 231#       发表于 2020-12-9 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655812&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 00:43</a>
+
+区别是不难的，从区别到优劣比较难。这也是小厂的生存之道（如果音频只有一个指标，那小厂早死完了）
+
+
+果 ...</blockquote>
+在beats面前
+
+
+许多所谓hifi“大厂”早就是小厂了
+
+
+或者说许多hifi厂本来就是小厂
+
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 232#       发表于 2020-12-9 09:01
+
+
+
+ 本帖最后由 fukc 于 2020-12-9 09:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655138&amp;ptid=1960399" target="_blank">7A7 发表于 2020-12-8 23:17</a>
+
+鲜肉明星哪个不用AirPods 涨价了吗</blockquote>
+
+因为airpods既不蓝也不红还不绿，没法在识别性上和竞品拉开差距啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，不过我寻思着如果玩hifi的不买账，潮人带节奏又不给力，那开头一波攒气爆发完后续妥妥的还是降价卖也卖不出去。和homepods一样归为other类的电子垃圾，毕竟远超出普通大众对于高价日常用耳机的心理价位。
+
+
+
+
+
+
+
+-----
+
+####  我爱撩菜  
+##### 233#       发表于 2020-12-9 09:05
+
+
+
+
+= =坐等评测,但感觉我的XM2 +app 还能战5年
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 234#       发表于 2020-12-9 09:06
+
+
+
+
+我看苹果这信仰税比hifi智商税贵多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  淼霆  
+##### 235#       发表于 2020-12-9 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657169&amp;ptid=1960399" target="_blank">htgz111 发表于 2020-12-9 09:06</a>
+我看苹果这信仰税比hifi智商税贵多了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+这可不见得，一根玄学电源线购买2、3个airpods max了
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 236#       发表于 2020-12-9 09:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657124&amp;ptid=1960399" target="_blank">fukc 发表于 2020-12-9 09:01</a>
+ 因为airpods既不蓝也不红还不绿，没法在识别性上和竞品拉开差距啊，不过我寻思着如果玩hif ...</blockquote>
+有什么好涨的官网随便买
+
+
+
+
+
+
+
+-----
+
+####  百合豚  
+##### 237#       发表于 2020-12-9 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657195&amp;ptid=1960399" target="_blank">淼霆 发表于 2020-12-09 09:09:44</a>
+这可不见得，一根玄学电源线购买2、3个airpods max了</blockquote>玩线的和玩HiFi的不是一个物种，有生殖隔离的，别混为一谈啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  用户名已注册  
+##### 238#       发表于 2020-12-9 09:16
+
+
+
+
+关注一下音质，有一个HomePod，听着是方便，就是低音太多了，希望这个能均衡一些。
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 239#       发表于 2020-12-9 09:19
+
+
+
+ 本帖最后由 cat339 于 2020-12-9 09:20 编辑 
+
+价格跟重量过于奇葩了....
+
+金属质感虽然好，但舒适性还是要考虑啊。
+
+观望等廉价版吧，现在库克商法都喜欢超规格超高价打个样，流量起来了再出个SE版走量。
+
+不过改名字妙啊，不讲武徳，你让人家提前出来碰瓷的某studio怎么闪嘛
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 240#       发表于 2020-12-9 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657195&amp;ptid=1960399" target="_blank">淼霆 发表于 2020-12-09 09:09:44</a>
+这可不见得，一根玄学电源线购买2、3个airpods max了</blockquote>玩hifi的又不光玩线材，玩数字和玩胆机的尚且有生殖隔离，更别说玩更玄学的东西的了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  奥柏伦亲王  
+##### 241#       发表于 2020-12-9 09:28
+
+
+
+
+啊这，貌似还是lightening口？我吐了
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 242#       发表于 2020-12-9 10:05
+
+
+
+
+那么这次自媒体提前体验啥时候解禁
+
+
+
+
+
+
+
+-----
+
+####  Alchemyks  
+##### 243#       发表于 2020-12-9 10:10
+
+
+
+
+价格是APP的两倍多，一年之中还有近半年不能戴出街，性价比确实不高
+
+
+
+
+
+
+
+-----
+
+####  eden0412  
+##### 244#       发表于 2020-12-9 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657737&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-9 10:05</a>
+那么这次自媒体提前体验啥时候解禁</blockquote>
+一般是发货前一两天吧
+
+
+
+
+
+
+
+-----
+
+####  lucky95  
+##### 245#       发表于 2020-12-9 10:33
+
+
+
+ 本帖最后由 lucky95 于 2020-12-9 10:36 编辑 
+
+我觉得很棒的苹果产品都会爆死，上一个是homepods<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from HUAWEI HLK-L41, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  风雪天  
+##### 246#       发表于 2020-12-9 10:38
+
+
+
+
+这价格可以上传统耳机厂商的次旗舰大耳或旗舰耳塞了
+
+
+
+
+
+
+
+-----
+
+####  eden0412  
+##### 247#       发表于 2020-12-9 10:46
+
+
+
+
+推特有人提到这耳机大约4年前就开始研发了，果子好多硬件研发周期真长啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奇遇2000  
+##### 248#       发表于 2020-12-9 10:46
+
+
+
+
+我在想把它插在Mac 和 iPad 上是只会充电还是能接受有线输入……
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 249#       发表于 2020-12-9 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658092&amp;ptid=1960399" target="_blank">风雪天 发表于 2020-12-9 10:38</a>
+
+这价格可以上传统耳机厂商的次旗舰大耳或旗舰耳塞了</blockquote>
+大厂降噪头戴大部分都是2000左右，这一下拉了两倍
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 250#       发表于 2020-12-9 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658330&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 10:57</a>
+大厂降噪头戴大部分都是2000左右，这一下拉了两倍</blockquote>
+所以价格是HiFi大耳的价格，主打却是降噪吗
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nessaj  
+##### 251#       发表于 2020-12-9 11:17
+
+
+
+
+&gt;都做那么大了不考虑把ipod nano整合进去吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+&gt;哦既然都整合了ipod那我装条基带进去也是完全可行的对吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+(2年后）
+
+&gt;下面请允许我介绍这款最新来福产品——AirPhone！ Amazing！
+
+。
+
+。
+
+。
+
+&gt;以及AirPhone Pro，Airphone mini！
+
+
+
+
+
+
+
+-----
+
+####  rp1993  
+##### 252#       发表于 2020-12-9 11:21
+
+
+
+
+别急着骂，说不定测评音质干翻大奥呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 253#       发表于 2020-12-9 11:43
+
+
+
+
+这个收纳怎么这么蠢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/09/114332g5i1k9q1k2o0okog.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20201209114250.png</strong> (601.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 11:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 254#       发表于 2020-12-9 11:44
+
+
+
+<img src="https://p.sda1.dev/0/c4d361d0bdbd3322b009b573ef9b33aa/IMG_CMP_112808155.png" referrerpolicy="no-referrer">
+
+「这玩意儿又白又有苹果标，可以想象一群人争先恐后带着这玩意儿去喝星巴克装逼」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 255#         楼主| 发表于 2020-12-9 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658912&amp;ptid=1960399" target="_blank">nuoer 发表于 2020-12-9 11:44</a>
+「这玩意儿又白又有苹果标，可以想象一群人争先恐后带着这玩意儿去喝星巴克装逼」
+
+—— 来自 mei ...</blockquote>
+“那人脖子上挂着4000块”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bubuyu  
+##### 256#       发表于 2020-12-9 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658912&amp;ptid=1960399" target="_blank">nuoer 发表于 2020-12-9 11:44</a>
+「这玩意儿又白又有苹果标，可以想象一群人争先恐后带着这玩意儿去喝星巴克装逼」
+
+—— 来自 mei ...</blockquote>
+原来日本也这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Re.Troy  
+##### 257#       发表于 2020-12-9 11:57
+
+
+
+
+我眼神不好，苹果标在哪里？
+
+
+
+
+
+
+
+-----
+
+####  sunny_am  
+##### 258#       发表于 2020-12-9 12:02
+
+
+
+
+闪电口啊闪电口
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 259#       发表于 2020-12-9 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658192&amp;ptid=1960399" target="_blank">奇遇2000 发表于 2020-12-9 10:46</a>
+
+我在想把它插在Mac 和 iPad 上是只会充电还是能接受有线输入……</blockquote>
+
+应该可以的吧
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 260#       发表于 2020-12-9 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658901&amp;ptid=1960399" target="_blank">2517君改二 发表于 2020-12-9 11:43</a>
+
+这个收纳怎么这么蠢</blockquote>
+有点儿。。。涩秦
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 261#       发表于 2020-12-9 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658185&amp;ptid=1960399" target="_blank">eden0412 发表于 2020-12-9 10:46</a>
+
+推特有人提到这耳机大约4年前就开始研发了，果子好多硬件研发周期真长啊 ...</blockquote>
+
+之前某人透露过单一样airpods pro的开发费用就超过各hifi耳机大厂产品线开发费用的总和。这次是不是应该感谢蒂姆🍎没卖大奥的价格<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 262#       发表于 2020-12-9 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49659327&amp;ptid=1960399" target="_blank">fukc 发表于 2020-12-9 12:14</a>
+ 之前某人透露过单一样airpods pro的开发费用就超过各hifi耳机大厂产品线开发费用的总和。这次是不是应该 ...</blockquote>
+单单芯片研发就秒了传统HiFi厂了
+传统HiFi的无线蓝牙都是用OEM
+
+
+
+
+
+
+
+-----
+
+####  FerMonster  
+##### 263#       发表于 2020-12-9 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49659327&amp;ptid=1960399" target="_blank">fukc 发表于 2020-12-9 12:14</a>
+
+之前某人透露过单一样airpods pro的开发费用就超过各hifi耳机大厂产品线开发费用的总和。这次是不是应该 ...</blockquote>
+研发费肯定比大奥什么的贵呐，ap主要是芯片的研发费，耳机怎么可能跟芯片比研发价格<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 264#       发表于 2020-12-9 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657020&amp;ptid=1960399" target="_blank">8400gs 发表于 2020-12-9 08:49</a>
+
+在beats面前
+
+
+许多所谓hifi“大厂”早就是小厂了</blockquote>
+beats是营销和渠道的胜利。app是功能的胜利。都有错开概念，真说保真度，还是没能打入hifi市场的。但max以苹果的研发能力，单元尺寸上来后就不一样了。
+
+
+
+其实果子带着十几个传感器、麦克风和计算音频技术进来，就不是冲着“hifi圈”去的。
+
+大家内心都知道“hifi圈”是个混吃等死的圈。只是怕计算技术到位后，连瀑布图都给你打出来……就真不好玩了
+
+
+
+
+
+
+
+
+-----
+
+####  出轨的三头龙  
+##### 265#       发表于 2020-12-9 13:59
+
+
+
+
+丑，封闭式，4000，无耳机线，声音不知道
+
+
+
+
+
+
+
+-----
+
+####  bigice  
+##### 266#       发表于 2020-12-9 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49660174&amp;ptid=1960399" target="_blank">FerMonster 发表于 2020-12-9 13:18</a>
+ 研发费肯定比大奥什么的贵呐，ap主要是芯片的研发费，耳机怎么可能跟芯片比研发价格 ...</blockquote>
+芯片是其一，你敢信AirPods Pro 的耳塞研发花了几个亿？
+
+
+
+
+
+
+
+-----
+
+####  别叫我宅男  
+##### 267#       发表于 2020-12-9 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49659027&amp;ptid=1960399" target="_blank">bubuyu 发表于 2020-12-9 11:53</a>
+ 原来日本也这样吗</blockquote>
+我记得大老师就吐槽过那帮星巴克用Mac办公的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  8400gs  
+##### 268#       发表于 2020-12-9 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49660427&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 13:38</a>
+
+beats是营销和渠道的胜利。app是功能的胜利。都有错开概念，真说保真度，还是没能打入hifi市场的。但max以 ...</blockquote>
+没用啊
+
+
+玩器材的大谈特谈咸菜“一耳朵”，煲机“脱胎换骨”的时候哪个晒图的？
+
+
+卖这些的商家做广告都不晒图，都是一堆主观感受。
+
+
+HiFi大概就这样了，喊着保真其实没几个真的在意保真——当然也许是因为玄学党声音大，其他人都成了沉默的大多数。
+
+
+估计最后还是圈地自萌的状态吧。
+
+
+
+
+
+
+
+
+
+-----
+
+####  别叫我宅男  
+##### 269#       发表于 2020-12-9 14:49
+
+
+
+
+所以AirPods Pro研发费用那么高是苹果研发部门太费乱花钱还是这东西技术含量真的很高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鸳鸳相抱  
+##### 270#       发表于 2020-12-9 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661150&amp;ptid=1960399" target="_blank">别叫我宅男 发表于 2020-12-9 14:49</a>
+
+所以AirPods Pro研发费用那么高是苹果研发部门太费乱花钱还是这东西技术含量真的很高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大概是合理骗经费吧 哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  白木あえか  
+##### 271#       发表于 2020-12-9 15:09
+
+
+
+
+苹果其实根本不在意Max的音乐表现，之所以搞这东西主要还是为AR铺路，就算在意音质也更多侧重视频领域的表现，比如空间音频啥的。
+
+即便如此，如果商业上这条产品线能成功，对传统耳机厂商就是降维打击。
+对发烧友也是大好事，虽说我玩过很长时间耳机耳塞，但也得承认HIFI圈水太深太暴利，苹果做Max可以杀杀这股歪风邪气，至少不会随便一个小作坊DIY一通就敢卖六七千，让市场价格回归理性，发烧友也该高兴啊。
+
+
+
+
+
+
+
+-----
+
+####  Bolmrux  
+##### 272#       发表于 2020-12-9 15:12
+
+
+
+
+所以这货头梁有线吗？
+
+如果没有，那么这个耳机无论以什么方式输入，都不可能没有延迟了
+
+身为一个大耳，竟然不能玩音游
+
+以及就算头梁有线，那么有线接ios设备也是数字转模拟转数字转模拟……
+
+
+
+
+
+
+
+-----
+
+####  bubuyu  
+##### 273#       发表于 2020-12-9 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661377&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-9 15:09</a>
+
+苹果其实根本不在意Max的音乐表现，之所以搞这东西主要还是为AR铺路，就算在意音质也更多侧重视频领域的表 ...</blockquote>
+水果卖这么贵不会带着业界涨价吗？本来卖2000的现在卖4000
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 274#       发表于 2020-12-9 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661377&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-9 15:09</a>
+
+苹果其实根本不在意Max的音乐表现，之所以搞这东西主要还是为AR铺路，就算在意音质也更多侧重视频领域的表 ...</blockquote>
+现在就怕这东西够不上HIFI反而把本来均价2000的高端降噪耳机拉倒均价4000
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 275#       发表于 2020-12-9 15:26
+
+
+
+
+据报道，据彭博社的 Mark Gurman 报道，苹果新发布的 AirPods Max 耳罩式耳机在推迟数月后，省略了一些原本计划的功能。
+
+
+苹果AirPods Max因开发问题功能被阉割：可更换头带、触摸控制
+
+
+今年早些时候，来自彭博社的报道称，当时被认为是名为 “AirPods Studio”的 AirPods Max 遭遇了数次开发挑战，导致多次延期和功能缩减。尽管有大量关于该产品的传闻，但在最近的三次苹果活动中，该产品都未能出现。
+
+
+9 月，AirPods Max 的设计在一段视频中泄露，表明可能很快就会推出。这款耳机原本打算在 2020 年中期投入生产，但由于开发问题，比如头带出现问题，在测试过程中发现<strong>头带太紧</strong>，所以生产时间被推后。
+
+
+据悉，AirPods Max 原本将提供独特的可定制性，包括可更换头带和耳套。彭博社正确地预测，苹果将放弃可更换头带的设计，以加速生产。
+
+
+此外，人们还认为 AirPods Max 将在耳机侧面配备用于控制的触摸垫。在最终产品中，这似乎已经被 Apple Watch 中的数字表冠所取代。
+
+
+苹果AirPods Max因开发问题功能被阉割：可更换头带、触摸控制
+
+
+在今天早些时候宣布 AirPods Max 之后，Mark Gurman 认为苹果为了让产品最终发布，放弃了大量的功能。
+
+
+其他关于苹果 AirPods Max 的传闻也未能实现。爆料者 Jon Prosser 多次表示，AirPods Max 将有 350 美元的 “运动版本”和 599 美元的 “豪华版本”。虽然 Prosser 所说的 599 美元与最终的 549 美元价格相差无几，但更便宜的 350 美元 “运动版本”并没有出现。
+
+
+9to5Mac 此前曾报道，AirPods Max 将具有 “颈部检测”功能和自适应音频通道，可在左右两侧进行切换，让用户可以以任何方式使用耳机。
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 276#       发表于 2020-12-9 15:54
+
+
+
+
+官网那根闪电转3.5的线 今天去问了下客服，说Max用不了，只能无线，所以建议有意的朋友先别急着下单等出来后小白鼠评测
+
+
+
+
+
+
+
+-----
+
+####  鸳鸳相抱  
+##### 277#       发表于 2020-12-9 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661915&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-9 15:54</a>
+
+官网那根闪电转3.5的线 今天去问了下客服，说Max用不了，只能无线，所以建议有意的朋友先别急着下单等出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">那根线是MAX的推荐配件, 不是应该赶快买买买等着假一赔十嘛?
+
+
+
+
+
+                                        
