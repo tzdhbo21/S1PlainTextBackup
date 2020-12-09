@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 00:10** 
+> ## **本文件最后更新于2020-12-09 10:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_a7766" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_V8sl7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_n7KvH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_puZ17" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -5546,4 +5546,995 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 
 
-                                        
+
+
+-----
+
+####  netwof2008  
+##### 21277#       发表于 2020-12-9 00:31
+
+
+
+
+阿叶今天玩了皮克敏3，这游戏看着就好好玩啊
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21278#       发表于 2020-12-9 00:32
+
+
+
+
+兔子和俄语观众互动了下就冒出来好多俄语，有卢布sc有俄语同传，虽然以前也不是没在直播间看到过俄语但确实没想到有那么多俄国人爱看虚拟人
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 21279#       发表于 2020-12-9 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655068&amp;ptid=1969498" target="_blank">S_koname 发表于 2020-12-8 23:10</a>
+我比较好奇是哪位同事</blockquote>
+前winks，莉姬和月见
+前者由金主在nga发帖声讨，后者开直播亲自放锤
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21280#       发表于 2020-12-9 01:13
+
+
+
+
+今天又没有月灵推呖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+syl，俄国人老二次元了，浓度真的蛮高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21281#       发表于 2020-12-9 01:20
+
+
+
+<blockquote>admentus 发表于 2020-12-9 00:32
+兔子和俄语观众互动了下就冒出来好多俄语，有卢布sc有俄语同传，虽然以前也不是没在直播间看到过俄语但确实 ...</blockquote>
+时差问题吧，感觉俄语看vtuber的人真不少
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 21282#       发表于 2020-12-9 03:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49648316&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-8 11:46</a>
+华生一周14场直播</blockquote>
+草。。侦探700k，35也700k，支社真是费拉不堪
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 21283#       发表于 2020-12-9 04:05
+
+
+
+ 本帖最后由 zore 于 2020-12-9 04:13 编辑 
+
+免费有无听过以前iriam花町猫耳mia的歌回,偶尔清唱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl还有个妹妹Ilu_Fluor做asmr的,转生前也是一对,可能满足你坛睡觉人的需求
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21284#       发表于 2020-12-9 07:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49656304&amp;ptid=1969498" target="_blank">LilMemo 发表于 2020-12-9 03:18</a>
+ 草。。侦探700k，35也700k，支社真是费拉不堪</blockquote>
+侦探是过了70k纪念回，35是70k耐久，高下立判
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21285#       发表于 2020-12-9 08:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国内粉丝现在翻脸也太快了。。。出事前og小人鱼，出事后hcn鳇，被人骂背叛了og，腐烂的灵魂，玷污了信仰，应该从og里除名，被称作蝗心糊后第四人。我看了下瓜，感觉这行为在现实里都挺常见的，而且主要责任其实是在粉丝吧？水友们，朵莉丝真的有大恶不赦到这种地步吗？（不过事后这么多人出来踩她，没人说话，感觉圈子和她自身都挺有问题的。。。。）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 21286#       发表于 2020-12-9 08:10
+
+
+
+
+不论她本身行为人品如何，你现在难道还对cnV圈生态抱有很大期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 21287#       发表于 2020-12-9 08:19
+
+
+
+
+cnV圈 ×
+互联网 √
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 21288#       发表于 2020-12-9 08:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">提到私联基本都是喷“为什么私联的不是我”吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 21289#       发表于 2020-12-9 08:50
+
+
+
+
+私联金主爸爸选爱疯，爸爸跑了还发动浮游炮去抓回来，这都不翻脸的话那才可怕了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 21290#       发表于 2020-12-9 09:08
+
+
+
+ 本帖最后由 十九号大侠 于 2020-12-9 09:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">还是不太懂，既然问题那么大，现在才爆出来，说明holicn的运营牛逼？
+
+
+
+
+
+
+
+-----
+
+####  rinphon  
+##### 21291#       发表于 2020-12-9 09:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">私连被曝光到这种程度，加上之前的几个黑料也被一起挖出来讨论，风评自己跌到一定程度了。我们虚拟萌萌人不喜欢坏女人啦。
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 21292#       发表于 2020-12-9 09:13
+
+
+
+ 本帖最后由 ShuTk4O 于 2020-12-9 09:15 编辑 
+
+金主的存在本身就够恶心了，还私联金主讨钱？在线pua？
+真女人都是靠实力挣钱。有本事去卖上万份音声啊挣路人的钱。压榨gachi算什么好娘
+
+
+
+
+
+
+
+-----
+
+####  wety  
+##### 21293#       发表于 2020-12-9 09:15
+
+
+
+
+不就是事前搞个啥og自我感动，为了反木口塑造成白莲花，现在事情不对被打脸，恼羞成怒
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 21294#       发表于 2020-12-9 09:18
+
+
+
+
+可是之前爱夏的黑料也爆出来了，如果是真的，还挺那啥的
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 21295#       发表于 2020-12-9 09:20
+
+
+
+
+爱夏还有一个黑料，原来自称过mea的粉丝，是天狗
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21296#       发表于 2020-12-9 09:20
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-9 09:24 编辑 
+
+虽然OG这个说法真的很傻，但这波批得没什么问题
+
+乞讨讲究一个开放自由，街边路上天桥下面，讨多讨少各凭本事，哪有讨着讨着偷偷跟到别人家这种说法
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21297#       发表于 2020-12-9 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">普通的翻脸我倒是也能理解，但是翻脸成这种从最初的圣女，到现在的一定要打死永世不得超生的程度，是完全理解不了，就我说的，有大恶不赦到这种程度吗？还有我不清楚这咋就背叛og。。。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 21298#       发表于 2020-12-9 09:25
+
+
+
+
+因为萌萌人被当小丑恼羞成怒了呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 21299#       发表于 2020-12-9 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49657301&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-9 09:22</a>
+
+普通的翻脸我倒是也能理解，但是翻脸成这种从最初的圣女，到现在的一定要打死永世不得超生的程度， ...</blockquote>
+背叛的不是og，是mmr那份和唐吉可德一样的期待<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21300#       发表于 2020-12-9 09:26
+
+
+
+
+没记错的话OG这个称号就是她首肯的叭，而且MMR当然默认其他人都是正经赚钱的好女孩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 21301#       发表于 2020-12-9 09:27
+
+
+
+
+我觉得nga是有不少那啥，但鱼人这事他前面爱夏时期各种黑屁同事，搞事的情况如果是真的，批到也不算啥问题吧，还是这种黑屁同事，工具人粉丝的行为都很正常？
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 21302#       发表于 2020-12-9 09:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波会不会退网？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21303#       发表于 2020-12-9 09:28
+
+
+
+
+传统艺能二极管
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21304#       发表于 2020-12-9 09:32
+
+
+
+
+逼得这么喜庆的楼锁了是罪大恶极啊
+
+
+
+
+
+
+C5B841B0-4658-4E1E-A155-EDC6AB887D44.jpeg
+(58.19 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-9 09:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/093128lahgmouappgoa0ae.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+5EA877A2-25C5-4BDA-8D37-82499FDB9E14.jpeg
+(59.69 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-9 09:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/093132vl1zjaf288off02a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 21305#       发表于 2020-12-9 09:32
+
+
+
+
+据说已经默默退圈了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 21306#       发表于 2020-12-9 09:34
+
+
+
+
+倒不是二极管，只是这落井下石的速度也太快了，有问题早点说嘛。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21307#       发表于 2020-12-9 09:38
+
+
+
+
+草，原来真买地了啊，一直没看那楼还以为买地是说在隔壁留了粉丝自留地专门讨论啥的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 21308#       发表于 2020-12-9 09:39
+
+
+
+
+那鱼人这块地咋办？直接插个墓碑？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21309#       发表于 2020-12-9 09:39
+
+
+
+<blockquote>三、追求德艺双馨。坚守艺术理想和艺术良知，追求高尚的道德情操。诚实守信、勤奋敬业，深入生活、刻苦学习，锐意创新、精益求精，不断锤炼艺术品格，勇攀艺术高峰。反对粗制滥造、弄虚作假、急功近利，反对拜金主义和极端个人主义，自觉抵制低俗之风。</blockquote>
+
+虚拟主播也是文艺工作者
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21310#       发表于 2020-12-9 09:40
+
+
+
+
+国v的这个金主私联的环境确实挺大的，想不到这方面做的最好的是维阿
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21311#       发表于 2020-12-9 09:41
+
+
+
+
+又不是真有地，几张废纸罢了…
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 21312#       发表于 2020-12-9 09:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/094346c5lavty3yvayyyk5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201209094334.png</strong> (137.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 09:43 上传
+
+
+
+
+
+修女新衣服
+
+
+
+
+
+
+
+-----
+
+####  Moseszi  
+##### 21313#       发表于 2020-12-9 09:44
+
+
+
+
+隔壁维阿那事不比这个小多了，当时炸起来的时候s1和nga不都是狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21314#       发表于 2020-12-9 09:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 私联金主也就那么回事，我更受不了管人搞BG营业，
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 21315#       发表于 2020-12-9 09:47
+
+
+
+
+维阿的连续剧一路接一路明显有意思得多，现在只看到顺风输出爽，之前那么久逆风就都不见人了
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 21316#       发表于 2020-12-9 09:47
+
+
+
+
+这腿<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21317#       发表于 2020-12-9 09:47
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 09:54 编辑 
+
+被抢先一步了...!修女12日新衣装，顺便整理一下虹本月新衣装：
+
+修女 
+
+白雪巴（？）
+
+黛灰
+
+叶
+
+
+本日活动：
+
+剣持刀也虚空集会
+[https://live2.nicovideo.jp/watch/lv329203156](https://live2.nicovideo.jp/watch/lv329203156)
+
+
+#にじさんじじゃんけん王 参加者発表&amp;抽選会
+[https://www.youtube.com/watch?v=vd9XBtn7jvA&amp;feature=youtu.be](https://www.youtube.com/watch?v=vd9XBtn7jvA&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 21318#       发表于 2020-12-9 09:47
+
+
+
+
+还是免费令人安心
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21319#       发表于 2020-12-9 09:48
+
+
+
+
+可以学习红迪holo的高强把虚拟现实割裂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">地是二次元人鱼的，和爱夏有什么关系
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21320#       发表于 2020-12-9 09:49
+
+
+
+
+私联金主的不也是二次元人鱼朵朵，又不是爱夏
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21321#       发表于 2020-12-9 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vr那事最后结论不也就是各方都太不成熟，最大问题还是运营内鬼吗？所以gyg现在还真吗？
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 21322#       发表于 2020-12-9 09:54
+
+
+
+维阿的连续剧有介绍吗。或者给个地址，维阿二期之后就没关注过，hxd来点传送门<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21323#       发表于 2020-12-9 09:55
+
+
+
+<blockquote>kk89897 发表于 2020-12-9 09:54
+维阿的连续剧有介绍吗。或者给个地址，维阿二期之后就没关注过，hxd来点传送门
+
+ ...</blockquote>
+
+
+-----
+
+####  掉头学姐  
+##### 21324#       发表于 2020-12-9 09:57
+
+
+
+
+vr才是最搞笑的，holo和咩最近的风波也不知道vr有没有什么操作，赶走了收租的holo，b限yhm都起来了，vr的更糊了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21325#       发表于 2020-12-9 09:58
+
+
+
+
+V综这几天没好活，只能开始聊国V瓜，坏起来了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21326#       发表于 2020-12-9 10:00
+
+
+
+
+地属于虚拟人鱼的话，那人鱼的版权在杏手里，进一步讲OG所有人的版权都在杏的手里，那这地实际上归属于杏？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+中国人花钱给日本人在英国（？）买地，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 21327#       发表于 2020-12-9 10:00
+
+
+
+
+b综都20了，这话题是真的多，
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 21328#       发表于 2020-12-9 10:01
+
+
+
+
+潜规则就是这样，你有没有私联金主，观众不想知道，也可以当作没有这事，你闷声发大财都能算你业务精湛，这事要是捅出来了，你就别怪别人翻脸不认人，甚至可以说holo在国内炸了，都是这个道理，什么？现在还有翻墙打钱cn杏人？那没事了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21329#       发表于 2020-12-9 10:03
+
+
+
+
+建议复习“厉外拉同”
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21330#       发表于 2020-12-9 10:07
+
+
+
+
+当初利香被金主逼着不讲话不表态的传言不是传为美谈么，那实际上到底有没有金主
+
+
+
+
+
+                                       

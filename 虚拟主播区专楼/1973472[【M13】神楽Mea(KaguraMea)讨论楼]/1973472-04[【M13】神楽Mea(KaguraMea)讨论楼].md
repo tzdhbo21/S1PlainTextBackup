@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 00:17** 
+> ## **本文件最后更新于2020-12-09 10:14** 
 
 
 
@@ -4362,10 +4362,12 @@ hello i am cute very very cute yeah~！im otaku？oh thank you yeah！
 
 
 
- 参与人数 13战斗力 +15
+ 参与人数 15战斗力 +17
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 依旧ing| + 1|好评加鹅|
+| 追风小星星| + 1|好评加鹅|
 | 鷹書たかしょ| + 2|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
 | elect| + 1|好评加鹅|
@@ -5135,4 +5137,319 @@ p社游戏直播不是攻略的话真的有人看吗 看人填色<img src="https
 
 
 
-                                        
+
+
+-----
+
+####  上坂蓮華  
+##### 4786#       发表于 2020-12-9 00:17
+
+
+
+
+LOL也就听个声音，不如唱歌
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4787#       发表于 2020-12-9 00:18
+
+
+
+
+你们要求真多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 4788#       发表于 2020-12-9 00:28
+
+
+
+
+指望现充打游戏还让你看的舒服？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那只有b站限定恐怖游戏了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4789#       发表于 2020-12-9 00:31
+
+
+
+
+"碧蓝航线玩不懂"
+
+你们还不知道她什么水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4790#       发表于 2020-12-9 00:33
+
+
+
+
+怎么有人指望yhm的游戏水平的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+游戏要看的舒服还得国内男主播才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4791#       发表于 2020-12-9 01:19
+
+
+
+
+你麻玩玩猫里奥吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4792#       发表于 2020-12-9 01:23
+
+
+
+
+可以玩baba is you
+
+
+
+
+
+
+
+-----
+
+####  dilemma  
+##### 4793#       发表于 2020-12-9 02:05
+
+
+
+
+其实我觉得她玩玩god field也挺好的，或者之前有次深夜玩的那个火柴人游戏
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4794#       发表于 2020-12-9 07:20
+
+
+
+
+你麻打游戏话多的时候要么是沙雕小游戏，要么是和人联动能跟着车队混的那种，早期pubg，和小胖子的lol什么的，说白了还是铁现充女人一个，真实阳角<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4795#       发表于 2020-12-9 08:44
+
+
+
+
+楼友又要这要那的，大概率最后只播麻将<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4796#       发表于 2020-12-9 08:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想看魔女之家
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4797#       发表于 2020-12-9 09:17
+
+
+
+
+想看玩Dota
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4798#       发表于 2020-12-9 09:19
+
+
+
+
+别吧，lol都血压飙升了，还dota
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 4799#       发表于 2020-12-9 09:20
+
+
+
+
+被屏蔽的词是裤-袜和内-裤
+
+不知道还以为说了什么
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4800#       发表于 2020-12-9 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">话说mea有本子嘛
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4801#       发表于 2020-12-9 09:34
+
+
+
+
+无人气个人势哪来的本子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4802#       发表于 2020-12-9 09:50
+
+
+
+
+推荐看碧蓝航线可畏的本子 差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4803#       发表于 2020-12-9 10:12
+
+
+
+
+好吃懒做小屁孩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+                                       
