@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 22:10** 
+> ## **本文件最后更新于2020-12-10 00:08** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_dXJ0A" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_R3ocs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_uzGBV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_rcETZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -9798,10 +9798,11 @@ GO!!!那个FLOW！火影op那个GO!!!，sign那个FLOW！！！<img src="https:/
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士| + 1|感谢传递乐队的实力|
 | SuntoryNomu| + 1||
 
 
@@ -10268,6 +10269,7 @@ https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be&amp;ab_channel=
 
 
 
+ 本帖最后由 alcoholic1000 于 2020-12-9 22:14 编辑 
 
 不愧是葛皇
 
@@ -10284,7 +10286,24 @@ https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be&amp;ab_channel=
 
 
 
+
+<img src="https://img.saraba1st.com/forum/202012/09/221446dbddn375oxf65ref.png" referrerpolicy="no-referrer">
+
+
+<strong>【#にじさんじじゃんけん王】じゃんけん大会 参加者発表＆トーナメント抽選会【黛 灰 .png</strong> (552.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 22:14 上传
+
+
+
+
+
+
+这东西这么贵吗？
 [https://www.youtube.com/watch?v=vd9XBtn7jvA](https://www.youtube.com/watch?v=vd9XBtn7jvA)
+
 
 
 
@@ -10311,4 +10330,625 @@ https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be&amp;ab_channel=
 
 
 
-                                 
+
+
+-----
+
+####  Ketestrait  
+##### 21505#       发表于 2020-12-9 22:14
+
+
+
+
+牛姨：后天接着播，希望大家到时候超过我的进度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21506#       发表于 2020-12-9 22:27
+
+
+
+
+你郡还没脱啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，都是职业女性了，这高中就该搞了吧？
+猜拳比赛柴卡对郡道，怕不是两个人直接往对方脸上出拳了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21507#       发表于 2020-12-9 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665570&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 21:09</a>
+
+我也找了半天他
+
+呆毛是esora uma，MZM推朋友认出来的，这我真不认识</blockquote>
+这东西居然没线上……
+
+不像你阿ichkr<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21508#       发表于 2020-12-9 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666222&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-9 22:27</a>
+
+你郡还没脱啊，都是职业女性了，这高中就该搞了吧？
+
+猜拳比赛柴卡对郡道，怕不是两个人直接往对方脸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 高中为什么要做永久脱毛阿，
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21509#       发表于 2020-12-9 22:29
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1glhz35sx88j20gl09xwfx.jpg" referrerpolicy="no-referrer">
+
+
+明利酒厂给阿火送了兔皇梅酒
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21510#       发表于 2020-12-9 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666249&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-9 22:29</a>
+高中为什么要做永久脱毛阿，</blockquote>
+身边统计学的话，毕业jk很多会去啊？为了方便拍一些时尚大胆，举起手展露腋下的照片...明明经常美容院，郡道对美的意识比我想的要低啊。
+省一楼，你葵vs月之，开心嘛<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 21511#       发表于 2020-12-9 22:41
+
+
+
+
+梅酒那个好像是给全社liver都送了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21512#       发表于 2020-12-9 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666316&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-9 22:36</a>
+
+身边统计学的话，毕业jk很多会去啊？为了方便拍一些时尚大胆，举起手展露腋下的照片...明明经常美容院， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 本质上是衰亡的朝廷，被罢黜的太子和马上亡国的君王最后的勾心斗角罢了，
+
+
+你虹的北鄙之音已经响起，是时候创造新的历史了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21513#       发表于 2020-12-9 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666316&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-9 22:36</a>
+身边统计学的话，毕业jk很多会去啊？为了方便拍一些时尚大胆，举起手展露腋下的照片...明明经常美容院， ...</blockquote>
+郡gachi有无最终的vs表让我一云<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21514#       发表于 2020-12-9 22:50
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-9 22:58 编辑 
+
+整理一下你虹对100万的安排：
+
+
+正常liver
+
+MUGI / 修女 / 贝叔 / 公主 / 小护士 / 森中 / 夜见 ：买设备、洗衣机、可以播但不会播恐怖游戏的隔音间、很牛的企划场地、100万的企划
+
+
+还算正常的liver
+
+阿葵 / 阿花 / 阿rs / 阿尊 / 西西：买鱼、（高级）寿司和烧肉、酒、珍珠奶茶
+
+
+可能正常的liver
+
+柴卡 / 老师 / 安洁 / elu / 诗子：门挡、脱毛、婴儿手摇玩具、向画师约梦女色图、学习&amp;BL
+
+<strong>圣人</strong>
+
+rrm / 葛皇 / 刀也：世界和平、世界美好（よりよい世の中にする）、缴税
+
+
+很拽的liver
+
+海牛：无可奉告
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/225632ggjyj2uwazd7taxc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>#にじさんじじゃんけん王.jpeg</strong> (151.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 22:56 上传
+
+
+
+
+
+
+
+让我看看是谁和3D的大家不仲，没有参加企划啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21515#       发表于 2020-12-9 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 爱丽丝都被请过来了，真是稀客，
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21516#       发表于 2020-12-9 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666397&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-9 22:47</a>
+郡gachi有无最终的vs表让我一云
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+本間ひまわり
+葉加瀬冬雪 
+郡道美玲
+える   シード枠
+シスター・クレア
+花畑チャイカ
+ベルモンド・バンデラス
+アンジュ・カトリーナ
+
+葛葉ＶＳ葉加瀬冬雪
+月ノ美兎ＶＳ本間ひまわり
+郡道美玲ＶＳ花畑チャイカ
+ベルモンドＶＳアンジュ
+
+#にじさんじじゃんけん王
+
+部分，最终还没出来好像，还有其他人参加的，
+不方便放图，转自@Kanamayu98
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  宫宝兔丁  
+##### 21517#       发表于 2020-12-9 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666422&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 22:50</a>
+
+整理一下你虹对100万的安排：
+
+
+正常liver</blockquote>
+故乡税是知名避税手段，这波捧杀建议火畜对线
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|长见识了！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21518#       发表于 2020-12-9 22:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/225346tvbjnln1v3shmm3m.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201209225325.png</strong> (939.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 22:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21519#       发表于 2020-12-9 22:57
+
+
+
+
+【CyberPunk2077】超話題作を最速プレイ(当社比)！【サイバーパンク2077】
+[https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be](https://www.youtube.com/watch?v=hi92w-2dBRA&amp;feature=youtu.be)
+
+
+老爱真的玩的懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21520#       发表于 2020-12-9 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 原来真的是主播分批阿，有的是9点就能播，有的就是12点，
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21521#       发表于 2020-12-9 23:06
+
+
+
+
+老爱这PS4版0点解锁，果然启动即更新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过只下载更新4.5G，不是传PC版首日补丁几十G吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21522#       发表于 2020-12-9 23:06
+
+
+
+
+卖这个数是不是要亏本了
+
+<img src="https://img.saraba1st.com/forum/202012/09/230629mmppbvoz2e4oy4qq.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (12.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 23:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21523#       发表于 2020-12-9 23:14
+
+
+
+
+真的是巴新衣服，1212发，真是好主播，羡慕死咯<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">。
+还有，明天，就是，inui的live了，好紧张......
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21524#       发表于 2020-12-9 23:21
+
+
+
+
+一个情报，黛灰自称这100万完全是用的正职赚出来的钱<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+怪不得不开SC和会员,原来当V真的是来搞艺术的吗<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21525#       发表于 2020-12-9 23:35
+
+
+
+
+有很多想问的问题但涉及冲塔担心会冒犯到黑客gachi所以咽了回去的我
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21526#       发表于 2020-12-9 23:36
+
+
+
+
+虹男也太富了吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 21527#       发表于 2020-12-9 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666549&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-9 23:06</a>
+
+老爱这PS4版0点解锁，果然启动即更新
+
+不过只下载更新4.5G，不是传PC版首日补丁几十G吗 ...</blockquote>
+捏的像功夫的龅牙珍似的……
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21528#       发表于 2020-12-9 23:49
+
+
+
+ 本帖最后由 fastary 于 2020-12-9 23:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666843&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-9 23:35</a>
+
+有很多想问的问题但涉及冲塔担心会冒犯到黑客gachi所以咽了回去的我</blockquote>
+2k那是拿他性别认知黑屁我才会对线的，正常(?)冲塔是无所谓
+
+你是想问他正职是啥吗？
+
+不如说他自从出道之后魂号几乎不动了所以我自己都一直很好奇他不开sc平时真正靠什么赚钱，不过我还没扭曲到去挖他有没有其他魂号
+
+目前只知道他推上(只有资料)自称演员，出道前办过一次门票推销了很久也不知道卖完没的小型talk live，除此之外只有作为ytb的数次活动，以及当trpg企划(几个月更新一次)的固定npc配音者
+
+只能盲猜他可能平时接点网配之类的活吧，虽然感觉这赚不了几个钱<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+当然前提是他说100万全靠正职赚的是真话不是为了安抚粉丝自己没有拿sc去养其他人(之前见到推上有人抱怨这个
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21529#       发表于 2020-12-10 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49666977&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-9 23:49</a>
+
+2k那是拿他性别认知黑屁我才会对线的，正常(?)冲塔是无所谓
+
+你是想问他正职是啥吗？
+
+不如说他自从出道之后 ...</blockquote>
+是的我好奇很久了，没有冒犯到真的太好了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+おす団的例行配信感觉应该不是正职、Yummy Entertainment查不到相关情报、个人介绍中的「役者・声優・演技講師・企画・デザイン」更是让人觉得摸不透...去过pixiv本部做企划、有点现充的露营活动、曼哈顿出生，谜一样的人啊
+
+
+Syl，他不在管人号播TRPG真的太遗憾了，好想看
+
+
+
+
+
+                                
