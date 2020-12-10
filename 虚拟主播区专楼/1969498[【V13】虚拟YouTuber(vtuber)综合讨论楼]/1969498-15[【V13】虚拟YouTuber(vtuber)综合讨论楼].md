@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 22:09** 
+> ## **本文件最后更新于2020-12-11 02:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_d5V6I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_ele0z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_lmp0H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_sGVB3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -13660,10 +13660,11 @@ utaaaaaaaaaaaaaaaaaaa youtu.be/Sjsq0BIFcT8 @YouTubeより
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 姆咪心动动| + 1|好评加鹅|
 | 深渊萃取| + 1|好评加鹅|
 
 
@@ -13692,4 +13693,680 @@ utaaaaaaaaaaaaaaaaaaa youtu.be/Sjsq0BIFcT8 @YouTubeより
 
 
 
-                           
+
+
+-----
+
+####  6二三  
+##### 21670#       发表于 2020-12-10 22:09
+
+
+
+
+网不好，看不了N站，等录像了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 21671#       发表于 2020-12-10 22:14
+
+
+
+
+看了一眼，月灵nico才95观众在线，感觉回到以前了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21672#       发表于 2020-12-10 22:14
+
+
+
+
+啊这，怎么就播了，人在夜之城，求楼友repo<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21673#       发表于 2020-12-10 22:14
+
+
+
+
+虽然你们谈es的时候我们真的很不懂，
+
+但是你们热爱es的样子真的很耀眼……
+
+或许这就是最好的距离吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（每次你们翻唱的都比本家好听真的没问题吗）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 21674#       发表于 2020-12-10 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677071&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-10 22:14</a>
+啊这，怎么就播了，人在夜之城，求楼友repo</blockquote>
+聊了点圣诞节的话题，被问圣诞节想要什么礼物，思考了一下说最近想要化妆品www（接着刚刚契约者发的推文的话题），然后说游戏，最近喜欢皮克敏3。玩了观众参与的nico傻屌小游戏（擀饺子皮，我完全不知道怎么玩）。
+说今后直播，为来b站直播准备新形象。
+
+现在是画伯环节
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| WDDzzZ| + 1|好评加鹅|
+| JoelBirch| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21675#       发表于 2020-12-10 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677121&amp;ptid=1969498" target="_blank">Mafise 发表于 2020-12-10 22:19</a>
+聊了点圣诞节的话题，被问圣诞节想要什么礼物，思考了一下说最近想要化妆品www（接着刚刚契约者发的推文 ...</blockquote>
+多谢多谢！皮克敏！好！
+是确定要捏新皮了吗？
+最后瞅了一眼，今天的发饰好仙气<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21676#       发表于 2020-12-10 22:34
+
+
+
+
+猎奇警告⚠
+
+<img src="https://img.saraba1st.com/forum/202012/10/223431bsoozhhosww5shm8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 617 - (1) 郡道美玲🐽 在 Twitter_ _郡道がにじ3Dで配信しない理由.jpg</strong> (134.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 22:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  天子控  
+##### 21677#       发表于 2020-12-10 22:36
+
+
+
+
+好卡啊动不动转圈，就听到了b站直播的事
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21678#       发表于 2020-12-10 22:36
+
+
+
+
+叶师这2077的同接只有5000，实话说配信结束时读sc时的同接也差不多就这个数了
+
+
+...2077这么难看吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 21679#       发表于 2020-12-10 22:40
+
+
+
+
+日本人又不爱看欧美rpg的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 21680#       发表于 2020-12-10 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677279&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-10 22:36</a>
+
+叶师这2077的同接只有5000，实话说配信结束时读sc时的同接也差不多就这个数了
+
+
+...2077这么难看吗 ...</blockquote>
+在日本同接毒药了，国内平台和twitch直播数据很好。不过原来巫师3日本销量就不行
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21681#       发表于 2020-12-10 22:50
+
+
+
+
+日本人：
+
+原神&gt;2077
+
+日本人=？
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 21682#       发表于 2020-12-10 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677444&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-10 22:50</a>
+
+日本人：
+
+原神&gt;2077
+
+日本人=？</blockquote>这题我会做
+
+<img src="https://img.saraba1st.com/forum/202012/10/225419sm95zg6rx126g2rm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201210225401.png</strong> (105.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 22:54 上传
+
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">Q.E.D
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21683#       发表于 2020-12-10 22:57
+
+
+
+
+郡道去了断食道场？？？？不会是减肥吧，还不够瘦吗...吃不饱容易心情烦躁啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/225725v0eopya7tmrtrbpy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 620 - 推文 _ Twitter - twitter.com.jpg</strong> (253.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 22:57 上传
+
+
+
+
+
+
+
+
+
+
+
+FireShot Capture 617 - (1) 郡道美玲🐽 在 Twitter_ _郡道がにじ3Dで配信しない理由.jpg
+(134.3 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-10 22:56 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/225616tifs5notp0p771k9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21684#       发表于 2020-12-10 22:58
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-10 23:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677375&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-10 22:44</a>
+
+在日本同接毒药了，国内平台和twitch直播数据很好。不过原来巫师3日本销量就不行 ...</blockquote>
+日本人的游戏偏好真的太难理解了，就算不打游戏、不看剧情，CDPR光凭美术也能吊打某些游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+说真的这5000里面白皮浓度也很高（还看见了韩国人...)，上午播part1的时候7000同接，评论区英文浓度高到几乎看不见日文
+
+
+
+Syl，耿直评论区
+
+「​Legit his Genshin streams get more views than Cyberpunk」
+
+「​well maybe people don't want to get spoiled」
+
+「​it just people not familiar with cp77」
+
+「not familiar? it's the most hyped game in the world」
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21685#       发表于 2020-12-10 23:27
+
+
+
+
+记得之前瞄了眼，叶师的同接好像是apex＞＞原神＞2077的样子，葛叶和夸皇播apex的时候好像也完全不受油管bug的影响，这游戏也太本土金游了。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21686#       发表于 2020-12-10 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677121&amp;ptid=1969498" target="_blank">Mafise 发表于 2020-12-10 22:19</a>
+
+聊了点圣诞节的话题，被问圣诞节想要什么礼物，思考了一下说最近想要化妆品www（接着刚刚契约者发的推文 ...</blockquote>
+也夜之城去了，回来一看推就错过了真的好难追<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21687#       发表于 2020-12-10 23:34
+
+
+
+
+就算郡道说不喜欢niji3D，我还是希望她多用用，想东西的时候动来动去的很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 21688#       发表于 2020-12-10 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49677551&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-10 22:57</a>
+
+郡道去了断食道场？？？？不会是减肥吧，还不够瘦吗...吃不饱容易心情烦躁啊</blockquote>
+7天吃斋旅行
+
+牛逼
+
+郡道出去旅游玩的点一个比一个出人意料
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 21689#       发表于 2020-12-10 23:51
+
+
+
+
+日本人喜好看日本IGN不就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21690#       发表于 2020-12-11 00:02
+
+
+
+
+那在意同接的人估计就和2077无缘了，日v播这个真的可以算真爱了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21691#       发表于 2020-12-11 00:18
+
+
+
+
+叶师可以连播8小时原神，也可以连播8小时2077<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 21692#       发表于 2020-12-11 00:21
+
+
+
+
+火鸡频道恢复后今天订阅增了快两万了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21693#       发表于 2020-12-11 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49678294&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-11 00:18</a>
+
+叶师可以连播8小时原神，也可以连播8小时2077</blockquote>
+今天的2077已经10小时+，我单方面宣布2077在他心中更重一点<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21694#       发表于 2020-12-11 00:34
+
+
+
+<blockquote>alcoholic1000 发表于 2020-12-11 00:22
+今天的2077已经10小时+，我单方面宣布2077在他心中更重一点</blockquote>
+《连播》
+
+b限原神那天其实从下午六点玩到第二天中午
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21695#       发表于 2020-12-11 00:55
+
+
+
+ 本帖最后由 caupollen 于 2020-12-11 01:00 编辑 
+
+373是怎么关注到月灵过来的？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">哈人
+
+
+
+
+
+
+PHO[KWHX(DNNK{CX%QHI2E5.png
+(31.87 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-11 00:56 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/11/005621ognssry2psccqp2u.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21696#       发表于 2020-12-11 01:03
+
+
+
+
+エーテル在底边歌V里还是有点名气的，什么小豆泽，sifar，菜花nana，虚拟寿司啥的都在关注她
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 21697#       发表于 2020-12-11 01:24
+
+
+
+
+阿叶2077枪枪爆头，引起舒适，不过我已经熬不过他了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21698#       发表于 2020-12-11 01:27
+
+
+
+
+郡道断着脖子跟齐藤イチャイチャ的画面过于硬核，感觉要做噩梦了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 21699#       发表于 2020-12-11 01:56
+
+
+
+
+2077这个游戏本来其实就不适合播的，云的话也是看录播合适。何况日本人也没没那么多pc，主机玩起来也就720p，没pc真就不该碰…………
+
+
+
+
+
+                          
