@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 00:08** 
+> ## **本文件最后更新于2020-12-10 08:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_uzGBV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_rcETZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_KyfsS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cjnCJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -10951,4 +10951,287 @@ Syl，他不在管人号播TRPG真的太遗憾了，好想看
 
 
 
-                                
+
+
+-----
+
+####  fastary  
+##### 21530#       发表于 2020-12-10 00:19
+
+
+
+ 本帖最后由 fastary 于 2020-12-10 00:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667118&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-10 00:06</a>
+
+是的我好奇很久了，没有冒犯到真的太好了
+
+
+おす団的例行配信感觉应该不是正职、Yummy Entertainmen ...</blockquote>
+很遗憾我也没gachi到连魂都去挖个遍，只知道ymen是早近十年前就开始在nico投稿的实况主，也参与过几个自制动画的后期，策划方面当过社长魂号广播企划的制作人
+
+之前翻了他大概到19年初的推，只知道在nico实况唱见组那个圈子人脉还不错的样子，除此之外都是谜
+
+之前都当他大概是全职实况者只不过摸的透彻，出道后全职管人不过追求不高音声那点钱也够用，结果这一拿就是100万我也真的不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+顺带一提到19年初的推只有一条提到家人跟自己聊天的事，之后6月左右上京大概是跟おす団同居了，好像也不是单纯家里很有钱的富二代的样子
+
+
+ps 他管人号有过一次trpg，可惜是和律可夏色祭96猫的联动OTZ
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|神秘啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21531#       发表于 2020-12-10 00:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 一直感觉郡道的黏着anti 真是没完没了 ，无尽想角度做黑屁切片，相比之下尼哥单纯是情弱乐子制造机。
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 21532#       发表于 2020-12-10 01:03
+
+
+
+
+we are fighting!ド银魔
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21533#       发表于 2020-12-10 01:28
+
+
+
+
+想不过换关键词搜了下搜出来他17年的一条自我介绍推
+[https://twitter.com/Yamien_san/status/914294321041489920?s=20](https://twitter.com/Yamien_san/status/914294321041489920?s=20)
+
+差不多是以前作为舞台剧演员有不少经历，因为nico投稿时间长积累的人脉广所以承担了不少nico关联活动的企划兼修和stf……
+
+有一个构想，他大概是演员过了巅峰期发现火不起来所以转型当nico关联stf和企划家，之后nico没落于是寻求转型，v火起来接触种被od组影响加上社长也去了于是最后自己也去当v试试
+
+100万可能是当年活动策划和运营赚的钱，话说这一行赚得多吗？
+
+顺带一提ymen前两天发推说因为自己一直是官方节目和event现场staff中最小的所以一直习惯叫其他stf“大人たち”，最近被吐槽“你不也是大人吗”了………我怎么觉得他当v前就是人赢了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 21534#       发表于 2020-12-10 01:30
+
+
+
+
+火鸡复活惹
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21535#       发表于 2020-12-10 01:33
+
+
+
+
+月灵发推了，可以睡了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21536#       发表于 2020-12-10 02:05
+
+
+
+
+很喜欢的电竞女孩，
+
+因为露点了所以原图请移步原推。
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/020520ghksnl8shdhqxnbx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EozJQ7jVQAI6UzJ.jpg</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 02:05 上传
+
+
+
+
+
+[https://twitter.com/idol__picture/status/1336664913679302657](https://twitter.com/idol__picture/status/1336664913679302657)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21537#       发表于 2020-12-10 02:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/020635ewy2qpnw9czsp1j3.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (30.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 02:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21538#       发表于 2020-12-10 02:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/025506e85lmmfslmimlpb5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201210025454.png</strong> (125.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 02:55 上传
+
+
+
+
+
+
+天宝运气不错。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21539#       发表于 2020-12-10 04:58
+
+
+
+
+一觉醒来才看到晚安推<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 21540#       发表于 2020-12-10 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665673&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-9 21:22</a>
+啊这，我看了看，那应该还是糊皇，呆毛更像（</blockquote>
+这里是不可能有狐皇什么事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+剪影是宗谷前阵子换的新衣服
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21541#       发表于 2020-12-10 08:02
+
+
+
+<blockquote>Porsche 发表于 2020-12-10 07:57
+这里是不可能有狐皇什么事的
+
+剪影是宗谷前阵子换的新衣服</blockquote>
+。。。
+
+
+
+
+
+                               
