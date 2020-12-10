@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 18:08** 
+> ## **本文件最后更新于2020-12-10 20:08** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_dYuL9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_jzSsd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Frte1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Sye31" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -12615,4 +12615,836 @@ niconico怎么还不倒闭
 
 
 
-                             
+
+
+-----
+
+####  rzrbtk  
+##### 21612#       发表于 2020-12-10 18:10
+
+
+
+
+粉丝会不会昏倒在现场<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，好棒.....
+省一楼，这边能收入现场观众音诶，现场感比江花好，
+再省，目前站桩比较多，好期待一直说一直说的练舞
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21613#       发表于 2020-12-10 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">虽然阿B不少功能都是单独要用的时候专门让人改代码来实现的，但是他不和钱作对，付费观看什么的都能搞，你油管怎么就只把心思放在怎么播广告上呢
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 21614#       发表于 2020-12-10 18:15
+
+
+
+
+拍手（一切的感情）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21615#       发表于 2020-12-10 18:16
+
+
+
+
+好熟悉的感觉，唱两首之后就开始聊天了，这不是歌回嘛！？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21616#       发表于 2020-12-10 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49674489&amp;ptid=1969498" target="_blank">Yinacona 发表于 2020-12-10 17:53</a>
+海牛本人老摸了，然后没意愿过来的话，这边再怎么捧都没用吧</blockquote>
+海牛怎么也不能算没意愿过来吧
+先不说很早的时候就被Alice拉着直播过了，跟粉丝互动也还可以，而且好像是因为某些原因（年龄？）才来不了的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21617#       发表于 2020-12-10 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不懂音乐，这两个人一起唱的时候我基本只能听到德龙的声音了..
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21618#       发表于 2020-12-10 18:27
+
+
+
+
+还好吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21619#       发表于 2020-12-10 18:27
+
+
+
+
+阳炎组曲啊，谢谢inui给德龙面子了，樋口枫音量拉满！！！
+就是太稳了感觉没全开麦，木耳听不出（
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21620#       发表于 2020-12-10 18:28
+
+
+
+<blockquote>NBXX 发表于 2020-12-10 15:33
+刷推看到一个马来西亚Vtuber事务所叫做MyHolo TV （マイホロ）
+
+今天出道了二期生，皮看起来还不错的样子
+
+</blockquote>
+咋这也有叫holo的，名字也来山寨了。
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 21621#       发表于 2020-12-10 18:32
+
+
+
+
+原来只知道inui知道虹是因为德龙，原来是因为kanadero啊
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21622#       发表于 2020-12-10 18:33
+
+
+
+
+这奇妙的空气
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21623#       发表于 2020-12-10 18:37
+
+
+
+
+话说星街这次的3d是2434出的还是holo出的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21624#       发表于 2020-12-10 18:37
+
+
+
+
+“你是JK？啊观众是Jk？啊我是JK<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">？？”
+MC1大概就是这种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+星街来了！也来演了，
+“其实我是.....hololive...”
+“诶？？？”
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 21625#       发表于 2020-12-10 18:42
+
+
+
+
+她 她跳舞辣<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21626#       发表于 2020-12-10 18:45
+
+
+
+
+这跳的动作好精细，比刚才德龙上来扭秧歌好多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21627#       发表于 2020-12-10 18:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 21628#       发表于 2020-12-10 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mus2012  
+##### 21629#       发表于 2020-12-10 18:56
+
+
+
+
+连跳两首就按膝盖喘气了，体力太废柴啦，健身环安排上
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 21630#       发表于 2020-12-10 18:59
+
+
+
+
+三笨蛋lei了lei了
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21631#       发表于 2020-12-10 18:59
+
+
+
+
+洁宝..你的棉袄...
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21632#       发表于 2020-12-10 19:02
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-10 19:04 编辑 
+
+每次看到皇女跳舞，心中就会涌出无数的喜悦之感<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。
+
+我猜会有三倍
+
+日常<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21633#       发表于 2020-12-10 19:04
+
+
+
+
+太棒了呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 21634#       发表于 2020-12-10 19:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 21635#       发表于 2020-12-10 19:08
+
+
+
+
+ZEPP东京！
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21636#       发表于 2020-12-10 19:09
+
+
+
+
+东京场复活！！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21637#       发表于 2020-12-10 19:09
+
+
+
+
+哇！东京组复活？？？？？
+
+现在疫情也不乐观吧？
+
+
+
+
+
+
+
+-----
+
+####  饼脸遥  
+##### 21638#       发表于 2020-12-10 19:14
+
+
+
+
+很不乐观 节节攀升
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 21639#       发表于 2020-12-10 19:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">日本他妈的给我抗疫给力点啊
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21640#       发表于 2020-12-10 19:16
+
+
+
+
+何止不乐观，今天第一次突破单日600
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 21641#       发表于 2020-12-10 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">疫苗要来了，希望有用
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21642#       发表于 2020-12-10 19:18
+
+
+
+
+再聊下去就号没了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">...
+
+看起来3bk还会再上，必须唱三倍sunshine<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">！
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21643#       发表于 2020-12-10 19:21
+
+
+
+
+真好啊，认识的人和友人是一起打ES认识的，后面虽然有很长一段时间没有打这个游戏，但两个人感情依旧很好，分享的话题也会从ES游戏本体延伸到日常生活中，「今宵月の館にて」的PV主图风格似乎也有参照的ES，床和星街大概也是这样要好的关系吧。
+
+
+很久之前就想说了，能够在舞台上与朋友一起、达成梦想、分享自己喜爱的东西，vliver这种存在真是很神奇啊<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+复仇战，好耶！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
+| nehon13| + 1||
+| peh| + 1||
+| zpbzpb123123| + 1||
+| KaboomMirai| + 1|好评加鹅|
+| 夜漫群星| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 21644#       发表于 2020-12-10 19:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奇迹之巅  
+##### 21645#       发表于 2020-12-10 19:28
+
+
+
+ 本帖最后由 奇迹之巅 于 2020-12-10 19:30 编辑 
+
+这歌声真的很棒<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+いぬいどんどんすきになる
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21646#       发表于 2020-12-10 19:31
+
+
+
+
+光速喝水
+
+
+
+
+
+
+
+-----
+
+####  奇迹之巅  
+##### 21647#       发表于 2020-12-10 19:33
+
+
+
+
+不是怎么就只剩下两首了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21648#       发表于 2020-12-10 19:33
+
+
+
+
+虹歌姬<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+说起来，虹官推真卖力啊，跟着报歌名，之前宣传也很多，毕竟inui没跟别的公司签所以要自家努力一下？
+我看live前宣传好像有九万多人，比江花都多了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21649#       发表于 2020-12-10 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">怎么就压轴了，我刚和人吹今天solo唱了好多，不来一首iam么
+
+
+好想去现场啊...原创曲现场肯定压迫感十足
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 21650#       发表于 2020-12-10 19:37
+
+
+
+
+哇这个弹舌
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 21651#       发表于 2020-12-10 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太稳了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21652#       发表于 2020-12-10 19:40
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-10 19:48 编辑 
+
+会有安可的吧，底下饭配合一点。
+
+我不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+安可稳了，趁现在，《氛围差》（[https://twitter.com/takumadooon0901/status/1336974192835629056/photo/2](https://twitter.com/takumadooon0901/status/1336974192835629056/photo/2)）
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/194747ublptgpxogrlprfq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>live1.jpg</strong> (127.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 19:47 上传
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/194747yr03rqur0mcbgl2r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>live2.jpg</strong> (124.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 19:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21653#       发表于 2020-12-10 19:47
+
+
+
+ 本帖最后由 peh 于 2020-12-10 19:49 编辑 
+
+你们别鼓掌了，我好急啊
+
+アンコール！！
+
+
+
+
+
+
+
+-----
+
+####  奇迹之巅  
+##### 21654#       发表于 2020-12-10 20:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+完美
+不朽
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21655#       发表于 2020-12-10 20:04
+
+
+
+
+没有三倍.....但也很好了！！！
+
+inui好厉害，又会唱又会跳，读稿还不卡壳，粉丝看完这场真的开心爆了吧.....
+
+所以，solo砖呢（一转）
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21656#       发表于 2020-12-10 20:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">明年东京场再见
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21657#       发表于 2020-12-10 20:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
