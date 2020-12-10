@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-09 16:22** 
+> ## **本文件最后更新于2020-12-10 12:20** 
 
 
 
@@ -9,112 +9,10 @@
 
 
 
- 本帖最后由 ziyo 于 2020-12-8 22:12 编辑 
+ 本帖最后由 ziyo 于 2020-12-9 22:18 编辑 
 
-[https://www.apple.com.cn/airpods-max/](https://www.apple.com.cn/airpods-max/)
-
-<img src="https://img.saraba1st.com/forum/202012/08/221157esbcmcssfcila33i.jpg" referrerpolicy="no-referrer">
-
-
-<strong>QQ截图20201208221103.jpg</strong> (62.24 KB, 下载次数: 0)
-
-下载附件
-
-2020-12-8 22:11 上传
-
-
-
-
-
-
-
-
-
-
-
-QQ图片20200917171818.png
-(682.8 KB, 下载次数: 4)
-
-
-
-
-下载附件
-
-
-2020-9-17 17:18 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202009/17/171844k4uzhsz0cmixzhbo.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-QQ图片20200917171709.png
-(90.16 KB, 下载次数: 4)
-
-
-
-
-下载附件
-
-
-2020-9-17 17:18 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202009/17/171810uw26evg6uze6u5v0.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-QQ图片20200917171700.png
-(227.54 KB, 下载次数: 7)
-
-
-
-
-下载附件
-
-
-2020-9-17 17:17 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202009/17/171723z3wy31zcvy4zroyy.png" referrerpolicy="no-referrer">
-
-
-
-
-
+[https://www.bilibili.com/video/BV1Uf4y1Y7KE?p=2](https://www.bilibili.com/video/BV1Uf4y1Y7KE?p=2)
+[https://www.bilibili.com/video/BV1Uf4y1Y7KE](https://www.bilibili.com/video/BV1Uf4y1Y7KE)
 
 
 
@@ -5361,4 +5259,503 @@ HiFi大概就这样了，喊着保真其实没几个真的在意保真——当�
 
 
 
-                                        
+
+
+-----
+
+####  zikimi  
+##### 278#       发表于 2020-12-9 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661569&amp;ptid=1960399" target="_blank">大江户战士 发表于 2020-12-9 15:26</a>
+据报道，据彭博社的 Mark Gurman 报道，苹果新发布的 AirPods Max 耳罩式耳机在推迟数月后，省略了一些原本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/016.png" referrerpolicy="no-referrer">卖4399再第二年出小改二代那就太恶心了
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 279#       发表于 2020-12-9 17:06
+
+
+
+ 本帖最后由 Fuero 于 2020-12-9 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661993&amp;ptid=1960399" target="_blank">鸳鸳相抱 发表于 2020-12-9 15:58</a>
+
+那根线是MAX的推荐配件, 不是应该赶快买买买等着假一赔十嘛?</blockquote>
+草我发现我问的是beats pro的那根。
+
+但是问题来了， 都是闪电转3.5，会有区别吗。。然后我又发现推荐配件确实还是Beats Pro那根（黑色）
+
+
+
+
+
+
+
+-----
+
+####  MakeLaugh  
+##### 280#       发表于 2020-12-9 17:08
+
+
+
+
+没钱买苹果了
+
+
+
+
+
+
+
+-----
+
+####  ganeid  
+##### 281#       发表于 2020-12-9 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661453&amp;ptid=1960399" target="_blank">bubuyu 发表于 2020-12-9 15:16</a>
+
+水果卖这么贵不会带着业界涨价吗？本来卖2000的现在卖4000</blockquote>
+他涨任他涨，玄学厂怎么收割随他便
+
+参考airpods的轨迹，应该是一两年之后hovm摸透供应链，上马了一堆什么w51max、redmi airmax、freebuds promax之类的
+
+价格是原版的3-6折，pdd车价更低<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 282#       发表于 2020-12-9 17:26
+
+
+
+
+我又去问了下，技术顾问回复【虽然是推荐配件，但正常来说是不支持闪电转3.5口】<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中村隆太郎  
+##### 283#       发表于 2020-12-9 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49662894&amp;ptid=1960399" target="_blank">zikimi 发表于 2020-12-9 16:55</a>
+
+卖4399再第二年出小改二代那就太恶心了</blockquote>
+这可是苹果
+
+
+按照欧盟的统一接口法案，2021年起，lighting都要改type-c
+
+
+
+
+
+
+
+-----
+
+####  暗铁  
+##### 284#       发表于 2020-12-9 17:49
+
+
+
+<img src="https://p.sda1.dev/0/eb7c10aa3234762ce74487d550ab0344/2cb4eb15e0b2acac.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好，熟悉的味道
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  仲雪春山  
+##### 285#       发表于 2020-12-9 17:57
+
+
+
+
+我日常戴260g的蓝牙momentum 2通勤都会头顶压得痛，这耳机的重量真的没问题吗……
+
+
+
+
+
+
+
+-----
+
+####  强尼高达  
+##### 286#       发表于 2020-12-9 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663557&amp;ptid=1960399" target="_blank">暗铁 发表于 2020-12-9 17:49</a>
+好，熟悉的味道
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+很便宜了，值得其他耳机用户羡慕
+
+你法两千块不到的蓝牙降噪头戴，耳罩卖5xx还不公开发售
+
+
+
+
+
+
+
+-----
+
+####  好多大象啊  
+##### 287#       发表于 2020-12-9 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661411&amp;ptid=1960399" target="_blank">Bolmrux 发表于 2020-12-9 15:12</a>
+
+所以这货头梁有线吗？
+
+如果没有，那么这个耳机无论以什么方式输入，都不可能没有延迟了
+
+身为一个大耳，竟然 ...</blockquote>
+有没有数据传输线不知道，但是电源线应该是有的，不然怎么单个充电口
+
+
+
+
+
+
+
+-----
+
+####  百合豚  
+##### 288#       发表于 2020-12-9 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661377&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-09 15:09:37</a>
+苹果其实根本不在意Max的音乐表现，之所以搞这东西主要还是为AR铺路，就算在意音质也更多侧重视频领域的表 ...</blockquote>反了，苹果感定4399国内作坊就敢定3399
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 289#       发表于 2020-12-9 18:34
+
+
+
+
+耳罩卖69跟表带差不多价格，还行啊
+
+
+
+
+
+
+
+-----
+
+####  rak1  
+##### 290#       发表于 2020-12-9 18:46
+
+
+
+
+12-14周发货，这什么产能啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  nimravus  
+##### 291#       发表于 2020-12-9 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663557&amp;ptid=1960399" target="_blank">暗铁 发表于 2020-12-9 17:49</a>
+
+好，熟悉的味道
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+当年hd800换耳罩我记得700还是1000一对
+
+
+
+
+
+
+
+-----
+
+####  fukc  
+##### 292#       发表于 2020-12-9 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664168&amp;ptid=1960399" target="_blank">rak1 发表于 2020-12-9 18:46</a>
+12-14周发货，这什么产能啊
+
+—— 来自 S1Fun</blockquote>
+老黄 苏妈 索索 阿软：产能充足了没黄牛来玩还怎么蹭热度？
+
+
+
+
+
+
+
+-----
+
+####  baoer  
+##### 293#       发表于 2020-12-9 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655905&amp;ptid=1960399" target="_blank">Sorastlos 发表于 2020-12-9 00:58</a>
+
+神经病，4000块我买两只krk的g4音箱还有的找，正经听音乐不秒杀这个。不是我对无线没兴趣，这市场定价硬生 ...</blockquote>
+那么还有什么稍微比g4便宜一点的音箱在电脑上用的嘛？
+
+
+
+
+
+
+
+-----
+
+####  Sorastlos  
+##### 294#       发表于 2020-12-9 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665402&amp;ptid=1960399" target="_blank">baoer 发表于 2020-12-9 20:48</a>
+
+那么还有什么稍微比g4便宜一点的音箱在电脑上用的嘛？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有一对G3，要吗
+
+
+只是电脑用选国产漫步者那些2.1系统就行了，同价位音箱暴打耳机<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  皇帝雅西加  
+##### 295#       发表于 2020-12-10 07:44
+
+
+
+<blockquote>Chia 发表于 2020-12-9 06:38
+beats是营销和渠道的胜利。app是功能的胜利。都有错开概念，真说保真度，还是没能打入hifi市场的。但max以 ...</blockquote>
+苹果这样搞就是降维打击：喇叭技术过去二三十年都没革命性的进步，早就发展的快到极限了，这些年音箱方面的进步主要是数字技术的引入带来的，比如各种DSP和智能化EQ、声场调节等，比如电子分频放大代替传统的功率分频放大，感觉这APM就是苹果把之前HOMEPOD上的经验延伸到耳机上
+
+
+从这个角度来说，如果APM不搞砸的话，倒真是耳机这块的革命
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 296#       发表于 2020-12-10 09:05
+
+
+
+
+反转来了，美服AppleStore里那根闪电转3.5的说明是allowing you to connect your AirPods Max or Beats Solo Pro headphones to 3.5 mm audio sources，再次证明了国内天才吧技术顾问多不靠谱
+
+
+
+
+
+
+
+-----
+
+####  Bolmrux  
+##### 297#       发表于 2020-12-10 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663834&amp;ptid=1960399" target="_blank">百合豚 发表于 2020-12-9 18:15</a>
+
+反了，苹果感定4399国内作坊就敢定3399
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+敢这么定价的就某为一家吧，你骂谁呢hhhh
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 298#       发表于 2020-12-10 09:10
+
+
+
+
+国内作坊肯定不敢这么定价的，因为同定位他们不可能打过bose和sony，也就Max有资格试试升格了…
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 299#       发表于 2020-12-10 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663557&amp;ptid=1960399" target="_blank">暗铁 发表于 2020-12-9 17:49</a>
+
+好，熟悉的味道
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+这真黑不动好吗，你随便去看看其他耳机大厂原装耳罩的价格。
+
+
+
+
+
+
+
+-----
+
+####  konomi9  
+##### 300#       发表于 2020-12-10 10:09
+
+
+
+
+可以买俩HD650，除非苹果开创用算法算出hifi<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 301#       发表于 2020-12-10 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49663557&amp;ptid=1960399" target="_blank">暗铁 发表于 2020-12-9 17:49</a>
+
+好，熟悉的味道
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+耳机耳罩这价格不贵了，比耳机厂大耳的还便宜。
+
+
+
+
+
+
+
+-----
+
+####  東京急行  
+##### 302#       发表于 2020-12-10 10:40
+
+
+
+
+苹果在最近几年最大的贡献不就是把手机价格从4k位提到了10k么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这耳机要是能卖得好，五年后各大厂的HiFi就可以10k起了
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 303#       发表于 2020-12-10 10:58
+
+
+
+ 本帖最后由 Fuero 于 2020-12-10 11:14 编辑 
+<blockquote>東京急行 发表于 2020-12-10 10:40
+苹果在最近几年最大的贡献不就是把手机价格从4k位提到了10k么
+
+这耳机要是能卖得好，五年后各大厂的H ...</blockquote>
+？hifi旗舰很早几年前就过10k了啊…我hd820 2500欧入的
+
+Max的价格现在摸上各家次旗舰的边都很勉强
+
+所以这也是我觉得Max定价很鸡贼的原因，而且各老牌厂商的蓝牙耳机才是真正的杀猪价
+
+男人家蓝牙平板耳机现在就是10k，B&amp;O的H95无线蓝牙现在卖800刀，AKG的【便携蓝牙旗舰】N90Q，带主动降噪的，现在价格是7999
+
+
+
+
+
+
+                                       

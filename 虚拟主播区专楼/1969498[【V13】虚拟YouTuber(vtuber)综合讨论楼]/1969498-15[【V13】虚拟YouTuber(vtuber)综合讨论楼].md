@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 08:07** 
+> ## **本文件最后更新于2020-12-10 12:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_KyfsS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cjnCJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_N97Zn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_fUVuG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -11121,6 +11121,25 @@ we are fighting!ド银魔
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 精灵ama| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11224,14 +11243,753 @@ we are fighting!ド银魔
 
 
 
+ 本帖最后由 十四洲 于 2020-12-10 08:32 编辑 
 <blockquote>Porsche 发表于 2020-12-10 07:57
 这里是不可能有狐皇什么事的
 
 剪影是宗谷前阵子换的新衣服</blockquote>
-。。。
+。。。我查了下，感觉还是狐皇，耳朵两侧都有杂毛，耳环朝下，而且呆毛还是更像。只是发梢宗谷更像。等发表看看吧
 
 
 
 
 
-                               
+
+
+-----
+
+####  深渊萃取  
+##### 21542#       发表于 2020-12-10 08:15
+
+
+
+
+宗谷前阵子那套衣服头上有帽子的……
+
+
+
+
+
+
+
+-----
+
+####  s32244153  
+##### 21543#       发表于 2020-12-10 09:06
+
+
+
+
+华生的自弹自唱意外的不错阿...<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21544#       发表于 2020-12-10 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667313&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-10 00:35</a>
+一直感觉郡道的黏着anti 真是没完没了 ，无尽想角度做黑屁切片，相比之下尼哥单纯是情弱乐子制造机 ...</blockquote>
+因为郡道天天有新料啊，那些料哪怕是anti恶意剪辑，那也是她自己措辞问题，某种程度也是自业自得了。
+我一直觉得人会不会炎上，还是要看他自己的态度，害怕/厌烦炎上就会少做那方面的事（哈哥除外），司会也是在意之后才炎少了，郡道真想不炎上，一是学江良多会限，二是被烧怕了学乖点，三是整好活，让风评变好。以郡道的情况，在不想涨粉的情况下三不可能，二的话，乖点的郡道不是郡道......
+那我看是要江良化了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|江良化ww 但是还好郡道播的还是不少.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21545#       发表于 2020-12-10 09:44
+
+
+
+
+叶开始播2077了
+
+
+
+
+
+
+
+-----
+
+####  突然空虚  
+##### 21546#       发表于 2020-12-10 09:52
+
+
+
+
+我倒是希望野良猫化。不管好评价差评价都是评价，居然让她开出一条整活跳脸炎上也少的路
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 21547#       发表于 2020-12-10 10:04
+
+
+
+
+问题是可能有物理炎上啊
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 21548#       发表于 2020-12-10 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49668364&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-10 08:15</a>
+宗谷前阵子那套衣服头上有帽子的……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你点进去看就能发现她经常不戴帽子
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21549#       发表于 2020-12-10 10:14
+
+
+
+
+郡道是成年人了，她为自己负责啦～
+现在看着还行，明天旅游回来要开杂谈回了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21550#       发表于 2020-12-10 10:19
+
+
+
+
+据说4ch的算了下，兔子年收1.5亿日元
+
+
+143Vtuberまとめてみました 2020/12/08(火) 20:13:46.41
+
+
+pekoさんの年収
+
+
+広告収入
+
+7700万再生×0.3円×50％=1150万
+
+
+メンバー収入 (會員收入)
+
+500円×1万人×12ヶ月×35％=2100万
+
+
+スパチャ (斗內)
+
+1億円×35％=3500万
+
+
+グッズ (精品)
+
+1万円×15000個×50％=7500万
+
+
+
+計1.425億円
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21551#       发表于 2020-12-10 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 隔壁在大舞台闪耀的德龙年收多少来着？兔皇的零头罢了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21552#       发表于 2020-12-10 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种意义上都太乐观，会员哪来的月均1w，兔皇现在有没有1w都不知道，周边商品那15000个更是不知道哪来的数据，然后分成上，会员sc考虑可能的消费税和苹果抽成也不会有百分之35那么多，周边想拿百分之50更是痴人说梦，就算liver公司对半开，也得考虑成本和平台抽成，实际上兔皇能赚的有这个算法的三分之一都不错了吧。
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 21553#       发表于 2020-12-10 10:34
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glik2hzsg4g20du07mqvb.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 21554#       发表于 2020-12-10 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49669736&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-10 10:32</a>
+
+各种意义上都太乐观，会员哪来的月均1w，兔皇现在有没有1w都不知道，周边商品那15000个更是不知道哪 ...</blockquote>
+是的，不过就算三分之一也相当可观了
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 21555#       发表于 2020-12-10 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49668305&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-10 08:02</a>
+。。。我查了下，感觉还是狐皇，耳朵两侧都有杂毛，耳环朝下，而且呆毛还是更像。只是发梢宗谷更像。等发 ...</blockquote>
+如果真是狐皇那挺不可思议的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21556#       发表于 2020-12-10 10:38
+
+
+
+<blockquote>Porsche 发表于 2020-12-10 10:11
+你点进去看就能发现她经常不戴帽子</blockquote>
+不用公式用差分，于理不合吧
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21557#       发表于 2020-12-10 10:47
+
+
+
+
+看久了日币和B站红SC刷屏，我最近的金钱观念有点崩溃。
+
+黛灰这100万算过来6万RMB，本职上能直接登台拿出场费下能企划设计做展会，存这点钱应该还是没问题的。
+
+就是这唐突拿出100万搞活动回馈同僚，像极了毕业前想留下点什么...（我的日伞<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+就比较微妙
+
+以上都是我个人观点，如果感到不快可以扣我鹅
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21558#       发表于 2020-12-10 10:50
+
+
+
+
+这2077在日本的热度真的不行，欧美系rpg这种离散型的叙事风格要想要观众沉浸进去真的很难，不像jrpg王道主线直接就把观众吸引住了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21559#       发表于 2020-12-10 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 这企划放在隔壁，一分钟观众就把钱凑齐了吧，
+
+
+时也命也，你虹不能给liver满意的收入，那当然不怪人家liver跑路了
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 21560#       发表于 2020-12-10 11:10
+
+
+
+ 本帖最后由 huanshen 于 2020-12-10 11:18 编辑 
+
+糊皇今年有原创曲啊，能吸一波热度，概率还是蛮大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+宗谷最多老惯例上pickup环节吧，最好的翻唱flamingo都只上第一届v红白的pickup环节，今年那堆没人气的翻唱我觉得主催也不会喜欢的
+
+
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 21561#       发表于 2020-12-10 11:10
+
+
+
+
+和2077有啥关系，就是日本的游戏群体整体衰落，都跑去玩弱智gacha了
+
+13机兵和最近发售的魔女旅团都是剧情一流的，但你看销量和热度就知道只有核心客群会去玩
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21562#       发表于 2020-12-10 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49670197&amp;ptid=1969498" target="_blank">chaucerling 发表于 2020-12-10 11:10</a>
+
+和2077有啥关系，就是日本的游戏群体整体衰落，都跑去玩弱智gacha了
+
+13机兵和最近发售的魔女旅团都是剧情一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">一个adv一个巫术，这两个本来就是和销量绝缘的类型啊
+
+十三机兵日本卖了至少13万份，魔女旅团让日本一苟出了续作，已经很成功了
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 21563#       发表于 2020-12-10 11:23
+
+
+
+
+虹订阅第一的阿委一年到头只有几套衣服穿，订阅第二的阿葵炸鸡掉地上还捡起来，订阅第三的葛叶吃了捡起来的炸鸡，头部都一穷二白惨得很
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21564#       发表于 2020-12-10 11:23
+
+
+
+
+b站的日v会不会跟国v的风玩2077
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21565#       发表于 2020-12-10 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比比啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21566#       发表于 2020-12-10 11:26
+
+
+
+
+yhm的rpg直播需要小岛！
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21567#       发表于 2020-12-10 11:27
+
+
+
+ 本帖最后由 winda 于 2020-12-10 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49670325&amp;ptid=1969498" target="_blank">TRW 发表于 2020-12-10 11:23</a>
+虹订阅第一的阿委一年到头只有几套衣服穿，订阅第二的阿葵炸鸡掉地上还捡起来，订阅第三的葛叶吃了捡起来的 ...</blockquote>
+要念就念订阅第一过劳重感冒连自己生日都没过和订阅第二练歌房当场晕倒拉进医院阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21568#       发表于 2020-12-10 11:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">比比啊
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 21569#       发表于 2020-12-10 11:32
+
+
+
+
+衣服是指三次元的衣服，不是l2d或3d。这人去一期生聚餐还只带几千日元、最后让德龙垫了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21570#       发表于 2020-12-10 11:33
+
+
+
+<blockquote>caupollen 发表于 2020-12-10 11:23
+b站的日v会不会跟国v的风玩2077
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端</blockquote>
+你可以看看现在虚拟主播2077分区有多少人在玩，日v很多的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21571#       发表于 2020-12-10 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 卖惨怎么能忘记中之人被人挖出来，甚至影响到自己的家庭，
+
+
+还有索索音乐不如烂铁影响了月之前程，
+
+
+退学肆业更是不得不提，
+
+
+当然最惨的还有，收入低的可怜，这么惨还没人打钱，这才是最惨的
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21572#       发表于 2020-12-10 11:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不至于吧，我听虹人说去年年末月之发生过信用卡因入款过多被冻结的事。（他的说法是一次性入账至少千万以上才有可能触发）。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21573#       发表于 2020-12-10 11:46
+
+
+
+
+兔头不是说做v后信用卡钱多的都冻结了么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 21574#       发表于 2020-12-10 11:52
+
+
+
+
+囚人说的你们也信，
+
+是银行账户的收入流水和大学生身份不符才冻结的
+
+毕业了之后就完全没发生这种情况了
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21575#       发表于 2020-12-10 11:53
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-10 12:06 编辑 
+
+这叫不被无节制的消费主义洗/脑、开源节流和有规划的金钱管理<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+和某些人在季抛型手游里面疯狂氪金，毫无节制、有了钱立刻买最新潮的数码产品，或者请客挥霍掉、买奢侈品和高级的化妆品的人不一样
+
+
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 21576#       发表于 2020-12-10 11:56
+
+
+
+<blockquote>真飞鸟i 发表于 2020-12-10 11:41
+不至于吧，我听虹人说去年年末月之发生过信用卡因入款过多被冻结的事。（他的说法是一次性入账至少 ...</blockquote>
+鬼知道，大概穷惯了吧，电子支付这么落后的地方居然带几千就上街了。回本社时绝大多数人是打的，也是只有一期生喜欢公交和地铁回公司。
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21577#       发表于 2020-12-10 11:56
+
+
+
+
+2k黑屁谁跑路呢
+
+别的liver不知道，黑客自己不开sc会员，怎么可能因为怪公司给不了满意的收入想跑路
+
+而且100万也不是回馈同事，单纯是用于吸引大量连3d都有的同事动真格参加区区猜拳大会的道具(
+
+不过要说像出云霞一样做完自己想做的事就抽身也不是没可能就是了……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21578#       发表于 2020-12-10 11:58
+
+
+
+
+阿花<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">只是一个美院出身的待业大学生罢了....
+省一楼，从一号就开始担心，没想到inui solo live真能开成，4:45开始特别节目，6:00开始，应该有无料，全场盛惠4500nicopoint，大家有兴趣去看看
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 21579#       发表于 2020-12-10 12:00
+
+
+
+
+等一个免费老哥
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21580#       发表于 2020-12-10 12:07
+
+
+
+
+前两首无料
+
+
+
+
+
+                              
