@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 10:13** 
+> ## **本文件最后更新于2020-12-10 18:15** 
 
 
 
@@ -6571,4 +6571,762 @@ tc好多有趣的段子咋不上油管播<img src="https://static.saraba1st.com/
 
 
 
-                                     
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4867#       发表于 2020-12-10 10:34
+
+
+
+
+以前摸mmo的时候貌似都是自闭当单机玩的，不小心公屏打字了都觉得很羞耻，然后就没玩过mmo了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4868#       发表于 2020-12-10 11:40
+
+
+
+
+我怀疑她是编的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4869#       发表于 2020-12-10 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我也被游戏人妖骗过
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4870#       发表于 2020-12-10 11:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我玩mmo除了和朋友组队基本也都是自闭玩的 你们好阳角
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4871#       发表于 2020-12-10 11:59
+
+
+
+
+居然还有朋友一起打mmo<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4872#       发表于 2020-12-10 12:15
+
+
+
+
+ff14 环境好啊，你多自闭都会有好心人帮你。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4873#       发表于 2020-12-10 12:27
+
+
+
+
+你们这帮人玩eve吗
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4874#       发表于 2020-12-10 13:14
+
+
+
+
+放以前我可能会觉得她会脑控其他路过的男玩家
+现在我怕她被一般路过的本体男女号玩家给pua了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 4875#       发表于 2020-12-10 13:15
+
+
+
+
+发了fleet，今天b限然后接油管的样子
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4876#       发表于 2020-12-10 13:46
+
+
+
+
+.... 唉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">希望不要成为一种负担
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4877#       发表于 2020-12-10 13:57
+
+
+
+
+晚了，直播本身已经是一种负担了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 4878#       发表于 2020-12-10 13:58
+
+
+
+
+爱好成负担了蛮烦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4879#       发表于 2020-12-10 14:05
+
+
+
+
+tc的直播还是算爱好的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现充麻不播就只能出去找男人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4880#       发表于 2020-12-10 14:30
+
+
+
+
+咩宝要找男人也别乱跑啊， 现在这疫情情况还是好好做室内活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4881#       发表于 2020-12-10 15:45
+
+
+
+
+不知道上次兔姨有没有手把手教你麻用玩具<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4882#       发表于 2020-12-10 15:53
+
+
+
+
+指不定谁教谁呢 小麻可是能把按摩器搞进水坏掉的狠人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4883#       发表于 2020-12-10 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但凡你麻有个lsp狂热画师粉，去黄兔子家里线下这个素材早就被画成母女丼本了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4884#       发表于 2020-12-10 16:36
+
+
+
+
+好呀<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4885#       发表于 2020-12-10 16:40
+
+
+
+
+ 是麻将啊，看不懂
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 4886#       发表于 2020-12-10 16:41
+
+
+
+
+麻酱来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依旧ing  
+##### 4887#       发表于 2020-12-10 16:42
+
+
+
+
+这突击，好歹发个b博吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 4888#       发表于 2020-12-10 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49673570&amp;ptid=1973472" target="_blank">依旧ing 发表于 2020-12-10 16:42</a>
+
+这突击，好歹发个b博吧
+
+
+—— 来自 samsung SM-G9730, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+之前已经预告傍晚会B限了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4889#       发表于 2020-12-10 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">为何在我上课时开播啊女人
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4890#       发表于 2020-12-10 16:43
+
+
+
+
+真是麻将啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4891#       发表于 2020-12-10 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这还在上班呢，摸鱼算了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 4892#       发表于 2020-12-10 16:59
+
+
+
+
+节目效果挺好的 交流互动多
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4893#       发表于 2020-12-10 16:59
+
+
+
+
+mea还是太稳健了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4894#       发表于 2020-12-10 17:03
+
+
+
+
+草，流局满贯
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 4895#       发表于 2020-12-10 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"> 三暗对对   +  流满
+
+
+这什么牌运
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4896#       发表于 2020-12-10 17:06
+
+
+
+
+我亏了
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 4897#       发表于 2020-12-10 17:09
+
+
+
+
+我试了半天才反应过来是日服<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">   算了算了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 4898#       发表于 2020-12-10 17:10
+
+
+
+
+尼玛的用日语报号码不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4899#       发表于 2020-12-10 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，把o听成ご了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4900#       发表于 2020-12-10 17:14
+
+
+
+
+我根本进不去<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4901#       发表于 2020-12-10 17:15
+
+
+
+
+怎么b限也突击了 这就是和404一视同仁吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 4902#       发表于 2020-12-10 17:25
+
+
+
+
+好起来了，我现在看她麻酱不会再血压升高了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4903#       发表于 2020-12-10 17:26
+
+
+
+
+fleet发过预告
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4904#       发表于 2020-12-10 17:33
+
+
+
+
+还在加班<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+还好看不懂
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4905#       发表于 2020-12-10 17:41
+
+
+
+
+她麻将打的合理不少，而且运气太好了。
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4906#       发表于 2020-12-10 17:43
+
+
+
+
+赌场得意，xx失意
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4907#       发表于 2020-12-10 17:47
+
+
+
+
+明天果然舞元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4908#       发表于 2020-12-10 17:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4909#       发表于 2020-12-10 17:55
+
+
+
+
+五元黄兔兔鞠 没苔苔 还好吧
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4910#       发表于 2020-12-10 17:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">没苔苔的五元还行吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4911#       发表于 2020-12-10 18:01
+
+
+
+
+桃铁这吊游戏看不懂,摸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4912#       发表于 2020-12-10 18:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">四位就跑了
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4913#       发表于 2020-12-10 18:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">退一步越想越气
+
+
+
+
+
+                                    

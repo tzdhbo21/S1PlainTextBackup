@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 12:07** 
+> ## **本文件最后更新于2020-12-10 18:08** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_N97Zn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_fUVuG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_dYuL9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_jzSsd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -11891,12 +11891,12 @@ b站的日v会不会跟国v的风玩2077
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-10 12:06 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-10 12:08 编辑 
 
 这叫不被无节制的消费主义洗/脑、开源节流和有规划的金钱管理<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
 
-和某些人在季抛型手游里面疯狂氪金，毫无节制、有了钱立刻买最新潮的数码产品，或者请客挥霍掉、买奢侈品和高级的化妆品的人不一样
+和某些在季抛型手游里面疯狂氪金，毫无节制、有了钱立刻买最新潮的数码产品，或者请客挥霍掉、买奢侈品和高级的化妆品的人不一样
 
 
 
@@ -11992,4 +11992,627 @@ b站的日v会不会跟国v的风玩2077
 
 
 
-                              
+
+
+-----
+
+####  smy20011  
+##### 21581#       发表于 2020-12-10 12:51
+
+
+
+
+Holo招世界观设计XD
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21582#       发表于 2020-12-10 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49670733&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-10 11:58</a>
+
+阿花只是一个美院出身的待业大学生罢了....
+
+省一楼，从一号就开始担心，没想到inui solo live真能开 ...</blockquote>
+nico用得少，这个4500优惠是啥，昨天刚6000买的票..
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21583#       发表于 2020-12-10 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49671323&amp;ptid=1969498" target="_blank">peh 发表于 2020-12-10 12:57</a>
+nico用得少，这个4500优惠是啥，昨天刚6000买的票..</blockquote>
+我跟江良那次弄混了，应该就是6000点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 21584#       发表于 2020-12-10 14:22
+
+
+
+
+怎么又是世界观设计，去年出木口画集的时候我就猜要搞木口宇宙，这就拖了一年了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21585#       发表于 2020-12-10 14:32
+
+
+
+
+阿床这推特地声也太debu了吓到了，只能说还好早就冲过塔知道是个匀称妹子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21586#       发表于 2020-12-10 14:35
+
+
+
+
+不给多玩国送钱，对不起阿床了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21587#       发表于 2020-12-10 14:47
+
+
+
+
+木口那个**广告本来就是早就有了的吧……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21588#       发表于 2020-12-10 14:51
+
+
+
+
+holo这个我上半年就见过在招人了，看来确实半年啥也没招到，估计别的职位也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 21589#       发表于 2020-12-10 14:59
+
+
+
+
+好久不看管人了 谁知道狮白什么时候开播2077 看了几个管人玩2077和脑瘫一样
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21590#       发表于 2020-12-10 15:33
+
+
+
+
+刷推看到一个马来西亚Vtuber事务所叫做MyHolo TV （マイホロ）
+
+今天出道了二期生，皮看起来还不错的样子 <blockquote>MyHolo TV's 2nd Gen's debut date is out!
+
+
+Please support their Youtube:
+
+
+Mana🐌- [https://youtube.com/channel/UCvC ... ?sub_confirmation=1](https://youtube.com/channel/UCvCJI3c40l9aZGpT8wIAX0w?sub_confirmation=1)
+
+
+Mari🏵️- [https://youtube.com/channel/UC3T ... ?sub_confirmation=1](https://youtube.com/channel/UC3TxjUjyzodZ35pWUFCL9wQ?sub_confirmation=1)
+
+
+Mio📜- [https://youtube.com/channel/UCyK ... ?sub_confirmation=1](https://youtube.com/channel/UCyKsg-57XC9pyHbP7v3kCPQ?sub_confirmation=1)
+
+
+(GMT+8): 
+
+10:00 - 21:00 EST/ 18:00 PST
+
+22:00 - 09:00 EST/ 06:00 PST
+
+
+We appreciate for your support 🫂💕</blockquote>
+<[img src="https://i.loli.net/2020/12/10/IhSTbNMzUBxnkYe.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21591#       发表于 2020-12-10 15:39
+
+
+
+<blockquote>我尊敬的父亲 发表于 2020-12-10 14:59
+好久不看管人了 谁知道狮白什么时候开播2077 看了几个管人玩2077和脑瘫一样</blockquote>
+虽然我看叶看的少，叶师的2077还可以的吧，还是选的最高难度，446有说过要播2077的么
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 21592#       发表于 2020-12-10 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21593#       发表于 2020-12-10 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49672205&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-10 14:32</a>
+
+阿床这推特地声也太debu了吓到了，只能说还好早就冲过塔知道是个匀称妹子 ...</blockquote>
+不算地声吧 不如说开口就是想吃m<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21594#       发表于 2020-12-10 16:13
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-10 16:53 编辑 
+
+誰よその女！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+叶师刚才打着2077，正过剧情接到了电话：
+
+「嗯晚安」
+
+「很有趣哦」
+
+「晚安，拜拜，我也喜欢你ww」
+
+
+*放下电话*
+
+「是admin，他说要自己要睡了ww，问我サイバーパンク好不好玩，然后说睡了喜欢你喔w」
+
+
+「什么嘛，像女朋友一样ww，之前在天开家搓麻将的时候也是...」
+
+*进剧情就没说完*
+
+
+
+警惕酒后打电话男子adm
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21595#       发表于 2020-12-10 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏stf的工资一定很低吧，所以才会产能不够，得过且过，公关危机，招不来人。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21596#       发表于 2020-12-10 16:32
+
+
+
+
+郡有时候就是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？？
+结果只是妈宝女日常记录推<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21597#       发表于 2020-12-10 16:55
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-10 17:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">官 方 阴 间 文 案
+
+<img src="https://img.saraba1st.com/forum/202012/10/165153vdqmzxqr5rttrrqi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201210_165054.JPG</strong> (51.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 16:51 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/165426rpm2nkjkgxko2nkp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-8b10de88945f196.jpg</strong> (26.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 16:54 上传
+
+
+
+
+
+
+
+
+果然是这样，按照搜索结果直接做的（
+
+<img src="https://img.saraba1st.com/forum/202012/10/170435x5160l1cewbw615b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201210_170403.JPG</strong> (220.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 17:04 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21598#       发表于 2020-12-10 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49673244&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-10 16:13</a>
+誰よその女！
+
+
+叶师刚才打着2077，正过剧情接到了电话：</blockquote>
+男同竟在我身边
+今晚就上崆峒山<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21599#       发表于 2020-12-10 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49673722&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2020-12-10 16:55</a>
+
+官 方 阴 间 文 案</blockquote>
+阿B老缺德了，这算是强捧吗？在不明确liver本人意向的情况下
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21600#       发表于 2020-12-10 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49673244&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-10 16:13</a>
+
+誰よその女！
+
+
+叶师刚才打着2077，正过剧情接到了电话：</blockquote>
+谁看了不惊呼一句“男同”<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21601#       发表于 2020-12-10 17:15
+
+
+
+
+感觉我比这些人紧张多了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21602#       发表于 2020-12-10 17:20
+
+
+
+<blockquote>alcoholic1000 发表于 2020-12-10 17:09
+阿B老缺德了，这算是强捧吗？在不明确liver本人意向的情况下</blockquote>
+能唱能跳能画画还具有一手fps天分的真实樱花萝莉，cn进出代表物述有栖的唯一指定好妹妹
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 新一代六边形战士要来了。（绝望
+
+
+
+
+
+
+
+-----
+
+####  Yinacona  
+##### 21603#       发表于 2020-12-10 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49674048&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2020-12-10 17:20</a>
+
+能唱能跳能画画还具有一手fps天分的真实樱花萝莉，cn进出代表物述有栖的唯一指定好妹妹
+
+ 新一代六 ...</blockquote>
+海牛本人老摸了，然后没意愿过来的话，这边再怎么捧都没用吧
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 21604#       发表于 2020-12-10 17:56
+
+
+
+
+niconico怎么还不倒闭
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 21605#       发表于 2020-12-10 17:57
+
+
+
+
+被捧了会有啥问题吗，别阴湿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21606#       发表于 2020-12-10 17:57
+
+
+
+
+皇女安洁来做开场注意事项([https://live2.nicovideo.jp/watch/lv329203214](https://live2.nicovideo.jp/watch/lv329203214))，
+
+安洁皇女先后卡壳，笑了，
+
+皇女的声音好优雅<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21607#       发表于 2020-12-10 17:58
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gliwwdez2ej20gg0q30uf.jpg" referrerpolicy="no-referrer">
+
+
+整天就出这种傻屌玩意儿，sega怎么还不倒闭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21608#       发表于 2020-12-10 17:58
+
+
+
+
+垃圾niconico怎么还不死<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 21609#       发表于 2020-12-10 18:06
+
+
+
+
+这辫子竟然有体积判定
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21610#       发表于 2020-12-10 18:07
+
+
+
+
+油管赶紧出个付费收看的功能吧，这样就方便了
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 21611#       发表于 2020-12-10 18:08
+
+
+
+
+用户需求和钱就明明白白在哪里放着，这些懒狗公司不愿意做有什么办法。
+
+
+
+
+
+                             
