@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 22:16** 
+> ## **本文件最后更新于2020-12-11 00:14** 
 
 
 
@@ -7762,4 +7762,498 @@ syl，不知道阿咩要恰多久麦当劳（
 
 
 
-                                   
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 4940#       发表于 2020-12-10 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜ff14
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4941#       发表于 2020-12-10 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂犬终于想明白了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4942#       发表于 2020-12-10 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">生日快乐狂犬<img src="https://p.sda1.dev/0/4aeda905b92fc9486370b15245cd9c6d/2ef33e93447c7318.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4943#       发表于 2020-12-10 22:45
+
+
+
+
+66号线啊
+
+啊啊啊啊啊啊啊啊啊啊
+
+我大概真的入脑了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 4944#       发表于 2020-12-10 22:51
+
+
+
+
+你楼正常丶，我害怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4945#       发表于 2020-12-10 22:56
+
+
+
+
+🎶啦啦啦🎶可爱疯了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4946#       发表于 2020-12-10 22:56
+
+
+
+
+啦啦啦啦～<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 4947#       发表于 2020-12-10 22:58
+
+
+
+
+最喜欢的无缝唱歌机器模式<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4948#       发表于 2020-12-10 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4949#       发表于 2020-12-10 22:59
+
+
+
+
+玩偶猫和。。。。
+
+        
+
+腕の中ヘおいで、怖がらないおいで
+
+       
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4950#       发表于 2020-12-10 23:06
+
+
+
+
+经典连唱的日常感真是太棒了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4951#       发表于 2020-12-10 23:26
+
+
+
+
+声音好近，好清澈，心脏都提起来了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4952#       发表于 2020-12-10 23:30
+
+
+
+
+你真不会和人在开荒零式吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4953#       发表于 2020-12-10 23:32
+
+
+
+
+新歌名:有喜欢的人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4954#       发表于 2020-12-10 23:34
+
+
+
+
+啊这首，好适合她，怎么都对的上，无论是对谁<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  驴子方舟  
+##### 4955#       发表于 2020-12-10 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">我有点怀疑B站有人用独轮车打CALL
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4956#       发表于 2020-12-10 23:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4957#       发表于 2020-12-10 23:43
+
+
+
+
+不用怀疑 确实有 之前有个忘关车的 下播了还一直在0群打call
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4958#       发表于 2020-12-10 23:43
+
+
+
+
+究极风怒
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4959#       发表于 2020-12-10 23:43
+
+
+
+ 本帖最后由 Joffre✔ 于 2020-12-10 23:44 编辑 
+
+究极风怒
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4960#       发表于 2020-12-10 23:43
+
+
+
+ 本帖最后由 Joffre✔ 于 2020-12-10 23:44 编辑 
+
+究极风怒
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4961#       发表于 2020-12-10 23:43
+
+
+
+ 本帖最后由 Joffre✔ 于 2020-12-10 23:44 编辑 
+
+究极风怒
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 4962#       发表于 2020-12-10 23:48
+
+
+
+
+你就是S1独轮车？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4963#       发表于 2020-12-10 23:51
+
+
+
+
+暴露了 我的真实身份是泥哥派来的侦查骑士 来试车了 马上泥哥大军就要发动正义十字军了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4964#       发表于 2020-12-10 23:53
+
+
+
+
+这憨憨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4965#       发表于 2020-12-10 23:55
+
+
+
+
+这笑声，把我弄精神了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4966#       发表于 2020-12-11 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4967#       发表于 2020-12-11 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">历历在目
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 4968#       发表于 2020-12-11 00:14
+
+
+
+
+虽然还没结束 不过也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+吃了巨无霸 lotteria（一家快餐店）的汉堡好吃啊 那边的芝士汉堡 下次搬家打算搬到附近有lotteria的房子里去 这种程度的好吃 
+
+搬到lotteria的楼上？那样就能每晚上都去那里吃免费的汉堡了是么 挺不错的 不过每天晚上都吃不太好 mos？（mos burger 同样是一家快餐店）那边的炸洋葱圈很好吃呢 汉堡王？没听说过呢
+
+今天就唱1 2小时左右  虽然也很久了 今天也是打mmo的日子呢
+
+
+明天去打桃铁 不太懂怎么播总之会有一个人开台 自己不开 终于能和人一起打桃铁了啊！人生第一次啊！虽然之前也和观众打过 但是能和别人一起在语音里聊天一边玩 一边说着  啊不要这样啊！一边玩还是第一次啊！ 和电脑又不能和它说这些  而且电脑还会作弊 它弄自己的时候完全没有和它说这些的念头 就感觉挺平常的 
+
+和电脑玩很虚无吧 完全不会啊你们是没有和电脑打过才会说和电脑打很虚无的吧我可是和电脑打过才会这么说的很有意思的哦
+
+
+唱完闪电十一人的歌 好想看完闪电十一人
+
+有人说自己生日了 唱生日歌 唱完生日歌 发现这首歌好像是自己生日的时候给自己唱的 
+
+
+明天两场联动 自己应该播不了了 所以想着好好播下 但是肯定会播到3小时的 会很累的 明天白天还有桃铁联动 不能让大家和电脑玩啊 和电脑对战的乐趣只有我一个人知道就够了 联动的信息去哪里看？不太清楚 明天有舞元 haneru 还有tomari那个女人！播完之后还想着去完mmo 大概玩个4 5 6小时左右 这么好玩吗？mmo就是人生 时间小偷啊 
+
+
+咒术回战看到第二卷了 挺好看的 姑且有在看 动画30分钟太长了 漫画一卷10分钟就看完了 
+
+
+
+
+
+                                  

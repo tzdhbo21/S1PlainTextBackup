@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 12:01** 
+> ## **本文件最后更新于2020-12-11 00:01** 
 
 
 
@@ -664,4 +664,575 @@
 
 
 
-                                                
+
+
+-----
+
+####  soraku  
+##### 10536#       发表于 2020-12-8 12:26
+
+
+
+
+其实绫总内心住着一个姨，只是惺惺相惜罢了
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10537#       发表于 2020-12-8 14:39
+
+
+
+
+百鬼あやめ😈ホロライブ2期生 (@nakiriayame)
+
+三角チョコパイも食べちゃた
+
+
+百鬼あやめ😈ホロライブ2期生 (@nakiriayame)
+
+グラコロ食べちゃた
+
+
+狂吃麦当劳，要进化成狐式坦克了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10538#       发表于 2020-12-8 14:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">已经是肥绫了 在吃就要重坦了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10539#       发表于 2020-12-8 14:57
+
+
+
+
+堂堂绫总有点啤酒肚怎么了
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10540#       发表于 2020-12-8 19:08
+
+
+
+
+9点开播
+
+
+…
+
+
+卍組不仲？
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10541#       发表于 2020-12-8 19:15
+
+
+
+
+就嗯营业是吧 你想玩个锤子
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10542#       发表于 2020-12-8 19:31
+
+
+
+ 本帖最后由 一仙 于 2020-12-8 20:27 编辑 
+
+编辑，看错了
+
+
+syl，怎么还播这个游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+绫总找不到游戏播了可以回收以前放的卫星阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10543#       发表于 2020-12-8 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 这SC飘得 绫总不考虑晒下吉尔照么
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10544#       发表于 2020-12-8 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">爆猫照可能会被特定，毕竟她那些朋友有几个我记得经常晒猫。
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10545#       发表于 2020-12-8 23:18
+
+
+
+ 本帖最后由 soraku 于 2020-12-8 23:19 编辑 
+
+她不就怕这个<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">不然魂号也不至于上锁，说不定还会和隔壁润姨一样天天高P自拍了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10546#       发表于 2020-12-8 23:38
+
+
+
+
+高P自拍那基本就是肥到不能看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10547#       发表于 2020-12-9 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">那个游戏私号上锁挺正常的吧，本来就是私人号打游戏用的就没想过给路人看估计。
+
+你要说她天天放自拍我不太信，她要天天放自拍会有什么回复懂的都懂。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然可能还有个天天放自拍的私号我们不知道<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10548#       发表于 2020-12-9 03:52
+
+
+
+
+我敢说她肯定没想到当管人能做到这么大
+搁以前tc时期她还会给核心舔狗私信祝贺生日 现在的管人粉丝是啥都没了 真可怜<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10549#       发表于 2020-12-9 16:40
+
+
+
+
+绫总的私信<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+直播唱生日歌就不错了
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10550#       发表于 2020-12-9 16:46
+
+
+
+
+P了个图，蹭个热度<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/164550admsece51flage1k.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201209164410.png</strong> (950.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 16:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10551#       发表于 2020-12-9 19:58
+
+
+
+
+你还在哪里发过，被偷NGA去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10552#       发表于 2020-12-9 19:58
+
+
+
+ 本帖最后由 水城雪风_Z 于 2020-12-9 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664892&amp;ptid=1914409" target="_blank">因为你不会 发表于 2020-12-9 19:58</a>
+
+你还在哪里发过，被偷NGA去了</blockquote>
+Q群和这里，没了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10553#       发表于 2020-12-9 20:04
+
+
+
+ 本帖最后由 因为你不会 于 2020-12-9 20:07 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/09/200304ifijz67ahlhfzd7h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>搜狗截图20201209210233.jpg</strong> (336.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-9 20:03 上传
+
+
+
+
+
+
+
+发了两张，看清晰度不像这里偷的，这也你做的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偷的裤子都没了
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10554#       发表于 2020-12-9 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上面那个是我做的，下面不是
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10555#       发表于 2020-12-9 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你p的图传了好几个群了
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10556#       发表于 2020-12-10 13:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">网络时代，是这样的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10557#       发表于 2020-12-10 18:44
+
+
+
+
+晩酌好啊，上次晩酌配信是多久之前的了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10558#       发表于 2020-12-10 19:05
+
+
+
+
+上次说会限是多久了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10559#       发表于 2020-12-10 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会限已经搞过了 你漏了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10560#       发表于 2020-12-10 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49642275&amp;ptid=1914409" target="_blank">nian1538 发表于 2020-12-7 19:55</a>
+被绫总PUA的阿姨：三才 日南 船长 拉米
+
+
+绫总无法PUA的阿姨：狐</blockquote>
+拉米现在是不是阿姨真的已经确定了吗（
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10561#       发表于 2020-12-10 22:33
+
+
+
+
+能吸引动物 绫总你还是玛奇玛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10562#       发表于 2020-12-10 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">大半夜的聊什么吃的
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10563#       发表于 2020-12-10 22:50
+
+
+
+
+聊纳豆提不起食欲，吃不来这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10564#       发表于 2020-12-10 22:57
+
+
+
+
+还拿看live举例 多少沾点萌声余孽<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10565#       发表于 2020-12-10 23:04
+
+
+
+
+您又社恐了呢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10566#       发表于 2020-12-10 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老社恐了  
+
+
+
+
+
+                                               
