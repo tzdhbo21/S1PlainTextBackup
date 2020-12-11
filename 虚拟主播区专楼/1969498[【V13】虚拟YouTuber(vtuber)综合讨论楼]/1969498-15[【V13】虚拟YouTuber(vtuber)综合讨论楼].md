@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 20:06** 
+> ## **本文件最后更新于2020-12-11 22:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_YVv1b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cvZl4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Ikogx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_OWBPW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -15006,10 +15006,12 @@ Available for 1 day.
 
 
 
- 参与人数 9战斗力 +10
+ 参与人数 11战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| MisForTunez| + 1||
+| 烯丝短尾猫| + 1|好评加鹅|
 | 1in1999| + 1|好评加鹅|
 | Viden| + 1|好评加鹅|
 | 黑暗剑| + 1|好评加鹅|
@@ -17212,4 +17214,658 @@ SEGA的手游虽然辣鸡，但背靠SEGA苟上几年不成问题，何况还挂
 
 
 
-                      
+
+
+-----
+
+####  某穆克拉  
+##### 21839#       发表于 2020-12-11 20:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49688790&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-11 20:04</a>
+
+这武士道的箱初配信怎么直播完到现在都没生成录播，不要说就是没留档吧.....那也太终极草台了。
+
+稳定的2-30 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/11/200929gups3063wvv3psvv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201211200913.png</strong> (27.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 20:09 上传
+
+
+
+
+
+
+私享了，为啥不知道。
+
+为啥在官号首播也不知道。
+
+挺申必的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21840#       发表于 2020-12-11 20:12
+
+
+
+
+【New】菅義偉首相が「ニコニコ生放送」に出演。「こんにちは、ガースーです」とあいさつしました。
+
+
+对了，今天有大物新人出道👆
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21841#       发表于 2020-12-11 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">花剪这皮真的没眼看......整体都是圆滚滚的，这么富态的皮能吸引到什么人啊，和旁边的leona一比反差太大了。
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21842#       发表于 2020-12-11 20:22
+
+
+
+ 本帖最后由 黑之和 于 2020-12-11 20:43 编辑 
+
+草
+貌似叶登了自己的b站号现在转播不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+哈↑哈↑  没有兑换码！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21843#       发表于 2020-12-11 20:30
+
+
+
+
+ickr急募了一堆人，要干嘛啦<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21844#       发表于 2020-12-11 20:30
+
+
+
+
+为什么熊猫人能动大福不能动？↓
+
+[https://www.youtube.com/watch?v=-1M3v9TjYic](https://www.youtube.com/watch?v=-1M3v9TjYic)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21845#       发表于 2020-12-11 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49688790&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-11 20:04</a>
+
+这武士道的箱初配信怎么直播完到现在都没生成录播，不要说就是没留档吧.....那也太终极草台了。
+
+稳定的2-30 ...</blockquote>
+[https://news.yahoo.co.jp/article ... 5d8c9c523b9f6562d13](https://news.yahoo.co.jp/articles/c35a56e9505b944e582e85d8c9c523b9f6562d13)
+
+出道上yahoo新闻，别的箱做得到吗
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 21846#       发表于 2020-12-11 20:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/11/203740dnz90p1yaxy9z1rp.png" referrerpolicy="no-referrer">
+
+
+<strong>？？.png</strong> (1012.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 20:37 上传
+
+
+
+
+
+
+后面的画上的vtuber，L2D长这样
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 21847#       发表于 2020-12-11 20:47
+
+
+
+
+叶师同时试听原神直播做笔记同接比2077高，日本人不行
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21848#       发表于 2020-12-11 20:48
+
+
+
+
+话说回来，youtube这个同接bug一直不修的话，会产生两个结果：
+
+
+1.虹19万江山万万年
+
+2.时间长了原委模糊了之后会成为你杏以前买同接的证据
+
+
+结论：还是别修了8
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21849#       发表于 2020-12-11 20:50
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-11 21:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49688995&amp;ptid=1969498" target="_blank">黑之和 发表于 2020-12-11 20:22</a>
+
+草
+
+貌似叶登了自己的b站号现在转播不了了
+
+哈↑哈↑  没有兑换码！</blockquote>
+我到现在还记得他把人家联动者的频道地址贴成bilibili的事情<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+Syl，知道春节日期居然是在叶师原神同期视听中...
+
+Zsyl，他怎么同样的话题一天说了两遍
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">没话说可以把新衣服披露顺手做了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21850#       发表于 2020-12-11 20:52
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-11 20:48
+话说回来，youtube这个同接bug一直不修的话，会产生两个结果：
+
+
+1.虹19万江山万万年
+</blockquote>
+不修也是好事，反正大家都糊也不会有人再讨论数字了
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 21851#       发表于 2020-12-11 20:52
+
+
+
+ 本帖最后由 †バンシー† 于 2020-12-11 20:55 编辑 
+
+貌似是玩梗，编辑了
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21852#       发表于 2020-12-11 20:52
+
+
+
+<img src="https://p.sda1.dev/0/5fd83337ea4c7de6ec9716bc60ea5e0d/H8thsMw.jpg" referrerpolicy="no-referrer">
+↓↓
+<img src="https://p.sda1.dev/0/ecd35df81145dcead63b1ceccb26124a/IMG_CMP_23774834.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21853#       发表于 2020-12-11 21:04
+
+
+
+
+今晚十一点彩虹马车抽选说明会  好耶
+今年得冠军会是谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21854#       发表于 2020-12-11 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49689102&amp;ptid=1969498" target="_blank">proxima 发表于 2020-12-11 20:32</a>
+
+https://news.yahoo.co.jp/articles/c35a56e9505b944e582e85d8c9c523b9f6562d13
+
+出道上yahoo新闻，别的箱 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/11/210442gu6z63k21upcy6qr.png" referrerpolicy="no-referrer">
+
+
+<strong>ksnxs.PNG</strong> (173.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 21:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21855#       发表于 2020-12-11 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49689320&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-11 20:50</a>
+我到现在还记得他把人家联动者的频道地址贴成bilibili的事情
+
+
+Syl，知道春节日期居然是在叶师原神 ...</blockquote>
+已经快进到担心自己被盗号了
+最近那边很多人被盗号吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21856#       发表于 2020-12-11 21:06
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1glk7ymgt9dj20y70krgo1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21857#       发表于 2020-12-11 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49689475&amp;ptid=1969498" target="_blank">黑之和 发表于 2020-12-11 21:06</a>
+
+已经快进到担心自己被盗号了
+
+最近那边很多人被盗号吗</blockquote>
+因为氪金很多、卡面很全在玩梗吧，原神这游戏实际怎么样我完全不清楚的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+「敢盗号立刻请律师天涯海角也要追杀你」什么的...
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21858#       发表于 2020-12-11 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49687513&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-11 18:09</a>
+
+芙宝不在你们就黑屁miko
+
+不过miko这两个月确实挺招风的，而且真要说的话miko也算是EN进出的罪魁祸首 ...</blockquote>
+要说罪魁祸首她的罪就太多了数都数不清 多少holo历史性事件都是她起头的 yagoo把她招进来简直就是最大的错误
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21859#       发表于 2020-12-11 21:14
+
+
+
+
+泡芙哥这话换一个毒唯crew说我也一点都不会觉得奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21860#       发表于 2020-12-11 21:19
+
+
+
+
+夸神不是yagoo招进来的是常规应募进来的注意常识
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 21861#       发表于 2020-12-11 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49689496&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-11 21:08</a>
+因为氪金很多、卡面很全在玩梗吧，原神这游戏实际怎么样我完全不清楚的
+
+
+「敢盗号立刻请律师天涯 ...</blockquote>
+叶「我会马上联系mhy的」
+哈↑哈↑
+
+syl上个厕所还要在评论栏说话
+回来挂着「といれ」吃饭
+又在演家里有女人<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 21862#       发表于 2020-12-11 21:34
+
+
+
+
+最近一直在拯救暗影界
+油管什么bug？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21863#       发表于 2020-12-11 21:40
+
+
+
+ 本帖最后由 admentus 于 2020-12-11 21:44 编辑 
+
+今晚玩粘土太有意思了，吹风机asmr整活，调出屎一样的绿色，还有最后把眼睛嘴巴和身体组合成鬼一样的野兔子，完美展现了兔子灾难般的艺术细胞
+
+<img src="https://img.saraba1st.com/forum/202012/11/214034v2sb2bpbbu9q3bhq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201211_213323.jpg</strong> (97.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 21:40 上传
+
+
+
+
+
+
+[https://twitter.com/magowasabi/status/1337390628661968896](https://twitter.com/magowasabi/status/1337390628661968896)
+
+<img src="https://img.saraba1st.com/forum/202012/11/214415nttsms4jmslmse00.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo9doBbUUAAWZKb.jpg</strong> (39.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 21:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21864#       发表于 2020-12-11 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49689750&amp;ptid=1969498" target="_blank">poipanchao 发表于 2020-12-11 21:34</a>
+
+最近一直在拯救暗影界
+
+油管什么bug？</blockquote>
+大部分人同接都显示低了很多，具体原因不明，油管接到报告后说在修了没下文。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21865#       发表于 2020-12-11 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49689464&amp;ptid=1969498" target="_blank">colodes 发表于 2020-12-11 21:04</a></blockquote>
+オフィシャルストア！中古白雪を送ってくるな😡
+
+
+<img src="https://img.saraba1st.com/forum/202012/11/220300kacq4f884kco09ty.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Cm35WBp.jpg</strong> (925.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 22:03 上传
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000| + 2|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21866#       发表于 2020-12-11 22:04
+
+
+
+
+笑哭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/11/220404u144xmhx11gwnrmm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20308.jpg</strong> (80.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 22:04 上传
+
+
+
+
+
+
+
+
+
+
+                     
