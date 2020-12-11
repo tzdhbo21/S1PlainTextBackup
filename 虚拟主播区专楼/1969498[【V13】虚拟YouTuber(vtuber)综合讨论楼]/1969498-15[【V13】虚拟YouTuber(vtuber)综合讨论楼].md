@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 16:09** 
+> ## **本文件最后更新于2020-12-11 18:06** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_gJ1EQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_dG4c9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_cznR0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_SLIfI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -13076,6 +13076,25 @@ ZEPP东京！
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14822,9 +14841,10 @@ en和jp运营分开的 en早就计划要播了 电脑配置的问题延期了
 
 
 
+ 本帖最后由 空集 于 2020-12-11 16:49 编辑 
 
 jp不能播有什么依据么，昨天看群友说446说播不播只看自己想不想
-
+传错了 446是说不知道能不能播
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
@@ -15702,6 +15722,25 @@ holo的种田代表船长大头去哪了呢
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|发明历史|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15834,4 +15873,815 @@ holo播2077这种欧美题材的不适合找一军
 
 
 
-                        
+
+
+-----
+
+####  IDIDIDID  
+##### 21769#       发表于 2020-12-11 16:10
+
+
+
+
+日厂：看到英语感到很害怕，请不要再直播了，感到很伤心。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21770#       发表于 2020-12-11 16:11
+
+
+
+
+桃铁大家都能从彩虹那边看得到明显的数字翻倍，日本观众都爱看，创造历史
+
+小道消息兔夸没有狗
+
+上次发言九月九
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21771#       发表于 2020-12-11 16:14
+
+
+
+
+我记得你综杏奴看到大家都在播桃铁就你杏不能播还去蹭虹人频道大多在骂cover废物，对“不能播就是数字不行观众不爱看”的话术开炮建议把具体id找出来
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21772#       发表于 2020-12-11 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来木口不是区区日本地区经理能接待的超大物
+https://twitter.com/homma_force/status/1336536197363953665?s=19
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21773#       发表于 2020-12-11 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686020&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-11 16:14</a>
+我记得你综杏奴看到大家都在播桃铁就你杏不能播还去蹭虹人频道大多在骂cover废物，对“不能播就是数字不行 ...</blockquote>
+然后播了发现还不如宇宙人狼又嫌弃了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21774#       发表于 2020-12-11 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49685707&amp;ptid=1969498" target="_blank">holoan 发表于 2020-12-11 15:47</a>
+播了7小时再生数没到10w的就别提了
+
+holo的种田代表船长大头去哪了呢</blockquote>
+你要听船自己的回应就是跳舞课和联动太多solo少暂时还没空种田，当然也可能别的原因不想玩了啥的，但是和数字buff没特别大关系，以前有段时间东方还数字debuff,现在好了点也没说因此不玩，真只是因为数字问题那应该多solomc
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21775#       发表于 2020-12-11 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686033&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-11 16:15</a>
+
+然后播了发现还不如宇宙人狼又嫌弃了</blockquote>
+总比不能播还得眼馋好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21776#       发表于 2020-12-11 16:19
+
+
+
+
+最近几个月指望的乐子就是你虹EN能不能有点追求再抽一套seeds出来了，求求别到时候眼红隔壁人气找一堆老鼠台熟练工。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21777#       发表于 2020-12-11 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那能不能说给过holo工商的都是交流沟通能力强的公司。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21778#       发表于 2020-12-11 16:20
+
+
+
+ 本帖最后由 colodes 于 2020-12-11 16:25 编辑 
+
+为什么会找牛姨首播2077的过程
+
+
+ニュイ・ソシエール
+
+@Nui_Sociere
+
+7月11日
+
+お馬さんと旅できるってこととこのおじさんが強いってことは聞いた。明日14時から！！！
+
+【#01 The Witcher 3: Wild Hunt】知ってるか。強いやつは強い。【にじさんじ/ニュイ・ソシエール】 
+[https://youtu.be/j5_rcHvDmow](https://youtu.be/j5_rcHvDmow)
+
+
+↓
+
+
+本間覚（フォース） @homma_force
+
+たまたま見つけたこちらのウィッチャー3配信を流しながら仕事してるんですけど、自身が魔法使いという設定（？）からウィッチャーの世界観、特に魔法や魔女狩りといった側面について解説しながらプレイされてて、めちゃ面白い。
+
+原作ネタまで含めて事前に勉強されてるのもあっぱれ。
+
+
+↓
+
+2020-07-21 18:39:44
+
+本間覚（フォース） @homma_force
+
+今回ごく一部の方々にPC版 #サイバーパンク2077 を発売前にライブ配信して頂きますが、そのお一人としてウィッチャー３のライブ配信で心を打たれたニュイ・ソシエールさんにお声がけさせて頂きました。
+
+よろしくお願いします！
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 絵生voice| + 1|正想发|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21779#       发表于 2020-12-11 16:20
+
+
+
+
+船长的个人mcbuff说实话并不特别好还不如东方buff
+
+今年一整年除了这两个月之外基本没碰过
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21780#       发表于 2020-12-11 16:23
+
+
+
+
+都怪shion不播巫师
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21781#       发表于 2020-12-11 16:26
+
+
+
+
+为什么holo不播2077 ？
+
+因为大部分人没兴趣
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21782#       发表于 2020-12-11 16:27
+
+
+
+
+船可能是你杏唯一玩mc是debuff的，她不会玩，一玩这种就变成脑死作业了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21783#       发表于 2020-12-11 16:27
+
+
+
+
+种田真的有兴趣吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21784#       发表于 2020-12-11 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">只要会打麻将，谁都可以吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21785#       发表于 2020-12-11 16:37
+
+
+
+
+BSYL：
+
+
+当然要是能抽LGBTQ各一张就更好了。
+
+
+至于最好的呢？
+
+田角抽出五张karen/daren，天天cue隔壁地下室阴暗肥宅粉丝。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 21786#       发表于 2020-12-11 16:52
+
+
+
+
+我自己要玩所以希望holo晚点2077，446就别播了远哭5和看门狗军团你还坑着呢
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21787#       发表于 2020-12-11 16:58
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-11 17:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桃铁首发没播，2077发布也不播，你杏就是不蹭热度的嗯实力公司?
+
+Lgd不学不会不练没有新体系，曾在国内最火也是硬实力
+
+虚拟老干爹hololive<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21788#       发表于 2020-12-11 16:59
+
+
+
+
+botan受得了欧美那种随时随地的粗口和黄段子剧情么 
+
+感觉holo能真受得了的没几个
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21789#       发表于 2020-12-11 17:04
+
+
+
+
+虹桃铁数字高----&gt;跟着播<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+虹2077没数字---&gt;那是啥？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+虹原神数字高---&gt;呜↑↑↑↑↑↑↑↑↑↑呜↓<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21790#       发表于 2020-12-11 17:05
+
+
+
+
+郡道倒是挺适合的，去赛博朋克世界拿刀艹爆一切，但apex真是太好玩啦<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21791#       发表于 2020-12-11 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686623&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-11 16:58</a>
+
+桃铁首发没播，2077发布也不播，你杏就是不蹭热度的嗯实力公司?
+
+
+Lgd不学不会不练没有新体系，曾在 ...</blockquote>
+确实，狐冠超真是100%对上了。
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 21792#       发表于 2020-12-11 17:08
+
+
+
+
+日本人的思路应该是我播你2077是让你蹭我热度，怎么可能是我杏蹭2077热度？
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 21793#       发表于 2020-12-11 17:09
+
+
+
+
+只要播MC搞大家庭团建过家家就能温饱，2077谁爱播谁播去
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21794#       发表于 2020-12-11 17:11
+
+
+
+
+叶师终于要联APEX了，这队名绝对是他起的也太中二了
+
+
+听多了会降智.jpg
+<strong>Dark Inferno Dragon</strong>
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21795#       发表于 2020-12-11 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">实际上第一个说要玩2077的是holoen的ame，不过由于电脑太烂没玩成。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 21796#       发表于 2020-12-11 17:15
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-11 17:05
+郡道倒是挺适合的，去赛博朋克世界拿刀艹爆一切，但apex真是太好玩啦 ...</blockquote>
+跟郡道看朱迪，然后告诉她这是个蕾丝。她说不定就有兴趣了。（首先她肯定要玩弄生殖器）
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21797#       发表于 2020-12-11 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686811&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-11 17:11</a>
+
+实际上第一个说要玩2077的是holoen的ame，不过由于电脑太烂没玩成。</blockquote>
+说实话miko在几个月前的P5游戏发布会同时视听的时候看到2077当时就说要玩了
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 21798#       发表于 2020-12-11 17:22
+
+
+
+<blockquote>holoan 发表于 2020-12-11 16:59
+botan受得了欧美那种随时随地的粗口和黄段子剧情么 
+
+感觉holo能真受得了的没几个 ...</blockquote>
+要不是在holo没几个受不了
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21799#       发表于 2020-12-11 17:24
+
+
+
+ 本帖最后由 holoan 于 2020-12-11 17:28 编辑 
+
+没在holo连玩都没兴趣估计
+
+还不如チ凸来得实在
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 21800#       发表于 2020-12-11 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686959&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2020-12-11 17:22</a>
+要不是在holo没几个受不了</blockquote>
+要不是在holo也没这么多人心心念念要她们播啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21801#       发表于 2020-12-11 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686990&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-11 17:24</a>
+
+要不是在holo也没这么多人心心念念要她们播啊
+
+
+—— 来自 samsung SM-G9700, Android 10上的 S1Ne ...</blockquote>
+这么多人 （x）
+
+芙宝       （√）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21802#       发表于 2020-12-11 17:30
+
+
+
+
+昨天gta播的时候后半段频繁游戏崩溃显示桌面 桌面上放着一个2077快捷图标 外人看见了狂刷2077评论
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21803#       发表于 2020-12-11 17:32
+
+
+
+
+miko蹭热度
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21804#       发表于 2020-12-11 17:34
+
+
+
+
+老蹭热度了
+
+2年前刚出道开始第一周就打GTA蹭海外热度
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21805#       发表于 2020-12-11 17:38
+
+
+
+
+毕竟是能两次误启动gal的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 21806#       发表于 2020-12-11 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49687150&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-11 17:38</a>
+
+毕竟是能两次误启动gal的女人</blockquote>
+基德基德
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21807#       发表于 2020-12-11 17:51
+
+
+
+ 本帖最后由 holoan 于 2020-12-11 17:55 编辑 
+
+3次
+
+然后接到了几次黄油工商和黄油游戏曲翻唱案件
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21808#       发表于 2020-12-11 17:57
+
+
+
+
+某种浓度超标的画面
+
+<img src="https://img.saraba1st.com/forum/202012/11/175651phjmoo7266v276o6.png" referrerpolicy="no-referrer">
+
+
+<strong>【視聴者参加型】10位以下で○○縛り！？マリオカート #くまいさん【相羽ういは・健屋.png</strong> (576.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 17:56 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=jMhB712mClY](https://www.youtube.com/watch?v=jMhB712mClY)
+
+
+（话说好菜啊你俩
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21809#       发表于 2020-12-11 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49686869&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-11 17:15</a>
+跟郡道看朱迪，然后告诉她这是个蕾丝。她说不定就有兴趣了。（首先她肯定要玩弄生殖器） ...</blockquote>
+可惜斯托特不是女同<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，感觉是她喜欢的坏女人.....
+快玩<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                       
