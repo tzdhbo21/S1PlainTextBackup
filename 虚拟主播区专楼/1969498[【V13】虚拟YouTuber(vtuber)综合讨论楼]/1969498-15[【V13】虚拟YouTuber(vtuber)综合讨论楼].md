@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 12:10** 
+> ## **本文件最后更新于2020-12-11 16:09** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_XYbKk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_PN4N9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_gJ1EQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_dG4c9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -14978,6 +14978,860 @@ Available for 1 day.
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                         
+
+
+
+ 参与人数 9战斗力 +10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 1in1999| + 1|好评加鹅|
+| Viden| + 1|好评加鹅|
+| 黑暗剑| + 1|好评加鹅|
+| 鳳凰院クレア| + 1||
+| yla| + 1||
+| SuntoryNomu| + 1||
+| -rm7-| + 1|好评加鹅|
+| watchcat| + 1|好评加鹅|
+| NBXX| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  夜玄言  
+##### 21732#       发表于 2020-12-11 12:13
+
+
+
+
+jp分部的观众，不是只要有过家家看就满意了吗，新游戏，一是v本人水平不行，二是肯定会筛选掉一大批不喜欢的观众。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21733#       发表于 2020-12-11 12:16
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-11 13:11 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/11/121635p0jbb0kq9vn5z5q0.png" referrerpolicy="no-referrer">
+
+
+<strong>ark2まじか.png</strong> (48.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 12:16 上传
+
+
+
+
+
+
+
+Syl，
+
+天開司バーチャル債務者Youtuber@tenkaitukasa
+
+
+もう一味はこちら・・・・！
+
+12/20 20時から、Vtuberマイルカップ・・・・！
+
+Swich版ダービースタリオンにて、初期繁殖牝馬から最初に生まれた馬を育成しレース・・・・！
+
+着順により有馬記念軍資金最低額を決定・・・・！
+
+最下位は・・・・最低10万円・・・・！
+
+詳細は明日オレの配信にて・・・・！
+
+<img src="https://img.saraba1st.com/forum/202012/11/130400dbb2x2x0juxxsdqd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Vtuberマイルカップ.jpg</strong> (178.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 13:04 上传
+
+
+
+
+
+
+又是这个游戏
+
+
+
+Zsyl，ヴァルキリーコネクト公式アカウント@ヴァルコネ@Vconnect_jp
+
+
+＼彩虹にじさんじコラボ第2弾開催決定／
+
+
+大好評だった「#にじさんじ」とのコラボの
+
+第2弾が開催決定
+
+
+ライバー「#戌亥とこ」と「#アンジュ・カトリーナ」が
+
+限定衣装でゲームに登場
+
+イベントを進めると無料でGETできます！
+
+
+衣装など詳細は12/17(木)公開！
+
+ぜひお楽しみに！
+
+
+#ヴァルコネ
+
+<img src="https://img.saraba1st.com/forum/202012/11/130900wldpdzf2fy2d24df.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ヴァルキリーコネクト公式アカウント@ヴァルコネ @Vconnect_jp.jpg</strong> (191.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 13:09 上传
+
+
+
+
+
+
+又是这个游戏
+
+又可以白嫖衣服啦
+
+<img src="https://img.saraba1st.com/forum/202012/11/131132msss9jix8w979wl3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#ヴァルコネコラボおまたせ待った.jpg</strong> (689.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 13:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21734#       发表于 2020-12-11 12:24
+
+
+
+
+木口的女人不会播没有数字的游戏，除了狐坦
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 21735#       发表于 2020-12-11 12:28
+
+
+
+
+サイバーパンク「個人でも法人でもやっていいよ」
+
+
+カバー「許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください許可ください」
+
+
+サイバーパンク「ヒェッ…なんやこいつ…」
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 21736#       发表于 2020-12-11 12:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/11/122817tsppuusp3utkz500.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201211122036.png</strong> (287.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 12:28 上传
+
+
+
+
+
+
+n站转播bml还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21737#       发表于 2020-12-11 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49683325&amp;ptid=1969498" target="_blank">Aminor 发表于 2020-12-11 12:28</a>
+
+n站转播bml还行</blockquote>
+b站免费，niconico开会员。
+
+意思b站会屏蔽大陆以外ip吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21738#       发表于 2020-12-11 12:56
+
+
+
+
+芙宝我想死你啦（不是
+
+2077叶师播数字也一般，内容也有一定危险性，先看看也合理。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21739#       发表于 2020-12-11 13:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202012/11/130655j6zfmvspccaaupum.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo7MQgyUcAE2LU_.jpg</strong> (377.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 13:06 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21740#       发表于 2020-12-11 13:07
+
+
+
+ 本帖最后由 NBXX 于 2020-12-11 15:50 编辑 
+
+完了记错时间已经结束了
+[https://www.youtube.com/watch?v=-OZEHi8_Xdw&amp;feature=youtu.be](https://www.youtube.com/watch?v=-OZEHi8_Xdw&amp;feature=youtu.be)
+
+いろどり芸能郵便社<img src="https://i.loli.net/2020/12/11/fpkqhnDU8CWJROQ.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21741#       发表于 2020-12-11 13:12
+
+
+
+<img src="https://p.sda1.dev/0/c89998f15479d0a7451c9c3caaf897c1/IMG_CMP_57957475.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21742#       发表于 2020-12-11 13:13
+
+
+
+
+武士道这箱debut是今天晚上开始jst789连续  
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21743#       发表于 2020-12-11 13:15
+
+
+
+ 本帖最后由 holoan 于 2020-12-11 13:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49683267&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2020-12-11 12:24</a>
+
+木口的女人不会播没有数字的游戏，除了狐坦</blockquote>
+五期生最近一直在播的ark有数字？
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 21744#       发表于 2020-12-11 13:17
+
+
+
+ 本帖最后由 fghc_h 于 2020-12-11 13:19 编辑 
+
+2077直播效果真滴一般
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21745#       发表于 2020-12-11 13:22
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-11 13:23 编辑 
+
+工商
+
+<img src="https://img.saraba1st.com/forum/202012/11/132147xnzfqqhtlf9a88oa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo7rImRVEAEhXTx.jpg</strong> (172.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 13:21 上传
+
+
+
+
+
+
+
+
+
+生日谷图
+
+<img src="https://img.saraba1st.com/forum/202012/11/132324fjf0zzdpe2hov5fp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo6ef2pXcAEXdn1.jpg</strong> (240.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 13:23 上传
+
+
+
+
+
+[https://twitter.com/rosuuri/status/1337195392933490688](https://twitter.com/rosuuri/status/1337195392933490688)
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21746#       发表于 2020-12-11 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49683839&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-11 13:12</a></blockquote>
+公式
+https://twitter.com/irodori_ent
+
+御園結唯
+https://twitter.com/misono_1616
+服巻有香
+https://twitter.com/fukumaki_1616
+冬守しずく
+https://twitter.com/fuyumori_1616
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 21747#       发表于 2020-12-11 14:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2077比gta内个了不止一个等级，怕不是影响牙垢的偶像梦了吧
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 21748#       发表于 2020-12-11 15:03
+
+
+
+
+所以说运营不让播的依据有吗
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21749#       发表于 2020-12-11 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49684921&amp;ptid=1969498" target="_blank">Tienx 发表于 2020-12-11 14:45</a>
+
+2077比gta内个了不止一个等级，怕不是影响牙垢的偶像梦了吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/11/151730tf7u23r758zb7372.png" referrerpolicy="no-referrer">
+
+
+<strong>gta2.PNG</strong> (57.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 15:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 21750#       发表于 2020-12-11 15:22
+
+
+
+
+这不是泡芙是谁
+
+syl，你楼还没看出了2077这游戏是典型的德不配位么，玩它不如玩看门狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21751#       发表于 2020-12-11 15:24
+
+
+
+
+你杏还是别2077了，到时候数字不好又和阿夸的老滚5兔子的异度2一样太监了，白白给人送黑料<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21752#       发表于 2020-12-11 15:30
+
+
+
+ 本帖最后由 holoan 于 2020-12-11 15:31 编辑 
+
+太监黑料还差这点么
+
+看holo这周还有谁在种田
+
+
+另外peko的异度2没开坑不算太监
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 21753#       发表于 2020-12-11 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49685426&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-11 15:24</a>
+你杏还是别2077了，到时候数字不好又和阿夸的老滚5兔子的异度2一样太监了，白白给人送黑料 ...</blockquote>
+兔子的异度2还行
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21754#       发表于 2020-12-11 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49685485&amp;ptid=1969498" target="_blank">holoan 发表于 2020-12-11 15:30</a>
+
+太监黑料还差这点么
+
+看holo这周还有谁在种田</blockquote>
+en的ina
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21755#       发表于 2020-12-11 15:36
+
+
+
+
+话说观察了一周，这ID二期简直就是小EN啊。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21756#       发表于 2020-12-11 15:37
+
+
+
+
+巨乳萝莉的精日已经写脸上了 小en火鸡
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21757#       发表于 2020-12-11 15:43
+
+
+
+
+阿火8号还在种田啊，holoan不行。
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21758#       发表于 2020-12-11 15:47
+
+
+
+ 本帖最后由 holoan 于 2020-12-11 15:48 编辑 
+
+播了7小时再生数没到10w的就别提了
+
+holo的种田代表船长大头去哪了呢
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 21759#       发表于 2020-12-11 15:49
+
+
+
+
+大头通关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FlinN  
+##### 21760#       发表于 2020-12-11 15:50
+
+
+
+
+同一套话术依稀在桃铁许可之前见过，不能播就是数字不行观众不爱看。
+
+
+小道消息当初波兰蠢驴问人推荐管人拉2077的工商然后有人推荐了夸兔子波兰蠢驴去找holo了联络了一圈 最后结果是说holo压根无法沟通
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21761#       发表于 2020-12-11 15:52
+
+
+
+
+通关了算什么继续种田啊看看狐少好吧
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21762#       发表于 2020-12-11 15:53
+
+
+
+
+找错人了吧
+
+holo播2077这种欧美题材的不适合找一军
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21763#       发表于 2020-12-11 16:00
+
+
+
+
+又是哪来的小道消息，不会是nga来的吧。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21764#       发表于 2020-12-11 16:02
+
+
+
+
+啊我又火星了，原来B站原holo组至少有一半转到小号继续烤肉，这脑控力有点AKB的意思了，牛逼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21765#       发表于 2020-12-11 16:04
+
+
+
+
+发无法确认的消息时起码消息来源给一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21766#       发表于 2020-12-11 16:05
+
+
+
+
+我夸怎么可能被推荐这种活，别搞笑了
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21767#       发表于 2020-12-11 16:08
+
+
+
+
+以夸神以前播过的游戏来说不是不可能
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 21768#       发表于 2020-12-11 16:09
+
+
+
+
+两周过去了，ATLUS给calliope直播许可没
+
+
+
+
+
+                        
