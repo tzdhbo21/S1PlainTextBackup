@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 02:07** 
+> ## **本文件最后更新于2020-12-11 12:10** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_lmp0H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_sGVB3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_XYbKk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_PN4N9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -14369,4 +14369,615 @@ PHO[KWHX(DNNK{CX%QHI2E5.png
 
 
 
-                          
+
+
+-----
+
+####  S_koname  
+##### 21700#       发表于 2020-12-11 07:47
+
+
+
+
+昨天试了下手柄，基础操作都试了一遍就又切成键鼠了，有点不适应<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 21701#       发表于 2020-12-11 08:05
+
+
+
+
+感觉露露现在心思已经不在游戏上了，播1小时半老游戏，会限4小时吉他...
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 21702#       发表于 2020-12-11 08:35
+
+
+
+ 本帖最后由 opersuper 于 2020-12-11 08:36 编辑 
+
+只为了不被杏姨剧透特地去买了2077晚上开玩，本来准备战锤玩个痛快的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21703#       发表于 2020-12-11 08:51
+
+
+
+<blockquote>心垂万刃 发表于 2020-12-11 00:21
+火鸡频道恢复后今天订阅增了快两万了</blockquote>
+恢复频道后玩了个重生的新人出道复活艺，还玩了个失忆梗。整得一个好活。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21704#       发表于 2020-12-11 09:11
+
+
+
+
+我昨天宁愿打开ark也没去玩2077，你们怎么还能指望玩日本游戏长大的喜欢看2077直播
+
+
+
+
+
+
+
+-----
+
+####  Moseszi  
+##### 21705#       发表于 2020-12-11 09:12
+
+
+
+
+美式RPG在日本就没有行的吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21706#       发表于 2020-12-11 09:16
+
+
+
+
+ARK有新活儿了，你们的蝗要回来了
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 21707#       发表于 2020-12-11 09:18
+
+
+
+
+能看到新的tskknmsl吗 好期待
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21708#       发表于 2020-12-11 09:31
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-11 09:45 编辑 
+
+微管人相关
+
+横空出世啊，TGA最佳多人：宇宙狼人
+
+
+@AmongUsGame
+
+ wins for Best Multiplayer Game at #TheGameAwards!!! Congratulations!!
+
+
+Syl，<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/11/094549ak33ry5rrmk0r2n2.png" referrerpolicy="no-referrer">
+
+
+<strong>ARK II.png</strong> (651.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 09:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 21709#       发表于 2020-12-11 09:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49678079&amp;ptid=1969498" target="_blank">thisisaspider 发表于 2020-12-10 23:51</a>
+日本人喜好看日本IGN不就知道了大众心理</blockquote>
+虽然，但是日本IGN给了10分啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21710#       发表于 2020-12-11 09:55
+
+
+
+[https://twitter.com/watsonameliaEN/status/1336775851300376576](https://twitter.com/watsonameliaEN/status/1336775851300376576) <blockquote>Watson Amelia右向き虫眼鏡holoEN
+
+@watsonameliaEN
+
+unfortunately due to PC issues, I won't be able to play Cyberpunk 2077 this week :( 
+
+BUT we still have Karaoke in a bit and later I will play LA Noire or start new game!</blockquote>
+才看到花生说因为电脑原因这周不播2077了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21711#       发表于 2020-12-11 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49680767&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-11 09:55</a>
+
+https://twitter.com/watsonameliaEN/status/1336775851300376576
+
+
+才看到花生说因为电脑原因这周不播2077 ...</blockquote>
+en的电脑配置普遍不如jp来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 21712#       发表于 2020-12-11 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49680852&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-11 10:01</a>
+en的电脑配置普遍不如jp来着</blockquote>
+看这配置问题，可能要搞一张3090才能hold住了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21713#       发表于 2020-12-11 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49681587&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-11 10:45</a>
+
+看这配置问题，可能要搞一张3090才能hold住了吧</blockquote>
+单PC需要同时承受obs live2d和游戏高画质的话基本30系列
+
+或者2PC,把运算负担分出去
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21714#       发表于 2020-12-11 11:25
+
+
+
+
+＼VTuber Fes Japan 2021開催概要／
+
+
+大きくて青いダイヤモンド日時
+
+2021年1月30日(土)18:00- 
+
+31日(日)17:00- の2DAYS
+
+大きくて青いダイヤモンド会場
+
+川口総合文化センター リリア メインホール
+
+
+※リアル＆ネット同時開催
+
+※チケットの販売は12月18日(金)予定
+
+#VTuberFes
+
+
+▼公式サイトはコチラ
+[https://vtuberfesjapan.jp/](https://vtuberfesjapan.jp/)
+<[img src="https://i.loli.net/2020/12/11/wUdPqjIa2eZJWK6.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/11/t1kI3RW5iBG4z86.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/11/XoDSFxk7TUJ35nA.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21715#       发表于 2020-12-11 11:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动的人选都挺老的，充分体现年功序列。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21716#       发表于 2020-12-11 11:34
+
+
+
+
+这人选一眼看谁看得出是2021啊.......虹杏两边都挺选的没意思的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21717#       发表于 2020-12-11 11:35
+
+
+
+
+现在看holo基本跟2077无缘了
+
+有人早就捏完人要开播了结果运营拦了下来，游戏公司方面直播许可没有问题 但是holo内部不给放行
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 21718#       发表于 2020-12-11 11:37
+
+
+
+
+那en的华生也不能播了？还是分开运营的
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 21719#       发表于 2020-12-11 11:38
+
+
+
+
+2077本土观众whocare啊，无所谓的
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21720#       发表于 2020-12-11 11:41
+
+
+
+
+en和jp运营分开的 en早就计划要播了 电脑配置的问题延期了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 21721#       发表于 2020-12-11 11:42
+
+
+
+ 本帖最后由 yla 于 2020-12-11 11:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">holo jp分部这运营什么路数看不懂啊
+
+之前桃铁不第一时间组织，一副要大力进出en的架势，现在最新最in的2077也不第一时间组织，这是又要退回jp了吗...
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21722#       发表于 2020-12-11 11:43
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-11 11:45 编辑 
+
+2077播了11区又不爱看，设置那么多那么复杂万一没搞好露出点黄暴内容频道被ban了收益化飞了我马内甲岂不又要背锅？多做多错吃力不讨好砍了砍了反正大家有MC看就满足了，再不济昨天sega不是刚送了迷你街机吗几十个游戏够大家播啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21723#       发表于 2020-12-11 11:43
+
+
+
+
+jp不能播有什么依据么，昨天看群友说446说播不播只看自己想不想
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21724#       发表于 2020-12-11 11:43
+
+
+
+ 本帖最后由 holoan 于 2020-12-11 11:45 编辑 
+
+本土观众无所谓vtb有所谓了
+
+没感觉最近基本游戏荒了么 没新的游戏许可也没有新游戏的许可天天翻来覆去就MC桃铁
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21725#       发表于 2020-12-11 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49682737&amp;ptid=1969498" target="_blank">holoan 发表于 2020-12-11 11:43</a>
+本土观众无所谓vtb有所谓了
+
+没感觉最近基本游戏荒了么 没新的游戏许可也没有新游戏的许可天天翻来覆去就MC ...</blockquote>
+这说的 前者sega 后者桃铁，很多人还是播mc和有没有许可也无关
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21726#       发表于 2020-12-11 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49682736&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-11 11:43</a>
+
+jp不能播有什么依据么，昨天看群友说446说播不播只看自己想不想
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的  ...</blockquote>
+看miko的推特和昨天的GTA直播 标题都露骨得直接把GTA当2077玩了 不是直接表达对没有直播许可的不满么
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 21727#       发表于 2020-12-11 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49682733&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-11 11:43</a>
+
+2077播了11区又不爱看，设置那么多那么复杂万一没搞好露出点黄暴内容频道被ban了收益化飞了我马内甲岂不又 ...</blockquote>
+sega送所有人了吗
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 21728#       发表于 2020-12-11 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49679487&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-11 08:05</a>
+
+感觉露露现在心思已经不在游戏上了，播1小时半老游戏，会限4小时吉他...</blockquote>
+露露的眼睛状况我还希望她不要打游戏太长时间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21729#       发表于 2020-12-11 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holoan是泡芙好吃吗？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21730#       发表于 2020-12-11 11:50
+
+
+
+
+这口气绝对是芙宝吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 21731#       发表于 2020-12-11 12:09
+
+
+
+
+Inui Toko 1st Solo Live "who i am"
+
+Available for 1 day.
+
+链接：[https://pan.baidu.com/s/1us6AfW41KaJ4RhOBIQTMOA](https://pan.baidu.com/s/1us6AfW41KaJ4RhOBIQTMOA)  提取码：2434 
+
+
+
+
+
+                         
