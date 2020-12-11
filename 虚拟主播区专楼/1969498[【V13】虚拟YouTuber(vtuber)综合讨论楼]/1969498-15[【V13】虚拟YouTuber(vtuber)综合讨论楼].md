@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 18:06** 
+> ## **本文件最后更新于2020-12-11 20:06** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_cznR0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_SLIfI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_YVv1b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cvZl4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -16684,4 +16684,532 @@ miko蹭热度
 
 
 
-                       
+
+
+-----
+
+####  目力干员leison  
+##### 21810#       发表于 2020-12-11 18:09
+
+
+
+
+芙宝不在你们就黑屁miko<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+不过miko这两个月确实挺招风的，而且真要说的话miko也算是EN进出的罪魁祸首之一了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21811#       发表于 2020-12-11 18:12
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1glk2xk76gej20gk0j9dhv.jpg" referrerpolicy="no-referrer">
+
+
+魔界娘家再度复活<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 21812#       发表于 2020-12-11 18:13
+
+
+
+
+好歹等有LIVER受到EN进出的实际损失再来谈分锅吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21813#       发表于 2020-12-11 18:17
+
+
+
+
+叶师把新衣装不小心放出来了，绝对是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+原来真的有新衣装啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21814#       发表于 2020-12-11 18:17
+
+
+
+
+武士道这个怕是吹半天要变成虚拟slee了  出道同接在300左右挣扎可谓毫无流量  主播比较素人感是紧张 声音和皮还行
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 21815#       发表于 2020-12-11 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49687567&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-11 18:13:30</a>
+好歹等有LIVER受到EN进出的实际损失再来谈分锅吧</blockquote>liver没损失，一些观众有损失，比如你综某个铁血野兔子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pansherry| + 1|不也挺好吗.jpg|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21816#       发表于 2020-12-11 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49687513&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-11 18:09</a>
+芙宝不在你们就黑屁miko
+不过miko这两个月确实挺招风的，而且真要说的话miko也算是EN进出的罪魁祸首 ...</blockquote>
+holoan不是芙宝？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21817#       发表于 2020-12-11 18:21
+
+
+
+
+怎么会便乘slee，到时候花钱/义务让holo往死里奶就是了。论《强推之耻》《德不配位》不许摸可比你杏熟练多了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21818#       发表于 2020-12-11 18:29
+
+
+
+
+罪魁祸首    x
+
+历史功臣    √
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21819#       发表于 2020-12-11 18:31
+
+
+
+
+历史在35的那句“尼哥”处拐了个弯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 21820#       发表于 2020-12-11 18:33
+
+
+
+ 本帖最后由 十四洲 于 2020-12-11 18:37 编辑 
+<blockquote>alcoholic1000 发表于 2020-12-11 18:17
+叶师把新衣装不小心放出来了，绝对是故意的
+
+原来真的有新衣装啊</blockquote>
+呜呜呜错过了不过今晚没有apex来着？
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21821#       发表于 2020-12-11 18:34
+
+
+
+<img src="https://p.sda1.dev/0/dbad5ee83c836ff2787de83ceb8fe4e7/IMG_CMP_46510740.png" referrerpolicy="no-referrer">
+长期饭票了，但是这游戏不太看好，到现在都没公布船狐配音的角色。总不能把这当大招吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 21822#       发表于 2020-12-11 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">昨天好像玩2077错过月灵姐姐直播了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21823#       发表于 2020-12-11 18:35
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-11 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49687826&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-11 18:33</a>
+
+呜呜呜错过了</blockquote>
+别抱太大期望（...
+
+除非U助给的拆分很多，等了一年等来第二件起球毛衣
+
+
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 21824#       发表于 2020-12-11 18:46
+
+
+
+
+看了上面这个立绘确认红白登场的真是狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21825#       发表于 2020-12-11 18:47
+
+
+
+
+郡道终于G1喽，下赛季努力一下说不定上白金
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21826#       发表于 2020-12-11 18:50
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-11 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49687845&amp;ptid=1969498" target="_blank">Ronso 发表于 2020-12-11 18:35</a>
+昨天好像玩2077错过月灵姐姐直播了</blockquote>
+NGA有录播了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+syl，看了NGA，不是自己捏皮！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+找了认识的人！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+0人有救啦！！！0人有救啦！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21827#       发表于 2020-12-11 18:51
+
+
+
+
+SEGA的手游虽然辣鸡，但背靠SEGA苟上几年不成问题，何况还挂着樱花大战IP的招牌，大胆预测4年稳定工商（如果V圈活到4年后的话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 21828#       发表于 2020-12-11 18:51
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-11 18:47
+郡道终于G1喽，下赛季努力一下说不定上白金</blockquote>
+梦做大点 cr杯
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 21829#       发表于 2020-12-11 18:57
+
+
+
+
+不基德，其实我很想看她的画伯水平能捏出什么皮来
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21830#       发表于 2020-12-11 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49688104&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-11 18:57</a>
+不基德，其实我很想看她的画伯水平能捏出什么皮来</blockquote>
+昨天有自画像，突出一个抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+合理估计，火柴人水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21831#       发表于 2020-12-11 18:59
+
+
+
+<blockquote>ファルまろ
+
+@fal_maro
+
+御園結唯さん初配信お疲れ様でした！ハッシュタグも決まってめでたいクラッカー絵の具パレット #御園絵巻</blockquote>
+いろどり芸能郵便社 御園結唯
+<img src="https://static01.imgkr.com/temp/52917a54970a4c97bc22f4b240df992c.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21832#       发表于 2020-12-11 18:59
+
+
+
+
+灵儿她现在这个皮也是有人设的，我记得也是别人做的人设
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21833#       发表于 2020-12-11 19:32
+
+
+
+
+晚上直播玩粘土还行
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21834#       发表于 2020-12-11 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49688047&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-11 18:51</a>
+梦做大点 cr杯</blockquote>
+那郡道德不配位里再加一条<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，乖乖上班吧
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21835#       发表于 2020-12-11 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">0人还行，不知道你综还有没有老0人了
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 21836#       发表于 2020-12-11 19:36
+
+
+
+
+老0人请多刷几遍随机版图寻找惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21837#       发表于 2020-12-11 19:58
+
+
+
+
+10点ID孔雀歌回，可以看看成色了：
+
+[https://www.youtube.com/watch?v=dgE4zEsBxBM](https://www.youtube.com/watch?v=dgE4zEsBxBM)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21838#       发表于 2020-12-11 20:04
+
+
+
+
+这武士道的箱初配信怎么直播完到现在都没生成录播，不要说就是没留档吧.....那也太终极草台了。
+稳定的2-300同接，烧钱玩的企划
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                      

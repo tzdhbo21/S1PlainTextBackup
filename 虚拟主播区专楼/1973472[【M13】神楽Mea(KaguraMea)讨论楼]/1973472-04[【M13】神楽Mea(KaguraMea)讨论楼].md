@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 00:14** 
+> ## **本文件最后更新于2020-12-11 20:11** 
 
 
 
@@ -8254,6 +8254,306 @@ syl，不知道阿咩要恰多久麦当劳（
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                                  
+
+
+
+ 参与人数 6战斗力 +8
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 1||
+| 路人庚| + 1|好评加鹅|
+| 鷹書たかしょ| + 2|好评加鹅|
+| turezyy| + 2|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
+| Mikumiku831| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4969#       发表于 2020-12-11 00:24
+
+
+
+
+rain  终于唱的有点样子了   foo foo  是真的想不到
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4970#       发表于 2020-12-11 00:45
+
+
+
+
+明天不开视角,我急了我急了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 4971#       发表于 2020-12-11 11:28
+
+
+
+
+开荒零式草
+#神乐mea偷偷参与E12S首杀竞争#
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4972#       发表于 2020-12-11 13:03
+
+
+
+
+开台了，完全没空看，只能先靠着大伙云一下了（
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4973#       发表于 2020-12-11 17:09
+
+
+
+
+这人说的mmo其实就是高铁吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4974#       发表于 2020-12-11 17:20
+
+
+
+
+几年经营一朝破产，而且下回已经预定好了肯定继续破产。太惨了。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4975#       发表于 2020-12-11 17:28
+
+
+
+
+影射现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4976#       发表于 2020-12-11 17:32
+
+
+
+
+盗圣 神乐咩
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4977#       发表于 2020-12-11 17:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">wdnmd又是刚下班就结束，草
+
+
+
+
+
+
+
+-----
+
+####  dark_lemon  
+##### 4978#       发表于 2020-12-11 18:14
+
+
+
+
+这游戏的经历 不就是跟咩的经历一模一样么 开始贫穷 然后爬上第一 到最后倒数第一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4979#       发表于 2020-12-11 18:25
+
+
+
+<blockquote>驴子方舟 发表于 2020-12-10 23:37
+我有点怀疑B站有人用独轮车打CALL</blockquote>
+我看打call,怀疑之前就有了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4980#       发表于 2020-12-11 19:22
+
+
+
+
+世上哪有能火两年之套皮人，只要铁单推，就没有名次之说
+
+                    
+
+话说哪里倒数第一了？不是照样吊打一群cylx？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 4981#       发表于 2020-12-11 19:24
+
+
+
+
+醒醒，这女人还没到二十，挣的钱恐怕已经是在座的各位30岁都不一定能攒够的数目了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4982#       发表于 2020-12-11 19:25
+
+
+
+
+momo老师出了极光的挂画贩卖,有兴趣的可以去看看)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4983#       发表于 2020-12-11 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">已经两年了，我什么时候能透到小麻
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 4984#       发表于 2020-12-11 20:05
+
+
+
+
+快了，快了，等狗舔完了面，鸡吃完了米就可以排队了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 4985#       发表于 2020-12-11 20:09
+
+
+
+
+想被小麻透<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
