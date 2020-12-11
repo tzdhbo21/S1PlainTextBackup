@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 00:04** 
+> ## **本文件最后更新于2020-12-12 02:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_HZ71b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cBl3p" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_uYvFI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_gxyWN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -18307,19 +18307,38 @@ Vtuber言葉会来b限学中文吗<img src="https://static.saraba1st.com/image/s
 
 
 
- 本帖最后由 过不了审 于 2020-12-12 00:03 编辑 
+ 本帖最后由 过不了审 于 2020-12-12 00:38 编辑 
 
 似乎孔雀引流了一些初见，还挺有意义的
 开幕Aloha(?)之后来了句法语“晚好，我爱你，我的爱人“，还挺浪漫嗷。
 品尝peko梅酒后说有peko的味道（！）
 第一首是黄油飞，杰克和焰很棒啊啊啊啊，然后半路就开始笑场<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-今天这状态挺好嘛，也不鬼叫，拉着手笑嘻嘻不认真唱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">亚拉那一卡还是那么热闹
+今天这状态挺好嘛，也不鬼叫，拉着手笑嘻嘻不认真唱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">巴拉拉一卡卡还是那么热闹
 石榴石 船长节拍器 两人入戏好深 emoi
 翻，随便翻，过山车一般的鬼叫来了
 得到了珍贵的片段，谢谢你船长<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 这两首配合好默契（突然），船火天下第一！
 油管我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -18365,12 +18384,11 @@ DD开膛，DD斩首
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-12 00:03 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-12 01:12 编辑 
 
 太困了，有可能听错：
 <strong>赛制</strong><strong>
-</strong>
-<strong>预选——12.19
+</strong><strong>预选——12.19
 </strong>马车杯参与<strong>77</strong>人，其中7人直接晋，剩下分为A～G，共7*10，每组前5晋级
 
 <strong>本战——12.26
@@ -18384,10 +18402,53 @@ DD开膛，DD斩首
 
 现在在逐个介绍参赛选手，太认真了
 
-
 这也太久...
 
 刀也太牛了，真的虹人，每个人都能说好几句，每个人都看过
+
+三世活了！
+
+<strong>参赛者
+</strong>
+
+<img src="https://img.saraba1st.com/forum/202012/12/003043cax76i1m6abc1dbb.png" referrerpolicy="no-referrer">
+
+
+<strong>【第３回マリカにじさんじ杯】説明＆抽選会.png</strong> (711.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 00:30 上传
+
+
+
+
+
+
+看抽选前的我：怎么才77人
+
+看89分钟后的我：怎么有77人
+
+<strong>抽选结果
+</strong>
+
+<img src="https://img.saraba1st.com/forum/202012/12/011105ma2pa61djtsj6pzp.png" referrerpolicy="no-referrer">
+
+
+<strong>【第３回マリカにじさんじ杯】説明＆抽選会-3.png</strong> (726.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 01:11 上传
+
+
+
+
+
+
+
+
+
 
 
 
@@ -18411,4 +18472,326 @@ DD开膛，DD斩首
 
 
 
-                    
+
+
+-----
+
+####  空集  
+##### 21891#       发表于 2020-12-12 00:08
+
+
+
+ 本帖最后由 空集 于 2020-12-12 00:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  其实还是看选曲  现在在合唱的这首通灵王  就很合适。 （虽然唱了一半还是不正经了ww）
+
+syl  顺便阿火家已经在阿火上厕所的时候给海盗钦定为避暑地www  
+
+之前 唱黄油飞短暂牛郎化然后说黑铁今天不在啊 然后出bug了船长的模型没了 调侃是noel的压的效果
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21892#       发表于 2020-12-12 00:12
+
+
+
+
+我记得前几天阿火说周五线下的时候好像说的是在船长家来着？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21893#       发表于 2020-12-12 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49691234&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-12 00:12</a>
+
+我记得前几天阿火说周五线下的时候好像说的是在船长家来着？</blockquote>
+不太清楚怎么说的，今天这次是和之前几次一样都是还在阿火家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 21894#       发表于 2020-12-12 00:19
+
+
+
+ 本帖最后由 过不了审 于 2020-12-12 00:35 编辑 
+
+此时lack爹:赛博朋克真好玩
+你变了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+今晚牛郎声线大量发生，帮大忙了
+草，好怪的导入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然还是没忍住
+船长还是你比较强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 21895#       发表于 2020-12-12 00:23
+
+
+
+
+船火联动目前看来是轮流去对方家，晚上晚酌歌，第二天早上游戏
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 21896#       发表于 2020-12-12 00:24
+
+
+
+
+紫宝你唱这首歌是什么意思
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 21897#       发表于 2020-12-12 00:42
+
+
+
+
+第一次自己在BOOTH购买的商品，居然是这个。。
+
+<img src="https://img.saraba1st.com/forum/202012/12/003637b4a5dm2300dx3h43.png" referrerpolicy="no-referrer">
+
+
+<strong>201212003449.png</strong> (879.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 00:36 上传
+
+
+
+
+
+[https://nijisanji-kr.booth.pm/items/2593559](https://nijisanji-kr.booth.pm/items/2593559)
+
+
+
+日语版EX音声，哇↑噻↓
+
+平时不怎么看直播，一冲动就买了，可能是她会说中文这点给我的印象很好吧。
+
+
+
+以下内容需要积分高于 10000 才可浏览
+
+repo如下：
+
+日语听不懂听不懂听不懂听不懂听不懂听不懂听不懂听不懂听不懂，
+
+
+结尾是钢琴弹唱版的Happy Birthday，歌词全部是NyaNyaNyaNyaNya，
+
+
+可爱可爱可爱，虽然唱得好水。
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 21898#       发表于 2020-12-12 00:47
+
+
+
+
+……线下……？<img src="https://p.sda1.dev/0/f5b4ef84c35544cd0d398c61f91c77f5/13f3b2b40f93e78c.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21899#       发表于 2020-12-12 00:47
+
+
+
+
+郡道预赛名次会是多少呢，倒一倒二还是倒三<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21900#       发表于 2020-12-12 01:02
+
+
+
+
+这保送队抽的几乎全是种子选手啊，正好不用赛了
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 21901#       发表于 2020-12-12 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49691614&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-12 01:02</a>
+ 这保送队抽的几乎全是种子选手啊，正好不用赛了</blockquote>
+就是去年决赛的前七名，轮空了减少其他人的压力
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21902#       发表于 2020-12-12 01:24
+
+
+
+
+不出意外夜见会在马车杯和cr杯拿到两个倒数第一，这就是紧张刺激的12月啊
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 21903#       发表于 2020-12-12 01:25
+
+
+
+
+话说我看有人说aqua从没给人打过sc，有夸gachi楼友说说是真的吗？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21904#       发表于 2020-12-12 01:25
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-12 01:30 编辑 
+
+困死了睡觉L ，知道叶师参赛就行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+正好被踢到晋级7人组，19号前的时间都用来训练CR吧...
+
+
+这个月
+
+12/20マイルカップ、12/24-12/25Putit ChroNoiR DAY、12/26マリカカップ、12/27CRカップ
+
+还有一次未定日期的新衣装披露...
+
+
+
+Syl，顺便吐槽一下说希望观众在圣诞两天预留时间的liver实在太多了，每个人都说有安排，除了三枝的3D，还有其他大型活动？
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 21905#       发表于 2020-12-12 01:54
+
+
+
+
+大亏有给chima唱希望之花耐久的时候打过sc，说不要停下来那句名台词
+
+
+
+
+
+                   
