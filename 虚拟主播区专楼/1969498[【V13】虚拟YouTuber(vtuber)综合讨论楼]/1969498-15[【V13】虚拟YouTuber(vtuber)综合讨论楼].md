@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 22:07** 
+> ## **本文件最后更新于2020-12-12 00:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Ikogx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_OWBPW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_HZ71b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_cBl3p" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -17868,4 +17868,547 @@ syl上个厕所还要在评论栏说话
 
 
 
-                     
+
+
+-----
+
+####  IDIDIDID  
+##### 21867#       发表于 2020-12-11 22:10
+
+
+
+
+声音和船长差不多姨，歌力和船长也差不多。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21868#       发表于 2020-12-11 22:16
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-11 22:25 编辑 
+
+真就是ID船长啊……原来已经勾搭过了，船长EN进出好撸力惹，还好你楼一味早就躺平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 21869#       发表于 2020-12-11 22:22
+
+
+
+ 本帖最后由 过不了审 于 2020-12-11 22:29 编辑 
+
+别撞了别撞了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/acf882a4a8c63944016c7190a4c3ae44/IMG_CMP_236703209.png" referrerpolicy="no-referrer">
+孔雀还介绍了一下待会的船火歌回，好人爱了
+弱弱网线
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21870#       发表于 2020-12-11 22:24
+
+
+
+
+本来想说一句你说是歌势这也不咋地
+然后引流船火联动那还是挺好的后辈
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21871#       发表于 2020-12-11 22:24
+
+
+
+
+孔雀：this is from my favorite anime, i dont know if you know it, i dont wanna say you are too young.
+
+
+
+答案：GTO
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21872#       发表于 2020-12-11 22:26
+
+
+
+
+色 情 涂鸦的唱腔模仿的挺像的（指嗓音很姨）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21873#       发表于 2020-12-11 22:34
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-11 22:39 编辑 
+
+选曲没自知之明，车祸
+
+体力低下也不知道是不是演的，越来越船了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21874#       发表于 2020-12-11 22:37
+
+
+
+
+你木口一期能招个risu二期又没有歌力了，虽然也不重要<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21875#       发表于 2020-12-11 22:40
+
+
+
+
+郡道说想玩mo4，我也想看她玩啊，给粉丝放卫星像给鸡撒谷子一样，倒是来点啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21876#       发表于 2020-12-11 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49690357&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-11 22:40</a>
+郡道说想玩mo4，我也想看她玩啊，给粉丝放卫星像给鸡撒谷子一样，倒是来点啊 ...</blockquote>
+说起卫星就想起船无数卫星，例如放了许久的环卫星，最新一次被问起来说做好了3个人物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。还有甚么泰拉瑞亚。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21877#       发表于 2020-12-11 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49690390&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-11 22:42</a>
+说起卫星就想起船无数卫星，例如放了许久的环卫星，最新一次被问起来说做好了3个人物。还有甚么泰 ...</blockquote>
+游戏好歹有个版权借口，新衣服哪有，郡郡放一下啦<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 21878#       发表于 2020-12-11 22:55
+
+
+
+
+瞎唱也没关系，反正是瞎写的（
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21879#       发表于 2020-12-11 23:00
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-11 23:18 编辑 
+
+管人相关
+<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer"> 
+
+
+12月24日のクリスマスに「Vtuber言葉」デビュー！！詳細は後日、発表いたします！！
+
+<img src="https://img.saraba1st.com/forum/202012/11/225957lxmteymx0pys0mxl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>12月24日のクリスマスに「Vtuber言葉」デビュー.jpg</strong> (509.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 22:59 上传
+
+
+
+
+
+[https://twitter.com/Overflow_staff/status/1337377772797235203](https://twitter.com/Overflow_staff/status/1337377772797235203)
+
+@ 月ノ美兎  出来联动
+
+
+Syl，抽选会开了
+
+
+剣持刀也⚔にじさんじ
+
+@rei_Toya_rei
+
+本日24時から第3回 #マリカにじさんじ杯 の説明＆抽選会を行います！！！
+
+今年は誰がこのお祭りに挑むのか！
+
+そして今年は誰と誰がしのぎを削り、どんなドラマを見せてくれるのか！！
+
+全てはここから始まります！！
+
+
+運命の歯車が回りだすその瞬間をぜひご覧ください！！
+
+<img src="https://img.saraba1st.com/forum/202012/11/230318nkygsyvki3cwhsvv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>第3回 #マリカにじさんじ杯 の説明＆抽選会を行います！！！.jpg</strong> (59.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-11 23:03 上传
+
+
+
+
+
+
+[https://www.youtube.com/watch?v=5mHY6css7-g](https://www.youtube.com/watch?v=5mHY6css7-g)
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21880#       发表于 2020-12-11 23:02
+
+
+
+
+懒狗：谁唱歌我唱歌，我还要同接打爆她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21881#       发表于 2020-12-11 23:02
+
+
+
+
+龙妈这舟游工商半夜播算消极怠工吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21882#       发表于 2020-12-11 23:06
+
+
+
+
+懒狗这首Q娃都掐萌音了，反观大天使现在半夜MC声线越来越姨，再这么下去二期话事人要换人了呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 21883#       发表于 2020-12-11 23:11
+
+
+
+
+Vtuber言葉会来b限学中文吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21884#       发表于 2020-12-11 23:14
+
+
+
+
+言叶？有世界么？真的假的？
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21885#       发表于 2020-12-11 23:15
+
+
+
+
+修女的事黛灰道歉了之后马上就冒出找茬说黑客最好也管一下自己的观众不要到处刷不破轮回梗了的不明生物
+
+不会真的有人觉得A玩B梗的切片火了之后还到处刷B这个梗的都是A粉吧？还是在A说到一半就对观众补充过千万不要到处刷尤其是跳脸本人的情况下
+
+回头还要怪一句A要么不该提要么提了就该负责训乱刷的人
+
+上哪去训看个热门切片就玩梗根本不看出处的人？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这就是看到被玩梗小鬼刺激得跳无脑黑的人时本体糊只有梗火的作品粉丝的心情吗，为什么我看动画要经历看管人也要经历啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 深渊萃取| + 1|传统艺能|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 21886#       发表于 2020-12-11 23:16
+
+
+
+ 本帖最后由 过不了审 于 2020-12-12 00:03 编辑 
+
+似乎孔雀引流了一些初见，还挺有意义的
+开幕Aloha(?)之后来了句法语“晚好，我爱你，我的爱人“，还挺浪漫嗷。
+品尝peko梅酒后说有peko的味道（！）
+第一首是黄油飞，杰克和焰很棒啊啊啊啊，然后半路就开始笑场<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+今天这状态挺好嘛，也不鬼叫，拉着手笑嘻嘻不认真唱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">亚拉那一卡还是那么热闹
+石榴石 船长节拍器 两人入戏好深 emoi
+翻，随便翻，过山车一般的鬼叫来了
+得到了珍贵的片段，谢谢你船长<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+这两首配合好默契（突然），船火天下第一！
+油管我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 21887#       发表于 2020-12-11 23:19
+
+
+
+
+第一个重罪前科vtuber？来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 21888#       发表于 2020-12-11 23:33
+
+
+
+
+DD开膛，DD斩首
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21889#       发表于 2020-12-11 23:34
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-12 00:03 编辑 
+
+太困了，有可能听错：
+<strong>赛制</strong><strong>
+</strong>
+<strong>预选——12.19
+</strong>马车杯参与<strong>77</strong>人，其中7人直接晋，剩下分为A～G，共7*10，每组前5晋级
+
+<strong>本战——12.26
+</strong>然后7+35=<strong>42</strong>人参与
+
+（然后好像是24-12太困了语速又很快真的没跟上...）
+
+<strong>规则
+</strong>150cc，只允许使用Mii捏人
+没有其他禁忌
+
+现在在逐个介绍参赛选手，太认真了
+
+
+这也太久...
+
+刀也太牛了，真的虹人，每个人都能说好几句，每个人都看过
+
+
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21890#       发表于 2020-12-11 23:57
+
+
+
+
+“里面什么都没有哦！”（指没有中之人）
+
+
+
+
+
+                    
