@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 22:02** 
+> ## **本文件最后更新于2020-12-13 00:05** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_kMzuS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Dt9O3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_W1R7x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_rj5JK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -21353,6 +21353,8 @@ pxj的梁木这么恐怖的吗。</blockquote>
 
 
 
+ 本帖最后由 SuntoryNomu 于 2020-12-12 22:05 编辑 
+
 
 <img src="https://img.saraba1st.com/forum/202012/12/214624ypnxpvvpvnovupkv.jpg" referrerpolicy="no-referrer">
 
@@ -21377,6 +21379,36 @@ pxj的梁木这么恐怖的吗。</blockquote>
 下载附件
 
 2020-12-12 21:47 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/220446dl7ezw7r77wweccq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpCsIMuUYAErnoL.jpg</strong> (94.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:04 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/220339rdm3dzdj3zdnmdhu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpCsgCcUUAAdeGe.jpg</strong> (76.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:03 上传
 
 
 
@@ -21470,4 +21502,456 @@ b站一个是没有这种传统，另一个373本身没箱，也没社区宣传�
 
 
 
-               
+
+
+-----
+
+####  qesto  
+##### 22037#       发表于 2020-12-12 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49699938&amp;ptid=1969498" target="_blank">sgssk 发表于 2020-12-12 21:50</a>
+
+404的日v隔三差五地搞xx万粉 xx同接耐久基本也都能成，b这边反倒没多少效果是个什么缘故？还能全是买的不成 ...</blockquote>
+不是人人都是虹杏啊，别看惯了大数字就习惯了。就说日南上次70万耐久也是差3000人开冲，你又没箱推力粉丝才10万不到上来搞个冲6000粉是要这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22038#       发表于 2020-12-12 22:08
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-12 22:18 编辑 
+
+修女好调皮，好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/12/220948o69x9wibeax996eo.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装】あたらしい姿になるとこ、みてて♡【にじさんじ:シスター・クレア】.png.png</strong> (618.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:09 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/221204hct8qqt7777zqrqu.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装】あたらしい姿になるとこ、みてて♡【にじさんじ:シスター・クレア】-2.png.png</strong> (530.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/221840x6ydg2ea95k1epdm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装】あたらしい姿になるとこ、みてて♡【にじさんじ:シスター・クレア】-3.jpg.jpg</strong> (83.98 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:18 上传
+
+
+
+
+
+
+我老婆在叫我睡觉.jpg
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22039#       发表于 2020-12-12 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">另一方面，国内其实追直播的人很少吧，大部分是看切片然后点订阅，还有就是nga这类给引流。目前新时代人气vtb里，前三名的亲华团长45w+,hiiro32w+,oto23w+。说实话并不算多，现在的新粉丝也许数量并没有那么多，是消费欲望更强。（当然，有没有现在最热门的vtb团体粉丝自发抵制她就不清楚了。）
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22040#       发表于 2020-12-12 22:13
+
+
+
+
+草，兔宝真有你的，这都能出意外被压扁
+
+<img src="https://img.saraba1st.com/forum/202012/12/221302v71tilat15rcqr1a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201212221234.jpg</strong> (35.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:13 上传
+
+
+
+
+
+
+不过压扁之后反而没之前那么恐怖，原谅了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 22041#       发表于 2020-12-12 22:14
+
+
+
+
+希望付出会有回报吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22042#       发表于 2020-12-12 22:20
+
+
+
+
+实名羡慕虹新衣服随便发<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">，船花那么多钱去做曲子肯定就是因为也没法用来做衣服，想想很气
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22043#       发表于 2020-12-12 22:21
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-12 22:47 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/222047ccjzwkr0z4j6uj6p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpCxBk2U0AAzhqt.jpg</strong> (58.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:20 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/222048drektanketiarx4m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpCxAQ_VoAEknCM.jpg</strong> (143.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:20 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/224753ddngdj38h8gi3kbn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC0bESVoAMbNHT.jpg</strong> (78.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:47 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 22044#       发表于 2020-12-12 22:22
+
+
+
+
+耐久这事傻希早就趟过雷了，抖音那种小而精才适合推广，昨天播2077就挺有意思，但凡有那么一点游戏基础都是一个很好的机会
+
+
+
+
+
+
+
+-----
+
+####  狸狸  
+##### 22045#       发表于 2020-12-12 22:39
+
+
+
+
+也不知道独轮车还剩多少
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22046#       发表于 2020-12-12 22:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/224719kv5dyzyyiezyih4t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC1r6rU8AYwH3H.jpg</strong> (293.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 22:47 上传
+
+
+
+
+
+[https://twitter.com/ougimaneki/status/1337769113347706881](https://twitter.com/ougimaneki/status/1337769113347706881)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1|好评加鹅|
+| pansherry| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 22047#       发表于 2020-12-12 22:57
+
+
+
+
+巴姐这个完全正中我好球区<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Steinray  
+##### 22048#       发表于 2020-12-12 23:05
+
+
+
+
+阿希EN观众也不少了怎么还整这活
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 22049#       发表于 2020-12-12 23:14
+
+
+
+
+说明她是真正的图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 22050#       发表于 2020-12-12 23:15
+
+
+
+
+感谢楼上几位老哥整捣思路
+
+
+syl，灵儿姐姐推上更的视频把我听懵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22051#       发表于 2020-12-12 23:15
+
+
+
+[https://twitter.com/AT_Crescentia/status/1337775249392160769](https://twitter.com/AT_Crescentia/status/1337775249392160769)
+
+
+月灵姐发小视频用中文晚安问候你综都没人转，还有良心吗<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22052#       发表于 2020-12-12 23:16
+
+
+
+ 本帖最后由 caupollen 于 2020-12-12 23:20 编辑 
+
+月灵录了短视频<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">中文晚安短视频可爱啊
+<img src="https://i.loli.net/2020/12/12/4MAi97UErvupJjD.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 22053#       发表于 2020-12-12 23:21
+
+
+
+
+现在就算看你综聊373我都还没能立马反应过来是日V那个<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22054#       发表于 2020-12-12 23:22
+
+
+
+
+该死的13站居然不支持灵儿发动态视频！（也许发的方式不对
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22055#       发表于 2020-12-12 23:25
+
+
+
+
+兔子这炮又没发射出几个tnt就炸膛，你看视频学了个鸡儿
+
+
+
+
+
+              

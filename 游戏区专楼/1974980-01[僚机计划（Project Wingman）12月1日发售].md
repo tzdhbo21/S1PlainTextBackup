@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-08 16:24** 
+> ## **本文件最后更新于2020-12-13 00:14** 
 
 
 
@@ -2004,4 +2004,361 @@ VR头盔是？拉了超采没有？
 
 
 
-                                              
+
+
+-----
+
+####  vorastrix  
+##### 103#       发表于 2020-12-8 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49650099&amp;ptid=1974980" target="_blank">dumplingpro 发表于 2020-12-8 14:34</a>
+
+VR头盔是？拉了超采没有？</blockquote>
+index,就是原来的1440P
+
+
+
+
+
+
+
+-----
+
+####  弑神  
+##### 104#       发表于 2020-12-8 20:09
+
+
+
+
+我就问一句，打一半导弹打光了怎么办？往哪飞是回基地
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 105#       发表于 2020-12-8 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49653286&amp;ptid=1974980" target="_blank">弑神 发表于 2020-12-8 20:09</a>
+
+我就问一句，打一半导弹打光了怎么办？往哪飞是回基地</blockquote>
+无限的，等一下CD过了就恢复了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FortuneAura  
+##### 106#       发表于 2020-12-9 01:38
+
+
+
+
+总觉得vr模式的切换锁定逻辑和普通模式不一样， 普通模式就是优先机头方向，vr里总是锁到远处的目标
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 107#       发表于 2020-12-9 15:27
+
+
+
+
+这两天打了一下征服模式。
+缝合怪机acg 01的那个遥控粘雷用起来真的舒服，然后切回剧情模式发现没有这个装备<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+礼花机虽然和cfa44的长得很像，但是鸭翼更漂亮，从背面看的话感觉非常八翼天使 。
+无视惯性等级的机动性，过于灵敏导致电磁炮经常瞄不准。
+为了开礼花打得爽于是开了双倍薪资，但是总感觉打着打着敌人数目远超双倍越打越多，真的不是打一出二吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 108#       发表于 2020-12-9 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49652646&amp;ptid=1974980" target="_blank">vorastrix 发表于 2020-12-8 18:58</a>
+
+index,就是原来的1440P</blockquote>
+游戏里有个分辨率（实际上是超采样）拉到150%试试？
+
+
+
+
+
+
+
+-----
+
+####  realgyf1985  
+##### 109#       发表于 2020-12-9 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49656073&amp;ptid=1974980" target="_blank">FortuneAura 发表于 2020-12-9 01:38</a>
+
+总觉得vr模式的切换锁定逻辑和普通模式不一样， 普通模式就是优先机头方向，vr里总是锁到远处的目标 ...</blockquote>
+请问一下VR效果如何？为了这个买VR头盔怎么样。我只体验过PS4上的AC7 VR模式，当时被震惊到了。一直琢磨给PC买一个VR头盔。
+
+
+我平时也玩DCS和战雷等游戏。
+
+
+
+
+
+
+
+-----
+
+####  灰色蔓延  
+##### 110#       发表于 2020-12-9 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661717&amp;ptid=1974980" target="_blank">realgyf1985 发表于 2020-12-9 15:37</a>
+
+请问一下VR效果如何？为了这个买VR头盔怎么样。我只体验过PS4上的AC7 VR模式，当时被震惊到了。一直琢磨 ...</blockquote>
+具体效果b站V神他们有全程VR视频。
+
+
+看steam上老外用1050TI+oculus cv1跑中特效很流畅。我也想捣鼓个quest2还是直接上index。。。。
+
+
+
+
+
+
+
+-----
+
+####  JAROD009  
+##### 111#       发表于 2020-12-9 20:56
+
+
+
+
+VR体验非常赞，就是特别吃显卡算力a配个飞行摇杆，不能再好
+
+
+
+
+
+
+
+-----
+
+####  realgyf1985  
+##### 112#       发表于 2020-12-9 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49665468&amp;ptid=1974980" target="_blank">JAROD009 发表于 2020-12-9 20:56</a>
+
+VR体验非常赞，就是特别吃显卡算力a配个飞行摇杆，不能再好</blockquote>
+我有猪杆，请问曲线和轴该怎么设置呢。
+
+
+
+
+
+
+
+-----
+
+####  JAROD009  
+##### 113#       发表于 2020-12-9 22:10
+
+
+
+
+我是用的默认，你可以在游戏控制设置里改，测试下轴有没有反向就行
+
+
+
+
+
+
+
+-----
+
+####  虚无连斩  
+##### 114#       发表于 2020-12-10 09:24
+
+
+
+
+我发现很多飞行游戏5代机都是外挂导弹，违和感很大啊，这作也这样，虽然这飞机是f22和j20喝醉了的私生子...
+ac我很喜欢一点就是f22，苏57什么的导弹内置，特科幻
+特别f22开机炮时候那个盖子打开是真棒
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  -v-  
+##### 115#       发表于 2020-12-10 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49668926&amp;ptid=1974980" target="_blank">虚无连斩 发表于 2020-12-10 09:24</a>
+
+我发现很多飞行游戏5代机都是外挂导弹，违和感很大啊，这作也这样，虽然这飞机是f22和j20喝醉了的私生子... ...</blockquote>
+这作也是啊,只不过如果你不想外挂武器你就得空一个武器槽位出来
+
+我印象这玩意的标准导弹槽是侧腹内置的,3号武器槽是下腹内置的,2号武器槽好象是机翼外挂,只有选择相应武器弹仓才会自动打开
+
+
+
+
+
+
+
+-----
+
+####  保科智子  
+##### 116#       发表于 2020-12-10 12:32
+
+
+
+
+mark一下，ac7还没玩…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  虚无连斩  
+##### 117#       发表于 2020-12-11 22:10
+
+
+
+
+慢悠悠通关了，F15太好用了
+
+后面F15 ACTIVE也特别帅
+
+最终boss这逼格爆棚，不用钻狗洞是真的好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 118#       发表于 2020-12-12 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">本来想等打折的，但还是忍不住买了，看看成品怎么样
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 119#       发表于 2020-12-12 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏拆飞机要一个个把零件拆了也就算了，为什么拆船也要一个个拆零件啊，这个让我很难受
+
+
+
+
+
+
+
+-----
+
+####  eno_emos  
+##### 120#       发表于 2020-12-12 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49700160&amp;ptid=1974980" target="_blank">zzy516232108 发表于 2020-12-12 22:05</a>
+
+这游戏拆飞机要一个个把零件拆了也就算了，为什么拆船也要一个个拆零件啊，这个让我很难受 ...</blockquote>
+可以直接撸爆的，他计算伤害是打到模型上就行，巡洋舰还剩一个配件的时候直接一发AGM配两个标准锁配件上，就炸了
+
+
+
+
+
+
+
+-----
+
+####  920619lqy  
+##### 121#       发表于 2020-12-13 00:09
+
+
+
+<blockquote>zzy516232108 发表于 2020-12-12 08:05
+这游戏拆飞机要一个个把零件拆了也就算了，为什么拆船也要一个个拆零件啊，这个让我很难受 ...</blockquote>
+可以带ASM，这个能直接拆大飞机，就是装填奇慢只有8发。
+
+
+
+
+
+
+
+-----
+
+####  920619lqy  
+##### 122#       发表于 2020-12-13 00:11
+
+
+
+
+剧情就这？全程“我们苦大仇深我们爱好和平我们不想打然后我们被撵着干所以我们雇你来帮我们打他们”但是实际打起来就是单方面吊捶对方。捶了十几关我都看不下去了，拦核弹的时候直接挂机。
+
+
+
+
+
+                                             

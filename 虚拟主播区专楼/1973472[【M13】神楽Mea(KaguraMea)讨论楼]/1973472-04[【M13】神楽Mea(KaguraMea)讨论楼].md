@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 18:09** 
+> ## **本文件最后更新于2020-12-13 00:10** 
 
 
 
@@ -9686,4 +9686,499 @@ mea转推的noe是12日（东京）21点直播，21日直播的是啥？
 
 
 
-                               
+
+
+-----
+
+####  llconforever  
+##### 5045#       发表于 2020-12-12 18:21
+
+
+
+ 本帖最后由 llconforever 于 2020-12-12 18:22 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/182237nmwiagd7qsicmsgf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>黑泽圆 u18r 上午10：31 · 2019年7月27日.jpg</strong> (330.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 18:22 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">图来了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5046#       发表于 2020-12-12 18:28
+
+
+
+
+旁边是oto？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5047#       发表于 2020-12-12 18:31
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-12-12 18:33 编辑 
+
+是去年的live吧，弟姐也在
+说起来弟姐年龄快是u18r两倍了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5048#       发表于 2020-12-12 21:21
+
+
+
+
+雪山寻咩啊，末时代的新人喂饭也不好吃饱啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5049#       发表于 2020-12-12 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你咩姐又不开台
+
+
+syl，开场白抄星川的还行
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5050#       发表于 2020-12-12 21:37
+
+
+
+
+麻了,经典不开台硬喂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5051#       发表于 2020-12-12 21:37
+
+
+
+
+阿咩用心良苦啊，自己不开台让你们去如月那里看，温柔的咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5052#       发表于 2020-12-12 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而这游戏如果真要追着你咩姐看的话根本不会只看一个人啊，这喂的是大锅饭吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5053#       发表于 2020-12-12 21:42
+
+
+
+
+看同接你麻铁唯老多了，不是单人不看，引流也不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5054#       发表于 2020-12-12 21:42
+
+
+
+
+黄兔子也开台了 只是小麻懒得开罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5055#       发表于 2020-12-12 22:00
+
+
+
+
+母女谋杀孙女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5056#       发表于 2020-12-12 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐也挂了，能和如月说话了，阿咩 你好温柔
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5057#       发表于 2020-12-12 22:19
+
+
+
+
+尸体在说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5058#       发表于 2020-12-12 22:22
+
+
+
+
+这就最后一把了，原来只玩1小时啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5059#       发表于 2020-12-12 22:27
+
+
+
+
+阿咩忽悠如月去当面开狼箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起了当年那个当着人面开狼箱的阿咩
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5060#       发表于 2020-12-12 22:49
+
+
+
+
+这最后一把还蛮悬疑的
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 5061#       发表于 2020-12-12 22:50
+
+
+
+
+如月怀疑咩和一心想鲨咩的样子，太乐了，不仲是好东西
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5062#       发表于 2020-12-12 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mimi居然还活着，绝了，会玩的啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5063#       发表于 2020-12-12 23:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来最后一把kuku和mimi是狼，如月在变兔子debuff时间被杀了一次之后一直怀疑阿咩是狼，乐了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5064#       发表于 2020-12-12 23:03
+
+
+
+
+都以为咩宝是狼 只有兔妈妈相信咩宝 这就是亲情的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 5065#       发表于 2020-12-12 23:17
+
+
+
+
+组长洞察力一直都挺强的
+
+如月被水原认错是mea砍倒了后一直误会是mea砍倒自己的
+
+只能说变兔子环节（前后）导致第二局败北<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不过本来第二局很容易就赢了 来点内讧也挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是没看到如月砍到mea来个下克上有点可惜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 5066#       发表于 2020-12-12 23:17
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5067#       发表于 2020-12-12 23:21
+
+
+
+ 本帖最后由 路人庚 于 2020-12-12 23:23 编辑 
+
+如月不怎么会玩，真和咩姐对打估计几下就无了
+
+不过我也确实没看出来kuku是个狼，izumi真实立大功（狼阵营）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过mimi从最开始就离队而且一直没死也蛮意外的，我原以为这帮人里最会玩的只有mea和黄兔子，没想到mimi也会的
+
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 5068#       发表于 2020-12-12 23:32
+
+
+
+
+第一局组长和mea为什么偷袭如月啊 开局血这么厚装备这么差 杀人实属下下策<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一直在看如月视角该去补补组长视角了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 5069#       发表于 2020-12-12 23:33
+
+
+
+
+【YoutubeLive 如月こよりYTB 直播等待】
+
+标题：【雀魂】めあさんと麻雀！！！【如月こより/神楽めあ】
+
+时间：2020-12-12 23:30:00 UTC+08:00
+
+网址：y2u.be/iT1c8RV0Eyk
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5070#       发表于 2020-12-12 23:33
+
+
+
+
+好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，忘记开雀魂去挤房间了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5071#       发表于 2020-12-12 23:55
+
+
+
+ 本帖最后由 路人庚 于 2020-12-12 23:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个如月跳脸、mea切断discord，有内味了
+
+
+聊到之前线下的事了，一起玩了个和桃铁很像的游戏，被CPU打的很惨，一直玩到了早上<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
