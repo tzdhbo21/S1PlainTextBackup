@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 14:05** 
+> ## **本文件最后更新于2020-12-12 18:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_T2N4b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_oV6OS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Q7U2Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_J0qa2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -19160,7 +19160,7 @@ v版不在意猴楼？现在屎黄色v版杏奴不还多得一批吗</blockquote
 
 
 -zue37Q5-32ecK1wT3cSm8-ci.jpg.medium.jpg
-(54.63 KB, 下载次数: 0)
+(54.63 KB, 下载次数: 2)
 
 
 
@@ -19497,4 +19497,704 @@ HCN咋了，希宝也出事了？
 
 
 
-                  
+
+
+-----
+
+####  寒星  
+##### 21944#       发表于 2020-12-12 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49695397&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-12 13:53</a>
+别尬黑，真铁血杏仁早就逃到404和白皮以及繁体字使用者一起玩了，还在批站看呆的是什么成分咱也不知道[f:05 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候楼里的铁血杏奴也能去2ch和k岛跟太君和4v在一起
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 21945#       发表于 2020-12-12 14:22
+
+
+
+ 本帖最后由 过不了审 于 2020-12-12 14:25 编辑 
+
+！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21946#       发表于 2020-12-12 14:28
+
+
+
+
+等尼哥终于赚够五块钱
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 21947#       发表于 2020-12-12 14:36
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-12-12 12:46
+这2020大奖还租了车的吗……</blockquote>
+都在山手线整了不少广告牌了，租个车算啥
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 21948#       发表于 2020-12-12 15:24
+
+
+
+
+只听楼里放黑屁还不如自己看看hcn发生了啥 总结一下就是除了朵莉丝炸了，都什么事都没有
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21949#       发表于 2020-12-12 15:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/153237k443d3iamttkqcqs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpBEJrNVEAEKHE6.jpg</strong> (281.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 15:32 上传
+
+
+
+
+
+[https://twitter.com/2DE1FLf8/status/1337644026795708418](https://twitter.com/2DE1FLf8/status/1337644026795708418)
+
+
+不适合直接发的夜见色图
+[https://twitter.com/x_x36131422/status/1337651899189710849](https://twitter.com/x_x36131422/status/1337651899189710849)
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 21950#       发表于 2020-12-12 15:35
+
+
+
+<blockquote>winda 发表于 2020-12-12 10:45
+</blockquote>
+草啊，这个头像加乱码id和语气不会真有人觉得是箱推(黑客)粉不是anti反串拱火吧
+
+推上已经有人开始“道个歉这么理所当然的事就能夸，你们黑客粉真的不行”了，这是想快进到黑客粉厄介→黑客害其他V伤心当v失格？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21951#       发表于 2020-12-12 15:51
+
+
+
+
+这鲨皇MC同接也不对头啊，不能用“油管日本没有计入海外同接”这个bug来开脱了，看来杏就是买了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21952#       发表于 2020-12-12 16:00
+
+
+
+
+故意把谣言拿出来钓鱼这跟尼姑庵脑子有什么区别，是看下colo综发了什么会死还是说你比teamyoutube这个号更懂油管算法？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 21953#       发表于 2020-12-12 16:01
+
+
+
+
+买啦，哪次没买
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21954#       发表于 2020-12-12 16:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要说炸那确实只有人鱼炸了，其他什么事都没有都是楼里黑屁不是鸵鸟？就ngaog楼现在都还在车呢。还是说有争议性行为不算事情，身败名裂了才算出事？
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 21955#       发表于 2020-12-12 16:06
+
+
+
+ 本帖最后由 我尊敬的父亲 于 2020-12-12 16:09 编辑 
+
+也就你才觉得有争议吧 现在没皮没身份开摄像头不行是吧
+况且某霜不当v的时候一直都是开摄像头的，看管人观众不知道说一下
+至于og楼里某两个人玻璃心碎了，那关别人什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21956#       发表于 2020-12-12 16:12
+
+
+
+
+“有争议”单纯指的是蒜头吧，nga也确实在吵真实虚拟是不是应该拿皮的头像做封面以及主播该不该主动把中之人放蒜头号上等等...
+
+
+不过除了争议，确实也不是多大的事情，该怎样就怎样呗，不至于影响啥风评
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21957#       发表于 2020-12-12 16:13
+
+
+
+
+别尬黑，总之别尬黑，人自己很清楚
+<img src="https://p.sda1.dev/0/1fbd8ed6e401e329b466b3999f89c5b2/IMG_CMP_110688639.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 21958#       发表于 2020-12-12 16:15
+
+
+
+
+她说她自己是vtb，她的粉丝觉得是超美丽3d，那她就是vtb
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 21959#       发表于 2020-12-12 16:16
+
+
+
+
+不过话说回来 不开美颜不打光不化妆的超美丽3d 在这个年代应该可以归类为行为艺术了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21960#       发表于 2020-12-12 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49696337&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-12 15:35</a>
+草啊，这个头像加乱码id和语气不会真有人觉得是箱推(黑客)粉不是anti反串拱火吧
+
+推上已经有人开始“道个 ...</blockquote>
+很标准的9回复捨て垢还想怎么划成分<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+不过又是回rrm3d，又是转花妈新衣，还特别痛恨某版权无视箱的，也不会是演的。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21961#       发表于 2020-12-12 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49696624&amp;ptid=1969498" target="_blank">我尊敬的父亲 发表于 2020-12-12 16:16</a>
+不过话说回来 不开美颜不打光不化妆的超美丽3d 在这个年代应该可以归类为行为艺术了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">套就套了嘛，哪还有高下之分，个人势随你怎么套。
+哦，人鱼例外。
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 21962#       发表于 2020-12-12 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49692509&amp;ptid=1969498" target="_blank">丿焰丶 发表于 2020-12-12 08:08</a>
+ 我不是crew，但夸不是给虹人打过几次sc吗</blockquote>
+我不知道，有截图吗？主要是有人很确切说她没给人打过sc，我有点疑惑而已。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21963#       发表于 2020-12-12 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49696738&amp;ptid=1969498" target="_blank">shenqi2552 发表于 2020-12-12 16:33</a>
+
+我不知道，有截图吗？主要是有人很确切说她没给人打过sc，我有点疑惑而已。 ...</blockquote>
+上面那个人说的给chima打sc的时间点
+[http://www.youtube.com/watch?v=UI5tOajbknM&amp;t=418m36s](http://www.youtube.com/watch?v=UI5tOajbknM&amp;t=418m36s)
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 21964#       发表于 2020-12-12 16:40
+
+
+
+<blockquote>shenqi2552 发表于 2020-12-12 16:33
+我不知道，有截图吗？主要是有人很确切说她没给人打过sc，我有点疑惑而已。 ...</blockquote>
+https://b23.tv/ROLTwd 1分26秒，那里就有
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 21965#       发表于 2020-12-12 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49696738&amp;ptid=1969498" target="_blank">shenqi2552 发表于 2020-12-12 16:33</a>
+
+我不知道，有截图吗？主要是有人很确切说她没给人打过sc，我有点疑惑而已。 ...</blockquote>
+流传比较广的就是这个了吧，给chima希望之花耐久的sc（BV1uy4y1B7La）。别的还有没有我不知道，不过夸宝不熟不可能打，熟了就线下玩去了，打sc这种看着就浪费钱的事情估计不怎么愿意做，除非忍不住。
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 21966#       发表于 2020-12-12 16:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非是傻逼 才会经常干打SC还用水果打12000的那种
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21967#       发表于 2020-12-12 16:50
+
+
+
+
+这边是不是需要艾特祭丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 21968#       发表于 2020-12-12 16:51
+
+
+
+
+那给chima打的这个应该就是唯一的一次了。用🍎打12000，想起来了好几个常常给人打1w的v。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21969#       发表于 2020-12-12 16:55
+
+
+
+
+有规定虚拟主播不可以露脸吗？没有，那不就完了
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 21970#       发表于 2020-12-12 16:55
+
+
+
+
+别cue傻逼希了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 21971#       发表于 2020-12-12 17:03
+
+
+
+ 本帖最后由 橘子火火火 于 2020-12-12 17:06 编辑 
+
+在遇到其他公司或个人，圈内规定是不可以露脸的，否则就会被打上套皮女主播，中之人营业的烙印，沦为贱民，没有不露脸的V高贵虚拟，而遇到我们的女孩og，那就是超美丽3D，无敌整活，cn苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。规定和态度完全看对象和自己的喜好，我们泥哥太厉害辣👍，人多声势大，我们说谁套皮谁就套皮，说谁V谁就V。我不在乎什么套不套皮，V不V的，但nga双标是属实让我🤢🤮
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 21972#       发表于 2020-12-12 17:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/172030ufhi7331hw5fwbua.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo9n6VuUwAInLoH.jpg</strong> (116.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 17:20 上传
+
+
+
+
+
+[https://twitter.com/eretto_/status/1337401871590326273](https://twitter.com/eretto_/status/1337401871590326273)
+
+<img src="https://img.saraba1st.com/forum/202012/12/172030v9i3piopevv3cain.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpBPEBfVoAIQDds-min.jpg</strong> (593.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 17:20 上传
+
+
+
+
+
+[https://twitter.com/shoko_taiyaki/status/1337656371886485510](https://twitter.com/shoko_taiyaki/status/1337656371886485510)
+
+<img src="https://img.saraba1st.com/forum/202012/12/172150g5tn35llmmtdf30d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpBqbcGUwAEVV8b-min.jpg</strong> (385.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 17:21 上传
+
+
+
+
+
+[https://twitter.com/Sco_ttie/status/1337686461554905096](https://twitter.com/Sco_ttie/status/1337686461554905096)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21973#       发表于 2020-12-12 17:34
+
+
+
+
+华恰玛outer wilds，可以看一会儿。之前看小秦的全麻。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21974#       发表于 2020-12-12 17:44
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-12 17:46 编辑 
+
+1.日南👎，美少女cos日南皮套👍
+
+2.🦊该🚬yagoo了
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/174247whp7p98j99jxaka8.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20201212174238.png</strong> (372.32 KB, 下载次数: 1)
+
+下载附件
+
+2020-12-12 17:42 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/174301jjk0w1enbbgblcjz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpBEWOcUYAAX0WL.jpg</strong> (574.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 17:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 21975#       发表于 2020-12-12 17:50
+
+
+
+
+nga严重影响泥潭有些人精神状态罪大恶极 建议封禁
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21976#       发表于 2020-12-12 18:01
+
+
+
+
+突然想起来你综以前还一堆人给tia打抱不平，说4v冲她塔，一人在外多辛苦
+现在大葱自己颜出了，仔细一看这群人都入土了，可能是跟着自我感动的心死掉了吧
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 21977#       发表于 2020-12-12 18:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/180354tea35mm0kum0umpe.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201212180336.png</strong> (310.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 18:03 上传
+
+
+
+
+
+[https://twitter.com/Sara_Hoshikawa/status/1337699009356390402](https://twitter.com/Sara_Hoshikawa/status/1337699009356390402)
+
+
+
+
+
+                 

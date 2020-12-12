@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 00:09** 
+> ## **本文件最后更新于2020-12-12 18:09** 
 
 
 
@@ -9084,10 +9084,15 @@ P家在油管有没重组</blockquote>
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 10战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| npfjcg| + 1|好评加鹅|
+| jhouo8989| + 1||
+| Dualist彩| + 1|好评加鹅|
+| 专业划水人员| + 1|好评加鹅|
+| 鷹書たかしょ| + 2|因果の流れだ|
 | A2014720| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
 | Eutopia| + 1|好评加鹅|
@@ -9117,4 +9122,568 @@ P家在油管有没重组</blockquote>
 
 
 
-                                
+
+
+-----
+
+####  rosevalley46  
+##### 5012#       发表于 2020-12-12 00:39
+
+
+
+
+所以这应该是石锤她从来没去面过企业吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5013#       发表于 2020-12-12 07:11
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-12 07:15 编辑 
+
+面过她也不会说的，你麻是不会正经讲的，况且还是辣个公司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说你麻在同行眼里也这么可怕么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5014#       发表于 2020-12-12 09:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才反应过来“现在有空吗”是电话煲起手，天开司你做得对啊！
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5015#       发表于 2020-12-12 10:21
+
+
+
+
+被逮到就要聊几个小时垃圾话 我也害怕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5016#       发表于 2020-12-12 10:34
+
+
+
+
+我不怕，请对我一对一倾倒垃圾话
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5017#       发表于 2020-12-12 10:46
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-12-12 10:52 编辑 
+
+请对人工智能系统倒垃圾话
+
+比如GPT-3
+
+说不定有奇效
+
+哦， 抱歉， 语 言 不 通
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5018#       发表于 2020-12-12 11:33
+
+
+
+
+只有天开司在线×
+
+男人只有天开司在线✓
+
+男人，又是男人，总是男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 5019#       发表于 2020-12-12 11:38
+
+
+
+
+小麻就应该混在男人堆里，而不是搞什么女同营业
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5020#       发表于 2020-12-12 11:39
+
+
+
+
+好耶<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5021#       发表于 2020-12-12 11:42
+
+
+
+
+是bs，是bs让你麻的取向变得多样化了，红蓝是魔鬼，还我只喜欢男人的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5022#       发表于 2020-12-12 12:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/123028v4s6588vsd5pt5g8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>6F3301F8-16C6-4003-8DFB-3BA3654E78CC.jpeg</strong> (65.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 12:30 上传
+
+
+
+
+
+
+
+刚发现油管主页最下面多了一行（虽然不知道是什么时候新增的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5023#       发表于 2020-12-12 12:43
+
+
+
+
+bsyl，今天还是玩雪山人狼啊（之前误认为是宇宙人狼了。。
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 5024#       发表于 2020-12-12 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">夜宵，我的夜宵，我的u18ra
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5025#       发表于 2020-12-12 13:34
+
+
+
+ 本帖最后由 Joffre✔ 于 2020-12-12 14:07 编辑 
+
+太好了 小麻和新皇的bw不是同一天 应该不会打起来 叔叔算是干了点人事
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 5026#       发表于 2020-12-12 13:49
+
+
+
+
+怎么说话的 这是叔叔大恩大德赏你们天狗的 还不快快谢恩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 5027#       发表于 2020-12-12 13:56
+
+
+
+
+就算在同一天还能现场打起来不成<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+当然不排除新时代壬可能在你咩出场的时候厄介两声 不过我不信天狗敢上去对线
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5028#       发表于 2020-12-12 14:03
+
+
+
+
+小麻那一天的其他人都不熟 那些v的粉丝应该没跟天狗打过架吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 5029#       发表于 2020-12-12 14:16
+
+
+
+
+这样看，小麻和如月是一起上场么
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5030#       发表于 2020-12-12 15:49
+
+
+
+
+tc突击
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5031#       发表于 2020-12-12 16:31
+
+
+
+
+下了（今天也要继续做mmo任务，吐槽mmo的任务好无聊，昨天联动过后也玩了mmo碰到个一直说“你真不错”的人加了好友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5032#       发表于 2020-12-12 16:31
+
+
+
+
+这几天的tc那么短 是赶着去现充了吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 5033#       发表于 2020-12-12 16:32
+
+
+
+
+快进到在mmo里钓凯子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">已经在钓了啊，那没事了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5034#       发表于 2020-12-12 16:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">没法出门现充就MMO社交啊，可能有池面有老板
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5035#       发表于 2020-12-12 16:36
+
+
+
+
+mmo有没有结婚系统啊 小麻不会已经在里面结婚了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5036#       发表于 2020-12-12 16:38
+
+
+
+
+估计没有老板，但可能有池面<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 5037#       发表于 2020-12-12 16:40
+
+
+
+
+又有谁生日了嘛，q群谜语人真烦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 5038#       发表于 2020-12-12 16:41
+
+
+
+
+我只知道今天是noe生日
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5039#       发表于 2020-12-12 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49696808&amp;ptid=1973472" target="_blank">某不知名的路人 发表于 2020-12-12 16:40</a>
+
+又有谁生日了嘛，q群谜语人真烦</blockquote>
+看推特，mea转推了，noe生日歌回
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 5040#       发表于 2020-12-12 16:42
+
+
+
+ 本帖最后由 某不知名的路人 于 2020-12-12 16:52 编辑 
+
+看错时间编辑了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5041#       发表于 2020-12-12 16:50
+
+
+
+
+mea转推的noe是12日（东京）21点直播，21日直播的是啥？
+
+
+不过话说如果是有谜语人的话，那估计说的是u18r今天生日了，这有什么好谜语的（顺便一提有美颜滤镜颜出
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5042#       发表于 2020-12-12 17:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5043#       发表于 2020-12-12 17:10
+
+
+
+
+来点u18r图<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5044#       发表于 2020-12-12 17:59
+
+
+
+
+你麻老巨魔了，粉蓝是真的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
