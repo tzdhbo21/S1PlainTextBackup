@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 18:04** 
+> ## **本文件最后更新于2020-12-12 20:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Q7U2Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_J0qa2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_ZN1Gh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_K9gHS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -20120,7 +20120,7 @@ https://b23.tv/ROLTwd 1分26秒，那里就有
 <img src="https://img.saraba1st.com/forum/202012/12/174301jjk0w1enbbgblcjz.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EpBEWOcUYAAX0WL.jpg</strong> (574.46 KB, 下载次数: 0)
+<strong>EpBEWOcUYAAX0WL.jpg</strong> (574.46 KB, 下载次数: 1)
 
 下载附件
 
@@ -20131,6 +20131,25 @@ https://b23.tv/ROLTwd 1分26秒，那里就有
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|希望本人看到不会自卑🙏|
+
+
+
+查看全部评分
 
 
 
@@ -20197,4 +20216,677 @@ nga严重影响泥潭有些人精神状态罪大恶极 建议封禁
 
 
 
-                 
+
+
+-----
+
+####  深渊萃取  
+##### 21978#       发表于 2020-12-12 18:05
+
+
+
+
+我猜今晚楼里又要开始战3D插队了
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 21979#       发表于 2020-12-12 18:07
+
+
+
+
+towa也养猫了
+
+好久不看这发言会员和英文发言比例真高得可怕
+
+明明不怎么gachi 这就是吸不到路人粉吧
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21980#       发表于 2020-12-12 18:09
+
+
+
+
+https://sp.ch.nicovideo.jp/KusunokiSio/blomaga/ar1974205
+みんな予定ありますか？
+年末年始はおうちにいる人も多いですかね( ᐢ˙꒳​˙ᐢ )
+
+なので生放送します～！
+というわけで今月の動画投稿はおやすみzzz
+
+時間など、詳細は後日お知らせします！
+みんなとお話しできるの楽しみだなぁ✨
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21981#       发表于 2020-12-12 18:12
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-12 18:34 编辑 
+
+好耶，虽然之前就知道了但是好耶！！Syl，新房还不错
+
+<img src="https://img.saraba1st.com/forum/202012/12/181245ek9r9f6xi9c9489c.png" referrerpolicy="no-referrer">
+
+
+<strong>【#新衣装でゅ】部屋と新衣装とぼく【弦月藤士郎:にじさんじ】.png</strong> (539.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 18:12 上传
+
+
+
+
+
+
+啊...
+
+<img src="https://img.saraba1st.com/forum/202012/12/182830kiishy99n4jry3is.png" referrerpolicy="no-referrer">
+
+
+<strong>【#新衣装でゅ】部屋と新衣装とぼく【弦月藤士郎:にじさんじ】-2.png.png</strong> (742.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 18:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/182959ij21mr2x87oo8xs7.png" referrerpolicy="no-referrer">
+
+
+<strong>【#新衣装でゅ】部屋と新衣装とぼく【弦月藤士郎:にじさんじ】-3.png.png</strong> (777.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 18:29 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/183414iarmiqfvffzif0e8.png" referrerpolicy="no-referrer">
+
+
+<strong>【#新衣装でゅ】部屋と新衣装とぼく【弦月藤士郎:にじさんじ】-4.png.png</strong> (778.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 18:34 上传
+
+
+
+
+
+
+
+兄弟，你有点像毕业的那位...海夜叉神
+
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 21982#       发表于 2020-12-12 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49696322&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-12 15:33</a>
+https://twitter.com/2DE1FLf8/status/1337644026795708418
+
+
+不适合直接发的夜见色图</blockquote>
+https://twitter.com/l89419268
+小号
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21983#       发表于 2020-12-12 18:15
+
+
+
+<blockquote>Aminor 发表于 2020-12-12 18:04
+https://twitter.com/Sara_Hoshikawa/status/1337699009356390402</blockquote>
+哦，saosao的sara来了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21984#       发表于 2020-12-12 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697626&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-12 18:09</a>
+https://sp.ch.nicovideo.jp/KusunokiSio/blomaga/ar1974205
+みんな予定ありますか？
+年末年始はおうちにい ...</blockquote><blockquote>花京院ちえり🍒 @chieri_kakyoin (2020/12/12 18:26:52)
+おつかりーんでした🍒
+
+くっ…強敵すぎる(;`皿´)ｸﾞﾇﾇ
+絶対たおしてやっからなあああああああああああああああ
+うおおおおおああああああああฅ(º ﾛ º ฅ)</blockquote>http://twitter.com/chieri_kakyoin/status/1337690370532986881
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 絵生voice| + 1|草草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21985#       发表于 2020-12-12 18:16
+
+
+
+<blockquote>絵生voice 发表于 2020-12-12 18:09
+https://sp.ch.nicovideo.jp/KusunokiSio/blomaga/ar1974205
+
+みんな予定ありますか？
+
+年末年始はおうちにい ...</blockquote>
+女主角要赶在一周年前复活了？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 21986#       发表于 2020-12-12 18:31
+
+
+
+
+神经还是吧主神经，这超美丽3D，只能说，震撼人心
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21987#       发表于 2020-12-12 18:42
+
+
+
+
+メンヘラ也是萌属性的一种<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 21988#       发表于 2020-12-12 19:01
+
+
+
+
+夜见怎么也工商战双了
+
+社筑、大福、夜见、阿喵喵喵，这几个人都工商过原神
+
+看来跑到日本去之后，库洛还是要瞄着米mhy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 21989#       发表于 2020-12-12 19:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+EpCDEwIVEAIs9Gn.jpg
+(162.01 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-12 19:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/190149lsgayyhzn6s15fys.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21990#       发表于 2020-12-12 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阿希这操作我已经毫无惊讶了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 21991#       发表于 2020-12-12 19:04
+
+
+
+[https://www.youtube.com/watch?v=VkLcef6JrCE](https://www.youtube.com/watch?v=VkLcef6JrCE)
+
+#04 test - somunia
+ <blockquote>転送装置 使用1回目。
+
+ビデオカメラを持参し、街の様子を撮影しました。
+
+
+--------
+
+転送装置 使用2回目の時に、
+
+一人でミニライブを行った映像を撮影しました。
+
+【12月14日 (月) 20:00〜】
+
+以下のURLで行う生配信にて公開します。
+[https://youtu.be/w1johwdXa3E](https://youtu.be/w1johwdXa3E)
+
+是非、ご視聴ください。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 21992#       发表于 2020-12-12 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希表现欲也太强了。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 21993#       发表于 2020-12-12 19:07
+
+
+
+<blockquote>biye 发表于 2020-12-12 18:07
+towa也养猫了
+
+好久不看这发言会员和英文发言比例真高得可怕
+
+明明不怎么gachi 这就是吸不到路人粉吧 ...</blockquote>
+你可以等有人加会员的时候看评论区反应
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21994#       发表于 2020-12-12 19:08
+
+
+
+
+阿希变成这样，一定都是祭丝的错吧。
+
+一定是这样的吧。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21995#       发表于 2020-12-12 19:13
+
+
+
+
+工商和官号撞怎么想出来的 我是没搞懂。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 21996#       发表于 2020-12-12 19:15
+
+
+
+
+是否说明中午多出来那一万都是歪果仁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f63662fb734b54ccf4525b16b1155e14/IMG_CMP_149535731.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 21997#       发表于 2020-12-12 19:17
+
+
+
+
+笑死，木口实在nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 21998#       发表于 2020-12-12 19:21
+
+
+
+
+钱没给够吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 21999#       发表于 2020-12-12 19:22
+
+
+
+
+好无聊的企划，，，，，，就这四个随便闲聊都比这企划有意思 。
+
+就为了这么个玩意还把日南的工商撞得只剩3000多  ， cover你是傻逼吧。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 22000#       发表于 2020-12-12 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49698099&amp;ptid=1969498" target="_blank">asdhai 发表于 2020-12-12 19:07</a>
+
+你可以等有人加会员的时候看评论区反应</blockquote>
+自发团建吗
+
+虽然早听过 看了看觉得果然很草 这英语萌萌人调教得真是好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22001#       发表于 2020-12-12 19:26
+
+
+
+
+你杏综艺自己没点子不能抄一抄吗……日综那么多现成的活。
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 22002#       发表于 2020-12-12 19:28
+
+
+
+
+第一个主题选了狐狸mio446尾宝，<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我在浪费人生
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22003#       发表于 2020-12-12 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真的真实嗷，葛叶一输，上等人猜拳大会同接瞬间降了快1w
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22004#       发表于 2020-12-12 19:36
+
+
+
+<blockquote>qq845629713 发表于 2020-12-12 19:34
+真的真实嗷，葛叶一输，上等人猜拳大会同接瞬间降了快1w</blockquote>
+知道以后联动该喊谁了吧？火畜才是你虹最武德充沛的
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 22005#       发表于 2020-12-12 19:41
+
+
+
+
+没记错的话，葛叶来了也涨了快1w，走了那不就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22006#       发表于 2020-12-12 19:48
+
+
+
+
+郡郡——————————！！！
+弑神！！！
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 22007#       发表于 2020-12-12 19:50
+
+
+
+
+黑客自己出100万，比赛开在司会频道，够意思啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22008#       发表于 2020-12-12 19:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">回过味来了，尊妈一轮游，葛尊，我的葛尊
+
+
+
+
+
+                
