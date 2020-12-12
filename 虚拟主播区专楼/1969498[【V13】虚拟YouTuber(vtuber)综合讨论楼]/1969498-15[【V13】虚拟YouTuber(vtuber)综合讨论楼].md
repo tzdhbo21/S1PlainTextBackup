@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 20:04** 
+> ## **本文件最后更新于2020-12-12 22:02** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_ZN1Gh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_K9gHS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_kMzuS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Dt9O3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -20551,6 +20551,25 @@ EpCDEwIVEAIs9Gn.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20598,6 +20617,25 @@ EpCDEwIVEAIs9Gn.jpg
 
 是非、ご視聴ください。</blockquote>
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 絵生voice| + 1|很有意思|
+
+
+
+查看全部评分
 
 
 
@@ -20784,8 +20822,10 @@ towa也养猫了
 
 
 
+ 本帖最后由 过不了审 于 2020-12-12 20:19 编辑 
 
 第一个主题选了狐狸mio446尾宝，<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我在浪费人生
+“哈哈没想到吧我们还有更多虚无企划”
 
 
 
@@ -20889,4 +20929,545 @@ towa也养猫了
 
 
 
-                
+
+
+-----
+
+####  Suny08  
+##### 22009#       发表于 2020-12-12 20:06
+
+
+
+<blockquote>winda 发表于 2020-12-12 19:59
+回过味来了，尊妈一轮游，葛尊，我的葛尊</blockquote>
+马车杯还有葛尊的，求求老天爷我一个朋友临死前想看一下葛尊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22010#       发表于 2020-12-12 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 我想看葛叶排第一，尊排名最后，然后采访第一名和最后吊车尾
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22011#       发表于 2020-12-12 20:11
+
+
+
+
+美波七海5点歌回耐久冲订阅到现在，b站涨了不到1000粉，弹幕说25分钟涨了75粉。。
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22012#       发表于 2020-12-12 20:17
+
+
+
+
+b站涨粉靠直播有什么用啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22013#       发表于 2020-12-12 20:22
+
+
+
+[https://www.youtube.com/watch?v=sQY5nx8y3JA](https://www.youtube.com/watch?v=sQY5nx8y3JA)
+
+早上看到chima新歌忘了时间了 已经发了 大家来听  
+
+Lilium - Elfen Lied / 町田ちま(Chima Machita) Cover
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22014#       发表于 2020-12-12 20:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/202849d002b2bowwdw2amt.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2020-12-12_20-28-29.png</strong> (323.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 20:28 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22015#       发表于 2020-12-12 20:37
+
+
+
+
+弑神的代价<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 22016#       发表于 2020-12-12 20:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">373搞这种耐久不行的，经过上次还没学乖，对比一下夏小姐和星宫汐的涨粉速度，她这企业势的梁木debuff比想象中劲多了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22017#       发表于 2020-12-12 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49699000&amp;ptid=1969498" target="_blank">秋月艾莉 发表于 2020-12-12 20:38</a>
+
+373搞这种耐久不行的，经过上次还没学乖，对比一下夏小姐和星宫汐的涨粉速度，她这企业势的梁木debu ...</blockquote>
+我看她活的像个个人势，还是没社团那种。
+
+pxj的梁木这么恐怖的吗。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22018#       发表于 2020-12-12 20:42
+
+
+
+
+有葵西可以看了，我哭了，能再表演一下不仲吗
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22019#       发表于 2020-12-12 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">真要给未成年少女送100w円么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22020#       发表于 2020-12-12 21:01
+
+
+
+
+你虹三姐换人了
+
+
+
+
+
+
+
+-----
+
+####  没有爱就看不见  
+##### 22021#       发表于 2020-12-12 21:03
+
+
+
+
+不觉得大福会输<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22022#       发表于 2020-12-12 21:14
+
+
+
+
+草啊，郡道上传了她的3D断脖子视频（4秒），感觉可以一辈子看下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 22023#       发表于 2020-12-12 21:15
+
+
+
+
+两大巨头
+
+<img src="https://img.saraba1st.com/forum/202012/12/211501i498zc4vn883oko7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201212211440.png</strong> (362.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 21:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 22024#       发表于 2020-12-12 21:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49699022&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-12 20:39</a>
+
+我看她活的像个个人势，还是没社团那种。
+
+pxj的梁木这么恐怖的吗。</blockquote>
+泥论坛那边最猛的时候粉丝和路人甚至不敢在走廊讨论和安利，必有街头斗殴
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22025#       发表于 2020-12-12 21:22
+
+
+
+
+猜拳这82000应该是你虹除了甲子园的多人游戏联动新纪录了，马车杯估计也就这个水平了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22026#       发表于 2020-12-12 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49699559&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-12 21:22</a>
+
+猜拳这82000应该是你虹除了甲子园的多人游戏联动新纪录了，马车杯估计也就这个水平了 ...</blockquote>
+乘上目前bug系数话我觉得是可以起码可以当做10W棒来算的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22027#       发表于 2020-12-12 21:32
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-12 21:43 编辑 
+
+要是这回比赛能让郡道愿意多用3D就好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，除了脖子以外都很可爱
+
+白雪巴新衣服好看过了头([https://youtu.be/34IeWPhgCZg](https://youtu.be/34IeWPhgCZg))
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 22028#       发表于 2020-12-12 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">那个女人回来了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22029#       发表于 2020-12-12 21:46
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-12 21:51 编辑 
+
+【twitter プロフィール変更通知】
+
+
+桐生ココさんが名前を変更しました。
+
+ 桐生ココ(活動休止)🐉目指せ89.3万人@.ホロライブ4期生
+
+　　↓
+
+ 桐生ココ(14日に戻る！)🐉目指せ89.3万人@.ホロライブ4期生 [https://t.co/q06RO3m7L2](https://t.co/q06RO3m7L2)
+
+
+
+
+大的又要来了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nieven  
+##### 22030#       发表于 2020-12-12 21:47
+
+
+
+<blockquote>某穆克拉 发表于 2020-12-12 20:39
+我看她活的像个个人势，还是没社团那种。
+
+pxj的梁木这么恐怖的吗。</blockquote>
+她来的第一晚前半夜先是被泥哥捧为单刀赴会赵子龙，人气粉丝哗哗的涨
+
+后来泥哥有热心用户发帖：同志们注意一下，这人是企业势
+
+然后泥哥风向立马一转，明明是凌晨两三点走廊一连串的黑屁帖和所谓预防针帖，不知道的人还以为是桐生可可来b限了 自此以后373民就在泥哥里抬不起头了
+
+不过373思想上确实有点问题，这种耐久偶尔一次还好，连续搞好几次一般路人也要厌倦了 她现在需要想想怎么转型
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22031#       发表于 2020-12-12 21:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/214624ypnxpvvpvnovupkv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpCnndTVQAACgv2.jpg</strong> (242.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 21:46 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/12/214719ktbfmfjln5b7o9uq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpCmc6vUYAARbED.jpg</strong> (223.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-12 21:47 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22032#       发表于 2020-12-12 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 巴姐日我
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 22033#       发表于 2020-12-12 21:50
+
+
+
+
+404的日v隔三差五地搞xx万粉 xx同接耐久基本也都能成，b这边反倒没多少效果是个什么缘故？还能全是买的不成
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 22034#       发表于 2020-12-12 21:51
+
+
+
+<[img src="https://i.loli.net/2020/12/12/5PSnRH3WYbLlDzB.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22035#       发表于 2020-12-12 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49699938&amp;ptid=1969498" target="_blank">sgssk 发表于 2020-12-12 21:50</a>
+
+404的日v隔三差五地搞xx万粉 xx同接耐久基本也都能成，b这边反倒没多少效果是个什么缘故？还能全是买的不成 ...</blockquote>
+404的日v（X）
+
+404的虹杏日v（O）
+
+b站一个是没有这种传统，另一个373本身没箱，也没社区宣传。能想到会比较难，但是四个小时了不到1000（甚至更少）粉是真的没想到。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22036#       发表于 2020-12-12 22:00
+
+
+
+
+虹杏扭曲了管人粉的数字观
+
+
+
+
+
+               
