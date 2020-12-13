@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 22:05** 
+> ## **本文件最后更新于2020-12-14 00:07** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Cfgrj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Z117R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_fvzd8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_A7S4e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -24412,6 +24412,25 @@ idol事务所？？？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -24698,7 +24717,7 @@ idol事务所？？？
 
 
 
- 本帖最后由 rzrbtk 于 2020-12-13 22:04 编辑 
+ 本帖最后由 rzrbtk 于 2020-12-13 22:19 编辑 
 
 尊因为笑过头也垫底了，惩罚游戏是用帅哥音说话，
 
@@ -24711,6 +24730,497 @@ idol事务所？？？
 
 
 
+又输了，换了个惩罚，尊问郡道：“喜欢怎么样的女人？”，郡：“胸大还像郡道的女人。”，尊：“那诗子你模仿美玲说话吧。”
+
+诗子：“仔细想想就是要暴言的意思？“，结果现在在学性感教师
 
 
-          
+诗子又又又输力！！！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22199#       发表于 2020-12-13 22:18
+
+
+
+
+楼友倒是提醒我了，这bug修不好兔皇的新衣服怕是没指望了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22200#       发表于 2020-12-13 22:20
+
+
+
+
+ぺこら「これスーパーチャットって言ってお金投げてくれてるの」
+ママ「どうして？」
+ぺこら「……」
+https://youtu.be/SOCq-xm6GzQ
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 22201#       发表于 2020-12-13 22:26
+
+
+
+
+我可不可以期待一个阿夸让久美子献声直播啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22202#       发表于 2020-12-13 22:27
+
+
+
+
+没事了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22203#       发表于 2020-12-13 22:31
+
+
+
+
+鸭皇这运气绝了，新年找个好点的神社参拜吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22204#       发表于 2020-12-13 22:51
+
+
+
+
+兔皇主要是有个一直以来家里人不知道她在当vtb的梗，所以就是那种十年寒窗无人问,一举成名天下知的歪嘴龙王剧情。
+其他人可能不太好学，久美子肯定是知道夸当v的，噱头上差一些。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22205#       发表于 2020-12-13 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49709346&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-13 21:44</a>
+
+讲真是真的服了，兔鲨就是种命里的uace吧，单人灭国，一机就能逆转战场局势，和其他的头部v完全不是 ...</blockquote>
+鲨现在凭什么和兔相提并论？别逗我笑了。兔子的实力，兵法，战术都是顶级的
+
+可以看眼同接榜，鲨皇现在的同接和兔神比，差了一个船长<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22206#       发表于 2020-12-13 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">别尬黑，鲨皇现在只是开着救世主高达划水罢了，等换上新机你们就知道错了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22207#       发表于 2020-12-13 23:00
+
+
+
+ 本帖最后由 admentus 于 2020-12-13 23:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49710002&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-13 22:52</a>
+
+鲨现在凭什么和兔相提并论？别逗我笑了。兔子的实力，兵法，战术都是顶级的
+
+可以看眼同接榜，鲨皇现在的 ...</blockquote>
+草，同样是路灯上的杏奴嘿民就别阴湿兔子了吧
+
+又不是不知道虚拟管人这东西改朝换代有多快，兔子也就运气好在风头上罢了，没准过两天就被扫进垃圾堆里变成2020年管人圈子出现过的流星了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22208#       发表于 2020-12-13 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49710079&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-13 23:00</a>
+草，同样是路灯上的杏奴嘿民就别阴湿兔子了吧
+
+又不是不知道虚拟管人这东西改朝换代有多快，兔子也就运气好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兔皇现在就是绝对的一，金字塔的最尖端。
+原来风头正劲的en倒是同接和sc都掉了，除了鲨皇其它几位数据放本社也就是二线。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22209#       发表于 2020-12-13 23:06
+
+
+
+
+说事实就是黑，不要太过分了
+
+
+cover现在不放新衣服的原因只有一个，那就是害怕BUG让兔皇到不了20W，达不到原本的数字，这数字可是cover的救星，不得马虎
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 22210#       发表于 2020-12-13 23:07
+
+
+
+
+holo怎么没了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">，精
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22211#       发表于 2020-12-13 23:07
+
+
+
+
+阴湿没什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  
+
+不过野兔子也该有点自信了，现在兔皇个人硬实力就是第一<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22212#       发表于 2020-12-13 23:08
+
+
+
+
+我甚至看不懂这是辱鲨还是辱船
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22213#       发表于 2020-12-13 23:13
+
+
+
+
+数字跟“质”从来就没有什么可靠的关系，兔子数据高作为野兔子很开心，但是用数据高去吹她能力好于其他人还是算了吧...
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22214#       发表于 2020-12-13 23:18
+
+
+
+
+不敢自信不敢自信，野兔子即使在杏仁中也是鄙视链底端好吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+而且你综应该没有兔皇起飞后才开始推兔子的人吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 22215#       发表于 2020-12-13 23:24
+
+
+
+
+崆峒了
+<img src="https://p.sda1.dev/0/478348bf7f32b06037b6355f75d80667/微信图片_20201213232403.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 22216#       发表于 2020-12-13 23:26
+
+
+
+
+别的也就算了，就我平时视奸群里谭里的情况下来，野兔子说什么杏奴鄙视链底端就有点过分了吧
+
+不谈《历史》里的上位替代论，就直播力之类的pkr就没拉过，加上粉丝跳的又不多，妥妥的顶级派系，咋还盲目自谦底端的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 22217#       发表于 2020-12-13 23:26
+
+
+
+
+兔皇就是歌力不行 各种车祸 这点还是不如鲨皇的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22218#       发表于 2020-12-13 23:28
+
+
+
+
+离直播结束五分钟，郡道今晚第一次中惩罚了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">，周围三个幸灾乐祸的
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 22219#       发表于 2020-12-13 23:32
+
+
+
+
+请问现在可以提前举行holo2020颁奖典礼了吗？   
+
+同接奖:兔皇
+
+SC奖：coco
+
+受期待的新人：鲨鱼
+
+………………
+
+年度最佳：狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22220#       发表于 2020-12-13 23:42
+
+
+
+
+25号SKB部一起玩桃铁，去年圣诞节没人有约，今年圣诞节也没人有约，大家......
+
+郡道的惩罚最后也没解除，一直噗噗噗的完全听不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">（但是可爱，不快感降低了）
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22221#       发表于 2020-12-13 23:44
+
+
+
+
+这个黑黑的event是线下还是线上的
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 22222#       发表于 2020-12-13 23:47
+
+
+
+
+就算有喜欢1920的照样也觉得你虹无聊啊。
+没把偶像粉开除虹粉籍是你虹社区18年最大的失误。
+你虹是典型的缺啥喊啥，不忘初心的天皇和想要文化的彩虹。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虹粉们再也不能自我投射到卯月身上了，虹和虹粉都输给了自己。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22223#       发表于 2020-12-13 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我早就发现你虹无聊了，棒球19w就开始了，陪你们演了这么久我也腻了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22224#       发表于 2020-12-13 23:56
+
+
+
+
+管人无关，多井pro拿了麻将大赛优胜，
+
+管人有关，郡道打了sc
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22225#       发表于 2020-12-14 00:06
+
+
+
+
+SC那个明天验货了，我是希望不要太多，让粽子拿一次月最佳
+
+
+
+
+
+         
