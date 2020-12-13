@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 18:05** 
+> ## **本文件最后更新于2020-12-13 22:05** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_A9yAQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_g3ZKR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Cfgrj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Z117R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -20141,10 +20141,11 @@ https://b23.tv/ROLTwd 1分26秒，那里就有
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| LilMemo| + 1|好评加鹅|
 | ylssb10438| + 1|希望本人看到不会自卑🙏|
 
 
@@ -23220,4 +23221,1496 @@ oto昨天玩了黄金矿工，节目效果很好，b限apex雀魂之类的真的
 
 
 
-            
+
+
+-----
+
+####  Ketestrait  
+##### 22113#       发表于 2020-12-13 18:10
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-13 18:14 编辑 
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1glme4g9g6vj20ud0irn1t.jpg" referrerpolicy="no-referrer">
+
+
+
+黛灰：力一应该知道，我说的很多内容是台本上没有的自己查的<img src="https://static.saraba1st.com/image/smiley/carton2017/051.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22114#       发表于 2020-12-13 18:12
+
+
+
+<img src="https://s3.ax1x.com/2020/12/13/reLKPO.gif" referrerpolicy="no-referrer"> 
+
+VTB顶级LIVE，点击就看，直播地址：[http://game.granbluefantasy.jp/](http://game.granbluefantasy.jp/)
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22115#       发表于 2020-12-13 18:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-13 18:36 编辑 
+
+《关于衣服上写着221B但liver本人完全不知道典出何处这件事》
+
+Syl，刚看到画面，这是在本社收录吗，抠图好烂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22116#       发表于 2020-12-13 18:24
+
+
+
+
+这次的quiz的题的质量很高啊，都还挺难的，好多题弹幕都得猜半天才能猜出来
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22117#       发表于 2020-12-13 18:29
+
+
+
+
+专业人士协助出题还是有成果的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22118#       发表于 2020-12-13 18:34
+
+
+
+
+说个俗的可以吗，我觉得设置成liver靠近耳边回答真的很好，很有ASMR感....
+
+郡道还有多久才搞完她的白金耐久啊、、、
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22119#       发表于 2020-12-13 18:35
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-13 18:42 编辑 
+
+黛灰这个广告用爽朗声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+syl
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1glmf1i41ynj20xw0j2tc3.jpg" referrerpolicy="no-referrer">
+
+
+下个月上节目的成员
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22120#       发表于 2020-12-13 18:45
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-13 18:49 编辑 
+
+【重大】発表します！【にじさんじ】【文野環/野良猫】（[https://www.youtube.com/watch?v=gctkQiy5Kao](https://www.youtube.com/watch?v=gctkQiy5Kao)）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">“是结婚还是怀孕啊？”
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">“秘密~”
+
+
+这是、、、得了精神疾病？？？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22121#       发表于 2020-12-13 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707720&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-13 18:35</a>
+
+黛灰这个广告用爽朗声</blockquote>
+这个芙莲是因为小护士太厉害，给加的debuff吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 22122#       发表于 2020-12-13 18:56
+
+
+
+<img src="https://i.loli.net/2020/12/13/Ko7whvFJOnd6pTk.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22123#       发表于 2020-12-13 19:03
+
+
+
+
+说了一堆梦游、压力、炎上、mugi和goto之类的支离破碎怪话之后，
+
+原来重大发表是跟ngo见面了，结果说了半天这个不是重大发表！？
+
+草啊笑死力，做了个超简陋重大发表PPT（亲自配效果音），还误触所以放了两遍，重大发表是：live2D不动了？？？？
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 22124#       发表于 2020-12-13 19:12
+
+
+
+
+她原来一直不能动的吗？？？？？？？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22125#       发表于 2020-12-13 19:17
+
+
+
+
+懂了，换设备了，以后都能动了！！
+sc“好感动，像vtb一样<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">”
+
+现在在放隐藏的初配信，是谁啦<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22126#       发表于 2020-12-13 19:33
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-13 19:35 编辑 
+
+我自己推的同接基本退回EN出道前的样子，别人好像也差不多。其中退的比较少的就是兔皇了。唯二数字没有明显减少的就是紫宝和懒狗了，看来大和纯度极高。
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22127#       发表于 2020-12-13 20:00
+
+
+
+
+看了下百鬼生日里的sc，感觉好中二啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22128#       发表于 2020-12-13 20:11
+
+
+
+
+夸的同接比11月还高了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22129#       发表于 2020-12-13 20:17
+
+
+
+
+开幕就快五万了。天赋&gt;努力
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22130#       发表于 2020-12-13 20:25
+
+
+
+
+👅🐕第一时间杀到现场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22131#       发表于 2020-12-13 20:28
+
+
+
+
+兔皇是真硬实力强，jp唯一牌面，掉了数据还是有几万
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 22132#       发表于 2020-12-13 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49708612&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-13 20:25</a>
+👅🐕第一时间杀到现场</blockquote>
+某种意义上到场的都是舔“狗”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22133#       发表于 2020-12-13 20:34
+
+
+
+
+今晚会有皆切吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22134#       发表于 2020-12-13 21:02
+
+
+
+
+兔皇整大活4w+待机<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 22135#       发表于 2020-12-13 21:03
+
+
+
+
+皆切皆切皆切
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22136#       发表于 2020-12-13 21:03
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-13 21:05 编辑 
+
+5W+待机了，芜湖
+
+
+真正的强者从来不畏惧bug的影响<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22137#       发表于 2020-12-13 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔皇的待机比绫总那边还要高
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22138#       发表于 2020-12-13 21:05
+
+
+
+
+来力！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22139#       发表于 2020-12-13 21:06
+
+
+
+
+妈妈&gt;the rest of hololive
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22140#       发表于 2020-12-13 21:07
+
+
+
+
+野兔子见岳母那是都得去的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22141#       发表于 2020-12-13 21:10
+
+
+
+
+486今晚连轴转，开完会限就去凸，凸完马上去桃铁。再加上白天播一下午。
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22142#       发表于 2020-12-13 21:12
+
+
+
+
+兔皇能顶着bugA出10w吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22143#       发表于 2020-12-13 21:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要兔皇还在，杏就不会输！
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 22144#       发表于 2020-12-13 21:14
+
+
+
+
+涨得好慢，10w难了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22145#       发表于 2020-12-13 21:15
+
+
+
+
+草 8w了  10w有望
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22146#       发表于 2020-12-13 21:15
+
+
+
+
+这评论栏跟来了独轮车似的，根本看不清，绝对已经上10w了。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22147#       发表于 2020-12-13 21:16
+
+
+
+
+裁狗播的什么4v垃圾屎看了几眼我尴得直接关了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22148#       发表于 2020-12-13 21:17
+
+
+
+
+现在这数据已经很恐怖了吧
+
+只要你兔皇还能A出那么高同接，巫妖王的帽子就不可能摘下来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22149#       发表于 2020-12-13 21:17
+
+
+
+
+来了来了，dokidoki
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 22150#       发表于 2020-12-13 21:17
+
+
+
+
+好急好急，岳母快出来
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22151#       发表于 2020-12-13 21:18
+
+
+
+
+紧张兔真的真的好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22152#       发表于 2020-12-13 21:19
+
+
+
+
+近10w同接，日语浓度还是挺高的，兔皇yyds
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10w过了
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22153#       发表于 2020-12-13 21:20
+
+
+
+
+10w了 能估测下无bug的同接吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22154#       发表于 2020-12-13 21:20
+
+
+
+
+这次是真的硬实力冠军了，还有谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 22155#       发表于 2020-12-13 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">硬实力这是招妈吗
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22156#       发表于 2020-12-13 21:21
+
+
+
+
+已经嗦不出话了。凡人并没有与神仙一较高低的欲望。
+
+
+
+
+
+
+
+-----
+
+####  sher1ock  
+##### 22157#       发表于 2020-12-13 21:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/212104qlsoa45ygrou4t9b.png" referrerpolicy="no-referrer">
+
+
+<strong>10.png</strong> (101.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 21:21 上传
+
+
+
+
+
+10w了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22158#       发表于 2020-12-13 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">11w了，兔妈怎么还不出现
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22159#       发表于 2020-12-13 21:22
+
+
+
+
+11w了，看评论英语浓度，如果没bug的话已经破了鲨皇歌回记录了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22160#       发表于 2020-12-13 21:22
+
+
+
+
+11w了，你们慢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22161#       发表于 2020-12-13 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了，要是非bug情况下，不说更新v圈同接，更新杏最高同接是没问题的。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 22162#       发表于 2020-12-13 21:22
+
+
+
+
+兔皇，恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22163#       发表于 2020-12-13 21:23
+
+
+
+
+还在涨 速度还不慢<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 22164#       发表于 2020-12-13 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“妈 我是日本第一人”
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22165#       发表于 2020-12-13 21:24
+
+
+
+
+岳母的声音好温柔啊，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22166#       发表于 2020-12-13 21:24
+
+
+
+
+有生之年能看到单人平A20W吗
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 22167#       发表于 2020-12-13 21:24
+
+
+
+
+妈妈！！！！！！！！把110嫁给我好吗
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22168#       发表于 2020-12-13 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是king啊，最强的vtb。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22169#       发表于 2020-12-13 21:25
+
+
+
+
+妈，我是king
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22170#       发表于 2020-12-13 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔皇好紧张，语速好快
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 22171#       发表于 2020-12-13 21:27
+
+
+
+
+兔宝：现在有十几万人在看我们哦
+
+兔妈：傻孩子你是宅傻了吗？
+
+会这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22172#       发表于 2020-12-13 21:27
+
+
+
+
+kawaii（无感情）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 22173#       发表于 2020-12-13 21:27
+
+
+
+
+13万了！yyds
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22174#       发表于 2020-12-13 21:30
+
+
+
+
+草兔皇终于整这个了
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 22175#       发表于 2020-12-13 21:30
+
+
+
+
+兔皇教你怎么现场骗钱
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22176#       发表于 2020-12-13 21:30
+
+
+
+
+草  被自己老妈说ぺコ也太羞耻了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22177#       发表于 2020-12-13 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  只恨有bug   应该差不多到峰值了  否则又是一个杏 新记录
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22178#       发表于 2020-12-13 21:32
+
+
+
+
+没事，等BUG结束以后新衣服立马给你放出来嗷，直接冲到25W+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 22179#       发表于 2020-12-13 21:32
+
+
+
+
+这评论滚屏的速度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22180#       发表于 2020-12-13 21:32
+
+
+
+
+idol事务所？？？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22181#       发表于 2020-12-13 21:32
+
+
+
+
+偶像事务所，兔子好能吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 22182#       发表于 2020-12-13 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带货了带货了 
+
+业务熟练
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22183#       发表于 2020-12-13 21:34
+
+
+
+
+妈妈太冷静了总感觉是在虐兔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22184#       发表于 2020-12-13 21:38
+
+
+
+
+弹幕速度太快了妈妈看不到，但这根本没可能慢下来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22185#       发表于 2020-12-13 21:40
+
+
+
+
+这控制不住的语速，太V了太V了
+
+老妈应该还是有点数的吧，毕竟做了这么久了
+
+
+所以除了鲨皇是论外的误差，兔皇确实是君临木口的体质吧
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22186#       发表于 2020-12-13 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">钦定了，v圈只有俩个ur（能单人非重大发表12w以上）那就是兔鲨！
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22187#       发表于 2020-12-13 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真是真的服了，兔鲨就是种命里的uace吧，单人灭国，一机就能逆转战场局势，和其他的头部v完全不是一个等级，你们是头部是因为你们的能力是头部，我们俩是头部，是因为最高只有头部！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22188#       发表于 2020-12-13 21:47
+
+
+
+
+火鸡：赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 22189#       发表于 2020-12-13 21:47
+
+
+
+
+火鸡被岳母点名，今晚可以睡不着觉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22190#       发表于 2020-12-13 21:47
+
+
+
+
+顶级野兔kiara
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/214725a1qznt44layjfd5p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>51.jpg</strong> (1.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 21:47 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 22191#       发表于 2020-12-13 21:48
+
+
+
+
+火鸡：moona
+
+你气不气 你气不气 你气不气
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22192#       发表于 2020-12-13 21:48
+
+
+
+
+安洁马车垫底被罚句尾必须带喵直到拿了一位，感觉说什么话都很害羞，
+
+这个人选好啊，另外三个根本没有羞耻心嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22193#       发表于 2020-12-13 21:48
+
+
+
+ 本帖最后由 katern 于 2020-12-13 21:49 编辑 
+
+火鸡赢了，moona输了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/13/214947f74axkaaxx4vx11v.png" referrerpolicy="no-referrer">
+
+
+<strong>twitter.com_takanashikiara.png</strong> (988.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 21:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 22194#       发表于 2020-12-13 21:53
+
+
+
+
+马内甲的工作保住了，太好了呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22195#       发表于 2020-12-13 21:58
+
+
+
+
+诗子垫底，惩罚从安洁换成诗子，内容是在说话前要加个“啊~~~~”之类的sexy音，
+
+从效果上来说，比较像黑魂捏人节目选女性角色然后那个被捅的试听音频<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22196#       发表于 2020-12-13 21:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/215935eytr5gki3s5zlttt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>01213215931.jpg</strong> (20.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 21:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22197#       发表于 2020-12-13 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22198#       发表于 2020-12-13 22:02
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-13 22:04 编辑 
+
+尊因为笑过头也垫底了，惩罚游戏是用帅哥音说话，
+
+诗子的私欲溢出来了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+不过一局，就又诗子垫底了，诗子学萝莉，地狱啊<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">，
+
+过于难顶所以换了一个，现在在学理想的正太，完全是诗子本人声线啊！
+
+
+
+
+
+          

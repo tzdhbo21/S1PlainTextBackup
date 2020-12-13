@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 22:00** 
+> ## **本文件最后更新于2020-12-13 22:00** 
 
 
 
@@ -1674,4 +1674,1375 @@ ayasuba又真了?<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 
 
-                                              
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10594#       发表于 2020-12-12 22:23
+
+
+
+
+看来是赶不上点回家开播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10595#       发表于 2020-12-12 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播间还没开 11点前能不能开都是问题
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10596#       发表于 2020-12-12 22:59
+
+
+
+
+动啊铁奥！
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10597#       发表于 2020-12-12 23:02
+
+
+
+
+好像放的就是贴图？这是在整什么活么
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10598#       发表于 2020-12-12 23:04
+
+
+
+
+去年不是啥都没干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10599#       发表于 2020-12-12 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她L2D坏了，不动了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10600#       发表于 2020-12-12 23:05
+
+
+
+
+茄子居然出现了，以前刚出道的时候就见过她来余的直播间，她们到底啥关系。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10601#       发表于 2020-12-12 23:09
+
+
+
+
+你还知道自己整凸待可能会冷场啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10602#       发表于 2020-12-12 23:10
+
+
+
+
+点进去就是一张傻脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10603#       发表于 2020-12-12 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还会担心凸待没人来，还知道自己没去过别人的，看你以后还敢不敢。
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10604#       发表于 2020-12-12 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">下次还敢
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10605#       发表于 2020-12-12 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">0凸预定
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 10606#       发表于 2020-12-12 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大傻脸也太傻了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10607#       发表于 2020-12-12 23:13
+
+
+
+
+姐你别说了听着好尬 去年你不是摸的透彻吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10608#       发表于 2020-12-12 23:13
+
+
+
+
+等下某职业LOL选手发来贺电怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10609#       发表于 2020-12-12 23:16
+
+
+
+
+咋还有点抽鼻子 是不是想起去年的罪行要打感情牌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10610#       发表于 2020-12-12 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她已经替我们原谅她去年的恶行了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10611#       发表于 2020-12-12 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">绫总你不会真的搞个0凸企划吧
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10612#       发表于 2020-12-13 10:06
+
+
+
+ 本帖最后由 nian1538 于 2020-12-13 10:20 编辑 
+
+[https://www.youtube.com/watch?v=kYfYjxUkHCk](https://www.youtube.com/watch?v=kYfYjxUkHCk)
+
+不是本人唱的イメージソング，有点怪
+
+鼻水是花粉过敏吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10613#       发表于 2020-12-13 13:23
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131728ig0qugbu88hgb8wb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC6qeRVoAMgIz8.jpg</strong> (173.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/ame_to_ame/status/1337774332785827842](https://twitter.com/ame_to_ame/status/1337774332785827842)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131731smbb3t8embhh2yex.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo4CGosUcAIk5GJ.jpg</strong> (258.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/rins10215/status/1337008461960232960](https://twitter.com/rins10215/status/1337008461960232960)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131730od81gbpce7b1yffn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eo7cmBPU8AE5i0m.jpg</strong> (202.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/norikoi_noriko/status/1337321222431010816](https://twitter.com/norikoi_noriko/status/1337321222431010816)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131730bn0nhjmofj6p9ovo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC6QtNU0AIFmpR.jpg</strong> (165.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/hilamaru/status/1337774215953432589](https://twitter.com/hilamaru/status/1337774215953432589)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131730e9gyyd2mlezm2mez.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC6kSgVEAcfIf5.jpg</strong> (490.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/yoshimura1129/status/1337774227542265858](https://twitter.com/yoshimura1129/status/1337774227542265858)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131728ioshrigw7zrbwi9i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpDCLE0UcAIRD4h.jpg</strong> (402.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/yuTia_drops/status/1337782590133002243](https://twitter.com/yuTia_drops/status/1337782590133002243)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131729a6ckkpkzn99nkkgp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpDAHllUcAI-q26.jpg</strong> (302.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/Kanari_As/status/1337780329726107656](https://twitter.com/Kanari_As/status/1337780329726107656)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131729fkkcqoam3rba8pqe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC8BXOVgAAHoK-.jpg</strong> (324.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/hawahaetoru/status/1337775833486770178](https://twitter.com/hawahaetoru/status/1337775833486770178)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131729mfyxp369pf9xzf3f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC6dlpUYAAVXYk.jpg</strong> (241.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/namaonpa/status/1337774629629280259](https://twitter.com/namaonpa/status/1337774629629280259)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131728fhzzzu81v4rufrue.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpDuIZyVEAASV89.jpg</strong> (559.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/NOno_i831/status/1337831140896358401](https://twitter.com/NOno_i831/status/1337831140896358401)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/131728mqpcarpw68cazcab.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpEydQGW8AAWzNK.jpg</strong> (403.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 13:17 上传
+
+
+
+
+
+[https://twitter.com/KuUKiPiSTo1/status/1337906062230511617](https://twitter.com/KuUKiPiSTo1/status/1337906062230511617)
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 一仙| + 1|好评加鹅|
+| Fami水| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 10614#       发表于 2020-12-13 20:02
+
+
+
+ 本帖最后由 cctvyt1 于 2020-12-13 20:03 编辑 
+
+看来今天没机会用上这图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/13/200333dx2wrr50i050funb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>131453282_1772844649543741_8631915367803634421_n.jpg</strong> (29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 20:03 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10615#       发表于 2020-12-13 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么沙雕图P的那么快
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10616#       发表于 2020-12-13 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10617#       发表于 2020-12-13 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">踩怎么又这么多的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10618#       发表于 2020-12-13 20:15
+
+
+
+
+15分钟了，你这开场要搞多久
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10619#       发表于 2020-12-13 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在墨迹下去 我这踩可要点下去了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10620#       发表于 2020-12-13 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49708494&amp;ptid=1914409" target="_blank">水城雪风_Z 发表于 2020-12-13 20:14</a>
+
+踩怎么又这么多的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全社让路，别家单推不爽了
+
+上次aki凸待就你一个撞上去
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 10621#       发表于 2020-12-13 20:17
+
+
+
+
+已经4W7了啊，没BUG是不是可以上8W的凸待啊
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10622#       发表于 2020-12-13 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，这是前几次绫总无视全社让路这个规矩的账
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10623#       发表于 2020-12-13 20:20
+
+
+
+
+只会让别人让路 绫总社霸说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10624#       发表于 2020-12-13 20:25
+
+
+
+
+都叫的同社营业的怎么整的真很害羞的样子<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 10625#       发表于 2020-12-13 20:25
+
+
+
+
+来了个评论里完全没人猜的人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10626#       发表于 2020-12-13 20:30
+
+
+
+
+猜一猜ayasub还真吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10627#       发表于 2020-12-13 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10628#       发表于 2020-12-13 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同期最先来的是老师
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10629#       发表于 2020-12-13 20:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假的，假的，全都是假的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10630#       发表于 2020-12-13 20:44
+
+
+
+
+同期来了安心草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10631#       发表于 2020-12-13 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">会有阿床么 现在都是同社凸待
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10632#       发表于 2020-12-13 20:45
+
+
+
+
+好酸日南<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10633#       发表于 2020-12-13 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日南最近越来越接近绫总了。。。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10634#       发表于 2020-12-13 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10635#       发表于 2020-12-13 20:50
+
+
+
+
+日南都被主动约了，舔狗应有尽有<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10636#       发表于 2020-12-13 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">娜娜也舔了啊 娜娜怎么没舔到
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10637#       发表于 2020-12-13 20:53
+
+
+
+
+?fams又真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 10638#       发表于 2020-12-13 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">fams太勉强了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10639#       发表于 2020-12-13 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fams是真的
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 10640#       发表于 2020-12-13 20:54
+
+
+
+
+FAMS集合了，卍组都是假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+船长最近蛮常舔绫的，说不定也会来
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10641#       发表于 2020-12-13 20:54
+
+
+
+
+486凸待时绫总在万组里
+
+绫总凸待时486在FAMS里
+
+
+ayasuba..<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10642#       发表于 2020-12-13 21:03
+
+
+
+
+皆切人复活！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 10643#       发表于 2020-12-13 21:03
+
+
+
+
+皆切是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10644#       发表于 2020-12-13 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大天使leile，傻紫在睡觉
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 10645#       发表于 2020-12-13 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">是真的
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10646#       发表于 2020-12-13 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">这不是真的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10647#       发表于 2020-12-13 21:10
+
+
+
+
+青春回来了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10648#       发表于 2020-12-13 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么你也跟夏哥一样觉得绫总好闻的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10649#       发表于 2020-12-13 21:13
+
+
+
+
+太贴了吧<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 10650#       发表于 2020-12-13 21:15
+
+
+
+
+恩人好萝卜来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10651#       发表于 2020-12-13 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿绫你吃饭的时候也是笑着吃的吗
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10652#       发表于 2020-12-13 21:23
+
+
+
+
+啊这........
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10653#       发表于 2020-12-13 21:24
+
+
+
+
+太紫昨晚来过 四舍五入二期整整齐齐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10654#       发表于 2020-12-13 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">miko居然来了，阿绫你心里有愧疚吗
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10655#       发表于 2020-12-13 21:29
+
+
+
+
+绫儿确实少女漫主角<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10656#       发表于 2020-12-13 21:31
+
+
+
+
+樱巫女很懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10657#       发表于 2020-12-13 21:37
+
+
+
+
+我日 没钱了啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10658#       发表于 2020-12-13 21:41
+
+
+
+
+狮子神出现了
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10659#       发表于 2020-12-13 21:41
+
+
+
+
+亲笔直接没了 好家伙
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10660#       发表于 2020-12-13 21:48
+
+
+
+
+这咋直播还没下呢就上架了 一点准备都没有就卖完了 怕不是有内鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10661#       发表于 2020-12-13 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，也太快了吧
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10662#       发表于 2020-12-13 21:51
+
+
+
+
+md是木口官方号30分准时发的推 绫人输给了大家庭粉<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10663#       发表于 2020-12-13 21:53
+
+
+
+
+算了，一切转cover**
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10664#       发表于 2020-12-13 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">草
+
+
+
+
+
+                                            
