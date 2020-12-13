@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 00:07** 
+> ## **本文件最后更新于2020-12-14 02:03** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_fvzd8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_A7S4e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Yz6K1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_bBDZl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -25223,4 +25223,623 @@ SC那个明天验货了，我是希望不要太多，让粽子拿一次月最佳
 
 
 
-         
+
+
+-----
+
+####  winda  
+##### 22226#       发表于 2020-12-14 00:07
+
+
+
+ 本帖最后由 winda 于 2020-12-14 00:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49710532&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2020-12-13 23:47</a>
+就算有喜欢1920的照样也觉得你虹无聊啊。
+没把偶像粉开除虹粉籍是你虹社区18年最大的失误。
+你虹是典型的缺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">古参雪步p，纯正偶像厨天皇是不是该退位了。
+哦，二把手是个做live梦把自己练进医院的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+算了，直接传位给葛叶吧，彩虹这烂摊子一般人还接不了。
+
+syl 又不熟又要转推发推维持虹人人设可太累了，19信也会觉得占位置老害德不配位的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22227#       发表于 2020-12-14 00:13
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-14 00:24 编辑 
+
+刚发现分享出来了，和会限内容做了部分修改，如图
+
+<img src="https://img.saraba1st.com/forum/202012/14/001115wnz5e3ys9zlngzog.png" referrerpolicy="no-referrer">
+
+
+<strong>chronoir.png</strong> (204.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 00:11 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/001205pkr33pqyukbk1znr.png" referrerpolicy="no-referrer">
+
+
+<strong>chronoir-2.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 00:12 上传
+
+
+
+
+
+
+
+原本未定时间的<strong>Winter 3D Live</strong>修改为<strong>Winter Event</strong>
+
+黑黑终于意识到自己的拉垮3D上不了台面，不能再拿出来糊弄粉丝了；
+
+不过也有可能是给枝枝枝的3D披露让路，3Dlive应该是没有了？
+
+
+Syl，PV最后加上了「旅の終着点」，要解散了吗，还有这种好事
+
+（印象中ODA好想也表示过这project要完结了耶——）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22228#       发表于 2020-12-14 00:15
+
+
+
+
+虚拟男友X2陪你过圣诞牛逼
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22229#       发表于 2020-12-14 00:18
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-14 00:21 编辑 
+
+虚拟适龄姨X4过圣诞难得不牛逼吗？
+
+省一楼，郡道还有9分上白金，但感觉这局要掉分啊，但总之今晚应该能上吧！
+
+再省，winda哥的鹅数值得纪念啊、、、
+
+再省，为什么，为什么郡道玩apex同接比马车高？？？？？？？？？？？？
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22230#       发表于 2020-12-14 00:24
+
+
+
+
+我佛了，我玩个POE都有weeb在讨论管人，可惜在delve里来不及截图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 22231#       发表于 2020-12-14 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706582&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-13 16:08</a>
+「Inui Toko 1st Solo Live "who i am"」niconico 时光机全程弹幕
+
+Available for 1 day.</blockquote>
+能再挂一天演唱会吗，之前忘了下了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22232#       发表于 2020-12-14 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 不是生主派系的人还真没办法接手你虹，破坏你虹引以为傲的“箱感”的人不就是那群前世互相轻车熟路的生主集团吗？
+
+
+前面那个note提到的，联动80案例还少吗？金鱼妹努力了多久想进去反抗军圈子的结果呢？
+
+
+3D棚被那几个熟面孔霸占多久了？
+
+
+主播的“实力”在前辈小团体面前不堪一击，想干出一番事业的人，面对的几座大山是那么容易就迈过去的？
+
+
+前世人脉成了联动硬指标，联动来联动去，就是那么几个熟面孔，是人都要厌恶反感了
+
+
+引以为傲的“自由”直播联盟被社内宗派霸占的一干二净，
+
+
+资源被肆无忌惮的单方面侵占掠夺，
+
+
+这群人早就埋下了崩坏祸根，
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 22233#       发表于 2020-12-14 00:27
+
+
+
+
+chima突击唱歌
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22234#       发表于 2020-12-14 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49710410&amp;ptid=1969498" target="_blank">乌鸦绅士 发表于 2020-12-13 23:32</a>
+
+请问现在可以提前举行holo2020颁奖典礼了吗？   
+
+同接奖:兔皇
+
+SC奖：coco</blockquote>
+今年的点踩要突破1w吗
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22235#       发表于 2020-12-14 00:35
+
+
+
+ 本帖最后由 qq845629713 于 2020-12-14 00:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我们假定每一批新人、每一次海外进出都有靠着自身优势培养或多或少观众群，
+
+
+那么就旧“团体”不和这些新人有所互动，是怕自己的观众群被分割么？
+
+
+答案其实并不是，习惯了自身舒适区，臃肿不堪的你虹旧“派系”并不想去吸引新观众，
+
+
+那么作为观众的角度来看呢？每天对着一成不变的联动群体就能得到乐趣了吗？
+
+
+10多个人小团体互相排列组合联动apex、桃铁、3D等等乏味的内容就是观众追求的么？
+
+所谓的前辈连评价后辈都只能用乏匮的词语回复“很可爱”“很努力”
+
+
+那些挣扎在夹缝之中的新人就一点优秀的点都没有么？如果没有，那彩虹的为什么要招人进来？
+
+
+“因为你的口癖和口了很像，这样很cool，所以金鱼你被录取了” 
+
+
+“你的口癖和前辈很像，引起了很**烦，所以请你毕业吧”
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22236#       发表于 2020-12-14 00:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer"> 2k不愧是铁血虹人 ，话里有话没有一句不在劈我杏！
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|有一说一，日本人都这样，还挺不一样的.|
+| alcoholic1000| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 22237#       发表于 2020-12-14 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49710969&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-14 00:38:22</a>
+v2.4.3</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">说这个我铁血杏奴就不满意了，你看百鬼绫目凸带多少人来，再看看绫总从来不去别人凸带
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22238#       发表于 2020-12-14 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49710969&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-14 00:38</a>
+2k不愧是铁血虹人 ，话里有话没有一句不在劈我杏！
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holo意味着成功，彩虹现在和holo的不同点通通可以算失败点
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22239#       发表于 2020-12-14 00:43
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-14 00:45 编辑 
+
+看到小天使100+同接寻思怎么回事，点进去一看直播结束了推流没断还行
+
+看弹幕好像是电脑出问题了。
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22240#       发表于 2020-12-14 00:44
+
+
+
+
+倒没有整天固定组合吧...？
+
+现在办的各种各样的活动也能促进成员之间的交往，不是挺好的，
+
+口了那是和金鱼一起不安爆炸，大小姐和东堂聊天都是”作为喜欢桐人的大小姐角色我们互相加油“，大多数人也没有那么自闭啦
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22241#       发表于 2020-12-14 00:46
+
+
+
+
+仔细想想，稍微仔细想想，这个「一成不变的联动群体」一定是黑黑吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22242#       发表于 2020-12-14 00:48
+
+
+
+
+不错！郡郡吃鸡上白金了，差不多该APEX毕业了吧！（做梦）
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22243#       发表于 2020-12-14 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49711009&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-14 00:43</a>
+
+看到小天使100+同接寻思怎么回事，点进去一看直播结束了推流没断还行
+
+看弹幕好像是电脑出问题了。</blockquote>
+电源烧了，前两天电脑就不太好了，估计要换新的了。附生草机天龙对话一张。
+
+<img src="https://img.saraba1st.com/forum/202012/14/005049drlanvywbv2ely28.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201214005010.png</strong> (216.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 00:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22244#       发表于 2020-12-14 00:53
+
+
+
+
+花妈上钻了也该毕业了吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22245#       发表于 2020-12-14 00:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 我也不是吓唬黑客gachi，通过这次100w 3D猜拳大会就明白了，用钱或者其他噱头才能吸引到这么多人来参赛，如果奖励是一个简陋的P图呢？
+
+其他大会没有这么多噱头，那为什么参加者众多呢？难道不是因为“某人”组织这个关键点才去的？
+
+如果换成阿绿组织的活动呢？她在dis里面喊一嗓子估计也就四个同期回应
+
+黑客看透这一庸俗的人际关系之后，会选择什么，我不寒而栗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22246#       发表于 2020-12-14 01:05
+
+
+
+
+可是，这不是，很正常的事吗....
+
+关系好的人组织的活动会比较愿意参加，关系普通的人就需要一下奖励来激励，这难道是虹的罪过吗，
+
+泡芙哥不也吹miko相对于其他杏人更有号召力，这就是很普遍的事啊？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22247#       发表于 2020-12-14 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49711153&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-14 01:05</a>
+可是，这不是，很正常的事吗....
+
+关系好的人组织的活动会比较愿意参加，关系普通的人就需要一下奖励来激励 ...</blockquote>
+我怎么觉得2000还是那个葵熊，为着阿葵曾经努力过的那个把大家联系到一起的梦想而期望着，叹息着。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22248#       发表于 2020-12-14 01:21
+
+
+
+
+2000这套狼来了真是看腻了，咒一起卡拉死你起码整点新活儿吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22249#       发表于 2020-12-14 01:23
+
+
+
+
+露露这直播突然昏过去一小会<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 22250#       发表于 2020-12-14 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49711241&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-14 01:19:21</a>
+我怎么觉得2000还是那个葵熊，为着阿葵曾经努力过的那个把大家联系到一起的梦想而期望着，叹息着。 ...</blockquote>你虹最开始站山头就是葵的山头和咲唯的山头 现在咲唯赢麻了 2k铁血葵熊心有不甘替主子鸣不平<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22251#       发表于 2020-12-14 01:31
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-14 01:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49711241&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-14 01:19</a>
+
+我怎么觉得2000还是那个葵熊，为着阿葵曾经努力过的那个把大家联系到一起的梦想而期望着，叹息着。[f:068 ...</blockquote>
+我不知道2000怎么想，但我觉得有这个梦想的人真的比较适合774
+
+
+省一楼，大家不仅猜管人的心思，也猜管人粉丝的心情，真是其乐无穷
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22252#       发表于 2020-12-14 01:40
+
+
+
+
+重大斗虫新消息 船在读sc中说自己会员达到一万了 整个会员数估算得重评价了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+        
