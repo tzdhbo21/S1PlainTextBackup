@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 00:05** 
+> ## **本文件最后更新于2020-12-13 14:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_W1R7x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_rj5JK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_pTrG1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Xue5m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -21954,4 +21954,711 @@ syl，灵儿姐姐推上更的视频把我听懵了<img src="https://static.sara
 
 
 
-              
+
+
+-----
+
+####  Hemis  
+##### 22056#       发表于 2020-12-13 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不对啊 我怎么印象里这种小视频不是随便发的吗
+
+是又被禁了还是干嘛了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22057#       发表于 2020-12-13 00:56
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-13 02:51 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/005613kcw2jhlocowk2h2j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#でろあーと  #のらねっこあら.jpg</strong> (488.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 00:56 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/key_999/status/1337742646563856384](https://twitter.com/key_999/status/1337742646563856384)
+
+
+
+Syl，黑黑明天又要普通的、没有工作性质的出去
+
+叶师傅看看自己的apex段位、看看自己多少年没打开过的马里奥赛车、再看看自己还有多少披露没有做
+
+就这还好意思出去呢，还好意思空口说自己要拿名次呢ww
+
+
+又又又开始聊护肤了，最好的护肤就是早睡
+
+再说hero不是告诉你了吗，整这么贵的东西随便糊就行了，不会太差的...倒是给我把对新衣装的品味稍微提高一点啊
+
+
+谈到了40w耐久...可别来了，耐久害人害己
+
+メンヘラ是谁，メンヘラ是你，メンヘラ竟在我身边
+
+恋爱相谈（我对这种左耳进右耳出）
+
+今晚上油管bug，做评论repo杂谈还挺麻烦的，评论经常冻住
+
+
+Zsyl，葛皇大晚上突然兴起，开了ブラサバ （Black Survival），你还记得这游戏怎么打我都不姓A...
+
+不过ブラサバ 的美术，真不错啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 精灵ama| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 22058#       发表于 2020-12-13 00:58
+
+
+
+
+黛灰花了100万搞猜拳大会，因为本赛举办在司会频道所以包括抽选在自己频道吃到2k订阅日增长在内到现在也就涨了4k，司会今天就涨了4k
+
+之前quiz王的时候也是，6万同接放在官方频道，这个人是真的不在意数字啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+接下来几个他已经告知的东西都不在自己窗，也不知道年内30w还有没有戏
+
+虽说他只要观众开心自己开心就很满意了，那我也不配多奢求什么，只能买音声支持一下<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|可以的！真·优质liver|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  WDDzzZ  
+##### 22059#       发表于 2020-12-13 01:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">真好啊
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22060#       发表于 2020-12-13 02:10
+
+
+
+
+郡道被hikakin回关了，啊他还新关注了一批彩虹人，怪
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22061#       发表于 2020-12-13 02:33
+
+
+
+
+Lilium…
+
+[https://youtu.be/sQY5nx8y3JA](https://youtu.be/sQY5nx8y3JA)
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/023316zhresi30qqdrgs2e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201213_023308.JPG</strong> (29.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 02:33 上传
+
+
+
+
+ <blockquote>◆Movie：雨森小夜様【@ Sayo_Amemori】
+
+
+◆Sound：ぴろぱる様【@ PIROPARU】
+
+
+◆Artwork：ヤスタツ様【@ yasutatsu_】
+
+
+◆Vocal：町田ちま</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 22062#       发表于 2020-12-13 03:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49702596&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2020-12-13 02:10</a>
+
+郡道被hikakin回关了，啊他还新关注了一批彩虹人，怪</blockquote>
+仔细看，他还关注了女主角
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 22063#       发表于 2020-12-13 03:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22064#       发表于 2020-12-13 03:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49702717&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2020-12-13 02:33</a>
+
+Lilium…
+
+
+https://youtu.be/sQY5nx8y3JA</blockquote>
+才注意到MV是雨森小夜海星 
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 22065#       发表于 2020-12-13 08:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49701645&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-13 00:21</a>
+不对啊 我怎么印象里这种小视频不是随便发的吗
+
+是又被禁了还是干嘛了 ...</blockquote>
+刚试了一下，这功能好像给砍了，网页动态发不了视频
+在手机app发动态虽然可以直接插视频进去，但其实和普通投稿在动态里显示是一样的，区别好像是审核快一点？然后给你自动分区打个小视频的tag
+
+<img src="https://p.sda1.dev/0/0c9f807e63a4b3b868d474bf427c132d/IMG_CMP_130612351.jpeg" referrerpolicy="no-referrer">
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22066#       发表于 2020-12-13 08:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大亏终于上钻了
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22067#       发表于 2020-12-13 09:22
+
+
+
+
+是我的错觉吗，怎么体感一觉醒来2077口碑大跳水了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22068#       发表于 2020-12-13 09:41
+
+
+
+
+SKB部！今晚！马车！
+赞诶！
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 22069#       发表于 2020-12-13 09:43
+
+
+
+
+昨晚麟犀的重大发表 
+
+全 白 毛
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gllzfswvb6j20ge0gxtfk.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gllzfxk7m3j20iw0angrw.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gllzgx5w4sj20iw0ann1q.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22070#       发表于 2020-12-13 09:44
+
+
+
+
+看看有啥新活
+
+
+
+
+
+
+Y$G1O_JSUBWX`%JR5PM9Q]W.png
+(259.71 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-13 09:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/093659rc9dbu9frbkuf89b.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 22071#       发表于 2020-12-13 10:33
+
+
+
+
+短发<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22072#       发表于 2020-12-13 11:15
+
+
+
+
+裁狗还是会讲话，“谁是业界第三？”
+
+你怎么不说谁是业界第一呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要两头恰饭是吧
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22073#       发表于 2020-12-13 12:03
+
+
+
+
+我现在很想看裁狗黑屁女主角啊
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22074#       发表于 2020-12-13 12:36
+
+
+
+
+最近のにじさんじをつまらないと感じる理由
+https://note.com/ppoch/n/n816eaad71dd8
+
+理由その１「案件とオフイベで見たい配信が減った」
+理由その２「生主離れとタレント化」
+理由その３「APEXブーム、CRカップ」
+理由その４「箱推させ力を感じない」
+理由その５「問題児の放任からコラボ嫌いへ」
+理由その６「箱推し意識の喪失」
+
+
+不知道为什么好评数已经完爆以前的文章了，可能真的有一点可取之处吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22075#       发表于 2020-12-13 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49705038&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-13 12:36</a>
+
+最近のにじさんじをつまらないと感じる理由
+
+https://note.com/ppoch/n/n816eaad71dd8</blockquote>
+apex那段确实写的不错啊，我也点赞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 22076#       发表于 2020-12-13 13:10
+
+
+
+<blockquote>Mafise 发表于 2020-12-13 08:04
+刚试了一下，这功能好像给砍了，网页动态发不了视频
+
+在手机app发动态虽然可以直接插视频进去，但其实和普 ...</blockquote>
+草，其实我昨天搜+试了一下也差不多结论
+
+只能客户端不能网页版
+
+是不是谁该手把手教月灵如何下载B站客户端+使用教程了（跨区警告
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22077#       发表于 2020-12-13 13:21
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-13 13:33 编辑 
+
+FPS界隈がにじさんじ界隈のパイを奪うために行っている、
+
+「<strong>定例の親交会か何か</strong>」だと思っています。
+
+
+タレント気取りアーティスト気取りと同じく、これは「競技者気取り」とでも言えば良いのでしょうか。
+
+かつて経験した大会の熱が忘れられずに、すぐに次の大会を求めてどこにでも飛びついて大会の為の活動をしたがっているようにも見えます。
+
+
+大会という名目の舞台に参加することで、何かしらの高いハードルに挑んでいる感、チャレンジをしている感は演出出来るでしょう。
+
+ただ私は上記のようにこのCRカップを「大会」だと捉えられないので、気分的にもライバー達の盛り上がり方について行けません。
+
+
+我挺同意的，CR这个比赛的高频率和BOSSおじさん推自家选手毫不掩饰的意图...几场看下来是真的觉得有些累。vliver选手已经没什么特训的动力了，Pro的高水准是一座难以与之比肩的山，与其说是「竞技赛事」和「大会」，其实本质上已经变为联谊了。
+
+
+不是说这种大会不好、或者主办方CR有多么其心可诛，就是作为观众...单纯的看累了。
+
+
+
+Syl，不过这个note主要观点，还是出于他「箱推」的身份，所以有些地方也...只能说是一期二期gamers种、或者说19前箱推粉的执念吧
+
+
+
+
+
+
+
+-----
+
+####  Steinray  
+##### 22078#       发表于 2020-12-13 13:30
+
+
+
+
+123都是指向主播的艺人化，这是彩虹的既定战略，也是那些艺人化主播自己的愿望。
+
+46是公司人多了都无法避免的
+
+5就完全主观了
+
+
+总之一个都改不了的，死心吧。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22079#       发表于 2020-12-13 13:33
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1glm63gjh8fj20cb06ydg9.jpg" referrerpolicy="no-referrer">
+
+
+按这个（指打SC解释bug）计算牛姨这2077播完能有多少来自cdpr的临时收入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pansherry| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22080#       发表于 2020-12-13 13:39
+
+
+
+
+cr是真的不行……
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22081#       发表于 2020-12-13 13:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">除了cr杯一群人功利打枪外，也就各种收费live活动等占用直播时间有点共鸣吧。毕竟彩虹还是个生主集团，本职还是不能放。今年1月的场面可不想复刻。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22082#       发表于 2020-12-13 13:42
+
+
+
+
+知名艺人都是一年三位数通告，管人观众希望自己的推能红出圈最好主动调整自己的心态嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22083#       发表于 2020-12-13 13:50
+
+
+
+
+楼里看虹的人包括我大部分都有19（甚至20）的推嘛，难以共情也是正常的，
+
+要说楼里谁能真的算得上这种推、能体会到这种心情...19前gamers信2000已经疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22084#       发表于 2020-12-13 14:00
+
+
+
+
+整篇文章有种“你能为公司做什么”的奇妙感觉，为了公司少玩apex，为了公司少接工商少办live，为了公司风评不好的人自觉开除大家庭资格永远自闭，搁前几个月还有订阅高的人为了公司应该去带后辈，除非这个“箱推”是田角陆，不然想实现还是有点难的，不如去看杏点苔啥的...
+省一楼，昨天我们小琥珀开了金曲歌回（[https://youtu.be/J-abmSmQJTk](https://youtu.be/J-abmSmQJTk)），比我想的还要能唱，感觉力气挺大也愿意顶着唱，king和mela！都发挥蛮好的，倒是香水这种低音多的就开始口胡，要兴趣可以去看看
+
+
+
+
+
+             
