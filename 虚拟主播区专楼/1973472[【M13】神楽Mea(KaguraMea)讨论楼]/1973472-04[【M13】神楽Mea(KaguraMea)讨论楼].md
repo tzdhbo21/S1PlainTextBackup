@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 00:10** 
+> ## **本文件最后更新于2020-12-13 18:10** 
 
 
 
@@ -10181,4 +10181,644 @@ syl，开场白抄星川的还行
 
 
 
-                              
+
+
+-----
+
+####  路人庚  
+##### 5072#       发表于 2020-12-13 00:46
+
+
+
+ 本帖最后由 路人庚 于 2020-12-13 00:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟如月聊了在玩的mmo，mea：是像FF那样的mmo
+
+
+聊到游戏内货币之后一转传教Cookie Clicker，如月完全不知道这个游戏，看评论感觉不知道的人还真多
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5073#       发表于 2020-12-13 01:00
+
+
+
+
+你也是嫁给ff的女人？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 5074#       发表于 2020-12-13 01:01
+
+
+
+
+像ff的游戏 说不定可以排除ff
+
+mea玩的mmo一定是我wow啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5075#       发表于 2020-12-13 01:05
+
+
+
+
+下了，约了以后还有（如月被飞了一直被阿咩吐槽是不是睡着了
+
+神乐桌游组多来点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5076#       发表于 2020-12-13 01:07
+
+
+
+
+是不是wow怀旧服啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5077#       发表于 2020-12-13 01:28
+
+
+
+
+刚看评论区有人科普m是多少钱，wow不会用多少m来说钱的啊。其实还有个方向是手机mmo日本那边挺多的。 
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5078#       发表于 2020-12-13 02:21
+
+
+
+
+肝了一天山口山,错过了好多直播…
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 5079#       发表于 2020-12-13 03:15
+
+
+
+
+她本人不开台的直播不太好追，错过也没办法
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5080#       发表于 2020-12-13 11:12
+
+
+
+ 本帖最后由 路人庚 于 2020-12-13 11:40 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/111210xjupk5k9iu1uqeab.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FB12F52C-F519-429C-92B4-B959CA9E799E.jpeg</strong> (267.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 11:12 上传
+
+
+
+
+
+
+
+syl，
+
+也许是我记错了日子，去年好像有一天b站发了置顶公告、app变成了黑白而且停了所有直播（包括国内主播）来着
+
+不过今年没有公告、也没有黑白、一堆主播也是照常直播，似乎并不存在什么全体禁令了
+
+看来大概最多停个转播就已足够了
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 5081#       发表于 2020-12-13 12:56
+
+
+
+
+手游的话可能是龙族幻想吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5082#       发表于 2020-12-13 14:22
+
+
+
+
+守着大国重器加班呢，真没空.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daydreamer  
+##### 5083#       发表于 2020-12-13 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49704245&amp;ptid=1973472" target="_blank">路人庚 发表于 2020-12-13 11:12</a>
+
+syl，
+
+也许是我记错了日子，去年好像有一天b站发了置顶公告、app变成了黑白而且停了所有直播（包括国内主 ...</blockquote>
+那是今年清明节吧
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 5084#       发表于 2020-12-13 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49701410&amp;ptid=1973472" target="_blank">路人庚 发表于 2020-12-12 23:55</a>
+
+这个如月跳脸、mea切断discord，有内味了
+
+
+聊到之前线下的事了，一起玩了个和桃铁很像的游戏，被CPU ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">两人聊到桃铁 如月问原来桃铁还能单人玩的啊 咩恼道 看 不知道加电脑玩的人出现了 如月一阵否定后问道 一个人玩没有意思的吧 咩直接消失了
+
+线下那天两个人玩了和桃铁差不多的游戏 是做桃铁的公司出的 因为对游戏时间没什么概念定了几十年 直接玩到了早上 还被电脑暴锤
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5085#       发表于 2020-12-13 17:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/172943yxkelldoskwvmx2d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>83F7EB1F-1190-48B5-AD21-86FEF2392308.jpeg</strong> (301.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 17:29 上传
+
+
+
+
+
+
+
+转了个fanart小视频+回复了作者
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5086#       发表于 2020-12-13 17:36
+
+
+
+
+TC播
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5087#       发表于 2020-12-13 17:41
+
+
+
+
+一进来就聊吃的
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5088#       发表于 2020-12-13 17:42
+
+
+
+
+起床TC要变成日常了吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5089#       发表于 2020-12-13 17:48
+
+
+
+
+终于让我赶上一次tc<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5090#       发表于 2020-12-13 17:48
+
+
+
+
+突然就去洗澡了还行，可惜静音on<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 5091#       发表于 2020-12-13 17:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">特地开播洗澡，姨化了姨化了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 秋游刃| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 5092#       发表于 2020-12-13 17:52
+
+
+
+
+做恶梦了  点外卖 想吃鱼 想吃海鲜盖饭 昨天吃了寿司 吃唰唰锅吧 现在肚子好饿啊饿的痛了 海胆？我只吃北海道的诶 对不起 话说你们有遇过一个月前点的店突然点不了的事么 感觉是倒了（？） 可能是时间段的原因 也可能 诶有小笼包诶！不过外卖的小笼包都很骗人的 买的时候看的图很好看 点了送过来之后那个肉散软散软的 完全不好吃  
+
+诶买鰤鱼吃好了 现在是季节么 就点这个了 点了有人帮我给钱吗 诶你来给吗 点什么呢~好好吃的样子呢~ 诶怎么刺身这么贵啊 比起盖饭贵好多 那还是点盖饭吧 给我付钱哦！点了两个盖饭？3000円 什么啊！明明说了帮我付的 怎么听了价格就说好贵不付了啊 骗人啊这是 啊谢谢 
+
+送来之前先洗个澡吧 不过要是送过来的时候要是正好洗澡就挺麻烦的 诶谢谢！要不再点点啥吧 点那个吧 多米诺披萨 
+
+好饿啊啊啊啊啊 去洗澡？好吧那就去洗澡l 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 1||
+| Cushaw| + 1|好评加鹅|
+| 路人庚| + 1||
+| 鷹書たかしょ| + 2|好评加鹅|
+| kerfars| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5093#       发表于 2020-12-13 17:57
+
+
+
+
+不特地开水声直播姨化个锤子啊（半恼
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5094#       发表于 2020-12-13 18:00
+
+
+
+
+怎么洗个澡还能累的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5095#       发表于 2020-12-13 18:01
+
+
+
+
+那能不能快点变姨啊！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5096#       发表于 2020-12-13 18:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5097#       发表于 2020-12-13 18:02
+
+
+
+
+另一个马自立洗澡直播都不静音的 小麻gachi都不会养<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5098#       发表于 2020-12-13 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707499&amp;ptid=1973472" target="_blank">鷹書たかしょ 发表于 2020-12-13 18:00</a>
+
+怎么洗个澡还能累的</blockquote>
+球形坦克表面积大 洗起来当然累了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5099#       发表于 2020-12-13 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5100#       发表于 2020-12-13 18:04
+
+
+
+
+没有姨味儿才是养gachi啊
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5101#       发表于 2020-12-13 18:06
+
+
+
+
+即使变成姨了，也不能忘了养gachi的技术<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5102#       发表于 2020-12-13 18:09
+
+
+
+
+也许这就是发酒疯吧
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5103#       发表于 2020-12-13 18:10
+
+
+
+
+小麻养gachi技术差得很 为什么会有这么多gachi啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             

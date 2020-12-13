@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 14:04** 
+> ## **本文件最后更新于2020-12-13 18:05** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_pTrG1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_Xue5m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_A9yAQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_g3ZKR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -22661,4 +22661,563 @@ cr是真的不行……
 
 
 
-             
+
+
+-----
+
+####  IDIDIDID  
+##### 22085#       发表于 2020-12-13 14:05
+
+
+
+
+说到艺人化，要是七姨太套皮之后在艺人这块的高度最终超过了清龙人时期，那这故事可太有意思了。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 22086#       发表于 2020-12-13 14:42
+
+
+
+
+鲨皇最近同接到底什么情况？是bug的原因还是独角兽破防的原因?
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22087#       发表于 2020-12-13 14:53
+
+
+
+
+bug吧，这段时间想斗虫有点难度
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 22088#       发表于 2020-12-13 15:00
+
+
+
+
+小v真是可怜啊，一下午一个sc都没有<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">https://youtu.be/GBD5fnOTdIk
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 22089#       发表于 2020-12-13 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706004&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2020-12-13 14:42</a>
+
+鲨皇最近同接到底什么情况？是bug的原因还是独角兽破防的原因?</blockquote>
+Bug，看下最近主播的弹幕速度就知道了，好多可是开了慢速的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22090#       发表于 2020-12-13 15:08
+
+
+
+
+点进去一看有400多人看在404真的已经不是底中底了  而是底中中了 更惨惨的多的繁如星海
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 22091#       发表于 2020-12-13 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706171&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-13 15:08</a>
+
+点进去一看有400多人看在404真的已经不是底中底了  而是底中中了 更惨惨的多的繁如星海 ...</blockquote>
+挂后台听 突然尖叫 点进去看原来是有人上了个1000日元的sc和会员 
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22092#       发表于 2020-12-13 15:20
+
+
+
+
+请牢记在404，同接上了三位数就不算真底边了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22093#       发表于 2020-12-13 15:49
+
+
+
+
+工商live都是能让公司赚钱的，为啥能来个为了公司少工商live呢
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 22094#       发表于 2020-12-13 15:52
+
+
+
+ 本帖最后由 Suzutsuki 于 2020-12-13 15:56 编辑 
+
+来看看gbf的春晚live啊 现在到角色live了 高级live 看看cy的技术<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 22095#       发表于 2020-12-13 15:54
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2020-12-13 15:56 编辑 
+
+我自己作为apex民，想要看到60人的真剑胜负对决目前除了上下限差距极大的cr杯也是没东西可以看了
+
+要是哈弟精力资金充足且愿意能多来一、两届最协估计也没人会去参加大多数liver连绿叶都当不了的cr杯
+
+
+
+
+
+
+
+
+-----
+
+####  iuiuk2  
+##### 22096#       发表于 2020-12-13 16:02
+
+
+
+
+什么时候管人live能有GBF春晚这个质量啊，要是出个VGO之类的氪金手游说不定就可以啦？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22097#       发表于 2020-12-13 16:04
+
+
+
+
+cy这么大一个公司，你圈拿谁比啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22098#       发表于 2020-12-13 16:05
+
+
+
+
+管人粉那么冤大头的吗，还会去玩管人版gacha...
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 22099#       发表于 2020-12-13 16:08
+
+
+
+ 本帖最后由 noHentai 于 2020-12-13 16:18 编辑 
+
+「Inui Toko 1st Solo Live "who i am"」niconico 时光机全程弹幕
+
+Available for 1 day.
+
+
+约8万2千余条弹幕，适配2小时38分完整时光机视频（前两天楼里发的是不行的，那个剪掉了前后待机部分，当然可以自行修改文件适配）
+
+与外挂字幕相同，修改为与视频同一文件名并置于同一文件夹下即可播放，建议使用Potplayer及xy-subfilters等字幕渲染插件才可以正常渲染，可Aegisub自定义样式。
+
+
+链接：[https://pan.baidu.com/s/1Su2gA0SydQMRdBALRW2V3w](https://pan.baidu.com/s/1Su2gA0SydQMRdBALRW2V3w)  提取码：2434 
+
+
+效果图↓
+<img src="https://p.sda1.dev/0/cb2a3175e26970f0c6a233ab3f9edf8d/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22100#       发表于 2020-12-13 16:19
+
+
+
+
+这个对问题人物的举例用了社长半年不理翔哥的例子还蛮搞笑的，翔哥女粉不会想杀了他的马？
+
+包括不想看工商，不想看线下活动
+
+嘴上说着箱推，其实还是毒唯啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真的，为什么不去看杏呢
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22101#       发表于 2020-12-13 16:22
+
+
+
+
+看到400同接还以为是在说郡道，
+每次郡郡玩apex感觉她真的开心到要死，虽然同接也一起死了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22102#       发表于 2020-12-13 16:30
+
+
+
+ 本帖最后由 深渊萃取 于 2020-12-13 16:31 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/162816m4anaq28cf2yc8fn.png" referrerpolicy="no-referrer">
+
+
+<strong>tsm.png</strong> (800.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 16:28 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/163059koi81fqfur44f814.png" referrerpolicy="no-referrer">
+
+
+<strong>yzh.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 16:30 上传
+
+
+
+
+
+
+
+vtuber课程，该请哪位来当讲师啊
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22103#       发表于 2020-12-13 16:40
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-13 16:43 编辑 
+
+关于翔哥社长那事情其实我私下也吐槽过...
+
+
+某liver说漏嘴过，你虹马内甲（尤其是头部的马内甲）私下对liver是有约束的，比如「不能和某些犯错liver互动」之类的，就这点我反倒觉得你虹是真狼性
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22104#       发表于 2020-12-13 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706768&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-13 16:30</a>
+
+vtuber课程，该请哪位来当讲师啊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/13/164203v72lzqqf2rz7jhtg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201213164147.png</strong> (106.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 16:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22105#       发表于 2020-12-13 16:45
+
+
+
+
+叔叔赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22106#       发表于 2020-12-13 16:50
+
+
+
+
+琉璃姐到底是想en进出还是cn进出啊，难道两个都要？欲張り
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22107#       发表于 2020-12-13 16:56
+
+
+
+ 本帖最后由 十四洲 于 2020-12-13 16:58 编辑 
+
+oto昨天玩了黄金矿工，节目效果很好，b限apex雀魂之类的真的不如换成这种小游戏
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22108#       发表于 2020-12-13 17:03
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-13 17:14 编辑 
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1glmc5nssfhj20yw0mn43d.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/tfS01BpGFIc](https://youtu.be/tfS01BpGFIc)
+
+
+万恶的彩虹综艺新节目开始了
+
+
+
+
+syl
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1glmcibp8bwj20pv0j2mzb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22109#       发表于 2020-12-13 17:20
+
+
+
+
+那没戏。众所周知，cn进出靠NGA，en进出要考油管，那NGA对油管直播什么态度可以参考走廊鉴赏贴<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22110#       发表于 2020-12-13 17:40
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-13 17:49 编辑 
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1glmd81pjw7j20qc0irwge.jpg" referrerpolicy="no-referrer">
+
+
+这个题还挺有意思的
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1glmdhl9i81j20qs0ipjtn.jpg" referrerpolicy="no-referrer">
+
+
+难度突然上升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22111#       发表于 2020-12-13 17:48
+
+
+
+
+cn进出和en进出都很成功的例子
+
+我知道了，是绊爱
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22112#       发表于 2020-12-13 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706984&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-13 16:56</a>
+
+oto昨天玩了黄金矿工，节目效果很好，b限apex雀魂之类的真的不如换成这种小游戏 ...</blockquote>
+之前爱丽丝还玩植物大战僵尸和疯狂的小鸟，玩这种游戏真的好看多了
+
+
+
+
+
+            

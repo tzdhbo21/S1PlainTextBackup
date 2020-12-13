@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-11-26 02:00** 
+> ## **本文件最后更新于2020-12-13 18:01** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_RHGm9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_lZ1jr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Kh91K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_dq2Xq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -22252,7 +22252,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_oDIeH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_fCQsa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -24045,4 +24045,566 @@ https://www.konjikiblog.com/entry/sutapuriss-15kounen15miri1
 
 
 
-      
+
+
+-----
+
+####  HGCG  
+##### 2792#       发表于 2020-11-26 18:32
+
+
+
+<img src="http://wx4.sinaimg.cn/mw690/e7cbae74gy1gl2jt9ujbwj20zf0dnhdt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 2793#       发表于 2020-11-27 09:47
+
+
+
+
+被感染的对象换成人了为啥还是xxx在哭泣w
+
+旅馆回拿铁说黄衫男子在哭泣的时候忍不住笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+医生回赞，前半段日剧感好强<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2794#       发表于 2020-11-28 20:21
+
+
+
+
+还有三个月完结
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2795#       发表于 2020-11-29 08:15
+
+
+
+
+这几个星期肉身打斗戏多了很多。下星期沙滩回
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2796#       发表于 2020-11-29 12:27
+
+
+
+
+蓝毛这种想法才是正常人吧，哪有学生拿个冠军就想着世界大赛的。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2797#       发表于 2020-11-29 13:13
+
+
+
+
+态度转变有点突兀，这集我以为是讲不同目标理念只要遵从本心也能相互较量，结果还是目标世界
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2798#       发表于 2020-11-29 17:37
+
+
+
+
+说是放到3月结束
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2799#       发表于 2020-11-29 17:59
+
+
+
+
+这次秋剧场版票房排行倒数一... 四亿都没有到
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 2800#       发表于 2020-11-29 18:50
+
+
+
+
+下集泳装回？
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 2801#       发表于 2020-11-29 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49558163&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-11-29 17:59</a>
+
+这次秋剧场版票房排行倒数一... 四亿都没有到</blockquote>
+客观因素巨大
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2802#       发表于 2020-11-29 22:03
+
+
+
+
+所以未来职业就是和佳当医生，知优去跳高是吧，我还以为去继承旅店老板，等一个日向回<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">其实本来就是一个当作人生规划一个当兴趣吧，刚好输了不甘心被气到的感觉
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 2803#       发表于 2020-11-29 23:54
+
+
+
+
+12月的泳装回，冬だ！海だ！
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2804#       发表于 2020-11-30 18:08
+
+
+
+
+中间的追人日剧跑 笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2805#       发表于 2020-12-1 08:55
+
+
+
+
+这话感觉反派好碍事。。。没反派这话扩充一下心理活动就好了。。。另外蓝战士难得享受作画回待遇。。。剧情也比较上心，上一次是不是追溯到甜点狮子了？感觉作画回不是黄的就是粉的
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2806#       发表于 2020-12-1 11:39
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gl7xs1nq6wj20my0wjnpe.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gl7y03x75fj20u018qx6q.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gl7xy8fchij20ob0d70w7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 2807#       发表于 2020-12-1 12:30
+
+
+
+
+金月龙之介在全系列q娃中只写了3话脚本，分别是治愈q娃8、16、25。出自atwiki
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2808#       发表于 2020-12-4 19:46
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1glbyh9yh0aj20hs0dcwgd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2809#       发表于 2020-12-5 17:16
+
+
+
+<blockquote>cmyk1234 发表于 2020-12-1 12:30
+金月龙之介在全系列q娃中只写了3话脚本，分别是治愈q娃8、16、25。出自atwiki ...</blockquote>
+他那几集怎样？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2810#       发表于 2020-12-6 11:13
+
+
+
+
+最后只有日向算是泳装吧……
+
+和佳都没脱……
+
+然后这捏他是青春的火焰/排球女将 吧
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2811#       发表于 2020-12-6 15:49
+
+
+
+<blockquote>HGCG 发表于 2020-12-6 11:13
+最后只有日向算是泳装吧……
+
+和佳都没脱……
+
+然后这捏他是青春的火焰/排球女将 吧 ...</blockquote>
+这制作组还挺会整活的，还有前一次的知优回
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 2812#       发表于 2020-12-6 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49625985&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-12-6 11:13</a>
+
+最后只有日向算是泳装吧……
+
+和佳都没脱……
+
+然后这捏他是青春的火焰/排球女将 吧 ...</blockquote>
+剧中剧的开头让我想到的也是青春的火焰，然后还附带赞助提供信息就有点生草
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2813#       发表于 2020-12-6 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">沙滩回但是没有泳装，不过和佳的短发辫子很棒，整活还整的很有意思的
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2814#       发表于 2020-12-7 18:28
+
+
+
+
+这集搞的不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+和佳的小辫子 可爱 rprp 然后这泳装怎么回事！给我吧外套脱了啊！
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2815#       发表于 2020-12-7 18:38
+
+
+
+
+为什么千优看的恐怖片就没这个待遇！
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1glfh4xygztj20u00w3h3h.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 2816#       发表于 2020-12-9 12:28
+
+
+
+
+这集太会整活了，辛苦日向吐槽，阿苏米去接怪人发的球那段真的很有微笑的感觉
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2817#       发表于 2020-12-10 00:37
+
+
+
+
+这集很好看
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2818#       发表于 2020-12-13 12:40
+
+
+
+
+这集友情浓度有点高，日常真好看
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2819#       发表于 2020-12-13 13:04
+
+
+
+
+ヒーリングっど❤プリキュア 感謝祭 オンライン　CM
+[https://www.youtube.com/watch?v=30ytWYpE_TM](https://www.youtube.com/watch?v=30ytWYpE_TM)
+[https://v.youku.com/v_show/id_XNTAwNTY4NTE3Mg==.html](https://v.youku.com/v_show/id_XNTAwNTY4NTE3Mg==.html)
+
+<img src="https://p.sda1.dev/0/b81a884f57995deb68be9a68d8921766/EpFSY6BVQAEPQzR.jpg" referrerpolicy="no-referrer">
+
+
+応援してくれたみんなに「ヒーリングっど❤プリキュア」から1年間のキュン！をこめて、「ヒーリングっど❤プリキュア　感謝祭」オンラインで開催決定！2021年2月21日（日）、感動のスペシャルステージを配信でお届けします。
+
+番組声優キャストによるここだけのトークコーナーやオリジナル朗読劇、プリキュアのスペシャルなキャラクターステージショー、さらには主題歌歌手による圧巻のミュージックライブなど、ファン必見の豪華盛りだくさんの内容です！
+
+「ヒーリングっど❤プリキュア」の魅力が詰まった一大イベントを、今年はご自宅から、ご家族みなさまでお楽しみください！　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+
+
+〇配信日程 
+
+２０２１年２月２１日（日）　13：00～配信開始　　　
+
+
+〇チケットご購入ページ
+[https://w.pia.jp/t/precure-online/](https://w.pia.jp/t/precure-online/)  
+
+
+〇イベント公式サイト　
+
+【公式HP】[https://precure-kanshasai.com/](https://precure-kanshasai.com/)
+
+【公式Twitter】＠precure_kansha　（ [https://twitter.com/precure_kansha](https://twitter.com/precure_kansha) ）
+
+
+〇出演者     
+
+ヒーリングっど❤プリキュア     
+
+【出演声優キャスト】     
+
+★悠木碧 キュアグレース／花寺のどか　役  
+
+★依田菜津 キュアフォンテーヌ／沢泉ちゆ　役  
+
+★河野ひより キュアスパークル／平光ひなた 役  
+
+★三森すずこ キュアアース／風鈴アスミ 役  
+
+★加隈亜衣 ラビリン   役
+
+★武田華 ペギタン   役
+
+★金田アキ ニャトラン  役 
+
+★白石晴香 ラテ   役
+
+【出演歌手】    
+
+☆Machiｃo 前期エンディング主題歌 歌手   
+
+☆宮本佳那子 後期エンディング主題歌 歌手　　　　　　　　　　　　※すべて予定
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2820#       发表于 2020-12-13 13:41
+
+
+
+
+有网友分析说，死活出不了5星卡，那一定是在玩公主链接
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1glm6bgknbij20sg0g0din.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2821#       发表于 2020-12-13 17:17
+
+
+
+
+这两集表情包真的多(//∇//)截图停不下来
+
+
+
+
+
+     
