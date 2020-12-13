@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-11 12:24** 
+> ## **本文件最后更新于2020-12-13 20:12** 
 
 
 
@@ -9,11 +9,11 @@
 
 
 
- 本帖最后由 HGCG 于 2020-12-10 18:58 编辑 
+ 本帖最后由 HGCG 于 2020-12-13 15:59 编辑 
 
 化妆变身！无敌的干劲！
 
-<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gl39dvhnqqj21hb0tzqv7.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1glmaaxi77ej21rw0euqv6.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -2228,4 +2228,591 @@ rouge 和 rogue是两个词
 
 
 
-                                             
+
+
+-----
+
+####  菊妖不是怪  
+##### 128#       发表于 2020-12-11 12:37
+
+
+
+
+正统海萤堡续作在霹雳q娃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 129#       发表于 2020-12-11 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49683444&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2020-12-11 12:37</a>
+
+正统海萤堡续作在霹雳q娃
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+别说了，别说了.jpg
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 130#         楼主| 发表于 2020-12-13 15:56
+
+
+
+ 本帖最后由 HGCG 于 2020-12-13 16:10 编辑 
+
+<img src="http://wx1.sinaimg.cn/large/6765fd79gy1glma3mepwkj20w10u0dtp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/mw1024/9657fdc2gy1glmamcxz33j20o70da7f1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 131#       发表于 2020-12-13 16:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/13/161416bpdhwpvhddqvv0q1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201213161346.jpg</strong> (161.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-13 16:14 上传
+
+
+
+
+
+
+这这这，认真的？
+
+妈耶
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 132#         楼主| 发表于 2020-12-13 16:17
+
+
+
+
+你们说红色会不会是石原夏织
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 133#       发表于 2020-12-13 16:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这真不是偶活片场过来的？
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 134#       发表于 2020-12-13 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706688&amp;ptid=1963832" target="_blank">soranoguiji 发表于 2020-12-13 16:19</a>
+
+这真不是偶活片场过来的？</blockquote>
+我怀疑红发是从小魔仙这边过去的
+
+
+第一感觉粉毛不错
+
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 135#       发表于 2020-12-13 16:25
+
+
+
+
+这太爱卡次了吧
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 136#         楼主| 发表于 2020-12-13 16:30
+
+
+
+
+妖精是有耳朵的海豹
+<img src="http://wx1.sinaimg.cn/large/6765fd79gy1glmb64m3isj20d20dgn0j.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 137#       发表于 2020-12-13 16:51
+
+
+
+
+人鱼形态怕不是过个几集就不用了的设定
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 138#       发表于 2020-12-13 16:52
+
+
+
+
+女主原型是火烈鸟？黄毛这个眼影有点恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+有水手领就是美少女战士了吧，其实只有左一是Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  spadepie  
+##### 139#       发表于 2020-12-13 16:54
+
+
+
+
+人鱼和其他人的关系说不定是彩灵堡三人组和彩俐的关系
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 140#       发表于 2020-12-13 17:02
+
+
+
+
+偶活精神续作（误
+这个粉主头发就看起来很难画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 141#       发表于 2020-12-13 17:16
+
+
+
+
+草 这人设我不能接受
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 142#       发表于 2020-12-13 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一半黄毛一半粉的
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 143#       发表于 2020-12-13 17:24
+
+
+
+
+终于有人猪队友了
+夏天是粉
+火烈鸟是红
+木瓜是黄
+珊瑚是紫
+人鱼从衣服来看 会不会走光教主和奶玫瑰路线 不是q娃的q娃
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 144#       发表于 2020-12-13 17:25
+
+
+
+ 本帖最后由 banglian 于 2020-12-13 17:26 编辑 
+
+如果这是真的，那女主人设也太偶活了吧。而且还是12年初代偶活那味<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 145#         楼主| 发表于 2020-12-13 17:30
+
+
+
+
+紫色的眼睛下面的心
+
+好魔性啊 ​​​​
+<img src="http://wx4.sinaimg.cn/mw690/9657fdc2gy1glmcwy8al4j20a30cralr.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 146#       发表于 2020-12-13 17:30
+
+
+
+
+假的吧，风格差别好大
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 147#       发表于 2020-12-13 18:07
+
+
+
+
+蓝色旅人可能是妖精变身的，拉拉和光2.0？
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 148#       发表于 2020-12-13 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707262&amp;ptid=1963832" target="_blank">HGCG 发表于 2020-12-13 17:30</a>
+紫色的眼睛下面的心
+
+好魔性啊 ​​​​</blockquote>
+0048的眼睛里也有心
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 149#       发表于 2020-12-13 18:28
+
+
+
+
+上一部露脐要追溯到哪一年？
+
+
+
+
+
+
+
+-----
+
+####  spadepie  
+##### 150#       发表于 2020-12-13 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707673&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2020-12-13 18:28</a>
+上一部露脐要追溯到哪一年？</blockquote>
+组曲吧，但实际上组曲也没有露脐
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 151#       发表于 2020-12-13 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707753&amp;ptid=1963832" target="_blank">spadepie 发表于 2020-12-13 18:39</a>
+组曲吧，但实际上组曲也没有露脐</blockquote>
+是拥抱吧
+
+
+
+
+
+
+
+-----
+
+####  spadepie  
+##### 152#       发表于 2020-12-13 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707784&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2020-12-13 18:43</a>
+是拥抱吧</blockquote>
+是我忘了<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 153#         楼主| 发表于 2020-12-13 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707263&amp;ptid=1963832" target="_blank">Sliurus 发表于 2020-12-13 17:30</a>
+
+假的吧，风格差别好大</blockquote>
+批发商的网站现在还没删页面呢
+[https://www.netsea.jp/shop/34900 ... amp;gid=1&amp;pid=2](https://www.netsea.jp/shop/349007/shb-201218-yoyaku8?cx_search=new#&amp;gid=1&amp;pid=2)
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 154#       发表于 2020-12-13 19:06
+
+
+
+
+妈呀……
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 155#       发表于 2020-12-13 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707753&amp;ptid=1963832" target="_blank">spadepie 发表于 2020-12-13 18:39</a>
+组曲吧，但实际上组曲也没有露脐</blockquote>
+印象中上一次是抓心的五木
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 156#       发表于 2020-12-13 19:33
+
+
+
+
+有种一言难尽的感觉，不过东映强x观众审美也不是一天两天的事情了
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 157#       发表于 2020-12-13 19:35
+
+
+
+<blockquote>HGCG 发表于 2020-12-13 18:52
+批发商的网站现在还没删页面呢
+
+https://www.netsea.jp/shop/349007/shb-201218-yoyaku8?cx_search=new#&amp;g ...</blockquote>
+貌似被和谐了
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 158#         楼主| 发表于 2020-12-13 19:39
+
+
+
+
+红战士穿的莫非是过膝网袜？ 
+<img src="http://wx4.sinaimg.cn/mw690/9657fdc2gy1glmfsjo287j20nw15be83.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 159#       发表于 2020-12-13 19:40
+
+
+
+
+衣服还挺好看，就是发型普遍好昭和
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 160#       发表于 2020-12-13 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49708223&amp;ptid=1963832" target="_blank">purdre 发表于 2020-12-13 19:40</a>
+衣服还挺好看，就是发型普遍好昭和</blockquote>
+也没多昭和
+楼上有人说了，仿佛是隔壁棚化完妆直接过来的
+
+
+
+
+
+                                            
