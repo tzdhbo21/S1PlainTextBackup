@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 22:04** 
+> ## **本文件最后更新于2020-12-15 02:03** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_g63g6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_CtkzE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_P80Pu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_U9YEI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -28256,4 +28256,623 @@ crew是拿啥针对狐皇呢</blockquote>
 
 
 
-    
+
+
+-----
+
+####  plok201  
+##### 22360#       发表于 2020-12-14 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家庭，大家庭，我感动了，寒冷的冬天，只有温暖的大家庭能治愈S1的各位，希望整个holo的V都能过来
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 22361#       发表于 2020-12-14 22:13
+
+
+
+
+转张船长，推特链接：[https://twitter.com/ayamy_garubinu/status/1338413291081613314](https://twitter.com/ayamy_garubinu/status/1338413291081613314)
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/221238if9psfeydxzi5upp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpL_tAIVoAIqsLs.jpg</strong> (304.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 22:12 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| UnhappyTails| + 1|太好啦|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kitali  
+##### 22362#       发表于 2020-12-14 22:19
+
+
+
+ 本帖最后由 Kitali 于 2020-12-14 22:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49721504&amp;ptid=1969498" target="_blank">过不了审 发表于 2020-12-14 21:54</a>
+
+挺大可能，粥哥有没有说过鬼灭的事？我迷迷糊糊记得486安利了她</blockquote>
+何止是说过，简直就是沉迷<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">猫科杂谈差点拉着牡丹住在家里把26集鬼灭带着网王全看一遍
+[https://twitter.com/gurren_arabi/status/1337061299730198528?s=19](https://twitter.com/gurren_arabi/status/1337061299730198528?s=19)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kitali  
+##### 22363#       发表于 2020-12-14 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49721735&amp;ptid=1969498" target="_blank">Kitali 发表于 2020-12-14 22:19</a>
+何止是说过，简直就是沉迷上周大早上起来看第一集还看哭了，过两天去看了剧场版说心碎了，估计又哭 ...</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/222359lttwro7drcxd7nwo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20201214_221833.jpg</strong> (135.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 22:23 上传
+
+
+
+
+
+还有小漫画来的，电脑传不上来图啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22364#       发表于 2020-12-14 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49721735&amp;ptid=1969498" target="_blank">Kitali 发表于 2020-12-14 22:19</a>
+何止是说过，简直就是沉迷上周大早上起来看第一集还看哭了，过两天去看了剧场版说心碎了，估计又哭 ...</blockquote>
+想起之前尊妈也拉着船长聊了一晚上鬼灭bl同人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22365#       发表于 2020-12-14 22:35
+
+
+
+
+烂货垃圾圆脸，这周又要播四次，垃圾
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 落雪无痕| + 1|欢乐多|
+| フミさん| + 1|免费，我的免费|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22366#       发表于 2020-12-14 23:10
+
+
+
+
+GBF现在入坑多尴尬，普池+圣诞复刻，只有mao和土大奶能用，等16号晚上更新卡池，指不定就是今年圣诞+月中百六的新超，肝一肝鬼灭搞定，下周又有转盘，香的
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 22367#       发表于 2020-12-14 23:20
+
+
+
+
+又不是认真玩，无所谓新超的
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 22368#       发表于 2020-12-14 23:25
+
+
+
+
+可能是骑空士招募看多了被影响了。。。
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 22369#       发表于 2020-12-14 23:36
+
+
+
+
+鬼灭害人不浅
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 22370#       发表于 2020-12-15 00:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">盐天使因点赞tskk绝赞被炎中
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22371#       发表于 2020-12-15 00:25
+
+
+
+
+虽然cy允许GBF直播但是里头有坑
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 22372#       发表于 2020-12-15 00:32
+
+
+
+
+盐天使这笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她有日本盘，不可能切割，这个样没有补救方法，跑路吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 22373#       发表于 2020-12-15 00:37
+
+
+
+
+啥智商啊 想不通
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22374#       发表于 2020-12-15 00:38
+
+
+
+
+gbf这么复杂的，我也看不懂，只会做小学数学题的鸭皇肯定是玩不转的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 22375#       发表于 2020-12-15 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新时代人要求太高，赶紧跑路才是上策
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 22376#       发表于 2020-12-15 00:49
+
+
+
+
+就新时代这风气迟早得再炸一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nieven  
+##### 22377#       发表于 2020-12-15 00:56
+
+
+
+
+新时代人最奇妙的是面对个人势点赞重拳冲击面对同社密友激光烤肉
+
+他们到底是想干什么呢我实在想不明白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 22378#       发表于 2020-12-15 00:56
+
+
+
+
+喷了，都要睡了怎么来了这么个弱智操作。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 22379#       发表于 2020-12-15 01:00
+
+
+
+
+别尬黑，老媚中了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22380#       发表于 2020-12-15 01:01
+
+
+
+
+郡道妈的声音和诗子的声音有点点像，
+
+比郡道可爱，还会假哭，感觉会比郡道受欢迎啊
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 22381#       发表于 2020-12-15 01:02
+
+
+
+
+盐天使这波有点乐，期待仗育樱花妹、泥哥和贵物字幕组接下来的表演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22382#       发表于 2020-12-15 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">可新时代企业PTSD人和老杏奴，真的是一伙人吗？
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 22383#       发表于 2020-12-15 01:03
+
+
+
+
+杏奴激光烤肉跟新时代 也不是一波人啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22384#       发表于 2020-12-15 01:06
+
+
+
+[ホロライブの人気Vtuber・紫咲シオンさん「クリスマスにウーバーイーツする人いるの？悲しい～ 頼んで聞いてみようかなｗｗｗどんな気分ですか～って」→炎上](https://twitter.com/Jin115/status/1338431307748032518)
+
+
+
+不分国籍啦，过反应哪里都有（顺便一说这条是在骂郡道的转发里看到的
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22385#       发表于 2020-12-15 01:13
+
+
+
+
+新时代新时代（无关心）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22386#       发表于 2020-12-15 01:14
+
+
+
+
+紫宝自己有了小男友就嘲讽别人确实不太好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22387#       发表于 2020-12-15 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">yhm真就人均丈育
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22388#       发表于 2020-12-15 01:17
+
+
+
+
+我刚上看了，盐天使好像取消赞了，什么速度
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22389#       发表于 2020-12-15 01:18
+
+
+
+
+新时代速度
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22390#       发表于 2020-12-15 01:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/250.png" referrerpolicy="no-referrer">杏大家庭和盐取消赞，都是恰饭，饭香的
+
+
+
+
+
+   
