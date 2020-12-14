@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 20:04** 
+> ## **本文件最后更新于2020-12-14 22:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Eaw6l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_wepyd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_g63g6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_CtkzE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -26796,6 +26796,25 @@ g暂时还是没成绩的 等明年手游出了再吹
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -27474,4 +27493,767 @@ NGA晃了一天，新世代的管人粉太可怕了，不减B站时间增加油�
 
 
 
-     
+
+
+-----
+
+####  ShuTk4O  
+##### 22322#       发表于 2020-12-14 20:04
+
+
+
+ 本帖最后由 ShuTk4O 于 2020-12-14 20:09 编辑 
+
+据说未登录的人是可以上的
+实测可以。然并卯，只能看看录播了
+---
+未登录可以看直播，但是好多人都不播了啊
+本来mea今天突击歌回，现在一转虚无杂谈了
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22323#       发表于 2020-12-14 20:07
+
+
+
+
+未登录状态没问题
+
+另外其他非google系的服务也出问题了
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22324#       发表于 2020-12-14 20:07
+
+
+
+
+不登录也可以看直播
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 22325#       发表于 2020-12-14 20:10
+
+
+
+
+404炸了，但凛仙贝还是那样若无其事地播FF14......
+
+这位真是为了打游戏才来当Vtuber的......
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22326#       发表于 2020-12-14 20:10
+
+
+
+
+nico和discord服务故障
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22327#       发表于 2020-12-14 20:13
+
+
+
+
+可能是谷歌账号的认证服务挂了，有谷歌认证cookie和所有谷歌账号相关的地方一起down了...
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22328#       发表于 2020-12-14 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 赛博朋克！基努李维O袭击了谷歌大厦账号服务中心
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22329#       发表于 2020-12-14 20:20
+
+
+
+
+n站现在处在一个不定时抽风的状态<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+niconico.png
+(10.84 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-14 20:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/201951pcdqs4s4px34uy1y.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22330#       发表于 2020-12-14 20:21
+
+
+
+
+谷歌抽风 和我nico有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22331#       发表于 2020-12-14 20:24
+
+
+
+
+hiyoko还活着
+
+API还活着
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22332#       发表于 2020-12-14 20:24
+
+
+
+
+怕不是nico给谷歌的超时时间设太长，一堆走谷歌登录的请求在排队，把资源耗尽了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22333#       发表于 2020-12-14 20:26
+
+
+
+ 本帖最后由 admentus 于 2020-12-14 20:28 编辑 
+
+活了活了
+
+
+没活，谷歌把我账号下了草
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22334#       发表于 2020-12-14 20:30
+
+
+
+
+这下隔壁不用担心V心系油管忽略B站了（限油管修好之前）
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22335#       发表于 2020-12-14 20:32
+
+
+
+
+活了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22336#       发表于 2020-12-14 20:32
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-14 20:35 编辑 
+
+我这好了，目前不管你上位底边一律两位数同接，笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+SYL：
+
+都好了，35吃buff和SC中。
+
+
+
+ZSYL：
+
+才想起来今晚蝗回归，油管你修这么快干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22337#       发表于 2020-12-14 20:37
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-14 20:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miko，最后的希望，狐皇，轰临的巨神。
+<img src="https://p.sda1.dev/0/db349095984c6524e70b302b18b9d8e4/-2567ba14d4a56865.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/aeeaea32e3410624904ec1080a93f581/IMG_CMP_34750197.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22338#       发表于 2020-12-14 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49720735&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-14 20:30</a>
+
+这下隔壁不用担心V心系油管忽略B站了（限油管修好之前）</blockquote>
+<img src="https://i.loli.net/2020/12/14/N3qiGHdf69KXhDo.png" referrerpolicy="no-referrer"> 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|＃又赢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22339#       发表于 2020-12-14 20:40
+
+
+
+
+twicas 8000同接啥水平？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22340#       发表于 2020-12-14 20:49
+
+
+
+
+大家无地可去只有t台，虹唯一指定t台主播郡道的观看人数也比平时高好多，郡妈也出现了。
+省一楼，lita唱了first love ，感觉好久没投歌了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22341#       发表于 2020-12-14 20:50
+
+
+
+
+狐狸这凸待，来了个模仿游戏还是海马社长的？，我听star不多，是star的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 22342#       发表于 2020-12-14 20:55
+
+
+
+<blockquote>大空スバル🚑ホロライブ
+
+@oozorasubaru
+
+
+ごめん！！！！
+
+配信しようと思ったんだけど、OBSがyoutubeと接続できなくて繋がらないのでガチャの更新かかる明後日に日時変更させてくださいー！！！！
+
+
+いっぱい待機してくれてたのにごめんね💦😭
+
+
+明後日のガチャ楽しみにしてる！！</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 22343#       发表于 2020-12-14 21:02
+
+
+
+
+蝗直接就会限了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22344#       发表于 2020-12-14 21:02
+
+
+
+
+这就会限发言，真没意思，挂15分钟点了踩就撤了
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22345#       发表于 2020-12-14 21:10
+
+
+
+
+可惜 ，挺想看看进化的独轮车打回归buff的虫评论区会怎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22346#       发表于 2020-12-14 21:13
+
+
+
+
+九字母最强！九字母最强！
+
+<img src="https://img.saraba1st.com/forum/202012/14/211248y8xkfk7erbkrjkk9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201214211228.jpg</strong> (7.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 21:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/211247savnhqagrkakhahq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201214211236.png</strong> (90.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 21:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 22347#       发表于 2020-12-14 21:16
+
+
+
+
+虫蝗这多久啊？看来也是买了天使甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22348#       发表于 2020-12-14 21:21
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-14 21:27 编辑 
+
+看到蝗说开不了播去看了一圈正在播的，发现天皇真和ID混一块去了啊，35你罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+SYL：
+
+海苔男现在solo都能6K+牛逼啊
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 22349#       发表于 2020-12-14 21:30
+
+
+
+
+期待狐婊面对独轮车大军的那一天
+
+
+
+
+
+
+
+-----
+
+####  interzhang  
+##### 22350#       发表于 2020-12-14 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，2020年怎么486还开始玩GBF的
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22351#       发表于 2020-12-14 21:34
+
+
+
+
+马上大转盘了，现在入坑不是好事吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kitali  
+##### 22352#       发表于 2020-12-14 21:38
+
+
+
+
+是不是因为GBF在和鬼灭联动
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22353#       发表于 2020-12-14 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">crew差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22354#       发表于 2020-12-14 21:40
+
+
+
+
+这件PP抹布就是甲级战犯名单吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22355#       发表于 2020-12-14 21:42
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-14 21:43 编辑 
+
+crew是拿啥针对狐皇呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2c92e8b006b09ce30058fa99496fc102/IMG_CMP_169816057.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/46a176b377ab197e5cdbd5a67b39b08a/-2ecd0b1338fa864a.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22356#       发表于 2020-12-14 21:51
+
+
+
+
+然而玉米人已经随着大家庭粉一起被扫进历史的垃圾桶里了，现在对着空气输出也没意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 22357#       发表于 2020-12-14 21:51
+
+
+
+
+可是我从2019年11月开始就是狐anti了
+
+跟今年的事情又有什么关系呢
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 22358#       发表于 2020-12-14 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49721376&amp;ptid=1969498" target="_blank">Kitali 发表于 2020-12-14 21:38</a>
+是不是因为GBF在和鬼灭联动</blockquote>
+挺大可能，粥哥有没有说过鬼灭的事？我迷迷糊糊记得486安利了她
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22359#       发表于 2020-12-14 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49721417&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-14 21:42</a>
+crew是拿啥针对狐皇呢</blockquote>
+字太小，不是真心的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
