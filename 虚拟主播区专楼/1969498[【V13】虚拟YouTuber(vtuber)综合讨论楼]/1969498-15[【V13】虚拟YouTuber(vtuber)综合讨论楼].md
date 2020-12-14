@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 02:03** 
+> ## **本文件最后更新于2020-12-14 12:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Yz6K1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_bBDZl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_eFRkn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_oH6v3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -25842,4 +25842,366 @@ v2.4.3</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
-        
+
+
+-----
+
+####  Suny08  
+##### 22253#       发表于 2020-12-14 08:23
+
+
+
+
+小团体不是罪过，小团体还排外才是罪过，夜见之前和苔总聊天的时候就说过出道之前她除了同期是真的一个都不认识，smc初期抱团紧的原因也是她和博士怕生只敢和同期交流，现在时间长了不也有那么多朋友了，至少2000说的小团体80在我这边的角度看来很难成立，你要真是阳角大部分小团体都会接纳你的
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 22254#       发表于 2020-12-14 08:26
+
+
+
+ 本帖最后由 黑之和 于 2020-12-14 10:50 编辑 
+
+chronoir的推特视频
+
+画面开始一是条红线
+
+窗外闪过的是从2020.10.30.的[LET IT BURN](https://youtu.be/kkHLnRSCCec)
+
+2020.9.13.的[常夏](https://youtu.be/bJD2wtXcIRA)
+
+2020.5.24的[Ice   breaker](https://youtu.be/uexq0h89LNs)
+
+回到最初2020.2.11.的[heterostasis](https://youtu.be/sTcvNTQS86s)
+
+接着是躺在棺材里的叶怀里抱着百合花
+
+画面一转
+
+是手里抱着染血的百合花，手指缠着红线的葛葉
+
+结尾
+
+两个人牵着手从高空往下坠
+
+2020.12.20  新曲Geminides
+
+12.24  25 chronoir day
+
+贴一张字幕组做的长图<img src="https://p.sda1.dev/0/7ccaa579b01a290333994c5d914ff83e/IMG_CMP_138427017.jpeg" referrerpolicy="no-referrer">
+
+
+geminides
+
+双子座流星群
+
+摘自百度百科
+
+双子座流星雨有三大特点：一是颜色偏白；二是流星体速度较慢；三是亮流星很多，常有火流星出现。双子座流星雨区别于狮子座流星雨的一个显著特点是流星的星体亮度大、速度中等、色彩丰富；对于目视观测者来说具有很强的吸引力，而且其流星的数量比狮子座流星雨还要大。在理想的天空条件下，每小时的理论天顶流量在120颗左右。
+<strong>双子座流星雨是一个很守信用的流星雨，每年都要定期出现。双子座从傍晚升起来，直到天亮前还高挂天空，整夜都可看到。</strong>
+
+13号晚是流星群的最高峰
+[https://youtu.be/KVWGooEkMqQ](https://youtu.be/KVWGooEkMqQ)
+
+是旅途的终点也是新的开始吧
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 22255#       发表于 2020-12-14 08:29
+
+
+
+ 本帖最后由 獅白ぼたん 于 2020-12-14 08:34 编辑 
+
+年度订阅奖 鲨皇 同接奖 兔皇  sc奖 tskk 
+
+ 40天金盾rta 顶着bug单人窗13w 休止中脑控噶吃在chatroom打SC艺，只能说这些妖孽太强了，天佑猴楼
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22256#       发表于 2020-12-14 08:50
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-14 09:09 编辑 
+
+船上月hiyoko记录会限发言是4755来着，会员再评价，原本定下的会员标准是会员发言是实际会员的百分之60-80，实际上是百分之50-80。
+
+就杏来说，大概是海外箱推的福利吧，开了会员，但是不发言。大概是越本土的v，会员发言占比越低。
+
+估算一下杏有一万会员的v
+
+基本确定有的：
+
+鲨鱼：会员发言10月12790，11月10764。
+
+兔皇：会员发言7482，本月金盾会员又有大量增加，同时本土海外俩开花，会员发言占比应该不高。
+
+船：会员发言10月5019，11月4755，本人证言会员已超1w，本土占比极大，会员发言占比最低。
+
+可能有的：
+
+夸：11月5715，同样欧美盘较差，还多一手cncrew，但上月有生日buff，会员发言应该较高，可能性一般。
+
+tskk：11月6135，本人几个月前就宣称朝1w进军了，可能性高。
+
+wtm：最高会员记录9月5302，但海外盘极大，占比应该很高，可能性很小。
+
+ame：最高会员记录10月7068，但en的粉丝里有多少日本人开会员，发言积极性也不确定，只能说有可能。
+
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 22257#       发表于 2020-12-14 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49711268&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-14 01:23</a>
+露露这直播突然昏过去一小会</blockquote>
+看了一眼切片，太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+如果后续说要休息3个月我都不会意外
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 22258#       发表于 2020-12-14 09:39
+
+
+
+ 本帖最后由 nowaki 于 2020-12-14 09:52 编辑 
+
+船长1w会员可能是个例，以船长这个孤例推导其他人会员还是缺乏合理性。
+
+考虑到主播具有头部效应，越往小团体靠的主播在会员数上可能越占便宜，兔夸solo太多，除了自己的核心盘可能吸不到会员。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 22259#       发表于 2020-12-14 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔再solo多，还有三期信呢，夸皇难道是卍组众吗
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 22260#       发表于 2020-12-14 10:02
+
+
+
+
+感觉还是粉丝年龄段问题，年龄越大发言意愿应该更低
+
+
+
+
+
+
+
+-----
+
+####  Kitali  
+##### 22261#       发表于 2020-12-14 10:08
+
+
+
+
+https://twitter.com/wait_ar/status/1338222922662465543?s=19
+
+<img src="https://img.saraba1st.com/forum/202012/14/100758c1fq2qw0nf0yauqw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20201214_091309.jpg</strong> (295.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 10:07 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 22262#       发表于 2020-12-14 10:26
+
+
+
+ 本帖最后由 黑之和 于 2020-12-14 10:49 编辑 
+
+无断转载，侵删
+<img src="https://p.sda1.dev/0/bb54a1ad31eb9e0087c199704d10cec4/IMG_CMP_139146829.jpeg" referrerpolicy="no-referrer">
+
+
+草链接不亮
+[https://twitter.com/DUkukki/status/1338178702513819648](https://twitter.com/DUkukki/status/1338178702513819648)
+
+弦月这个太有刀男人的feel了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22263#       发表于 2020-12-14 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然年年看gbf fes，也年年看到39的全息演唱会，今年因为之前有inui的live才想起一个问题
+
+gbf这现场看的时候和油管转播是一样的效果？全息是个很贵的东西？阿B的BLS坏掉的是啥？
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 22264#       发表于 2020-12-14 11:02
+
+
+
+
+2018/08/07　1期生全員での初コラボ
+
+2019/04/13　ゲーマーズ全員での初コラボ
+
+2019/05/29　イノナカミュージック全員での初コラボ
+
+2019/08/20　3期生全員での初コラボ
+
+2020/01/05　4期生全員での初コラボ
+
+2020/08/17　5期生全員での初コラボ
+
+2020/10/06　2期生全員での初コラボ
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22265#       发表于 2020-12-14 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49713990&amp;ptid=1969498" target="_blank">nian1538 发表于 2020-12-14 11:02</a>
+
+2018/08/07　1期生全員での初コラボ
+
+2019/04/13　ゲーマーズ全員での初コラボ
+
+2019/05/29　イノナカミュー ...</blockquote>
+イノナカ全員？
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 22266#       发表于 2020-12-14 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49714026&amp;ptid=1969498" target="_blank">holoan 发表于 2020-12-14 11:04</a>
+
+イノナカ全員？</blockquote>
+我记得星街到INNK报道第二天就上AZKI的LIVE当嘉宾了算不算
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 22267#       发表于 2020-12-14 11:18
+
+
+
+<blockquote>yla 发表于 2020-12-14 10:58
+虽然年年看gbf fes，也年年看到39的全息演唱会，今年因为之前有inui的live才想起一个问题
+
+gbf这现场 ...</blockquote>
+有在日友人往年去过fes，说是和油管上效果一样。未考证。
+
+
+
+
+
+       
