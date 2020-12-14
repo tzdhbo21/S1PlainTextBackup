@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 12:04** 
+> ## **本文件最后更新于2020-12-14 18:05** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_eFRkn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_oH6v3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_ysrSc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_x4BlG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -25914,6 +25914,26 @@ geminides
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+| 花二货| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -26204,4 +26224,679 @@ gbf这现场 ...</blockquote>
 
 
 
-       
+
+
+-----
+
+####  rzrbtk  
+##### 22268#       发表于 2020-12-14 12:17
+
+
+
+
+醒来一看昨天t台没删档，已经搞不懂郡郡是大门不出啥事都不知道，还是天不怕地不怕你ickr管不着我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 22269#       发表于 2020-12-14 12:21
+
+
+
+
+辞了就去杏了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22270#       发表于 2020-12-14 12:33
+
+
+
+
+上个推看到鬼灭追到千寻差6亿都能上趋势，这才是上级斗虫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  扶桑洛槿  
+##### 22271#       发表于 2020-12-14 13:31
+
+
+
+
+鬼灭斗虫不是顶级？今年鬼灭在日本acgn圈几乎大满贯，无论横向对比还是纵向对比<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。只要鬼灭进场了，直接把奖杯发给鬼灭就完事了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22272#       发表于 2020-12-14 13:44
+
+
+
+
+拿鬼灭来举例是降维打击了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22273#       发表于 2020-12-14 13:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/135541rsau3o9x33unau9j.png" referrerpolicy="no-referrer">
+
+
+<strong>「女ボスと最強の側近」がテーマ.png</strong> (1.28 MB, 下载次数: 1)
+
+下载附件
+
+2020-12-14 13:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/135749ez3hottk2oh52x39.png" referrerpolicy="no-referrer">
+
+
+<strong>「女ボスと最強の側近」がテーマ。-1.png</strong> (144.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 13:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/135748pwxbvxwum2to24x2.png" referrerpolicy="no-referrer">
+
+
+<strong>「女ボスと最強の側近」がテーマ。-2.png</strong> (295.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 13:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/135748x4h7lcvpz5g57rpr.png" referrerpolicy="no-referrer">
+
+
+<strong>「女ボスと最強の側近」がテーマ。-3.png</strong> (100.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 13:57 上传
+
+
+
+
+
+
+
+xp组新谷，还挺好看，设定也很有意思
+
+（价格也很好看）
+[https://www.curtain-damashii.com/nijisanji_sp02/#3](https://www.curtain-damashii.com/nijisanji_sp02/#3)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好诶|
+| admentus| + 1|好看|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 22274#       发表于 2020-12-14 14:00
+
+
+
+
+g暂时还是没成绩的 等明年手游出了再吹
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22275#       发表于 2020-12-14 14:21
+
+
+
+
+男黑黑女黑黑都卖爆，田角接下来端出来的会是什么呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 22276#       发表于 2020-12-14 14:25
+
+
+
+
+是当v为了宣传环保的男同女权尼哥
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 22277#       发表于 2020-12-14 15:07
+
+
+
+
+你打健身环像佩克拉.jpg
+
+<img src="https://img.saraba1st.com/forum/202012/14/150619ezmrxvaxphoxvv98.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20201214_150508.jpg</strong> (414.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 15:06 上传
+
+
+
+
+
+[https://twitter.com/Yaga_Pan/status/1338369533313048578?s=19](https://twitter.com/Yaga_Pan/status/1338369533313048578?s=19)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22278#       发表于 2020-12-14 15:12
+
+
+
+
+ぺこちゃんとマミーの配信楽しかった～！
+
+<img src="https://img.saraba1st.com/forum/202012/14/151025naoeqm3camw60a9n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201214150900.jpg</strong> (598.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 15:10 上传
+
+
+
+
+
+[https://twitter.com/hikosan333/status/1338175360031059968?s=19](https://twitter.com/hikosan333/status/1338175360031059968?s=19)
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22279#       发表于 2020-12-14 15:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/155330c9z3i43wc9g4wmah.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpJZ0I7UcAAQR_5.jpg</strong> (125.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 15:53 上传
+
+
+
+
+
+[https://twitter.com/usirometai_/status/1338230986266406912](https://twitter.com/usirometai_/status/1338230986266406912)
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/155331rwclixmlcbixxofw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpLTw5XUcAAUm4W.jpg</strong> (387.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 15:53 上传
+
+
+
+
+
+[https://twitter.com/TeraAru6262/status/1338364927577268226](https://twitter.com/TeraAru6262/status/1338364927577268226)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22280#       发表于 2020-12-14 16:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/161956o4o8trg4igu8xtks.jpg" referrerpolicy="no-referrer">
+
+
+<strong>本日はグループ I・J・Kの3枚を公開.jpg</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 16:19 上传
+
+
+
+
+
+
+
+小护士、星川和...小红小蜜蜂c位？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22281#       发表于 2020-12-14 16:26
+
+
+
+
+金鱼妹……
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22282#       发表于 2020-12-14 16:35
+
+
+
+
+为啥是小红我是没想到的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 22283#       发表于 2020-12-14 16:46
+
+
+
+
+你黑客总算有一张好看非周边官方宣传图了……真不容易啊…
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22284#       发表于 2020-12-14 16:55
+
+
+
+
+郡道坏女人，作业直播，做着做着就开始打APEX了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，
+
+之后好像要玩儿音游？
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22285#       发表于 2020-12-14 17:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/171253skdscbs0k4tss2gb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6XOzv3f.jpg</strong> (323.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 17:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22286#       发表于 2020-12-14 17:15
+
+
+
+
+老逼坦克怎么啥都要蹭，吐了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22287#       发表于 2020-12-14 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49718540&amp;ptid=1969498" target="_blank">free 发表于 2020-12-14 17:15</a>
+老逼坦克怎么啥都要蹭，吐了</blockquote>
+是蹭还是免费引流 你看订阅再好好想想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22288#       发表于 2020-12-14 17:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费差不多得了，这不是引流？
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22289#       发表于 2020-12-14 17:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/172557shlannjejlmo2nqh.png" referrerpolicy="no-referrer">
+
+
+<strong>1214.PNG</strong> (7.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 17:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22290#       发表于 2020-12-14 17:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">NGA晃了一天，新世代的管人粉太可怕了，不减B站时间增加油管直播时间要被车，互动少要被车，企业势要被车，勒夫要被车
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 22291#       发表于 2020-12-14 17:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费因为上次被人叫成白上肉体厨耿耿于怀
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22292#       发表于 2020-12-14 17:35
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1glnioq494qj20hs1o2tev.jpg" referrerpolicy="no-referrer">
+
+
+樱花妹的PC常识.jpg
+
+
+syl
+
+
+露皇今天休息了，希望去看了医生吧<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22293#       发表于 2020-12-14 17:35
+
+
+
+
+斧子哥的确不行
+
+但是车企业势没意思了
+
+
+企业势箱推，不行！
+
+井皇箱推，行！
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22294#       发表于 2020-12-14 17:42
+
+
+
+
+obs接入油管直播信号不是要填每个视频不同的地址吗？现在不用了？怎么可能自动启动
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 22295#       发表于 2020-12-14 17:47
+
+
+
+
+往回一翻2000怎么还拿黑客当枪发疯黑屁，呕
+
+你要说上位不邀请他联动那也不是一两天了，而且前几天才(作为凑人数的)跟社内前二联动过宇宙人狼，还有个固定阵容月樱
+
+要说上位不愿意理他，前几天男子人狼不也请到了黑黑？100万都是他自己觉得光猜拳叫不到人才提出来的，未必真叫到了还要反过来失望“果然不出100万叫不来人”吗
+
+我之前是有些担心他社内人缘不好啦，不过拿出道就雪山人狼船上暗杀MC运动会的人论证“你虹上位势生主抱团联动排挤新人”是不是搞错了什么
+
+如果非要说黑客是主动游离在边缘的“生主集团一员”那我只能说那确实，对，你黑屁的都对
+
+
+
+
+
+      
