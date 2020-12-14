@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 20:09** 
+> ## **本文件最后更新于2020-12-15 00:09** 
 
 
 
@@ -11893,6 +11893,26 @@ syl 不是很懂地下偶像 都叫偶像了应该要练舞的吧 挺占时间�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 缺陷电气杨永信| + 1|好评加鹅|
+| 路人庚| + 2|好评我射|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11927,4 +11947,520 @@ syl 不是很懂地下偶像 都叫偶像了应该要练舞的吧 挺占时间�
 
 
 
-                           
+
+
+-----
+
+####  路人庚  
+##### 5165#       发表于 2020-12-14 20:27
+
+
+
+ 本帖最后由 路人庚 于 2020-12-14 20:29 编辑 
+
+排成一排一根根坐过来太色了，真是太棒了，我tm🐍爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 5166#       发表于 2020-12-14 20:33
+
+
+
+
+怪起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5167#       发表于 2020-12-14 20:40
+
+
+
+
+草草草这么说真的很色啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5168#       发表于 2020-12-14 20:46
+
+
+
+
+小麻体力那么差 一根根来不得累死 不如直接十根捆一起坐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5169#       发表于 2020-12-14 20:52
+
+
+
+
+十根捆一起这种事只有阿三杂技团能做到吧？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5170#       发表于 2020-12-14 20:54
+
+
+
+
+十分捆一起那tm就是击剑了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5171#       发表于 2020-12-14 20:55
+
+
+
+
+把腿砍了就好捆了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 5172#       发表于 2020-12-14 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5173#       发表于 2020-12-14 21:36
+
+
+
+
+她唱的有喜欢的人和虹也太好听了，要疯了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5174#       发表于 2020-12-14 22:03
+
+
+
+ 本帖最后由 路人庚 于 2020-12-14 22:04 编辑 
+
+醒了，新推（醒之前还发了3个fleet
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5175#       发表于 2020-12-14 22:09
+
+
+
+
+该上班陪酒了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5176#       发表于 2020-12-14 22:15
+
+
+
+
+醒了是不是该TC了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5177#       发表于 2020-12-14 22:45
+
+
+
+
+我要调整作息， 所以我去睡了😴
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5178#       发表于 2020-12-14 22:45
+
+
+
+
+我也要调整作息，准备睡觉了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5179#       发表于 2020-12-14 22:49
+
+
+
+
+我从夜之城回来了.jpg
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5180#       发表于 2020-12-14 23:01
+
+
+
+ 本帖最后由 A2014720 于 2020-12-14 23:12 编辑 
+
+渐行渐远<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+卧槽这就来了，nmd睡了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 5181#       发表于 2020-12-14 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5182#       发表于 2020-12-14 23:16
+
+
+
+
+终于赶上了一次，我就知道<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5183#       发表于 2020-12-14 23:17
+
+
+
+
+MMO是工作，真的是带老板555<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5184#       发表于 2020-12-14 23:19
+
+
+
+
+不会是陪玩任务吧，接一单多少钱啊
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5185#       发表于 2020-12-14 23:23
+
+
+
+
+今天声音不肥啊，我的精致睡眠，睡了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 5186#       发表于 2020-12-14 23:24
+
+
+
+
+声音很可爱，就是有丶欠揍
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5187#       发表于 2020-12-14 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">麻味，是麻味
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5188#       发表于 2020-12-14 23:29
+
+
+
+
+希望在MMO里不被当做公主的mea（希望被人平等对待的支配恶魔
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5189#       发表于 2020-12-14 23:33
+
+
+
+
+说了开始玩mmo之后却没有听到键盘声音，估计还真是手游mmo（噗
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5190#       发表于 2020-12-14 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">太可恶了，网游害人
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5191#       发表于 2020-12-14 23:41
+
+
+
+
+精致睡眠<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5192#       发表于 2020-12-14 23:44
+
+
+
+
+欲求不满的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5193#       发表于 2020-12-14 23:46
+
+
+
+
+不会真的是狒狒14吧。。。
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 5194#       发表于 2020-12-14 23:49
+
+
+
+
+肥肥肯定就直接说是肥肥了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5195#       发表于 2020-12-14 23:51
+
+
+
+
+出发<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 5196#       发表于 2020-12-15 00:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">不要总想着14，可能是还没停运的11
+
+
+
+
+
+                          
