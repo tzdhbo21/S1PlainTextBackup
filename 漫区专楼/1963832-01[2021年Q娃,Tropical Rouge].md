@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 20:12** 
+> ## **本文件最后更新于2020-12-14 14:13** 
 
 
 
@@ -2815,4 +2815,366 @@ https://www.netsea.jp/shop/349007/shb-201218-yoyaku8?cx_search=new#&amp;g ...</b
 
 
 
-                                            
+
+
+-----
+
+####  HGCG  
+##### 161#         楼主| 发表于 2020-12-13 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49708185&amp;ptid=1963832" target="_blank">达达葱2 发表于 2020-12-13 19:35</a>
+
+貌似被和谐了</blockquote>
+啊现在被河蟹了
+
+
+
+
+
+
+
+-----
+
+####  hello0607  
+##### 162#       发表于 2020-12-13 21:02
+
+
+
+
+删了说明是真的(
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 163#       发表于 2020-12-13 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707857&amp;ptid=1963832" target="_blank">HGCG 发表于 2020-12-13 18:52</a>
+
+批发商的网站现在还没删页面呢
+
+https://www.netsea.jp/shop/349007/shb-201218-yoyaku8?cx_search=new#&amp;g ...</blockquote>
+我看走眼了，以为偷跑的是雀巢nestle
+
+
+说回造型，主角看起来是站C位戴花的黄毛？还是左边的粉毛？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 164#         楼主| 发表于 2020-12-13 21:33
+
+
+
+
+别人做的
+<img src="http://wx2.sinaimg.cn/large/e98e8667ly1glmca37sm3j20ys0bmdzw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 165#       发表于 2020-12-13 21:40
+
+
+
+
+比起人设更担心这个商品就真是带颜色的口红啊…还得用肥皂水才能洗掉颜色，我是家长的话大概不会买（
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 166#       发表于 2020-12-13 21:42
+
+
+
+
+人设真的很爱活，不过Q娃也是时候该有点突破了所以还好…注意到粉毛以外的四个人领子都是水手服，只有粉毛不是
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 167#       发表于 2020-12-13 21:58
+
+
+
+
+我是觉得这衣服太媚宅了，完全不像面向3岁女童的动画片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 168#       发表于 2020-12-13 22:12
+
+
+
+
+两端一个粉紫一个紫也太近似了，而且都是卷发神情也很像
+
+有亲缘关系还是同一个人？
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 169#       发表于 2020-12-13 22:48
+
+
+
+ 本帖最后由 HGCG-闪 于 2020-12-13 23:03 编辑 
+
+<img src="http://wx1.sinaimg.cn/large/6765fd79gy1glmcc58q9hj20ho0dpada.jpg" referrerpolicy="no-referrer">
+
+这个包，一面四Q娃，一面海豹和人鱼，说明人鱼也是吉祥物的定位，至少开篇是时候不会是Q娃
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 170#       发表于 2020-12-13 22:59
+
+
+
+<blockquote>HGCG-闪 发表于 2020-12-13 22:48
+这个包，一面四Q娃，一面海豹和人鱼，说明人鱼也是吉祥物的定位，至少开篇是时候不会是Q娃 ...</blockquote>
+应该是粉蓝贴贴
+
+
+
+
+
+
+
+-----
+
+####  火箭布雷器  
+##### 171#       发表于 2020-12-13 23:05
+
+
+
+
+这赛博朋克的发型
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 172#       发表于 2020-12-14 04:18
+
+
+
+
+反正动起来后还是真香，还不习惯东映么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 173#       发表于 2020-12-14 06:02
+
+
+
+
+想听mao
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 174#       发表于 2020-12-14 06:14
+
+
+
+
+被黄战士这个眼影还是睫毛给吓到了
+
+
+
+
+
+
+
+-----
+
+####  流浪的咸鱼  
+##### 175#       发表于 2020-12-14 08:41
+
+
+
+
+比之前想的要好就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 176#       发表于 2020-12-14 08:47
+
+
+
+
+我觉得比近年除了星Q以外的泄露图都要好看，至少不土
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 177#       发表于 2020-12-14 08:47
+
+
+
+
+啊，星Q是泄漏图本身就很好看了
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 178#       发表于 2020-12-14 09:25
+
+
+
+
+粉主给我的第一印象就是月野兔<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 179#         楼主| 发表于 2020-12-14 11:14
+
+
+
+
+这张图清楚了，红色是过膝网袜
+<img src="http://wx3.sinaimg.cn/mw690/9657fdc2gy1gln7gwbd66j206k0hhmyb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 180#       发表于 2020-12-14 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今年的女人到底受了什么刺激了。
+
+海螺黄的眼影太吓人了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 181#       发表于 2020-12-14 13:24
+
+
+
+
+反正动起来后都是香的。
+
+
+
+
+
+                                           
