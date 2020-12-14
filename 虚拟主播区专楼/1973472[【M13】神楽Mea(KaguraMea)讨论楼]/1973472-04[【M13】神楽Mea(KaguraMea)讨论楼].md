@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 02:08** 
+> ## **本文件最后更新于2020-12-14 20:09** 
 
 
 
@@ -11059,10 +11059,11 @@ mua<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referre
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 素人不相识| + 1|好评加鹅|
 | Cushaw| + 1|好评加鹅|
 | llconforever| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
@@ -11389,4 +11390,541 @@ c+? 不! c++!
 
 
 
-                            
+
+
+-----
+
+####  Joffre✔  
+##### 5132#       发表于 2020-12-14 09:03
+
+
+
+
+小麻礼拜天一晚上没睡 干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5133#       发表于 2020-12-14 09:20
+
+
+
+
+陪我加班（即答
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5134#       发表于 2020-12-14 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又陪男人，又陪男人
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5135#       发表于 2020-12-14 11:32
+
+
+
+
+说不定是陪U18R
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 5136#       发表于 2020-12-14 12:02
+
+
+
+
+为什么就不能是陪女人呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5137#       发表于 2020-12-14 12:04
+
+
+
+
+她喜欢男人啊， 想她好当然希望她能配男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5138#       发表于 2020-12-14 12:10
+
+
+
+
+业界有过陪酒女地下偶像双线活动的先例吗？不然怎么解释小麻的性病朋友<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5139#       发表于 2020-12-14 12:29
+
+
+
+
+上学 直播 地下偶像活动 这之后还有时间当陪酒女的吗 时间管理大师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5140#       发表于 2020-12-14 13:42
+
+
+
+
+saya说你麻是夜行生物，明显当时上学基本无了，偶像活动除了线下其他时间明显是各回各家玩线上，直播又不是一播一宿，长夜漫漫，发生什么又有谁知道呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5141#       发表于 2020-12-14 14:18
+
+
+
+
+麻学校应该一直有去的 只是上课睡觉罢了
+
+syl 不是很懂地下偶像 都叫偶像了应该要练舞的吧 挺占时间的 现在当v后那么闲去当陪酒女还更合理一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 5142#       发表于 2020-12-14 15:19
+
+
+
+
+小麻现在能喝酒吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5143#       发表于 2020-12-14 15:28
+
+
+
+
+因为以前发生过不好的事，所以现在才那么反感不想那样了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5144#       发表于 2020-12-14 15:52
+
+
+
+ 本帖最后由 Cushaw 于 2020-12-14 16:03 编辑 
+
+相当符合陪酒小姐的作息<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+修改一下：直播的地方就是公关俱乐部里一个小隔间，睡醒上播顺便吃饭有时洗澡，直播完陪酒工作，工作完睡觉，太河里了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5145#       发表于 2020-12-14 16:10
+
+
+
+
+小麻老点外卖 可以得知都没人赏饭的 因为业绩惨淡只好每天直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5146#       发表于 2020-12-14 16:17
+
+
+
+
+其实外卖是小麻对我们欺骗说法
+真实情况是小麻养的牛郎以及PUA的男人们上门送餐<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 5147#       发表于 2020-12-14 16:20
+
+
+
+
+我也被小麻pua了 怎么给她送餐<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5148#       发表于 2020-12-14 16:23
+
+
+
+
+送给我就行 我帮你带给小麻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5149#       发表于 2020-12-14 16:30
+
+
+
+
+那样一定赚很多吧
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5150#       发表于 2020-12-14 16:32
+
+
+
+
+日本这疫情还陪酒呢
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5151#       发表于 2020-12-14 17:44
+
+
+
+
+可以文爱的
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 5152#       发表于 2020-12-14 17:50
+
+
+
+
+快进到8000万日元买房然后分手
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5153#       发表于 2020-12-14 17:50
+
+
+
+
+太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5154#       发表于 2020-12-14 17:52
+
+
+
+
+分手会被小麻捅的
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5155#       发表于 2020-12-14 18:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我怎么记得，是会被绑起来然后看着她自杀.....
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 5156#       发表于 2020-12-14 18:06
+
+
+
+ 本帖最后由 灬神丨龟灬 于 2020-12-14 18:10 编辑 
+
+是把你绑起来，然后她往你手里的刀上撞，让你看着她慢慢地摊倒在你怀里，感受着她一点点变冷。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5157#       发表于 2020-12-14 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太可爱啦了吧
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 5158#       发表于 2020-12-14 18:19
+
+
+
+
+我总觉得那时候她是过的很不安所以才会那么menhera
+
+现在过的这么安稳富足所以大概不会病娇
+
+只会保养小白脸<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 5159#       发表于 2020-12-14 18:39
+
+
+
+
+你麻啥时候升格成地下偶像了，不就一tc小主播吗
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5160#       发表于 2020-12-14 18:45
+
+
+
+
+就跟电次一样 之前过的苦 物质上过的好之后也不会挥霍啥的 知足常乐
+
+
+
+
+
+
+
+-----
+
+####  Eutopia  
+##### 5161#       发表于 2020-12-14 19:43
+
+
+
+
+电次想要十个女朋友尽情啪啪啪，那小麻<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 5162#       发表于 2020-12-14 19:58
+
+
+
+
+包养十个小白脸让他们排成一排一根根坐过来？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5163#       发表于 2020-12-14 20:02
+
+
+
+
+别这样<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5164#       发表于 2020-12-14 20:08
+
+
+
+
+不是让小白脸互相击剑?
+
+
+
+
+
+                           

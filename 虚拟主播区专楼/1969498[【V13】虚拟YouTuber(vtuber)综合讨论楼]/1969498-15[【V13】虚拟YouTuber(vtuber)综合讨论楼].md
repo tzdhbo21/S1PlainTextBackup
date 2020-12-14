@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 18:05** 
+> ## **本文件最后更新于2020-12-14 20:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_ysrSc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_x4BlG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_Eaw6l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_wepyd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -25922,10 +25922,11 @@ geminides
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1||
 | SuntoryNomu| + 1||
 | 花二货| + 1|好评加鹅|
 
@@ -26899,4 +26900,578 @@ obs接入油管直播信号不是要填每个视频不同的地址吗？现在�
 
 
 
-      
+
+
+-----
+
+####  IDIDIDID  
+##### 22296#       发表于 2020-12-14 18:07
+
+
+
+
+【オリジナル曲】Fall In Mystery/シュガーリリック【short ver.】
+[https://www.youtube.com/watch?v=lRp0dMlzarg&amp;feature=youtu.be](https://www.youtube.com/watch?v=lRp0dMlzarg&amp;feature=youtu.be)
+
+
+
+774真能折腾啊……
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22297#       发表于 2020-12-14 18:07
+
+
+
+
+我觉得要是没有企业势的话那这圈子不就越来越套皮主播化了么，你一个人势我觉得很难能支撑得起3d企划的能力吧，像欧米加双子这种个人势出个视频都得这么久，要是直播势感觉完全没有额外精力的，这不就完全2d化了么
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 22298#       发表于 2020-12-14 18:09
+
+
+
+ 本帖最后由 黑之和 于 2020-12-14 18:11 编辑 
+
+女子忘年会
+<img src="https://p.sda1.dev/0/92d6ae490ea753594d09da8afeb99a9c/IMG_CMP_64079054.jpeg" referrerpolicy="no-referrer">
+
+[https://twitter.com/fuyukawa0410/status/1338401449382879232](https://twitter.com/fuyukawa0410/status/1338401449382879232)
+
+无断转载，侵删
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 22299#       发表于 2020-12-14 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49718315&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-14 16:55</a>
+
+郡道坏女人，作业直播，做着做着就开始打APEX了，
+
+之后好像要玩儿音游？ ...</blockquote>
+初音project 世界
+
+就是那个有个贼像年轻版郡道的游戏
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22300#       发表于 2020-12-14 18:17
+
+
+
+[https://twitter.com/ninomaeinanis/status/1338270900311879680](https://twitter.com/ninomaeinanis/status/1338270900311879680)
+
+<img src="https://img.saraba1st.com/forum/202012/14/181632xvd5tydu88uj15lg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot-Capture-005---Ninomae-Ina’nis🐙holoEN-on-Twitter_-_あやめ先輩お誕生日.jpg</strong> (158.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 18:16 上传
+
+
+
+
+
+
+
+
+工具人真的好使，EN二期还得招画师。
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 22301#       发表于 2020-12-14 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49718924&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-14 17:47</a>
+
+往回一翻2000怎么还拿黑客当枪发疯黑屁，呕
+
+你要说上位不邀请他联动那也不是一两天了，而且前几天才(作为凑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 22302#       发表于 2020-12-14 18:38
+
+
+
+
+https://lack.booth.pm/items/2601343
+<img src="https://p.sda1.dev/0/a156f5c0675d6904f60e0b784bc3657f/IMG_CMP_122563064.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0f1511eb9e9388561fbc1ce611347e7c/ddccf5ac-5647-4aa9-8574-267e3b583891_base_resized(1).jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4ec53558dbc1ec61e5b530b628630214/4a020cf5-a417-46fb-bd42-7ec658962591_base_resized(1).jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/e3a215e3fb1fed04147e36b5ea557387/32318bb59dec5667.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22303#       发表于 2020-12-14 18:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/184145sc5czxxlqyqyjkt1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC3fbrVQAMmJqb.jpg</strong> (548.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 18:41 上传
+
+
+
+
+
+[https://twitter.com/kurosaki_9631/status/1337770890889580545](https://twitter.com/kurosaki_9631/status/1337770890889580545)
+
+<img src="https://img.saraba1st.com/forum/202012/14/184144gmpoa3ep08ouw0pm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpLsN81VoAIGgBD.jpg</strong> (676.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 18:41 上传
+
+
+
+
+
+[https://twitter.com/oTgjHkMpJpTIfVO/status/1338392126447489024](https://twitter.com/oTgjHkMpJpTIfVO/status/1338392126447489024)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22304#       发表于 2020-12-14 18:45
+
+
+
+
+老逼糊坦这金盾还顶个屁用，还剩几个活粉？人家774开live，轮得着你蹭吗？臭不要逼脸的，就像杏人还能剩下几个去看这老逼坦一样。
+
+
+说到这个想起来以前星街刚来杏的时候，糊坦开玩笑说跟innk不熟，马上有捧臭脚的上来说，糊坦是给星街造梗引流，星咏者要感谢糊坦，可真是让我想起来阿Q正传里那段“赵老爷跟我说话了”“他说啥了”“他说让我滚”<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22305#       发表于 2020-12-14 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49719136&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-14 18:07</a>
+
+我觉得要是没有企业势的话那这圈子不就越来越套皮主播化了么，你一个人势我觉得很难能支撑得起3d企划的能力 ...</blockquote>
+nga区别套皮主播与否当然不是看3d还是2d啊
+
+看的是立场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+乐华和乐府的人，就是套皮主播。井皇和锤子的人，就是虚拟主播
+
+
+
+至于s1应该没有人在乎什么是不是套皮主播
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22306#       发表于 2020-12-14 18:51
+
+
+
+
+鸭鸭要被气孔士出警惹
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22307#       发表于 2020-12-14 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇上月中位同接1w5，这月有bug也保持万棒了，是crew说没有活粉就能没得吗？
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 22308#       发表于 2020-12-14 19:12
+
+
+
+
+白上玩素晴手游yy大亏这都过去多久了，免费怎么还是这个味
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22309#       发表于 2020-12-14 19:34
+
+
+
+ 本帖最后由 admentus 于 2020-12-14 19:38 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/14/193402jklloco7ku885bzu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpMZV2ZVEAEGJZ7.jpg</strong> (463.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 19:34 上传
+
+
+
+
+
+[https://twitter.com/shoko_taiyaki/status/1338441913603555329](https://twitter.com/shoko_taiyaki/status/1338441913603555329)
+
+<img src="https://img.saraba1st.com/forum/202012/14/193402py8yuh8ui8klx52s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpHbAQnUcAEg3Xc.jpg</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 19:34 上传
+
+
+
+
+
+[https://twitter.com/pikao_s/status/1338091439092236288](https://twitter.com/pikao_s/status/1338091439092236288)
+
+<img src="https://img.saraba1st.com/forum/202012/14/193400w7wx9tnxnx7lgxn0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpC-VbsUUAA0o9D-min.jpg</strong> (373.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-14 19:34 上传
+
+
+
+
+
+[https://twitter.com/magowasabi/status/1337955407638171648](https://twitter.com/magowasabi/status/1337955407638171648)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22310#       发表于 2020-12-14 19:40
+
+
+
+
+别想了，你兔皇作为木口王牌，自然会是隔壁holoanti的重点照顾对象，有些人还巴不得号召泥小将专门冲兔皇呢
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22311#       发表于 2020-12-14 19:43
+
+
+
+[https://www.youtube.com/playlist ... mtCDNgfgKIxJBuJW3Nn](https://www.youtube.com/playlist?list=PLfh7JI1tDPvPJ3mtCDNgfgKIxJBuJW3Nn)
+
+小茄子这个各视角的列表做的有心了
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 22312#       发表于 2020-12-14 19:49
+
+
+
+[天川hano](https://h.bilibili.com/101434360)的b站组号下有人悲叹她是不是放弃b站了，[utagoe部的三拍](https://live.bilibili.com/21662973)今晚的b限上了全身3D在超级尬唱，今天也是樱花妹们苦恼冲国dd究竟喜欢看什么的一天<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22313#       发表于 2020-12-14 19:49
+
+
+
+
+35 mc里给moona做兔锅当礼物草
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22314#       发表于 2020-12-14 19:55
+
+
+
+
+我这油管炸了
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 22315#       发表于 2020-12-14 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49718747&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-14 17:31</a>
+
+NGA晃了一天，新世代的管人粉太可怕了，不减B站时间增加油管直播时间要被车，互动少要被车，企业势 ...</blockquote>
+以上除了乐府是自古以来，剩下的都可以总结为猴楼PTSD。
+
+这就是猴楼来福给西恩管人圈留下的丰厚遗产呀。活着的时候挤压其他yhm，滚粗了依旧给其他yhm增加活动难度。生为人杰，死为鬼雄。hololive，你好伟大！
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 22316#       发表于 2020-12-14 19:58
+
+
+
+
+我这也炸了。好像都炸了，推上有管人在吐槽了。
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22317#       发表于 2020-12-14 19:58
+
+
+
+
+哈哈，修女也搬家了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 22318#       发表于 2020-12-14 19:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">我这也炸了 油管干锤子咧
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22319#       发表于 2020-12-14 20:00
+
+
+
+
+炸了，谷歌全炸了，gmail也出问题，听说edge可以进油管，楼友可以试试
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22320#       发表于 2020-12-14 20:00
+
+
+
+<blockquote>ホロライブプロダクション【公式】
+
+@hololivetv
+
+【お知らせ】
+
+Ｇoogle関連の複数サービスのダウンしたため、現在まで配信しておりました弊社タレントのYouTubeの配信も一時ダウンしております。
+
+
+現在、Googleサービスの回復待ちとなっておりますため、今しばらくお待ちくださいませ。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22321#       发表于 2020-12-14 20:02
+
+
+
+
+于是t台女主播，
+“やはりツイキャスなのでは？”
+
+
+
+
+
+     
