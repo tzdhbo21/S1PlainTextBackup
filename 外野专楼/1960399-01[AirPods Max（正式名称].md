@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-10 12:20** 
+> ## **本文件最后更新于2020-12-14 16:17** 
 
 
 
@@ -5758,4 +5758,513 @@ Max的价格现在摸上各家次旗舰的边都很勉强
 
 
 
-                                       
+
+
+-----
+
+####  Fuero  
+##### 304#       发表于 2020-12-10 17:54
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/175432iu1k1uznnonq9r11.png" referrerpolicy="no-referrer">
+
+
+<strong>WX20201209-172522.png</strong> (14.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 17:54 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/10/175432p8mmyuystdg000ti.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_3238.JPG</strong> (55.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-10 17:54 上传
+
+
+
+
+
+
+线入手了，准备当小白鼠
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 305#       发表于 2020-12-10 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49670040&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-10 10:58</a>
+ ？hifi旗舰很早几年前就过10k了啊…我hd820 2500欧入的 Max的价格现在摸上各家次旗舰的边都很勉强 所以这 ...</blockquote>
+库克把价格打下来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  chaos7  
+##### 306#       发表于 2020-12-10 20:17
+
+
+
+
+可惜不是Type-C接口,否则真想入手.<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 307#       发表于 2020-12-10 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49669855&amp;ptid=1960399" target="_blank">東京急行 发表于 2020-12-10 10:40</a>
+
+苹果在最近几年最大的贡献不就是把手机价格从4k位提到了10k么
+
+这耳机要是能卖得好，五年后各大厂的H ...</blockquote>
+诺基亚 摩托罗拉乃至HTC当年手机不都是万元乃至更高级别吗？把旗舰机拉到四五千的反而也是苹果
+
+
+
+
+
+
+
+-----
+
+####  yck019  
+##### 308#       发表于 2020-12-10 22:07
+
+
+
+
+有媒体上手了呀 确定可以转有线
+
+
+
+
+
+
+
+-----
+
+####  monono  
+##### 309#       发表于 2020-12-10 22:27
+
+
+
+
+降噪比700还强啊，厉害了。但佩戴舒适度不行。
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 310#       发表于 2020-12-10 22:40
+
+
+
+
+油管 上手视频[https://www.youtube.com/watch?v=UdfSrJvqY_E](https://www.youtube.com/watch?v=UdfSrJvqY_E)
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 311#         楼主| 发表于 2020-12-10 22:41
+
+
+
+
+等一个专业媒体出频响
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 312#       发表于 2020-12-10 22:59
+
+
+
+
+看了圈评测 感觉一般，不过不失的样子
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 313#       发表于 2020-12-10 23:40
+
+
+
+
+看了一圈感觉不如想象中的好，不过首批评测也就没几个专业音频方向的媒体
+
+
+
+
+
+
+
+-----
+
+####  hlazd  
+##### 314#       发表于 2020-12-10 23:51
+
+
+
+
+说降噪跟XM4差不多？
+
+
+
+
+
+
+
+-----
+
+####  拆骨羊肉2  
+##### 315#       发表于 2020-12-11 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49676676&amp;ptid=1960399" target="_blank">zikimi 发表于 2020-12-10 21:27</a>
+诺基亚 摩托罗拉乃至HTC当年手机不都是万元乃至更高级别吗？把旗舰机拉到四五千的反而也是苹果 ...</blockquote>
+雷猴王在角落拧螺丝拧到手都断了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 316#       发表于 2020-12-11 09:40
+
+
+
+
+目前看来是功能性一般，奢侈性拉满
+
+
+
+
+
+
+
+-----
+
+####  meltykiss  
+##### 317#       发表于 2020-12-11 09:42
+
+
+
+
+这玩意产能那么低的吗，下单能排去三月份
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 318#       发表于 2020-12-11 10:15
+
+
+
+
+看飞猪的开箱,降噪干了700
+
+
+
+
+
+
+
+-----
+
+####  x-rei  
+##### 319#       发表于 2020-12-11 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49654788&amp;ptid=1960399" target="_blank">只等待明天 发表于 2020-12-08 22:42:32</a>
+isine20买了还不到半年，心情复杂</blockquote>isine20本质还是高性价比数字hifi路线
+用MORA或者Neplayer放Hires用的吧
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  GeneralSmasher  
+##### 320#       发表于 2020-12-11 12:40
+
+
+
+
+憋说了，我21号定制的m1 mbp现在还没发货呢，这总不是什么紧俏货了吧
+
+
+
+
+
+
+
+-----
+
+####  Chinacaii  
+##### 321#       发表于 2020-12-13 17:15
+
+
+
+
+pdd这就降四百啦，是不是不行啊？
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 322#         楼主| 发表于 2020-12-13 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49707128&amp;ptid=1960399" target="_blank">Chinacaii 发表于 2020-12-13 17:15</a>
+
+pdd这就降四百啦，是不是不行啊？</blockquote>
+你能买到吗？
+
+
+
+
+
+
+
+-----
+
+####  stardestroyer  
+##### 323#       发表于 2020-12-14 11:50
+
+
+
+
+有钱就能变强，苹果在音频设备上赚了多少钱了，还不能变强？苹果虽然有智商税，但我看好苹果一刀把HIFI的智商税场景宰掉一大半。天天调音，玄学，胆机，让人还以为世界还处于1940年以前，看好水果搞个闭环控制加点均衡把这些玄学都给冲了
+
+
+
+
+
+
+
+-----
+
+####  stardestroyer  
+##### 324#       发表于 2020-12-14 11:55
+
+
+
+<blockquote>Chia 发表于 2020-12-9 13:38
+beats是营销和渠道的胜利。app是功能的胜利。都有错开概念，真说保真度，还是没能打入hifi市场的。但max以 ...</blockquote>
+虽然我没有逼测，但是我看逼测的新耳机频响已经非常哈曼，什么HIFI其实对苹果这样的厂商来说根本没有壁垒。无非苹果要收的是大部分人的消费税，而不是一个特殊市场的一小部份硬核消费者的消费税，所以不会出一些太依靠脑放和口耳相传的玄学产品
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 325#         楼主| 发表于 2020-12-14 12:07
+
+
+
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，这apm计算音频都写在脸上，大逆不道妖魔邪道，这辈子不要想靠近艺术的高保真理想乡，计算摄影p图，计算音频**啊
+
+
+
+
+
+
+
+-----
+
+####  tency  
+##### 326#       发表于 2020-12-14 12:14
+
+
+
+
+音频这玩意儿尴尬就尴尬在很少量化测试，有人就喜欢来一句“我木耳，200元的和2000的听不出区别，是智商税”
+
+
+
+
+
+
+
+-----
+
+####  muderx  
+##### 327#       发表于 2020-12-14 12:58
+
+
+
+
+我买的XM3还没开封，真尴尬
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 328#       发表于 2020-12-14 14:49
+
+
+
+
+我已经发货了，顺丰应该明天到
+
+
+
+
+
+
+
+-----
+
+####  淼霆  
+##### 329#       发表于 2020-12-14 15:18
+
+
+
+
+期待音质评测
+
+
+
+
+
+
+
+-----
+
+####  平井姨夫  
+##### 330#       发表于 2020-12-14 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49716814&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-14 14:49</a>
+我已经发货了，顺丰应该明天到</blockquote>
+希望测试一下长时间佩戴会不会压头顶
+
+
+
+
+
+
+
+-----
+
+####  Hanzong  
+##### 331#       发表于 2020-12-14 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49715589&amp;ptid=1960399" target="_blank">muderx 发表于 2020-12-14 12:58</a>
+我买的XM3还没开封，真尴尬</blockquote>
+不尴尬啊，一个这可以买3个xm3<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 332#       发表于 2020-12-14 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49717290&amp;ptid=1960399" target="_blank">平井姨夫 发表于 2020-12-14 15:30</a>
+
+希望测试一下长时间佩戴会不会压头顶</blockquote>
+手上头戴现在就一个hd820，一个xm4，明天重点比比xm4<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
