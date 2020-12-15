@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 16:06** 
+> ## **本文件最后更新于2020-12-15 18:02** 
 
 
 
@@ -785,6 +785,7 @@ Syl
 
 
 
+ 本帖最后由 alcoholic1000 于 2020-12-15 16:08 编辑 
 
 工商和神奇的工商人选：
 
@@ -818,6 +819,57 @@ Syl
 
 
 
+
+Syl，【2.0 Brushup!! 新たに6名をアップデート！】
+
+
+Live2DモデルVerの大幅アップデート！！今後の各ライバー配信にて順次発表！
+
+<strong>ギルザレンⅢ世(@Gilzaren_III)</strong>
+
+不破湊(@Fuwa_Minato)
+
+雨森小夜(@Sayo_Amemori)
+
+ルイス・キャミー(@Luis_Cammy)
+
+文野環(@nekokan_chu)
+
+ましろ(@mashiro2434)
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/160847w4ll8vw9mhclwjvj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.0 Brushup!! 新たに6名をアップデート！.jpg</strong> (214.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 16:08 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|呜呜|
+
+
+
+查看全部评分
 
 
 
@@ -986,4 +1038,404 @@ UI又无所谓，100%fgo的小圆脸不都活了3个年头了
 
 
 
-                                                
+
+
+-----
+
+####  rzrbtk  
+##### 22549#       发表于 2020-12-15 16:13
+
+
+
+
+我说猫猫怎么想着升级设备，是2.0出了啊，不错<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22550#       发表于 2020-12-15 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人气倒是没差到那种地步，开服前直播1w8同接（不知道管人粉占比多少），然后刚开服还因为人太多维护了一会服务器。大概还是能续命个一俩年。不过火是肯定没可能了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22551#       发表于 2020-12-15 16:18
+
+
+
+ 本帖最后由 katern 于 2020-12-15 17:06 编辑 
+
+轨迹那垃圾手游都能活，我樱战怎么不能苟了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+syl  谷歌已经开始有中文一星了，不知道的还以为是国产游戏呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22552#       发表于 2020-12-15 16:29
+
+
+
+
+船長はサクラ大戦は1〜新まですべてプレイしていますし外伝(gbエピ0ミス巴里など)もプレイして小説版も前夜をはじめとして読んでますしアニメOVA劇場版漫画版もすべて見てるし曲もたくさん歌えるし、にわかではないと思ってます🥺🌸
+
+先前生放完后相当突兀的一条发推，并没啥征兆，里界看了下也感觉很突然，推测或许是自搜到了anti发言。作为樱战系列老粉虽然因为这个联动届到了田中公平，但是也是被许多其他的系列老粉所因为是管人anti，这事也有很久了，也是挺无奈的。以及狐这种终极云玩家的存在也很无奈。
+开了个jst 20点的哭脸直播间 可能是要收波sc
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22553#       发表于 2020-12-15 16:38
+
+
+
+
+不许摸的禍つヴァールハイト都能混到动画化，sega这樱战撑到动画化又是一波大流量
+win the future！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 22554#       发表于 2020-12-15 16:45
+
+
+
+
+三世？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 22555#       发表于 2020-12-15 16:54
+
+
+
+
+这种时候越古参アピ不是越显得荒诞吗
+
+十年真爱粉和蹭热度云玩家同时被邀请了
+
+你的真爱值几个钱 还不如蹭热度的
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 22556#       发表于 2020-12-15 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">不是已经有动画化了么，开服前直播有1.8w同接已经是很成功的开场了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22557#       发表于 2020-12-15 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49727849&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-15 14:16</a>
+
+232 名前：名無しさん＠お腹いっぱい。 2020/12/15(火) 15:15:01.18
+
+まつり
+
+アロエ(特別ゲスト)</blockquote>
+想了一下虹an还是不熟悉杏，马自立应该换成人见。
+
+
+向人世复仇的虚拟恶鬼组。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22558#       发表于 2020-12-15 17:10
+
+
+
+
+好好笑，郡道杂谈什么情报都无，热聊apex男同cp，让我想起了口了金鱼那次，郡道消失两周后突然开t台，密码还被泄了，结果讲了一小时鬼灭
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 22559#       发表于 2020-12-15 17:17
+
+
+
+
+手游动画化容易吗？我看过都是fgo 公主链接这些火的
+
+还能撑到动画化这么简单的？
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 22560#       发表于 2020-12-15 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行 
+
+颓如segay都有锁链动画化和苍之骑士团动画化预定的
+
+不过大抵都是上过台面的
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22561#       发表于 2020-12-15 17:38
+
+
+
+
+道歉来了
+
+
+
+
+
+
+CIK~US@L`Q6935`2QV2Y0_L.png
+(52.42 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-15 17:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/173723wwrsq533s1tnz35l.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 22562#       发表于 2020-12-15 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49729884&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-15 17:10</a>
+
+好好笑，郡道杂谈什么情报都无，热聊apex男同cp，让我想起了口了金鱼那次，郡道消失两周后突然开t台，密码 ...</blockquote>
+郡道：我要是为人父母绝对不会让小孩去看电锯人
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 22563#       发表于 2020-12-15 17:43
+
+
+
+
+lga法官纷纷表示接受 就这啊没意思
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 22564#       发表于 2020-12-15 17:44
+
+
+
+
+这联动敢不敢再巨魔一点，怎么不把mrr叫过来
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22565#       发表于 2020-12-15 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49730366&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-15 17:42</a>
+郡道：我要是为人父母绝对不会让小孩去看电锯人</blockquote>
+比较脏，
+小学生最好不要看，
+觉得工口的人脑子有大问题，
+
+
+郡道是在说自己吗？
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 22566#       发表于 2020-12-15 17:53
+
+
+
+
+赚钱不容易啊，阿盐
+
+
+
+
+
+
+
+-----
+
+####  hz059504  
+##### 22567#       发表于 2020-12-15 17:57
+
+
+
+
+阿盐这能说人傻不算坏吧
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 22568#       发表于 2020-12-15 17:59
+
+
+
+
+要恰饭的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 22569#       发表于 2020-12-15 18:02
+
+
+
+
+郡道要和涉谷haru还有狮子神组队
+
+
+
+
+
+                                               
