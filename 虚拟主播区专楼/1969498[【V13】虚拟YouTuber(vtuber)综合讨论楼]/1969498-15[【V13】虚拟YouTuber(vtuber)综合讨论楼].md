@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 02:03** 
+> ## **本文件最后更新于2020-12-15 10:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_P80Pu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_U9YEI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_lnV9C" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_RffeR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -28875,4 +28875,720 @@ gbf这么复杂的，我也看不懂，只会做小学数学题的鸭皇肯定�
 
 
 
-   
+
+
+-----
+
+####  最近卡池有毒吧  
+##### 22391#       发表于 2020-12-15 02:56
+
+
+
+
+改名炎天使也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TRT-AL00A, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 22392#       发表于 2020-12-15 03:02
+
+
+
+
+半夜真的给整破防了，冷静了半天都冷静不下来，等了一天居然给我来个联动，前两天的感动都给整没了，以前那个再忙都想跟观众说说话的阿叶是个错觉吧，真的是看管人看魔怔了，溜了溜了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22393#       发表于 2020-12-15 03:32
+
+
+
+
+盐天使这个事情反过来也说明一个问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+yhm，或者说日本人当然是信不得的，你要么以友好为重，不然迟早被yhm气死。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22394#       发表于 2020-12-15 03:38
+
+
+
+
+废话多的一味<img src="https://p.sda1.dev/0/116618094e0d60c932fa776eb3ecb394/3cvlqIR.jpg" referrerpolicy="no-referrer">
+
+不废话的天龙人
+<img src="https://p.sda1.dev/0/b26356cb2d07b46db8234981265baefb/jQDlFPT.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 22395#       发表于 2020-12-15 04:30
+
+
+
+
+同社密友反正也没几个人会去打钱了，不给钱就不算嫖
+
+盐天使这种赚了钱还不长进的最好原地马上爆炸回去吃豆芽。
+
+—— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22396#       发表于 2020-12-15 07:28
+
+
+
+ 本帖最后由 某穆克拉 于 2020-12-15 07:42 编辑 
+
+10月，11月流水没进b站前100，估计在5w人民币以下，现存舰队58，水友们，这真的算赚了钱了吗。
+
+7月，8月，9月也没在前100，流水在3w5以下。6月流水不足2w7。
+
+真是有够可笑的呢。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22397#       发表于 2020-12-15 07:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49723933&amp;ptid=1969498" target="_blank">春风女神狄璐卡 发表于 2020-12-15 04:30</a>
+
+同社密友反正也没几个人会去打钱了，不给钱就不算嫖
+
+
+盐天使这种赚了钱还不长进的最好原地马上爆炸回去吃豆 ...</blockquote>
+那新神不也得炸几个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22398#       发表于 2020-12-15 07:50
+
+
+
+
+春风这话过于rz我竟不知道是不是在反串，一定是的吧！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 22399#       发表于 2020-12-15 07:57
+
+
+
+
+新神有谁给蝗点赞了，没关心过
+
+有也一起送走呗
+
+—— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22400#       发表于 2020-12-15 08:04
+
+
+
+<blockquote>春风女神狄璐卡 发表于 2020-12-15 04:30
+同社密友反正也没几个人会去打钱了，不给钱就不算嫖
+
+
+盐天使这种赚了钱还不长进的最好原地马上爆炸回去吃豆 ...</blockquote>
+懂哥倒是讲讲盐天使赚了多少钱啊，数据查不到可咋整？
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 22401#       发表于 2020-12-15 08:09
+
+
+
+
+盐天使这事隔壁魔怔的也太恐怖了，人均二极管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22402#       发表于 2020-12-15 08:11
+
+
+
+ 本帖最后由 寒星 于 2020-12-15 08:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724194&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-15 08:04</a>
+懂哥倒是讲讲盐天使赚了多少钱啊，数据查不到可咋整？</blockquote>
+不就十月份跑来卖惨，骗了一大批赤神粉丝去上舰，清愿望单，然后一次都没在B播过，笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+一群mmr发现被骗了，可不得使劲锤？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22403#       发表于 2020-12-15 08:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724222&amp;ptid=1969498" target="_blank">寒星 发表于 2020-12-15 08:11</a>
+
+不就十月份跑来卖惨，骗了一大批赤神粉丝去上舰，清愿望单，然后一次都没在B播过，笑死了 ...</blockquote>
+救救盐天使那帖子可不是10月发的，印象中六七月份就有了。字幕组出事儿应该也是在七八月。
+
+九月27号之后油管也没动过，12月才恢复活动搬家结束。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22404#       发表于 2020-12-15 08:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724164&amp;ptid=1969498" target="_blank">春风女神狄璐卡 发表于 2020-12-15 07:57</a>
+
+新神有谁给蝗点赞了，没关心过
+
+
+有也一起送走呗</blockquote>
+oto几年里什么tw和xg的问题犯过好几回，直球国的那种，然后推一删nga楼一抽就当无事发生了，nga要是真那么爱国为什么不冲一下呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22405#       发表于 2020-12-15 08:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724230&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-15 08:14</a>
+救救盐天使那帖子可不是10月发的，印象中六七月份就有了。字幕组出事儿应该也是在七八月。
+
+九月27号之后 ...</blockquote>
+关几月发的什么事？反正就是十月份新来的那批人真的去救了，救完了发现比991还屑
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 22406#       发表于 2020-12-15 08:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724194&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-15 08:04</a>
+
+懂哥倒是讲讲盐天使赚了多少钱啊，数据查不到可咋整？</blockquote>
+有不就得了。让他归零，人爬，完
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有人觉得魔怔 我还觉得魔怔起来才有效 坚壁清野划清界限比什么独轮车有用多了。
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22407#       发表于 2020-12-15 08:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724235&amp;ptid=1969498" target="_blank">weiweiEX 发表于 2020-12-15 08:15:09</a>
+oto几年里什么tw和xg的问题犯过好几回，直球国的那种，然后推一删nga楼一抽就当无事发生了，nga要是真那 ...</blockquote>那个发推道过歉的。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22408#       发表于 2020-12-15 08:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724256&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-15 08:20</a>
+
+那个发推道过歉的。
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+xg那事我知道道歉过，tw的那些也道歉过吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22409#       发表于 2020-12-15 08:23
+
+
+
+
+你们在这讨论冲不冲没用，去nga带好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 22410#       发表于 2020-12-15 08:25
+
+
+
+
+发过推然后道个歉和点个赞然后取消了哪个罪大一点，不就是底边个人势没人权比不过当红的ccll
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22411#       发表于 2020-12-15 08:26
+
+
+
+
+义正辞严的搞的我以为尼哥打了多少钱，V又干了什么不得了的事儿。
+
+觉得钱打瞎了可以去找叔叔退款，一块两块的就别去了，丢人。
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 22412#       发表于 2020-12-15 08:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你楼谁还没几个NGA号 
+
+
+这不是在NGA看累了回头看看S1么
+
+
+还看到有人从S1发掘出了那件T桖圣皇在上面签名是大爆炸以前的事<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 太好玩了 
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22413#       发表于 2020-12-15 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724266&amp;ptid=1969498" target="_blank">weiweiEX 发表于 2020-12-15 08:22:17</a>
+xg那事我知道道歉过，tw的那些也道歉过吗</blockquote>tw好像也是时空警察挖出来的老事吧。
+不过个人觉得时空警察真能闹大的话还会道歉。oto现在即使油管本体直播也是大半国人在看。人要吃饭的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 22414#       发表于 2020-12-15 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49721417&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-14 21:42</a>
+crew是拿啥针对狐皇呢</blockquote>
+别丢人行么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面**的minato看不见
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 22415#       发表于 2020-12-15 08:34
+
+
+
+
+还搁这坚壁清野呢。不碰日v就是最好的坚壁清野，麻烦做到。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22416#       发表于 2020-12-15 08:36
+
+
+
+<blockquote>netwof2008 发表于 2020-12-15 03:02
+半夜真的给整破防了，冷静了半天都冷静不下来，等了一天居然给我来个联动，前两天的感动都给整没了，以前那 ...</blockquote>
+以前也不是没有过一天只播联动吧，最近有多忙难道还不清楚吗？他只说过尽量每天都会播，没规定一定要有solo。团队比赛不练习的话又会被说。老姐还是调整一下心态吧，可能期望太高了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22417#       发表于 2020-12-15 08:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724304&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-15 08:30</a>
+
+tw好像也是时空警察挖出来的老事吧。
+
+不过个人觉得时空警察真能闹大的话还会道歉。oto现在即使油管本体直播 ...</blockquote>
+这就是nga搞笑的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前面有人说，发过推然后道个歉vs点个赞然后取消，哪个罪更大
+
+我记着盐天使的同接就几十，恐怕很快就要变成，发过直球推然后删了vs点个赞取消然后道歉，哪个罪更大了
+
+新时代的滑稽剧
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 22418#       发表于 2020-12-15 08:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724390&amp;ptid=1969498" target="_blank">weiweiEX 发表于 2020-12-15 08:43</a>
+
+这就是nga搞笑的地方了
+
+前面有人说，发过推然后道个歉vs点个赞然后取消，哪个罪更大
+
+我记着盐天使 ...</blockquote>
+说罪真的谈不上什么罪，就是种个三五条梁木罢了
+
+
+有能顶着三五条梁木继续扶贫的我愿称为绝活
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 22419#       发表于 2020-12-15 08:49
+
+
+
+
+别车了别车了，大家就是看V而已，没必要把泥潭讨论的事拿来车，真想对国家好，建议不看v好好学习好好工作
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22420#       发表于 2020-12-15 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49723933&amp;ptid=1969498" target="_blank">春风女神狄璐卡 发表于 2020-12-15 04:30</a>
+同社密友反正也没几个人会去打钱了，不给钱就不算嫖
+
+盐天使这种赚了钱还不长进的最好原地马上爆炸回去吃豆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是官方认证频道扬了还是直播舰长全停了，出事后立的两座夸皇生祠都还在
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22421#       发表于 2020-12-15 09:05
+
+
+
+
+一边自称爱国先锋一边给媚日平台活动的套皮yhm疯狂打钱确实多少沾、
+当然你综在FH平台上看V也被隔壁看不起，不过这边很多人都几乎不打钱的，算不上给敌人发子弹<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+syl  最后一个月能不能把这边官号给扬了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 22422#       发表于 2020-12-15 09:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22423#       发表于 2020-12-15 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">妈的，tskk一晚上涨了8000粉，赤井心这母猪今天也要回归，真不是约好了的？黑白无常。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22424#       发表于 2020-12-15 09:23
+
+
+
+
+平野耕太这个老德棍，不奇怪
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 22425#       发表于 2020-12-15 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724449&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-15 08:53</a>
+
+是官方认证频道扬了还是直播舰长全停了，出事后立的两座夸皇生祠都还在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那我怎么办 按住mmr的支付宝吗 反正我自己是把99%的饭盒舰长都停了
+
+
+说到底不就是敲敲键盘打嘴炮
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22426#       发表于 2020-12-15 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49725019&amp;ptid=1969498" target="_blank">春风女神狄璐卡 发表于 2020-12-15 09:54</a>
+那我怎么办 按住mmr的支付宝吗 反正我自己是把99%的饭盒舰长都停了
+
+
+说到底不就是敲敲键盘打嘴炮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看看lga对盐天使怎么做的不就行了，bls后那两生祠还能不被爆破是挺厉害的。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22427#       发表于 2020-12-15 10:04
+
+
+
+
+衣冠冢字幕组已经管不到了吧，实质上退出就是名义上还在。阿B没啥理由也不可能去爆破用户账号，有一说一大天使夭亡工商大红大紫以后有删掉任何东西吗？
+
+
+
+
+
+  
