@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 20:03** 
+> ## **本文件最后更新于2020-12-15 22:03** 
 
 
 
@@ -1746,10 +1746,11 @@ i‘s六点半发钻石公主的忧郁！（[https://youtu.be/Gjk5cBIxRRk](https
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| -rm7-| + 1|好评加鹅|
 | katern| + 1|泪目|
 | 暴走的包子| + 1|思路广|
 | 屑屑代沟尼亚| + 1|欢乐多|
@@ -2341,4 +2342,1159 @@ s1v版推荐s1娘、miki，还有魔女和维阿。</blockquote>
 
 
 
-                                              
+
+
+-----
+
+####  NBXX  
+##### 22616#       发表于 2020-12-15 20:06
+
+
+
+
+前20开始一个一个挤牙膏了，等播完了再放总图。
+<[img src="https://i.loli.net/2020/12/15/erGFdTCwOMPaxn1.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/15/2bXaQYDoI6plf7x.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/15/vRL6c1kF54GXeJj.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/15/oYLqHJl5x1jf6nE.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/15/jou43SxFPIZQd57.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 22617#       发表于 2020-12-15 20:07
+
+
+
+
+因为只有在B站播，国内观众才是真正意义上的直播参与者和内容的生产者。
+
+弹幕站的直播内容，一大部分就是弹幕的互动、整活、造梗，甚至炫富。观众既是消费者，也是生产者，直播间的氛围是可以比直播内容更重要的产出物和实质消费品。
+
+从这个意义上说爽哥确实是v，他无声闷头作业就行，爽粉会自娱自乐。
+
+日v即使有同传，大部分时候也不是能准确达意和有效交流的，但这并没有所谓，观众自己会创造娱乐内容。
+
+
+我自己是常年看404的，即使我听得懂看得懂，在一堆樱语和英语之中也不会特别有参与感，何况打中文还是ky。
+
+反正有tc回放，对我来说在404看实时和看achive没啥差别。本质都是旁观者看视频而已。
+
+但是404确实是很多本身内容优质的视频，而且上视频站就是为了看视频内容，不是为了享受氛围。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22618#       发表于 2020-12-15 20:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">今天船真倒霉，不知道被哪的anti刺激到了，要玩樱花大战证明自己，结果受众太少，同接连1w2都到不了，中间还被ban了，ban的时候订阅好像还被炮了一下，老倒霉了，我得打个sc。
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22619#       发表于 2020-12-15 20:18
+
+
+
+
+可别他妈再开什么live了天天不直播练习个破没意义的舞蹈每天半数以上成员不开播你当你2434呢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22620#       发表于 2020-12-15 20:19
+
+
+
+
+草：
+
+<img src="https://img.saraba1st.com/forum/202012/15/171113ir8teq49sieei37i.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22621#       发表于 2020-12-15 20:20
+
+
+
+[https://t.bilibili.com/468979779839585963?tab=2](https://t.bilibili.com/468979779839585963?tab=2)
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/202030c14rdr3ch1r4hc4z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>bml.jpg</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 20:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22622#       发表于 2020-12-15 20:23
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-15 20:27 编辑 
+
+Mori CalliopeSkullholoEN
+
+@moricalliope
+
+·
+
+59m
+
+Hello there, everyone. I'm so sorry, but I am no longer able to play Cyberpunk. I am just as disappointed as many of you, but it's out of my hands. Same with Halo. Though Halo is canceled, I'll be replacing Cyberpunk with Minecraft. I hope you can understand, and I love you guys!
+
+
+
+
+光环和2077都被ban，白皮这次可以去烧holo了吗？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22623#       发表于 2020-12-15 20:24
+
+
+
+
+Calliope发推说2077不让播，那游戏不是放开了随便播吗，那Amelia的2077也没了？显卡白买了
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22624#       发表于 2020-12-15 20:25
+
+
+
+ 本帖最后由 ShuTk4O 于 2020-12-15 20:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731715&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 19:31</a>
+那看国v啊，我是真觉得国v没部分人说的那么糟，特别是喜欢听歌的人，国v里不也是有歌力很强并且是唱日语歌 ...</blockquote>
+经常唱，唱日文，唱得好，同时满足这三点的好像不多。只满足两点的倒是不少
+---
+话说回来，b站日v能做到这三点的也就那么几个
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 22625#       发表于 2020-12-15 20:27
+
+
+
+
+我说中了呗holo运营阻止了2077
+
+但是没想到en也不行
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22626#       发表于 2020-12-15 20:28
+
+
+
+
+2077还说是大鸟转转乐  halo啥原因？？？？、
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 22627#       发表于 2020-12-15 20:31
+
+
+
+
+快去炎上木口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22628#       发表于 2020-12-15 20:31
+
+
+
+
+迷惑，cover真的有人在工作吗，这些游戏不提前准备好，两周多了连ATLUS还没谈下来？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22629#       发表于 2020-12-15 20:33
+
+
+
+
+杏骚扰很忙的，来不及申请版权理解万岁好吧
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 22630#       发表于 2020-12-15 20:34
+
+
+
+[https://www.xbox.com/en-US/developers/rules](https://www.xbox.com/en-US/developers/rules) <blockquote>You may make your Item available on Youtube or Twitch and participate in programs on those sites that allow you to earn revenue from ads displayed in connection with your Item.</blockquote>
+
+Halo应该也是Holo自肃吧
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22631#       发表于 2020-12-15 20:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/203610a0jpslkkj2v5zcs2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpRjf2KVQAApjOA.jpg</strong> (157.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 20:36 上传
+
+
+
+
+
+[https://twitter.com/ushimi_ichigo/status/1338804587436773377](https://twitter.com/ushimi_ichigo/status/1338804587436773377)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22632#       发表于 2020-12-15 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732223&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-15 20:19</a>
+草：</blockquote>
+<img src="https://p.sda1.dev/0/69ee6a3b9b0142d2835e1a017cab972e/IMG_CMP_128844795.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22633#       发表于 2020-12-15 20:38
+
+
+
+
+流行语12名：蝗
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22634#       发表于 2020-12-15 20:43
+
+
+
+
+想问2000哥个问题，为什么你家阿葵那么喜欢跟不破玩啊？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 22635#       发表于 2020-12-15 20:44
+
+
+
+
+明天的联动！<img src="https://p.sda1.dev/0/75b411635cc91532953fd5ef5ac78966/IMG_CMP_135718605.jpeg" referrerpolicy="no-referrer">
+syl葛葉捏的这个脸的眼睛和鼻子小图看真的有点糟糕，像，像⭕️⭕️<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22636#       发表于 2020-12-15 20:44
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-15 20:19
+草：</blockquote>
+杏星也是杏！
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 22637#       发表于 2020-12-15 20:47
+
+
+
+
+爱丽丝和冷鸟的牌面真足啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22638#       发表于 2020-12-15 20:51
+
+
+
+
+流行语8位：狗子
+
+
+弹幕：违法配信X1000000
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22639#       发表于 2020-12-15 20:51
+
+
+
+
+阿葵这捏的不说我还以为是露露
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22640#       发表于 2020-12-15 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 问我干嘛，我彻底脱粉了，别问我，
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 22641#       发表于 2020-12-15 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看阿葵突然同接上2W去了，進去一看原來是葛葉和不破來了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22642#       发表于 2020-12-15 20:57
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-15 21:00 编辑 
+
+前五了，虹还有nijisanji和天皇两张牌，杏只有一张hololive了
+
+当然第一肯定是鬼灭
+
+
+修正：
+
+nijisanji过了
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 22643#       发表于 2020-12-15 20:58
+
+
+
+
+nijisanji过了，46名
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|那就是我看漏了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22644#       发表于 2020-12-15 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732662&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-15 20:57</a>
+前五了，虹还有nijisanji和天皇两张牌，杏只有一张hololive了
+
+当然第一肯定是鬼灭</blockquote>
+<img src="https://p.sda1.dev/0/55f5466303aae0d28eea4a4695af80af/IMG_CMP_170894074.png" referrerpolicy="no-referrer">
+高估了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22645#       发表于 2020-12-15 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732488&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 20:43</a>
+
+想问2000哥个问题，为什么你家阿葵那么喜欢跟不破玩啊？</blockquote>
+虹虽然有很多liver在Role Playing，但不破是真的牛郎<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+这男的蛊惑人心有一手的..
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22646#       发表于 2020-12-15 21:02
+
+
+
+
+5位：hololive
+
+
+弹幕太乐了可我不敢截图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22647#       发表于 2020-12-15 21:05
+
+
+
+
+我看没人提，
+
+<img src="https://img.saraba1st.com/forum/202012/15/210253ugef0i7s587gj787.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 623 - 推文 _ Twitter - twitter.com.jpg</strong> (236.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:02 上传
+
+
+
+
+
+
+
+目前想到的25号17点开的活动，虹五线下会，一期生线下会，SKB部线上桃铁，
+
+一想到阿花，圣诞节的圣诞装阿花，不能和我待在一起，我就，有点难受，前夜一定会有一如既往的圣诞歌回吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 22648#       发表于 2020-12-15 21:05
+
+
+
+
+金发屁股下巴大叔和红挑染烈焰红唇怪人离阿葵远一点啊kora<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22649#       发表于 2020-12-15 21:11
+
+
+
+
+第二位扭曲仙境……恐怖如斯恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22650#       发表于 2020-12-15 21:12
+
+
+
+
+原来扭曲仙境真的这么火的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 22651#       发表于 2020-12-15 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这100个流行语到底怎么选的，难道看pixiv图数量的多少吗
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22652#       发表于 2020-12-15 21:21
+
+
+
+
+难怪狐皇爱玩
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 22653#       发表于 2020-12-15 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732904&amp;ptid=1969498" target="_blank">zerouuz 发表于 2020-12-15 21:21</a>
+
+这100个流行语到底怎么选的，难道看pixiv图数量的多少吗</blockquote>
+[https://site.nicovideo.jp/2020nettrend100/](https://site.nicovideo.jp/2020nettrend100/)
+
+【 ネット流行語100 選考方法 】
+
+2020年1月1日〜11月25日の期間に、両サービスの各単語ページにおけるアクセス数の合算値が、昨年から今年にかけてより伸びた上位100単語を「ノミネート100単語」として公開。さらに、ノミネート100単語のなかから、最も差分が大きかった単語を「年間大賞」として表彰します。
+<strong>ニコニコ大百科賞</strong>
+
+ニコニコユーザーが選ぶ「今年流行ったと思う単語」を、ニコニコアンケートを使って決定し、ニコニコ賞として表彰します。
+<strong>pixiv賞</strong>
+
+2020年にpixivに投稿された作品（イラスト、マンガ、小説）に対してつけられたタグを集計。
+
+2019年と比較して、最も投稿が増えた単語をpixiv賞として表彰します。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zerouuz| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22654#       发表于 2020-12-15 21:22
+
+
+
+
+晚上十点戴起船长的帽子玩新游戏了
+
+<img src="https://img.saraba1st.com/forum/202012/15/212133t4uuypbjmzu3oa3l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpR-dDmVQAUfLci.jpg</strong> (545.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:21 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/212133vflv2jlinn7qqm4w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpRPt5FVQAUuZYf.jpg</strong> (588.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:21 上传
+
+
+
+
+
+[https://twitter.com/cloba377/status/1338782652371849218](https://twitter.com/cloba377/status/1338782652371849218)
+
+<img src="https://img.saraba1st.com/forum/202012/15/212134eo992zldibl272si.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpPjD9vUwAEUptu.jpg</strong> (283.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:21 上传
+
+
+
+
+
+[https://twitter.com/tanakataroukami/status/1338663176338956288](https://twitter.com/tanakataroukami/status/1338663176338956288)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GToojer| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 22655#       发表于 2020-12-15 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732260&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-15 20:23</a>
+
+Mori CalliopeSkullholoEN
+
+@moricalliope
+
+·</blockquote>
+草，我会玩MC替代，看到这里直接笑喷出来
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 22656#       发表于 2020-12-15 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732927&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 21:22</a>
+
+晚上十点戴起船长的帽子玩新游戏了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">兔妈peko
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22657#       发表于 2020-12-15 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732927&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 21:22</a>
+
+晚上十点戴起船长的帽子玩新游戏了</blockquote>
+最后这张的画风我可认识<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">画了好多R18
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22658#       发表于 2020-12-15 21:26
+
+
+
+
+stm第一位是无惨……这第一位活该被炎上是吗！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22659#       发表于 2020-12-15 21:33
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-15 21:34 编辑 
+
+三枝终于发歌了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/15/212616dxax3r2r3tx72cke.png" referrerpolicy="no-referrer">
+
+
+<strong>テレキャスタービーボーイ(cover) - 三枝明那.png</strong> (112.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:26 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=7kGGhprf064](https://www.youtube.com/watch?v=7kGGhprf064)
+
+原作者：
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/213018ahjc224z32nch6i3.png" referrerpolicy="no-referrer">
+
+
+<strong>何があったの.png</strong> (131.05 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:30 上传
+
+
+
+
+
+
+
+我愿称管人为2020年ACG流量炸弹（虽然比不上之刃）
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22660#       发表于 2020-12-15 21:33
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-15 21:34 编辑 
+
+想看加龄臭阿姨X2打枪，又想看二姐点两个男 公 关开车，很纠结。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 22661#       发表于 2020-12-15 21:37
+
+
+
+[https://www.youtube.com/watch?v=N191vNHO17Q](https://www.youtube.com/watch?v=N191vNHO17Q)
+
+【初配信】イキリ◯女の汚名返上します！妄想炸裂話♡【新人ギャルVTuber】
+
+原来PinkPunkPro的新人已经开播了呀
+
+在路上没办法看
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 22662#       发表于 2020-12-15 21:39
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glovedhoxyj20dr0g8jtf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22663#       发表于 2020-12-15 21:42
+
+
+
+
+你在说什么啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/214242d3pcbyft4139vnfn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 626 - 主页 _ Twitter - twitter.com.jpg</strong> (333.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 21:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 22664#       发表于 2020-12-15 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732961&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-15 21:26</a>
+
+最后这张的画风我可认识画了好多R18</blockquote>
+然而每次画兔子都是顶多捏下脸的健全绘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22665#       发表于 2020-12-15 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733123&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-15 21:43</a>
+
+然而每次画兔子都是顶多捏下脸的健全绘</blockquote>
+不是有发推说要画睡奸系列的兔子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 22666#       发表于 2020-12-15 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733230&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 21:54</a>
+不是有发推说要画睡奸系列的兔子吗</blockquote>
+但是按他说的顺序这张本来就轮到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                                            

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 16:11** 
+> ## **本文件最后更新于2020-12-15 22:09** 
 
 
 
@@ -12955,9 +12955,10 @@ slab打钱合计金额其实感觉不算太多，目前依然跟阿b的累积金
 
 
 
+ 本帖最后由 Cushaw 于 2020-12-15 16:13 编辑 
 
 叔叔：因为live取消了，所以mea小姐的门票收益也就没有了唷<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
-真好啊，第一届bls就跟完全不存在一样<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+真好啊，第一届bls就跟完全不存在一样<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">，换我我都menhera发作了
 今后也是好便器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
@@ -12982,4 +12983,470 @@ slab打钱合计金额其实感觉不算太多，目前依然跟阿b的累积金
 
 
 
-                         
+
+
+-----
+
+####  kerfars  
+##### 5223#       发表于 2020-12-15 16:11
+
+
+
+
+想开点，这门票收益中间你不知道阿b会怎么算比例给到她
+
+
+真想给她门票收益欢迎来sl打钱
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5224#       发表于 2020-12-15 16:26
+
+
+
+
+对啊明明打钱收益更多吧
+
+
+
+
+
+
+
+-----
+
+####  dark_lemon  
+##### 5225#       发表于 2020-12-15 16:45
+
+
+
+
+换个角度看 虽然演唱会收益没了 但这演唱会也不用咩掏钱 观众也可以白嫖 挺好 演唱会的门票钱建议直接打sl给咩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dilemma  
+##### 5226#       发表于 2020-12-15 16:59
+
+
+
+
+后知后觉，live原来是延到20号了吗，我那天有事啊。都怪阿b。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5227#       发表于 2020-12-15 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5228#       发表于 2020-12-15 18:23
+
+
+
+
+求求你们弱智一点，别演唱会了，心脏疼<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5229#       发表于 2020-12-15 18:30
+
+
+
+
+不如关心一下这次3d能不能摸到腰吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5230#       发表于 2020-12-15 18:49
+
+
+
+
+那天是我听过的你麻最高亢最兴奋的声音，那次是我今年第一次动了心中的热情，永远都忘不了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5231#       发表于 2020-12-15 19:14
+
+
+
+
+你今年的热情动的还蛮晚的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5232#       发表于 2020-12-15 19:23
+
+
+
+
+19号就是bml，你麻不是两首歌嘛，我想有可能极光可能先上bml了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5233#       发表于 2020-12-15 19:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上他妈，我现在看见极光就头疼
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5234#       发表于 2020-12-15 19:29
+
+
+
+
+bml应该是草莓果酱吧 都唱果酱了
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 5235#       发表于 2020-12-15 19:35
+
+
+
+
+还是最喜欢草莓饺子这套衣服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5236#       发表于 2020-12-15 19:38
+
+
+
+
+草莓饺子这套衣服感觉很合适做成live2d<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+天邪鬼那套感觉更适合3D用，好看的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5237#       发表于 2020-12-15 19:38
+
+
+
+
+草莓饺子太幼了 还是喜欢御姐麻<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5238#       发表于 2020-12-15 19:38
+
+
+
+
+不要就这么对极光产生梁木啊，明明那么好看<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5239#       发表于 2020-12-15 19:39
+
+
+
+
+bml是没机会了，下次什么活动希望能有机会拉闸或者拔网线什么的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5240#       发表于 2020-12-15 19:43
+
+
+
+
+那军服3D就是我的了（正好我也最爱这一套
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5241#       发表于 2020-12-15 19:49
+
+
+
+
+你们都要皮 那天空树小麻就归我了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5242#       发表于 2020-12-15 20:33
+
+
+
+
+播啊，昨天说好了今天努力直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5243#       发表于 2020-12-15 20:38
+
+
+
+
+说明了努力不一定有成果<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5244#       发表于 2020-12-15 20:38
+
+
+
+
+不要吵，她正在梦里播
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 5245#       发表于 2020-12-15 20:38
+
+
+
+
+努力睡觉也是努力
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5246#       发表于 2020-12-15 20:39
+
+
+
+
+她在努力给我做个人直播呢 已经播了两个小时了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5247#       发表于 2020-12-15 20:48
+
+
+
+
+努力直播，指努力去尝试直播么？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 5248#       发表于 2020-12-15 20:52
+
+
+
+
+相信她会播的，指半夜）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5249#       发表于 2020-12-15 20:59
+
+
+
+
+原来初配信就说了自己喜欢bgm声音大自己的声音小啊，想念她以前声音很近时候的感觉，你咩确实不配用这么好的麦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5250#       发表于 2020-12-15 21:06
+
+
+
+
+离日本的今天结束还有两小时……
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 5251#       发表于 2020-12-15 21:37
+
+
+
+
+你楼群有人私个群号吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
