@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 18:02** 
+> ## **本文件最后更新于2020-12-15 20:03** 
 
 
 
@@ -1438,4 +1438,907 @@ lga法官纷纷表示接受 就这啊没意思
 
 
 
-                                               
+
+
+-----
+
+####  flyskywalker92  
+##### 22570#       发表于 2020-12-15 18:03
+
+
+
+ 本帖最后由 flyskywalker92 于 2020-12-15 18:06 编辑 
+
+我看了半天 金憨憨这马车还没进过前10 炮灰了啊
+
+
+syl 汉尼拔这种 r18g的 小孩子是不该看啊
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22571#       发表于 2020-12-15 18:12
+
+
+
+<blockquote>flyskywalker92 发表于 2020-12-15 18:03
+我看了半天 金憨憨这马车还没进过前10 炮灰了啊
+
+
+syl 汉尼拔这种 r18g的 小孩子是不该看啊
+</blockquote>
+要看了她去年的名次也不会有什么期待了吧，她都是参加最弱马车的选手的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22572#       发表于 2020-12-15 18:16
+
+
+
+
+垃圾圆脸晚上又玩动森，烂货，赶紧毕业吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22573#       发表于 2020-12-15 18:16
+
+
+
+
+垃圾圆脸晚上又玩动森，烂货，赶紧毕业吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22574#       发表于 2020-12-15 18:17
+
+
+
+
+杂谈....好棒.....喜欢....果然我就是喜欢擅长杂谈的人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">。
+然后，好消息！
+i‘s六点半发钻石公主的忧郁！（[https://youtu.be/Gjk5cBIxRRk](https://youtu.be/Gjk5cBIxRRk)），当年做拉拉人的时候就很喜欢，现在这三绘理推凑一起感觉会把bibi曲全都翻一遍，很好。
+（管人无关，本集拉拉人好女同噢，管人们可以学习下吗）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|我也喜欢杂谈|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 22575#       发表于 2020-12-15 18:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">木口就硬蹭彩虹嚯，怕不是来宣传live的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|爆笑如雷了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22576#       发表于 2020-12-15 18:35
+
+
+
+
+圆脸定语又变多了，免费都风怒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22577#       发表于 2020-12-15 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没了，值得么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22578#       发表于 2020-12-15 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49730855&amp;ptid=1969498" target="_blank">free 发表于 2020-12-15 18:16</a>
+垃圾圆脸晚上又玩动森，烂货，赶紧毕业吧</blockquote>
+<img src="https://p.sda1.dev/0/4dc39fe33a08c5cb369ec4f0edafa924/70d1967c39dfa294.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22579#       发表于 2020-12-15 18:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/185051s6z1txx313mt6x16.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201215185038.png</strong> (19.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 18:50 上传
+
+
+
+
+
+
+可能是最后一次见了，免费注意身体。
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 22580#       发表于 2020-12-15 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费佬被警察抓的时候会不会还是在骂垃圾圆脸不人气声优
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22581#       发表于 2020-12-15 18:56
+
+
+
+
+说实话，表面上看，是b站粉丝和404粉丝的矛盾，现在实际上是能看404的人和不能看404的人的矛盾。
+
+这恐怕也是某些观众觉得有一批“人上人”存在的原因吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 22582#       发表于 2020-12-15 18:57
+
+
+
+
+免费面无表情的在手机屏幕上划来划去，他的手指在划来划去，在那个圆脸上划来划去，一直只是划来划去。
+
+可是免费不想只是划屏幕上的圆脸了，他点开了那些乱七八糟的软件，划来划去的找自己的圆脸，找自己的偶像，找自己的JK。
+
+免费他最终还是找到了，不是偶像，不是JK，只是圆脸。
+
+免费苦笑着，用手指笨拙的打下几个字：
+
+“垃圾圆脸，做保健吗？”
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 7战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|泪目|
+| 暴走的包子| + 1|思路广|
+| 屑屑代沟尼亚| + 1|欢乐多|
+| Mr.shelter| + 1|欢乐多|
+| admentus| + 1|好评加鹅|
+| 猫島かおる| + 1|欢乐多|
+| 某穆克拉| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22583#       发表于 2020-12-15 18:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 原来aqua酱也会葛叶的天气卡组阿，嘶————
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 22584#       发表于 2020-12-15 19:01
+
+
+
+
+翻墙都能有优越感的我也不懂啊 我翻墙出去看大亏的直播，评论看不懂，大亏说话时懂时不懂
+
+几分钟就关了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22585#       发表于 2020-12-15 19:07
+
+
+
+
+没事，看夸夸直播不需要脑子，只需要真心就能与她心电感应<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22586#       发表于 2020-12-15 19:09
+
+
+
+
+什么能看和不能看的矛盾？就不能是对在油管装日本人发日语装白皮发英文没兴趣吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22587#       发表于 2020-12-15 19:12
+
+
+
+
+不是翻墙有优越感啊...
+
+就我个人来说是无法理解有些人翻墙特别还只是翻到油管这种成本很低的事情都不愿意去做，一定要等别人把饭端到自己面前，却有大把的时间在隔壁尼哥谭带节奏打架辩经，还一定要看日v不看100%在阿批播的国v
+
+以前转播也是给网不好梯子不好的人提供一个第二选择
+
+但现在逼着b限不能去油管，真的不能理解，谁能给个合理解释吗？
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 22588#       发表于 2020-12-15 19:16
+
+
+
+
+翻墙出去有人同传么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦，中文刷屏要被橄榄啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 22589#       发表于 2020-12-15 19:17
+
+
+
+
+nano的事本质是hlm、三小姐等等问题的混合结果，不是墙的问题
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22590#       发表于 2020-12-15 19:18
+
+
+
+
+哈弟那个大会邀请了哪些人啊？看到bora参加了，郡道和哈弟狮子神组队参加的也是这个吧
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22591#       发表于 2020-12-15 19:19
+
+
+
+
+大部分人是能翻出去的，感觉一是平台使用习惯的问题，二是免费梯很多也就上推特够用，看直播还是有点卡
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 22592#       发表于 2020-12-15 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731451&amp;ptid=1969498" target="_blank">Mr.shelter 发表于 2020-12-15 19:07</a>
+
+没事，看夸夸直播不需要脑子，只需要真心就能与她心电感应</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是在yygq我家五岁小孩直播没脑子么
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 22593#       发表于 2020-12-15 19:21
+
+
+
+
+菜羽好像没哭过吧，总觉得在看她直播的时候有一层心之壁在
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 22594#       发表于 2020-12-15 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731497&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 19:12</a>
+
+不是翻墙有优越感啊...
+
+就我个人来说是无法理解有些人翻墙特别还只是翻到油管这种成本很低的事情都不愿意去 ...</blockquote>
+其实大部分的人都听不懂日语，为什么喜欢看日v呢？要的只是一种仪式感，所以内容其实是最不重要的，关键是“日v在b站进行b限”这个仪式。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 22595#       发表于 2020-12-15 19:22
+
+
+
+<blockquote>YODOboi 发表于 2020-12-15 19:21
+菜羽好像没哭过吧，总觉得在看她直播的时候有一层心之壁在</blockquote>
+虽然pxj弱智，但还是想看到这种性格的妹子哭哭(◡ ω ◡)
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22596#       发表于 2020-12-15 19:25
+
+
+
+
+404那边夸的英文切片和繁体切片最近也多了不少，逃出去的crew应该也不至于过不下去吧，再不济就加避难群呗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 22597#       发表于 2020-12-15 19:26
+
+
+
+
+在b站看b限听不懂好歹还有点参与感，跑去404听又听不懂，又一堆外文弹幕，真就时间多的闲得慌？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听不懂的才是大多数人，对于很多人来说失去了b限她们啥都不是了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22598#       发表于 2020-12-15 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实际上发中文就和发任何其他日语外语言一样没人会干涉，你打SC非日语倒是也会被一视同仁的放到翻译机里去。至于同传，没同传就完全看不懂评论听不懂那不是说明这个语言的直播不适合么，就像外国人看国内主播他也大概率看不懂。想要特殊优待有或者有人辅助（例如同传）的心态是挺好理解的，但是我寻思这种东西也不是理所当然有的，何况同传这玩意，就算到殿子这种水平，同传杂谈都有时候显得比较破碎，阿船的杂谈，我很多时候听懂了写repo怎么翻译和解释梗都感觉挺费时间的，写一大篇的背后也是不少时间的斟酌了。
+
+
+syl   今天强行要证明自己的樱战 在bug下铁底都到不了了 药丸 。 
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22599#       发表于 2020-12-15 19:30
+
+
+
+
+慕洋犬呗，直说不就完了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22600#       发表于 2020-12-15 19:31
+
+
+
+
+所以就是这么一回事了呗，对于很多人来说，去油管看本身就不是一个选项。
+
+那就只关心b限咯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22601#       发表于 2020-12-15 19:31
+
+
+
+ 本帖最后由 admentus 于 2020-12-15 19:32 编辑 
+
+那看国v啊，我是真觉得国v没部分人说的那么糟，特别是喜欢听歌的人，国v里不也是有歌力很强并且是唱日语歌曲的，这跟一些受欢迎的b站特供日v区别不大吧
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 22602#       发表于 2020-12-15 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731715&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-15 19:31</a>
+
+那看国v啊，我是真觉得国v没部分人说的那么糟，特别是喜欢听歌的人，国v里不也是有歌力很强并且是唱日语歌 ...</blockquote>
+yhm和牡丹妹的区别就是最根本的问题，那些人就喜欢yhm，内容真的是不重要的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22603#       发表于 2020-12-15 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731738&amp;ptid=1969498" target="_blank">Rosefinch 发表于 2020-12-15 19:34</a>
+
+yhm和牡丹妹的区别就是最根本的问题，那些人就喜欢yhm，内容真的是不重要的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|所以他们排斥像你这样不理解的人阿.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22604#       发表于 2020-12-15 19:38
+
+
+
+
+喜欢（在b站直播，舔b站观众，学中文看傻吊视频，背后没有企业，最好家境贫寒容易掌握的）yhm。
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 22605#       发表于 2020-12-15 19:41
+
+
+
+
+偏见是很难消除的，就算新番追不下去、我也没兴趣看一分钟国产动画
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 22606#       发表于 2020-12-15 19:44
+
+
+
+
+国v推荐羊狼
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22607#       发表于 2020-12-15 19:45
+
+
+
+
+明天是天皇亲方当狼有看点还是阿希郡道当狼有看点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+等不及了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22608#       发表于 2020-12-15 19:46
+
+
+
+
+国V推荐小秦，偶尔看看男人调剂调剂
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22609#       发表于 2020-12-15 19:48
+
+
+
+
+s1v版推荐s1娘、miki，还有魔女和维阿。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22610#       发表于 2020-12-15 19:49
+
+
+
+
+3ID离樱花妹就差一个投胎不太准了别国V了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22611#       发表于 2020-12-15 19:51
+
+
+
+
+api和c菌看的都挺舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 22612#       发表于 2020-12-15 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731922&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2020-12-15 19:48</a>
+
+s1v版推荐s1娘、miki，还有魔女和维阿。</blockquote>
+对，绕着这几个走就对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22613#       发表于 2020-12-15 19:53
+
+
+
+<blockquote>十四洲 发表于 2020-12-15 19:18
+哈弟那个大会邀请了哪些人啊？看到bora参加了，郡道和哈弟狮子神组队参加的也是这个吧 ...</blockquote>
+应该是这个，cr 杯哈弟是和虾一队的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22614#       发表于 2020-12-15 19:53
+
+
+
+
+你忘了A-soul<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22615#       发表于 2020-12-15 19:54
+
+
+
+
+看了下隔壁综，新时代观众也不是铁板一块啊，我还以为他们会和泥小将站一边呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
