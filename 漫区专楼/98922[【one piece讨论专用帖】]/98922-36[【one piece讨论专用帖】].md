@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-12 10:01** 
+> ## **本文件最后更新于2020-12-16 02:01** 
 
 
 
@@ -2876,7 +2876,16 @@ BbsImg_9951571866222_1590070546_s_169416_o_w_656_h_1024_14562.webp.jpg
 ####  faust123  
 ##### 52662#       发表于 2020-5-24 15:13
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47533073&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-05-23 20:50:52</a>
+这话被吐槽太多主要是因为如果没有索隆，这路飞直接就挂了，眩晕几秒，那些杂兵再拿武器一桶乱扎，海贼王剧 ...</blockquote>当初北斗神拳里吵架战斗力倒是也经常有南斗暗钟拳乱入的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
 
 
 
@@ -5425,7 +5434,16 @@ one piece就在我身后！最后的敌人：伊姆一出场就把大妈团跟�
 ####  faust123  
 ##### 52802#       发表于 2020-6-12 07:58
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47772978&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-06-12 07:34:23</a>
+黑玛利亚坐凯多腿太色气了，快变成巨龙艹她呀</blockquote>要生刘邦么
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
 
 
 
@@ -8497,14 +8515,7 @@ cao
 ####  潇洒一郎君  
 ##### 52972#       发表于 2020-7-2 13:32
 
-
-
-
-如果之前御田的形象不像个傻逼的话，大和的行为还是挺有合理性的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14706,7 +14717,14 @@ king是会飞那个？主角团只有山治会飞，那稳了。
 ####  faust123  
 ##### 53302#       发表于 2020-8-18 16:44
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+海贼王这玩意就别计较战力了
+
+
+
+
 
 
 
@@ -22142,4 +22160,481 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-         
+
+
+-----
+
+####  csd  
+##### 53704#       发表于 2020-12-12 17:14
+
+
+
+ 本帖最后由 csd 于 2020-12-12 17:18 编辑 
+
+艾斯当年偷袭睡觉白胡子都会被秒，去杀凯多不是找死么？但以结果而论他肯定是全身而退了，这其中怕不是有什么PY交易<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fmchar  
+##### 53705#       发表于 2020-12-12 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697072&amp;ptid=98922" target="_blank">csd 发表于 2020-12-12 17:14</a>
+
+艾斯当年偷袭睡觉白胡子都会被秒，去杀凯多不是找死么？但以结果而论他肯定是全身而退了，这其中怕不是有什 ...</blockquote>
+有可能是用艾斯来对比老年未发病白胡子和凯多实力的，尾田经常这么玩
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53706#       发表于 2020-12-12 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697221&amp;ptid=98922" target="_blank">fmchar 发表于 2020-12-12 17:32</a>
+
+有可能是用艾斯来对比老年未发病白胡子和凯多实力的，尾田经常这么玩</blockquote>
+那赤犬岂不是一拳能秒了凯多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 53707#       发表于 2020-12-12 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697293&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-12 17:38</a>
+那赤犬岂不是一拳能秒了凯多</blockquote>
+但艾斯远逊于凯多是毫无疑问的
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 53708#       发表于 2020-12-12 18:07
+
+
+
+
+可能ace来的时候凯多刚好出去自杀了，没找到人只好打爆雕像来了个和之国深度游
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53709#       发表于 2020-12-12 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697599&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-12-12 18:07</a>
+
+可能ace来的时候凯多刚好出去自杀了，没找到人只好打爆雕像来了个和之国深度游 ...</blockquote>
+是团建，整个海贼团出去团建去了，所以连个干部都没碰上。走狗屎运了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53710#       发表于 2020-12-13 14:44
+
+
+
+
+为什么又扯到艾斯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔡卓妍  
+##### 53711#       发表于 2020-12-13 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697656&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-12 18:13</a>
+是团建，整个海贼团出去团建去了，所以连个干部都没碰上。走狗屎运了 ...</blockquote>
+然后不带女儿出去玩？老婆是谁？🐎呢？
+
+
+
+
+
+
+
+-----
+
+####  蔡卓妍  
+##### 53712#       发表于 2020-12-13 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706017&amp;ptid=98922" target="_blank">抽烟的猴 发表于 2020-12-13 14:44</a>
+为什么又扯到艾斯了</blockquote>
+1000话出艾斯，正片
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53713#       发表于 2020-12-13 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706260&amp;ptid=98922" target="_blank">蔡卓妍 发表于 2020-12-13 15:20</a>
+
+然后不带女儿出去玩？老婆是谁？🐎呢？</blockquote>
+团建嘛，带个胳膊肘往外拐的女儿干嘛，当然留着了。<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 53714#       发表于 2020-12-13 15:47
+
+
+
+
+我懂了，为什么马尔高会在这里，难道1000话要复活艾斯？
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 53715#       发表于 2020-12-15 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">艾斯的回忆整个三年 然后再花两年让草帽团和两个四皇两败俱伤，海军坐收渔翁之利，OP结束
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 53716#       发表于 2020-12-15 20:49
+
+
+
+
+鱼鱼果实还行，剧情终于要有进展了
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53717#       发表于 2020-12-15 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49706271&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-13 15:22</a>
+ 团建嘛，带个胳膊肘往外拐的女儿干嘛，当然留着了。</blockquote>
+真的团建去了
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 53718#       发表于 2020-12-15 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732560&amp;ptid=98922" target="_blank">陈玉礼 发表于 2020-12-15 20:49</a>
+鱼鱼果实还行，剧情终于要有进展了</blockquote>
+鱼跃龙门，鲤鱼王进化暴鲤龙
+所以不怕水，海陆空最强生物
+
+
+
+
+
+
+
+-----
+
+####  衛宫切嗣  
+##### 53719#       发表于 2020-12-15 21:11
+
+
+
+
+凯多吃的真的不是鲲果实吗
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53720#       发表于 2020-12-15 21:50
+
+
+
+
+看情报1000话路飞应该上不来吧，想想如果要**的话就该让洛克斯登场了。
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 53721#       发表于 2020-12-15 22:02
+
+
+
+
+鱼鱼果实盖欧卡形态！
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53722#       发表于 2020-12-15 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这果实……？
+
+
+
+
+
+
+
+-----
+
+####  Erinyas  
+##### 53723#       发表于 2020-12-15 22:24
+
+
+
+
+尾田也自由起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53724#       发表于 2020-12-15 23:01
+
+
+
+<blockquote>凯多的果实是大妈在洛克斯海贼团陨落那天给的。</blockquote>
+
+
+脑子里浮现出两人年轻时候青涩的画面。
+
+
+朝阳的大海为背景，大妈把果实给了凯多。
+
+
+群友补充：“我们顶点再见”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fmchar  
+##### 53725#       发表于 2020-12-15 23:07
+
+
+
+
+鱼鱼果实-鲤鱼王-暴鲤龙<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 53726#       发表于 2020-12-15 23:11
+
+
+
+
+这果实带来的战果完全是负的
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 53727#       发表于 2020-12-15 23:16
+
+
+
+
+大妈看出了我凯的潜力，故意用垃圾果实陷害我凯，气抖冷
+
+
+
+
+
+
+
+-----
+
+####  akstcle  
+##### 53728#       发表于 2020-12-16 00:11
+
+
+
+
+在霸气废掉自然系的免伤效果后幻兽种简直神果实，直接具有复数能力，比双果实还强。
+
+看大妈送人的行为幻兽种果实可能和原种长得一样，吃下去才能确定是幻兽种，否则这东西早抢疯了。
+
+猜测大妈以为就是普通的鱼鱼果实，就当人情送给凯多。而凯多吃下去后发现中奖了，于是欠了大妈个天大的人情，所以一直躲着大妈。
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 53729#       发表于 2020-12-16 00:58
+
+
+
+
+幻兽种应该真是吃下去才能发现是不是，所以凯多才要搞人造果实碰运气，然后人造的里边唯一一个幻兽种被桃子吃了
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 53730#       发表于 2020-12-16 01:05
+
+
+
+
+难怪凯多的龙形态这么弱，原来是条鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53731#       发表于 2020-12-16 01:21
+
+
+
+
+念叨了这么多年的鱼鱼果实竟然真的有，还是四皇吃的<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 00:04** 
+> ## **本文件最后更新于2020-12-16 02:05** 
 
 
 
@@ -4986,4 +4986,1054 @@ syl  今晚虐待麻将还挺有意思的，老农民被三个女人一点点�
 
 
 
-                                         
+
+
+-----
+
+####  ZUOUZU  
+##### 22744#       发表于 2020-12-16 00:07
+
+
+
+ 本帖最后由 ZUOUZU 于 2020-12-16 00:09 编辑 
+
+b站现在就是在做社区
+比起主播粉，b站肯定喜欢平台粉
+如果这个平台的观众能对其他平台产生天然仇恨，那再好不过了，而yhm又是跨国的，对其他国家也有天然仇恨，照这个势头引导下去，在b站赚了钱的人，就必须表现出b站地位的至高无上，因为他的观众和平台绑定了，尊重b站就是尊重观众，这时主播就要面临二选一的境地，那些没有有明白这一点的人，早晚要受到反噬，时间问题罢了
+还是跟其他网络行业一样，水平高的可以无视平台，没水平的就只能依靠平台，大家整体都不行的时候，平台就是爹，你不服不行
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 22745#       发表于 2020-12-16 00:08
+
+
+
+
+高， 叔叔真是高啊👏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22746#       发表于 2020-12-16 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">粉丝互斗才是饭圈精髓，VTB哪有组团与人斗有意思
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 22747#       发表于 2020-12-16 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734524&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-15 23:55</a>
+
+说白了从锤子那批粉丝开始很大一批粉丝都是vtb的社区粉，今天哪家整活了，明天哪家切片好了，大家互相交流 ...</blockquote>
+引用两楼隔壁的免费和免费对其他人的引用，有点长：
+
+————
+
+直播间盈利能力与互动仪式链的强度有着很强的联系。
+
+虽然大家都认为V圈是大部分年轻人的第一个饭圈。
+
+但这也是必然的，直播间符合互动仪式的前提。
+
+直播间是“人们共同存在的场所”，直播间是一个天然的界限。
+
+“场所”外的人自然地被排斥在外，“场所”内的用户获得了稳定的成员身份感。
+
+在直播间内群体的注意力会迅速集中到共同的事物上。
+
+可以是参与虚拟主播的互动，关注直播的内容，等等。
+
+用户很容易在群体中获得自我身份的认同。
+
+用户通过弹幕，评论，打赏，棉花糖，届到等一系列方式来共享互动的情感和共同的情绪体验。
+
+这里就不展开讨论了，没兴趣写一篇论文。
+
+
+虚拟主播是刻意去营造“梗”的，从二创到粉丝自发传播，无处不在的meme。
+
+meme作为符号资本的交换，在虚拟主播市场中除了共情之外的另一种交换，起到了催化剂的作用。
+
+拥有丰富成员身份符号的虚拟主播有利于促进后续的互动仪式(例如狗妈&amp;hololive)。
+
+人这种生物会对以往交谈的记忆，语言风格，知识或特长，决策的特权等等都是组成文化资本的资源。
+
+找到与自己符号资本相近或者平等的对象进行交流互动会让人更能获得粗糙的互动情境与情感满足。
+
+从学术层面下沉，那便是满屏弹幕的“妈——”
+
+
+互动仪式的市场，群体用户共享归属感，成员个人所获得的的emotional energy，用户之间对于群体正义道德感的维系，以及用户之间对于群体符号化的尊重。
+
+这一切是作为互动仪式链产出的四个方面。在这之外，互动仪式链还具有一些显著的特性——emotional energy与互动仪式市场。这些理论的建立离不开前人将经济学概念引入了社会学中。
+
+
+这行业反正现在基本都是看资历(通讯录挖人)，学院派很难立足，所以一群缺少理论指导的人充斥着管理层。
+
+但是行业发展太快，传统的理论是否能够适用也是一个问号。
+
+谈谈涨粉之类现实的问题，大部分staff只能提出具体的方案，然后因为liver或者staff的懒惰而半途而废。
+
+抛开视频等因素，用户决定是否参与直播有一个非常重要的因素——“emotional energy”是否能得到回报，得到什么样的回报。
+
+用户之所以愿意投入较高的时间成本，物质成本，感情，精力来参与互动是为了从直播间中获取具有更高价值的“emotional energy”作为回报，这是直播观众之间形成互动仪式链的终极，也是互动中用户所追求的最高利益目标。
+
+参与虚拟主播直播互动的用户行为始终无法脱离这一套理论。
+
+几乎所有的人都希望获得消遣放松，快捷而又短暂的娱乐是当代人重要的精神寄托。
+
+虽然我个人十分唾弃这一切，但是按照理论与发展规律这又是不争的事实。
+
+
+注1 emotional energy：用户情绪所带来的的行为结果，不知道怎么翻译出来所以用原词。
+
+注2 Conflict theory：作为新理论名为冲突社会学，有兴趣的可以看看，不过和这篇文章关系也不算大。
+
+————
+
+对上面楼稍微讲点我自己的理解，直播和视频最核心的区别在于是否依赖于和观众的实时互动。视频势诸如动画电影电视剧等等，观众是单方面的接受一个成品，直播势如综艺访谈晚会等等，总是存在频道主和观众间的互动，观众和观众间的互动。
+
+具体到V这边的形式上，直播势的各种观众参与企划，当指示厨，玩游戏reaction的即兴反应，乃至于更直接的读SC这种“届到”。不光是借由互动来完成节目内容，也是形成社区归属感的一个条件了。
+
+借用我一朋友的话
+
+套皮主播文化的核心都沉淀在社区上，本身的内容和形式并无价值
+
+现在脱离社区单纯的谈内容如何确实意义不太大了，或者说，直播势因其能形成观众社区的原因，在避免内容和灵感耗尽上有巨大的优势。
+
+————
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22748#       发表于 2020-12-16 00:11
+
+
+
+
+说起来，有人发过dustcell2nd吗？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22749#       发表于 2020-12-16 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734622&amp;ptid=1969498" target="_blank"> ZUOUZU 发表于 2020-12-16 00:07</a>  本帖最后由 ZUOUZU 于 2020-12-16 00:09 编辑   b站现在就是在做社区 比起主播粉，b站肯定喜欢平台粉 如果这个平台的观众能对其他平台产生天然仇恨，那再好不过了，而yhm又是跨国的，对其他国家也有天然仇恨，照这个势头引导下去，在b站赚了钱的人，就必须表现出b站地位的至高无上，因为他的观众和平台绑定了，尊重b站就是尊重观众，这时主播就要面临二选一的境地，那些没有有明白这一点 </blockquote>
+平台粉对其他平台粉有仇恨是假的
+
+90%日本人对中国人有天然仇恨才是真的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22750#       发表于 2020-12-16 00:13
+
+
+
+ 本帖最后由 winda 于 2020-12-16 00:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734495&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 23:53</a>
+这点确实是b站蠢
+
+可换过来404的推荐机制就不只是蠢，是单纯的甚至不屑于恰这口饭了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">虽然没体验过阿b吹的神乎其神的推荐机制，但是它拉胯的搜索功能和没录像功能的愚蠢地方倒是深有体会。
+在404我可以直接搜打apex的v，在b站，请在apex分区/虚拟主播分区里淘。
+而直播的录像弹幕等就是真的随缘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22751#       发表于 2020-12-16 00:13
+
+
+
+
+接下来可能就和具体的V没有关系了。
+而是字幕组和社区割裂的问题。
+字幕组必然是有能的，必然是更容易借到的。必然是得从自己推的V的立场出发，向社区进行推广的。
+这就和社区希望得到有趣的切片整活，活跃社区的需求产生了矛盾。
+字幕组很多人都是从社区中来的，但是他们做的事情却不一定符合社区的需求。
+所以产生了矛盾，社区觉得字幕组是“人上人”
+V区从来都没有真正的路人。
+大量的潜在粉丝都是以社区的形式活跃在海里。等着下一片浪潮<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 22752#       发表于 2020-12-16 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734664&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-16 00:12</a>
+
+平台粉对其他平台粉有仇恨是假的
+
+
+90%日本人对中国人有天然仇恨才是真的 ...</blockquote>
+日本人至少还能表面装一下，国内观众论迹不论心也能和谐共处
+
+
+白皮4v直球冲脸是真的恶心人，地球之癌（当然也可能是东南亚绿皮）
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22753#       发表于 2020-12-16 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734679&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-16 00:13</a>
+虽然没体验过阿b吹的神乎其神的推荐机制，但是它拉胯的搜索功能和没录像功能的愚蠢地方倒是深有体 ...</blockquote>
+有一说一，我对油管搜索最大的怨念就是相关结果太少，不出十个就有无关搜索结果出现。
+还是竖排显示结果<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一次显示的量又少
+
+
+
+
+
+
+
+-----
+
+####  ZUOUZU  
+##### 22754#       发表于 2020-12-16 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734664&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-16 00:12</a>
+平台粉对其他平台粉有仇恨是假的
+
+90%日本人对中国人有天然仇恨才是真的 ...</blockquote>
+那是自然，小日本亡我之心不死
+所以我早说了，看日本主播的都是汉奸，为什么不看国v呢，总不能对国v有仇恨吧
+你觉得日本人内心歹毒，为什么还要去看日v，这是我不能理解的，总不能是在演一出我中华民族救外国人于水火之中的戏给西方人看吧，那也太傻逼了
+不过平台粉对其他平台的仇恨是存在的，你没见过罢了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22755#       发表于 2020-12-16 00:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-16 00:26 编辑 
+
+叶师马车8，入弯压圈漂移瞄准、细节上的小操作和对近道的选择判断意识有，操作手感稍微有点跟不上；
+
+
+刚刚这老隐蔽操作...？看懵（不过我本来看pro马车就少没太有见识）
+
+在七圈赛道图开倒车回去拿盒子，因为是第12名道具非常好上手无敌星，然后一路压圈超车，还能这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22756#       发表于 2020-12-16 00:33
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-16 00:38 编辑 
+
+宁可抱着樱花妹随时会背叛自己的觉悟都不看国V，国V可太废物了
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22757#       发表于 2020-12-16 00:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白皮还要求人退B啊，直接踩到你B头上来了，这就是铁血平台粉吗
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22758#       发表于 2020-12-16 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734735&amp;ptid=1969498" target="_blank"> ZUOUZU 发表于 2020-12-16 00:19</a> 引用:ひびき 发表于 2020-12-16 00:12 平台粉对其他平台粉有仇恨是假的  90%日本人对中国人有天然仇恨才是真的 ... 那是自然，小日本亡我之心不死 所以我早说了，看日本主播的都是汉奸，为什么不看国v呢，总不能对国v有仇恨吧 你觉得日本人内心歹毒，为什么还要去看日v，这是我不能理解的，总不能是在演一出我中华民族救外国人于水火之中的戏给西方人看吧，那也太傻逼了 不过平台粉对其他平台 </blockquote>
+说得好，我已经完全不看v了
+
+而v圈观众打钱干的就是掏心掏肺试图感化这回子事啊￼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">毕竟都来b了就蒙住眼睛把你当那10%
+
+然后还是觉得这边贡献了收入仍然不配还是舔白皮香的就属于感化失败的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22759#       发表于 2020-12-16 00:42
+
+
+
+
+看看人家白皮，才贡献了几个钱啊敢要求主播说希望你少去b，注意不是多来404是少去b免得我麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这边连要求直播时长和sc比例相同都颤颤巍巍，这就是新时代<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 22760#       发表于 2020-12-16 00:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稍微惊讶一下，几页下来居然没把前段时间的live女主角拿出来反复车也算进步了
+
+先不说这边去油管看天然性劣势，哪怕你B把国际化工作做到位了（比如英化、日化界面），白皮也不见得会像立本人一样来B
+
+跟白皮现在就是不可调和的矛盾
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22761#       发表于 2020-12-16 00:46
+
+
+
+
+月灵自己做了头图好看<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+P(CN19U2TO@@[ND6]7@2W[I.png
+(127.11 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-16 00:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/004643u4p17fzxftfywll1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22762#       发表于 2020-12-16 00:49
+
+
+
+
+掏心掏肺感化的，最后不是变成新时代人，就是当了汉奸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唯有婆罗门是例外的，因为他们已经超脱了国籍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 22763#       发表于 2020-12-16 00:51
+
+
+
+
+按你的理论，你自己不就是你口中的“白皮”，歌民钱少屁话多，不如apex抽卡民钱多，那不是该多玩apex
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 22764#       发表于 2020-12-16 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735003&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2020-12-16 00:49</a>
+
+掏心掏肺感化的，最后不是变成新时代人，就是当了汉奸
+
+唯有婆罗门是例外的，因为他们已经超脱了国籍 ...</blockquote>
+这才是世界公民啊
+
+
+建议学习世界语<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22765#       发表于 2020-12-16 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734893&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-16 00:34</a>
+
+说得好，我已经完全不看v了
+
+
+而v圈观众打钱干的就是掏心掏肺试图感化这回子事啊￼毕竟都来b了就蒙 ...</blockquote>
+按照你这套思维，打钱多就有可以决定主播去哪做什么的，你和很多nga人更没资格车了，既然钱多的金主决定跟着主播的路线走，那没打钱（打钱少）的人有什么资格不爽呢？
+
+你这逻辑，只有doris的节奏是正当的，因为是金主跑出来开的团。
+
+但事实不是且不应该是这样的，每个粉丝都有资格表达意见，主播也可以做出自己的选择，并不是你打了钱就有契约就能决定主播怎么样的。
+
+不爽要么去好好表达自己的想法，要么就走，让其他还喜欢该主播也不能好好看直播，凭什么？花的是你的钱？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22766#       发表于 2020-12-16 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735016&amp;ptid=1969498" target="_blank"> 坂田金时kin 发表于 2020-12-16 00:51</a> 按你的理论，你自己不就是你口中的“白皮”，歌民钱少屁话多，不如apex抽卡民钱多，那不是该多玩apex </blockquote>
+她的歌回之前一直是稳定sc来源，比日常回要高得多你不会不知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+而抽卡民和apex民又不是一堆人，不然平常播apex这堆人哪去了？来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22767#       发表于 2020-12-16 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734984&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-16 00:46</a>
+月灵自己做了头图好看</blockquote>
+配色草。乍一看还以为是镰锤风格，定睛一看是圣诞节
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22768#       发表于 2020-12-16 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735063&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-16 00:57</a>
+
+她的歌回之前一直是稳定sc来源，比日常回要高得多你不会不知道吧
+
+而抽卡民和apex民又不是一堆人， ...</blockquote>
+你是指平A一个月不足200w，抽卡单回500w的夏色祭吗？
+
+这时候又要拿同接出来说事儿了？白皮也能贡献同接啊。
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 22769#       发表于 2020-12-16 01:00
+
+
+
+ 本帖最后由 坂田金时kin 于 2020-12-16 01:05 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 22770#       发表于 2020-12-16 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735072&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-16 00:58</a>
+配色草。乍一看还以为是镰锤风格，定睛一看是圣诞节</blockquote>
+草，你不说我还以为是刻板印象中国红呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22771#       发表于 2020-12-16 01:02
+
+
+
+
+以为打钱能和yahoo新闻比“感化”也是有点天真。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 22772#       发表于 2020-12-16 01:03
+
+
+
+ 本帖最后由 -rm7- 于 2020-12-16 01:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735083&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-16 00:59</a>
+你是指平A一个月不足200w，抽卡单回500w的夏色祭吗？
+
+这时候又要拿同接出来说事儿了？白皮也能贡献同接啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那天500w的档真该好好统计下，我觉得里边超过一半都不是管人粉丝打的
+同接:指apex比平时同接还要低但是抽卡回就2w
+
+而且响老哥指的之前肯定是7月以前啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 22773#       发表于 2020-12-16 01:04
+
+
+
+
+歌回比日常回多，不也就多个十几万，如果上个月不开apex抽卡不就一个月超不过300万，如你所愿“现原形了”，上个月星没联动了，回归大家庭了，按你这套理论，钱少的都没资格说话，那这些都不该做，讨好apex抽卡民完事
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22774#       发表于 2020-12-16 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735125&amp;ptid=1969498" target="_blank">-rm7- 发表于 2020-12-16 01:03</a>
+
+那天500w的档真该好好统计下，我觉得里边超过一半都不是管人粉丝打的
+
+同接:指apex比平时同接还要 ...</blockquote>
+apex回是培育土壤啊，虽然我打的菜打的垃圾没人看，但是我apex主播的形象立住了，抽卡回就有人来看了。
+
+你叫天宝这种和apex绝缘的，开个抽卡回肯定没小祭那效果不是。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22775#       发表于 2020-12-16 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735091&amp;ptid=1969498" target="_blank"> 坂田金时kin 发表于 2020-12-16 01:00</a> 比日常回高，不也是只高十几万，开多少次比得过一次apex，如果上个月不开apex抽卡，不就如你所愿一个月300万都没有，“现原” </blockquote>
+你能拿apex打枪直播的金额和同接来算apex民的数量吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+这就好比一个人直播吃巧克力键盘有很多人看，然后觉得看的都是巧克力粉一样<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22776#       发表于 2020-12-16 01:07
+
+
+
+
+你们拉拉扯扯这么一大堆不嫌累吗？新时代观众这种又想舔又怕背叛的心理一句话就能解释了：
+
+”女人都是婊 子，但是我压不住性欲。“
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22777#       发表于 2020-12-16 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735148&amp;ptid=1969498" target="_blank"> 某穆克拉 发表于 2020-12-16 01:05</a> 引用:-rm7- 发表于 2020-12-16 01:03 那天500w的档真该好好统计下，我觉得里边超过一半都不是管人粉丝打的 同接:指apex比平时同接还要 ... apex回是培育土壤啊，虽然我打的菜打的垃圾没人看，但是我apex主播的形象立住了，抽卡回就有人来看了。 你叫天宝这种和apex绝缘的，开个抽卡回肯定没小祭那效果不是。 </blockquote>
+啊这，这种主播自己都摸不着头脑的还是不要下断言
+
+我也只认得出常驻粉<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 22778#       发表于 2020-12-16 01:10
+
+
+
+
+也不用互相损，还什么新时代旧时代的，管人观众弱智起来一个程度谁看不起谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 22779#       发表于 2020-12-16 01:10
+
+
+
+ 本帖最后由 netwof2008 于 2020-12-16 01:16 编辑 
+
+阿叶今晚睡了一小会就起来solo马车，好，我仰卧起坐了。昨天十四州老姐说的要比赛不练习要被说这个理由我确实没想到，如果是这个还可以接受，昨天破防主要是本来不打算等了，结果他发推说最近总是这么晚直播很抱歉，给我感动得当下决定再等等，结果等半天搞了个联动，拜托大哥，我等你不是等你的朋友，你早说要联动谁等啊无语了，把我气得差点没打sc跳脸，还好忍住了。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 22780#       发表于 2020-12-16 01:18
+
+
+
+ 本帖最后由 猫島かおる 于 2020-12-16 01:20 编辑 
+
+响哥弱智到我了，竟然和某些人共情了，有那种想法为什么不看国v，我不上睿站都看国v给国v打钱。在一个舔日平台只想捧自己方便控制的樱花妹，然后让她来舔自己，不高兴了就用民族大义灭了对方，这是一种什么精神。看v就是图一乐，高兴了力所能及的打点钱，某些人确实是看上头魔怔了。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 22781#       发表于 2020-12-16 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735148&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-16 01:05</a>
+apex回是培育土壤啊，虽然我打的菜打的垃圾没人看，但是我apex主播的形象立住了，抽卡回就有人来看了。
+
+ ...</blockquote>
+响老哥说的对，从主播到粉丝估计都想不清楚那群人到底是怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+可以对比一下678月的apex打枪/抽卡同接sc比例跟10月11月打枪抽卡同接sc比例
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 22782#       发表于 2020-12-16 01:24
+
+
+
+
+反正我一直是抱着看街头卖艺的心情看v的，节目好就捧个钱场，没钱就捧个人场
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 22783#       发表于 2020-12-16 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735272&amp;ptid=1969498" target="_blank">-rm7- 发表于 2020-12-16 01:20:35</a>
+响老哥说的对，从主播到粉丝估计都想不清楚那群人到底是怎么来的
+可以对比一下678月的apex打枪/抽卡同接s ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你以为喊了好几个月现原形结果现原形是祭丝是为啥呢
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 22784#       发表于 2020-12-16 01:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和泥哥共情是最骚的，你只是个观众
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22785#       发表于 2020-12-16 01:31
+
+
+
+
+祭丝疯特起来真可怕...
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 22786#       发表于 2020-12-16 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735326&amp;ptid=1969498" target="_blank">Fakerの幻影 发表于 2020-12-16 01:29:36</a>
+和泥哥共情是最骚的，你只是个观众</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟祭丝跟泥哥一个回路，天天打枪不唱歌我不看了，你马自立必定现原形变成底边
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22787#       发表于 2020-12-16 01:37
+
+
+
+
+那还是不如你们能和脱亚壬共情更骚，打了N倍的钱换来的是和4v一样中文都不敢发的待遇<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22788#       发表于 2020-12-16 01:40
+
+
+
+
+白嫖才是婆罗门精神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，粉圈=弱智就完事了，抱有“我是来看你，而不是来看你的直播内容”这种心态的观众多少沾点。不过很多人不承认粉圈=弱智，也有很多人承认粉圈=弱智但没意识到自己就是弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+对蒸煮奇妙的精神依赖一般是看的太少，直播容易产生用户粘性，多看看别的就好了。看到别的quality content觉得蒸煮无聊反手把蒸煮取关了也正常
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 22789#       发表于 2020-12-16 01:41
+
+
+
+ 本帖最后由 猫島かおる 于 2020-12-16 01:42 编辑 
+
+我觉得好看我就打钱，我管ta是哪国人，不爽我大不了就不看了，我打对应的语言只是为了方便互动，原来你看重的仅仅是打中文，不用中文就是叛国啊。那我没什么好说的了。反对你的就贴个标签就完事了，那确实没意思了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22790#       发表于 2020-12-16 01:48
+
+
+
+
+我就很奇怪，白皮可以跑到日本人直播间把日本观众评论淹了，可以直球让b站出道的v少去b站免得自己麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这样的却是yhm人人舔
+
+我只知道这肯定不是主播去哪就跟哪默默打钱的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">人办得到的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 22791#       发表于 2020-12-16 01:54
+
+
+
+ 本帖最后由 猫島かおる 于 2020-12-16 01:59 编辑 
+
+我最后回一次响哥。
+只想看樱花妹的究竟是谁哦，是你共情的那些人呀。
+为什么要去睿站啊，难道国内只有睿站能看v？您也是睿孝子？
+我打钱仅仅是为了舔？你别自己魔怔了把自己代入别人啦，我国v英语v日语v都看的，那你呢？你已经不看v了，所以就别捡了点尼姑庵的屎就开始巨魔了，你现在自己树靶子打，被戳穿了还满地打滚太难看了。
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 22792#       发表于 2020-12-16 01:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在V综汴啥京呢，这里不是一直是B站whocares么。
+
+
+
+
+
+
+
+-----
+
+####  藤宮はすみ  
+##### 22793#       发表于 2020-12-16 02:00
+
+
+
+
+在油管舔白皮，在b站舔中国人有问题吗？
+
+不同平台的观众主体都不一样，想涨油管的订阅yhm是要去舔白皮的呀
+
+
+日v要在油管有更好发展，就得做好面向英文观众
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22794#       发表于 2020-12-16 02:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735063&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-16 00:57</a>
+她的歌回之前一直是稳定sc来源，比日常回要高得多你不会不知道吧
+而抽卡民和apex民又不是一堆人， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在打apex前联动猛药solo虚无的姓夏的？
+
+
+
+
+
+                                        
