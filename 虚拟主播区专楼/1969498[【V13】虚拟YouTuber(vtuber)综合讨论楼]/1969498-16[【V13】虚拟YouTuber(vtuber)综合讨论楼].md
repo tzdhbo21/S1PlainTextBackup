@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 22:03** 
+> ## **本文件最后更新于2020-12-16 00:04** 
 
 
 
@@ -3497,4 +3497,1493 @@ stm第一位是无惨……这第一位活该被炎上是吗！<img src="https:/
 
 
 
-                                            
+
+
+-----
+
+####  Ketestrait  
+##### 22667#       发表于 2020-12-15 22:05
+
+
+
+[https://youtu.be/xx-I4sUFWMM](https://youtu.be/xx-I4sUFWMM)
+
+
+【歌枠】アニメソングしばり！！！Singing Stream【町田ちま/にじさんじ】
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22668#       发表于 2020-12-15 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733284&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-15 21:59</a>
+
+但是按他说的顺序这张本来就轮到了啊
+
+
+—— 来自 samsung SM-G9700, Android 10上的 S1Next-鹅版  ...</blockquote>
+What is love<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22669#       发表于 2020-12-15 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733284&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-15 21:59</a>
+
+但是按他说的顺序这张本来就轮到了啊
+
+
+—— 来自 samsung SM-G9700, Android 10上的 S1Next-鹅版  ...</blockquote>
+伤心了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+自从ななうめ老师不画兔子了以后兔子高质量r18图就好少，本来可期待了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22670#       发表于 2020-12-15 22:29
+
+
+
+
+色不起来，真的色不起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pansherry| + 1|看多了真的色不起来。。。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22671#       发表于 2020-12-15 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49731497&amp;ptid=1969498" target="_blank"> admentus 发表于 2020-12-15 19:12</a> 不是翻墙有优越感啊... 就我个人来说是无法理解有些人翻墙特别还只是翻到油管这种成本很低的事情都不愿意去做，一定要等别人把饭端到自己面前，却有大把的时间在隔壁尼哥谭带节奏打架辩经，还一定要看日v不看100%在阿批播的国v 以前转播也是给网不好梯子不好的人提供一个第二选择 但现在逼着b限不能去油管，真的不能理解，谁能给个合理解释吗？  </blockquote>
+很简单，一个404收入占90%的人会去b播吗
+
+那b收入占90%的人去404播还超过1/2的直播时长，除了holo第二还有什么解释<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22672#       发表于 2020-12-15 22:41
+
+
+
+
+“主要是以前大家觉得一个视频up主在b站火了如果同时在油管火算为国争光(比如李子柒)，但是这种想法不能推广到vtb，因为视频做好了再去油管发一遍就是了，而vtb的主要卖点是直播是互动，而由于直播的精力限制，这注定是独占的服务！你多我就少你少我就多，所以支持b站起家的vtb去油管发展等于割自己的肉去喂白皮。
+不知道怎么会有这么蠢的粉丝”
+
+绿帽潭都比你综看得清<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  wingzero12  
+##### 22673#       发表于 2020-12-15 22:42
+
+
+
+
+她本来在404播的少当然收入占比少，问题是你一个普通观众有什么资格决定主播要在哪播？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22674#       发表于 2020-12-15 22:45
+
+
+
+<img src="https://img.nga.178.com/attachments/mon_202012/15/-zue37Q5-a1qjK20T3cSsg-g0.jpg" referrerpolicy="no-referrer">
+
+
+看看吧，除去holo holoEN和彩虹，这么点针尖大小的肉，几千个个人势争，放弃右边去左边，不是跪舔白皮，谁信？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22675#       发表于 2020-12-15 22:45
+
+
+
+
+独轮车和组织度就是资格，武器的批判嘛。
+
+
+当然目前来看除了蝗都享受不到这个资格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22676#       发表于 2020-12-15 22:47
+
+
+
+
+讲的什么jb，404的直播你不能看还是不能留言还是不能sc
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 22677#       发表于 2020-12-15 22:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到阿B管人区流水这么高了
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22678#       发表于 2020-12-15 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733827&amp;ptid=1969498" target="_blank">bluebaby 发表于 2020-12-15 22:47</a>
+讲的什么jb，404的直播你不能看还是不能留言还是不能sc</blockquote>
+你不rp太君rp白皮确实就是不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你看4V根本就不敢大声说话
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22679#       发表于 2020-12-15 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733827&amp;ptid=1969498" target="_blank">bluebaby 发表于 2020-12-15 22:47</a>
+
+讲的什么jb，404的直播你不能看还是不能留言还是不能sc</blockquote>
+b收入占90%还去404长时间播的人，对中国人什么看法 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">别骗自己
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22680#       发表于 2020-12-15 22:51
+
+
+
+
+左边暂且不谈，右边这维阿也太cjb了吧，主场就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 22681#       发表于 2020-12-15 22:53
+
+
+
+
+维阿和魔女五五开还行
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22682#       发表于 2020-12-15 22:54
+
+
+
+
+怎么还有拿这图出来聊斗虫的，差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22683#       发表于 2020-12-15 22:56
+
+
+
+
+4v不敢大声说话个p啊，没事就来点繁体字来点nt币的
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22684#       发表于 2020-12-15 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733650&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 22:34</a>
+
+很简单，一个404收入占90%的人会去b播吗
+
+
+那b收入占90%的人去404播还超过1/2的直播时长，除了holo第二还 ...</blockquote>
+是这样，一般来讲对粉丝来说不是先有主播再有平台，粉丝跟着主播走嘛。但是油管有墙这点让一些b站观众平白无故增加了观看直播的门槛，那么观众不满或者炎上都是有理由的。
+
+
+到这边我还能理解，
+
+
+但是认为去油管就算背叛，直接转anti，甚至觉得主播去了油管就是个完全不存在的死人了，这点我完全没法理解。如果是真的在推，有各种方面的付出，那一定的不方便不是可以忍受的吗？油管又不是nico这种极其难用的平台。如果只是见到就看一下的路人粉，又何必在论坛上这么激动呢？
+
+
+另外404没有同传也是伪命题，中国观众占比高的v同传为什么就不能跟去油管...
+
+
+把平台放在自己喜欢的主播之前，这是我无法理解的点。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22685#       发表于 2020-12-15 22:57
+
+
+
+
+新时代人哪里在帮主播做决策？holo混蛋是她们自己决定的，ccll留下也是她们自己选的。
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22686#       发表于 2020-12-15 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733931&amp;ptid=1969498" target="_blank">bluebaby 发表于 2020-12-15 22:56</a>
+4v不敢大声说话个p啊，没事就来点繁体字来点nt币的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大概我们对“大声说话”的理解有差异
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22687#       发表于 2020-12-15 22:59
+
+
+
+
+不是维阿真这么惨的吗？有点没想到啊，总有奸人害亢总啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22688#       发表于 2020-12-15 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733958&amp;ptid=1969498" target="_blank">寒星 发表于 2020-12-15 22:58</a>
+ 大概我们对“大声说话”的理解有差异</blockquote>
+那要怎么样叫大声说话？去404多了就是看不起我们pilipili我们就要炎你这种大声说话？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22689#       发表于 2020-12-15 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733964&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-15 22:59</a>
+不是维阿真这么惨的吗？有点没想到啊，总有奸人害亢总啊</blockquote>
+维阿这么惨，myy占几成功劳？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22690#       发表于 2020-12-15 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733964&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-15 22:59</a>
+
+不是维阿真这么惨的吗？有点没想到啊，总有奸人害亢总啊</blockquote>
+从四五月开始，每个月就150w不到，这个我以前在楼里可能提过。这还是加上SC礼物舰长所有的。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22691#       发表于 2020-12-15 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733936&amp;ptid=1969498" target="_blank"> admentus 发表于 2020-12-15 22:56</a> 引用:ひびき 发表于 2020-12-15 22:34 很简单，一个404收入占90%的人会去b播吗  那b收入占90%的人去404播还超过1/2的直播时长，除了holo第二还 ... 是这样，一般来讲对粉丝来说不是先有主播再有平台，粉丝跟着主播走嘛。但是油管有墙这点让一些b站观众平白无故增加了观看直播的门槛，那么观众不满或者炎上都是有理由的。  到这边我还能理解，  但是认为去油管就算背叛，直接 </blockquote>
+你想多了，平台（观众社群）才是第一，主播才是第二，换头怪来b站才凉几天啊
+
+更不用说这种跨国的平台更换直接体现了主播骨子的素养、眼界和好恶来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22692#       发表于 2020-12-15 23:07
+
+
+
+
+说了半天居然是想表达bilibili作为直播平台的优越性？？？被斗鱼吊起来打的也要吹这个吗……
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22693#       发表于 2020-12-15 23:09
+
+
+
+ 本帖最后由 caupollen 于 2020-12-15 23:15 编辑 
+
+我觉得这和nano的油管观众都是白皮有很大原因，太君粉丝至少会有为了推融入一个b站陌生环境看自己的推的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+英语观众是根本不屑一顾，能一遍埋怨能不能不要去b站，却还一边为nano用国人钱换的新设备高兴的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+4407dbb44aed2e73e233ad699001a18b86d6fa1e.jpg
+(66.98 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-15 23:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/230642n94428h81bdlw9xw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22694#       发表于 2020-12-15 23:11
+
+
+
+
+本身不就是核心粉（看v不看平台）跟DD（看平台不看V）的矛盾嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前者让后者去别的地方看“这不是很方便吗你们怎么这么大爷啊？”，后者让前者留在原来的平台“养出来的放走了还要跟我们才不当舔狗”，方向不同沟通个屁啊
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22695#       发表于 2020-12-15 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734069&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-15 23:09</a>
+
+我觉得这和nano的油管观众都是白皮有很大原因，太君至少是会来b站看自己的推的
+
+英语观众是根本不屑 ...</blockquote>
+这种人确实看着会很讨厌...
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22696#       发表于 2020-12-15 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733936&amp;ptid=1969498" target="_blank"> admentus 发表于 2020-12-15 22:56</a> 引用:ひびき 发表于 2020-12-15 22:34 很简单，一个404收入占90%的人会去b播吗  那b收入占90%的人去404播还超过1/2的直播时长，除了holo第二还 ... 是这样，一般来讲对粉丝来说不是先有主播再有平台，粉丝跟着主播走嘛。但是油管有墙这点让一些b站观众平白无故增加了观看直播的门槛，那么观众不满或者炎上都是有理由的。  到这边我还能理解，  但是认为去油管就算背叛，直接 </blockquote>
+“如果是真的在推，有各种方面的付出，那一定的不方便不是可以忍受的吗”
+
+你在搞笑吗，掏钱的才是金主，收钱的忍受不方便才是利索应当
+
+
+有个声优转发了🦐的生日，几家游戏的氪佬联合起来把她暖暖和平安京的配音工作全下了，按说转发个生日比换平台事小多了，可是连自己客户的好恶都搞不清楚还出来赚钱？而你bv圈观众现在最讨厌的就是养白眼狼来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22697#       发表于 2020-12-15 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734085&amp;ptid=1969498" target="_blank"> Mr.shelter 发表于 2020-12-15 23:11</a> 本身不就是核心粉（看v不看平台）跟DD（看平台不看V）的矛盾嘛前者让后者去别的地方看“这不是很方便吗你们怎么这么大爷啊？”，后者让前者留在原来的平台“养出来的放走了还要跟我们才不当舔狗”，方向不同沟通个屁啊 </blockquote>
+主要是核心粉还没有意识到自己在主子眼里和白皮哪个重要<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22698#       发表于 2020-12-15 23:13
+
+
+
+
+补充一句，核心粉是供着主播，隔壁新时代人可是把vtb比做狗啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，这个区别总懂吧，所以是无法沟通的。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22699#       发表于 2020-12-15 23:14
+
+
+
+
+不想反攻油管的vtuber不是好vtuber<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22700#       发表于 2020-12-15 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734099&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 23:13</a>
+主要是核心粉还没有意识到自己在主子眼里和白皮哪个重要</blockquote>
+既然是核心粉，肯定有这个心理准备的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一切以主播为先
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22701#       发表于 2020-12-15 23:19
+
+
+
+
+反攻也可以啊，b站直播，404转播，这样新时代人还是满意的
+
+什么，你说404人接受不了转播？那你又凭什么要贡献了90%以上收入的一方接受转播呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22702#       发表于 2020-12-15 23:20
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-12-15 23:22 编辑 
+
+敢说新时代人基本不会日语的，就靠同传，靠字幕组，v本人看几条一成不变烂梗机翻sb弹幕谁受得了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">只能说新人的取向彻底改变了，不过这群大爷能在这个小破圈呆多久才会滚开啊
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22703#       发表于 2020-12-15 23:21
+
+
+
+
+当纸片人舔狗已经够耻辱了，结果纸片人还跑了
+
+这就是管人粉吗？真是有够好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 22704#       发表于 2020-12-15 23:22
+
+
+
+
+喜欢打钱的看什么yhm，404来一个救一个，这群人为了啥？跑了活该
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22705#       发表于 2020-12-15 23:22
+
+
+
+
+插播一条消息，夜王毕业回3D配信，雪风提供支持，3D制作来源目前未知。
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 22706#       发表于 2020-12-15 23:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人舔狗差不多得了
+
+
+
+
+
+
+
+-----
+
+####  wingzero12  
+##### 22707#       发表于 2020-12-15 23:23
+
+
+
+
+然而她的几个大金主都打sc表示不反对去404播了，再说也从来没有承诺过b的收入高就不去404吧，那她又做错了什么？去404就是背叛？其他人没去播过吗？欺负她一个有意思吗？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22708#       发表于 2020-12-15 23:25
+
+
+
+
+さはな毕业了啊，17年开始的个人势了，没想到
+[https://twitter.com/sahana_virtual/status/1338861563860582400](https://twitter.com/sahana_virtual/status/1338861563860582400)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22709#       发表于 2020-12-15 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733650&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 22:34</a>
+很简单，一个404收入占90%的人会去b播吗
+
+那b收入占90%的人去404播还超过1/2的直播时长，除了holo第二还 ...</blockquote>
+可是杏是404收入占百分之90，哪来的holo第二。不如说是自己开辟的崭新的道路。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22710#       发表于 2020-12-15 23:28
+
+
+
+
+新V圈对主播的规则就是，不要国V，不要企业势，不要y限，不要粘zz，不要粘任何被炎上过的v。
+对粉丝的规则就是，不要做gachi，不要全肯定，适当云p，不要开风头正盛的v，不要洗任何被炎上过的v。
+
+不然立刻被炎上，立刻被开，立刻被车，立刻被造谣，立刻墙倒众人推，立刻落井下石。
+
+然后总结：我们cndd老亚萨西了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 22711#       发表于 2020-12-15 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734236&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-15 23:27</a>
+可是杏是404收入占百分之90，哪来的holo第二。不如说是自己开辟的崭新的道路。
+
+—— 来自 Xiaomi ...</blockquote>
+杏也不是一开始就90%的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不是一群中国人一步步养出来的，能安排的都安排上了，然后什么下场
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 22712#       发表于 2020-12-15 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，据我观察英语民一样是一成不变烂梗机翻sb弹幕刷屏的，有几个主播受不了啊
+
+你不如说404更有家的感觉
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 22713#       发表于 2020-12-15 23:31
+
+
+
+
+关键中国人养出的几个也有重视中国的呀，点名夸奖阿夸
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22714#       发表于 2020-12-15 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这种因为不喜欢别人喜欢的偶像 就打击报复把别人工作毁了的事都能拿出来吹吗？用资本大棒惩罚了无辜的劳动人民还是光荣的事例？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22715#       发表于 2020-12-15 23:33
+
+
+
+
+怎么车了一晚上了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没有人讨论点非管人粉相关吗
+希望以后所有人能各看各的，新旧观众互不干涉，隔壁自己惹的祸自己解决
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22716#       发表于 2020-12-15 23:33
+
+
+
+
+给了钱就要别人一辈子不离不弃，您这是路边签卖身契呢？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22717#       发表于 2020-12-15 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 响离开那么久回来已经巨魔水平**降低了，那张流传很广的比例图本身是照着箭画靶子，问题很大，无论是没算巨大量的会员，还是没考虑油管中后排大量人加起来不少的SC总和。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22718#       发表于 2020-12-15 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734093&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 23:12</a>
+
+“如果是真的在推，有各种方面的付出，那一定的不方便不是可以忍受的吗”
+
+
+你在搞笑吗，掏钱的才是金主， ...</blockquote>
+起码扪心自问对我个人来说失去主播还是远比换了平台事大的...
+
+当然炎上提出意见完全可以，也能理解；如果是直接大号做出anti行为搞得自己在主播心中形象彻底垮掉，无法理解
+
+掏钱的是金主，但这又不是风俗业，直播打钱没契约关系是你情我愿的，不应该有什么不平等的关系，并不是你说的给人钱就有能控制对方的职业哪个平台播的权利了。
+
+表达意见沟通完全可以，可是nga那楼里完全不是这种情绪。
+
+
+另外上面说的金主都没打sc说可以油管播，那没付出什么的一般通过没有退坑的沉没成本，直接换人看不就好了，有这么生气的必要吗？（当然他们有权利有情绪，有权利炎上，只是说是否有必要）
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22719#       发表于 2020-12-15 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一步步养出来还行，那我期待ccll被养成hololive的样子。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 22720#       发表于 2020-12-15 23:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">指望粉丝没一点嫉妒和独占欲是不可能得，聪明点得主播会调整2边得比例和安抚好粉丝。比如OTO
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22721#       发表于 2020-12-15 23:38
+
+
+
+ 本帖最后由 winda 于 2020-12-15 23:41 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  藤宮はすみ  
+##### 22722#       发表于 2020-12-15 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734280&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-15 23:31</a>
+
+这种因为不喜欢别人喜欢的偶像 就打击报复把别人工作毁了的事都能拿出来吹吗？用资本大棒惩罚了无辜 ...</blockquote>
+有一说一，这点做的确实过分了
+
+
+
+
+
+
+
+-----
+
+####  tewaku  
+##### 22723#       发表于 2020-12-15 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734243&amp;ptid=1969498" target="_blank">Mr.shelter 发表于 2020-12-15 23:28</a>
+
+新V圈对主播的规则就是，不要国V，不要企业势，不要y限，不要粘zz，不要粘任何被炎上过的v。
+
+对粉丝的规则 ...</blockquote>
+这不是说我家debiiro吗，害怕desu
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22724#       发表于 2020-12-15 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734214&amp;ptid=1969498" target="_blank">free 发表于 2020-12-15 23:25</a>
+
+さはな毕业了啊，17年开始的个人势了，没想到
+
+https://twitter.com/sahana_virtual/status/133886156386058 ...</blockquote>
+才过了三周年<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22725#       发表于 2020-12-15 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734304&amp;ptid=1969498" target="_blank"> 空集 发表于 2020-12-15 23:35</a>  响离开那么久回来已经巨魔水平**降低了，那张流传很广的比例图本身是照着箭画靶子，问题很大，无论是没算巨大量的会员，还是没考虑油管中后排大量人加起来不少的SC总和。 </blockquote>
+会员算上了也不影响holo彩虹吃掉绝大头的比例，而为404那狗屎一样的推荐机制，底边吃的会比b站多？反正从前百位看都是b站更均匀来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 22726#       发表于 2020-12-15 23:41
+
+
+
+
+100%也没用，打个比方派去非洲搞基建的，谁不是赚够赶紧跑路的？另外你家里几套房你去非洲吗？虽然没那么夸张，但意思到了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22727#       发表于 2020-12-15 23:42
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-12-15 23:43 编辑 
+
+不然呢，油管来一个救一个，免费翻译免费宣传，打钱作画给工商。对v全盘肯定，还要当箱推。然后v拿完资源头也不回地往油管跑，还在zz问题上捅刀子。出去被火山vv笑，回来被国人笑，变成新时代人被v版婆罗门笑。
+
+"你在荒坂眼里什么都不是，这些是华子小姐对你服务的慷慨回报。"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 22728#       发表于 2020-12-15 23:42
+
+
+
+
+sc或舰长的付费注意事项里也没藏着什么对liver的人身买卖协议吧，怎么自己付过费了就要求liver锁在阿b的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22729#       发表于 2020-12-15 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733749&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 22:41</a>
+“主要是以前大家觉得一个视频up主在b站火了如果同时在油管火算为国争光(比如李子柒)，但是这种想法不能推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶流直播势评论栏和开了spam一样跟我说主要卖点是互动。
+那就不该是赢家通吃而是家家千人同接的乌托邦景象了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22730#       发表于 2020-12-15 23:43
+
+
+
+ 本帖最后由 某穆克拉 于 2020-12-15 23:45 编辑 
+
+那你看国V啊。
+
+哦国V不是人啊，那没事了。
+
+非要在本国平台看外国人本身就很奇怪不是么。
+
+真那么想看外国人也有办法，学王思聪签尹素婉砸钱啊，合同写好只能在本平台直播，不也挺好的吗。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22731#       发表于 2020-12-15 23:45
+
+
+
+
+我也是同意有了梁木不看不关注就是了，成为无形大手一部分让主播自己衡量不就行了，车来车去真没意思
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22732#       发表于 2020-12-15 23:47
+
+
+
+
+单纯因为“来b站”喜欢上一个v就要救本来就很奇怪...
+
+如果是“来b站的v里面我很喜欢ta”，那ta让人喜欢的点去了哪也不会消失
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22733#       发表于 2020-12-15 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734093&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 23:12</a>
+“如果是真的在推，有各种方面的付出，那一定的不方便不是可以忍受的吗”
+
+你在搞笑吗，掏钱的才是金主， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘛，也是有不为挣钱当V的。
+不过在阿Byhm里好像真没几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22734#       发表于 2020-12-15 23:49
+
+
+
+
+说到底就是核心粉跟新时代DD互相看不顺眼价值观不兼容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22735#       发表于 2020-12-15 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734371&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 23:41</a>
+会员算上了也不影响holo彩虹吃掉绝大头的比例，而为404那狗屎一样的推荐机制，底边吃的会比b站多？反正从 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了牌子上榜基本0收益的舰长简直蠢上天了，论提高付费率可不及有硬货的会员和饭盒。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22736#       发表于 2020-12-15 23:51
+
+
+
+
+都车了多少页了，还没完啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+syl  今晚虐待麻将还挺有意思的，老农民被三个女人一点点吸干<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22737#       发表于 2020-12-15 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734469&amp;ptid=1969498" target="_blank"> winda 发表于 2020-12-15 23:50</a> 引用:ひびき 发表于 2020-12-15 23:41 会员算上了也不影响holo彩虹吃掉绝大头的比例，而为404那狗屎一样的推荐机制，底边吃的会比b站多？反正从 ... 除了牌子上榜基本0收益的舰长简直蠢上天了，论提高付费率可不及有硬货的会员和饭盒。 </blockquote>
+这点确实是b站蠢
+
+可换过来404的推荐机制就不只是蠢，是单纯的甚至不屑于恰这口饭了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 22738#       发表于 2020-12-15 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734495&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-15 23:53:05</a>
+这点确实是b站蠢
+
+可换过来404的推荐机制就不只是蠢，是单纯的甚至不屑于恰这口饭了 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斗鱼也不屑吃这饭
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22739#       发表于 2020-12-15 23:55
+
+
+
+
+说白了从锤子那批粉丝开始很大一批粉丝都是vtb的社区粉，今天哪家整活了，明天哪家切片好了，大家互相交流互相推荐。给每天的生活增加乐趣。
+
+对他们而言看什么v无所谓，社区活跃才是最重要的。人多，有气氛，有拱火的，能造奇观，就证明自己这个社区力量大，自己有归属感。
+
+这个社区自然是高度依赖于b站的，社区交流在b站，社区活动在b站。对于v，他们的看法自然并不一样。
+
+所以平台问题才更可恶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，我都怀疑叔叔有给几个粉丝塞钱了。
+
+不过也是，为什么京华这么容易和阿b搭上线，社区领袖嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22740#       发表于 2020-12-15 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734518&amp;ptid=1969498" target="_blank"> 飞姆托 发表于 2020-12-15 23:55</a> 引用:ひびき 发表于 2020-12-15 23:53:05 这点确实是b站蠢  可换过来404的推荐机制就不只是蠢，是单纯的甚至不屑于恰这口饭了 ...斗鱼也不屑吃这饭    -- 来自 能看大图的 Stage1官方 iOS客户端 </blockquote>
+我说的是直播饭，斗鱼推荐机制还行啊，没到404这种💩一样的程度好吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 22741#       发表于 2020-12-16 00:00
+
+
+
+
+这人这事我纯云，但隔壁看了波帖子，还是感觉这个事和其他事有些微妙的区别
+
+出道是首先在bilibili
+
+在此之余绝大多数打赏（比较搞笑的是目前一分钱都没到手上）都来自bilibili
+
+出道以来的绝大多数配信也都是在bilibili播的
+
+光这些特征合起来就筛掉绝大部分yhm了
+
+也就是虽然有各种各样两头跑而油管却占了多数的人，但符合这些特点的人却极少，印象里也就是雫皇了
+
+然后此人在油管的英语观众还各种直球留言表明你别去bili播了，多播油管，而且不是一次两次了
+
+此人的中文观众之前已经针对这事有点讨论了，这次更是借着这事有些就是要和海外观众斗气的感觉
+
+所以拿oto之类的当例子也说不明不了什么
+
+因为当这样的独特的yhm的观众，心境多少会有些不一样吧……猜的
+
+
+如果是一个普通的入驻V遭受这样的非难，那真的是顶莫名其妙的
+
+但如果是上述这样的一个V……虽然我也觉得挺莫名其妙的，但这种V至少确实有些会让观众心态不一样的特点
+
+也不是说因为满足这些条件所以V就要怎样怎样啦……反正新时代，人就这么些人，事就这么些事
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|感谢解释|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 22742#       发表于 2020-12-16 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734571&amp;ptid=1969498" target="_blank">BonkoraKKK 发表于 2020-12-16 00:00</a>
+
+这人这事我纯云，但隔壁看了波帖子，还是感觉这个事和其他事有些微妙的区别
+
+出道是首先在bilibili
+
+在此之余 ...</blockquote>
+没有白皮屁事都无，白皮真的是祸害
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22743#       发表于 2020-12-16 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732100&amp;ptid=1969498" target="_blank">cockmore 发表于 2020-12-15 20:07</a>
+
+因为只有在B站播，国内观众才是真正意义上的直播参与者和内容的生产者。
+
+弹幕站的直播内容，一大部分就是弹 ...</blockquote>
+装日本人打日语，不就有参与感了吗！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
