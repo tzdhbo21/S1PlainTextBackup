@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 10:04** 
+> ## **本文件最后更新于2020-12-15 12:05** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_lnV9C" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_RffeR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_k87m1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_b9Xzn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -29591,4 +29591,355 @@ syl  最后一个月能不能把这边官号给扬了
 
 
 
-  
+
+
+-----
+
+####  katern  
+##### 22428#       发表于 2020-12-15 10:34
+
+
+
+
+一觉醒来发现又爆炸了，这就是新时代人吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天地鬼  
+##### 22429#       发表于 2020-12-15 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49724194&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2020-12-15 08:04</a>
+
+懂哥倒是讲讲盐天使赚了多少钱啊，数据查不到可咋整？</blockquote>
+要不要你还是直接去问问盐天使赚了多少钱 可能饭盒文章的靠着哔哩哔哩总算不用借钱搬家是骗中国dd的吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22430#       发表于 2020-12-15 10:58
+
+
+
+
+NGA最大的问题就是对点赞又取消的底边个人势重拳出击，对同公司其他仍然在互动的liver顾左右而言他啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 22431#       发表于 2020-12-15 11:07
+
+
+
+
+大哥不笑二哥，只要v综不给闫天使资助，就在杏liver团体内互动言左右顾其他的立场上不用当二极管
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 22432#       发表于 2020-12-15 11:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也很好奇为何NGA能够求同存异，对炎天使重拳出击的人能和同社其他liver粉丝和蔼共存一个v区，S1只不过看了下NGA节奏反而当场开始大战呢？
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22433#       发表于 2020-12-15 11:12
+
+
+
+
+nga《求同存异》又是甚么新圣经
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  依旧ing  
+##### 22434#       发表于 2020-12-15 11:13
+
+
+
+
+圣经能不能多搬点到鉴赏楼啊
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22435#       发表于 2020-12-15 11:15
+
+
+
+ 本帖最后由 yla 于 2020-12-15 11:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">我兜了一圈，发现最大的问题不就是大家都喜欢把小圈子的内容上升到整个群体上。
+
+当然我也是，昨天看到nag车来车去那些傻逼事也会觉得整个新时代都他妈傻逼
+
+毕竟点进ACG相关论坛的那一刻起，二次元傻逼特点就都占了个遍，其中自然有认不清自己和对方都是小圈子这点。
+
+nga那边盐天使这事儿，冲蝗专楼里gachi都不去顺劈盐天使了，但是依然满大街屎盆子往那边扣。
+
+这几个月下来，也许只有蝗gachi的以乐子为根本，两耳不闻窗外事，只找蝗乐子。还有始终认为ytb只是娱乐，只看不黑屁的部分人。才是比较正常的人
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22436#       发表于 2020-12-15 11:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求同存异的是整反了吧
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22437#       发表于 2020-12-15 11:16
+
+
+
+ 本帖最后由 Vneet 于 2020-12-15 11:19 编辑 
+
+转个段子，先不论是在玩梗还是真的搞混了，反而看着就是个乐子。
+
+看图就明白了。
+
+https://weibo.cn/repost/JyryruXMu?uid=2480624021&amp;#rt
+
+图被压了？发出来好模糊…
+
+
+
+
+
+
+93db5195ly1glniysdshpj20yi1pcqak.jpg
+(31.29 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-15 11:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/111614xp9wmtu9pwu9d3zm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22438#       发表于 2020-12-15 11:18
+
+
+
+
+好久没听到LL有声音了
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 22439#       发表于 2020-12-15 11:19
+
+
+
+
+有没有老哥说一下昨天那件T恤是天哥送给tskk了还是说天哥的衣服tskk拿来晒一下
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22440#       发表于 2020-12-15 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49725889&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-15 11:18</a>
+
+好久没听到LL有声音了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">LL有不少动作呢，新团CV才公布，明年还有PS4版的音游
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 22441#       发表于 2020-12-15 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49725898&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-15 11:19</a>
+
+LL有不少动作呢，新团CV才公布，明年还有PS4版的音游</blockquote>
+原来如此
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22442#       发表于 2020-12-15 11:26
+
+
+
+
+昨天公布了设定是上海人的唐可可cv真的给了个上海人（还是个coser）在圈内还又火了一把。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22443#       发表于 2020-12-15 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49725918&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-15 11:21</a>
+
+原来如此</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">当然，PS4那个基本是榨取剩余价值用的。缪斯和水团，免费+曲包收费+服装收费，游戏模式是以前那个手游的9键音游+后面3D跳舞
+
+主要还是看新团后面能不能发力了，CV选的还都挺好看的
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22444#       发表于 2020-12-15 11:28
+
+
+
+
+突然想起来前几天外野有个关于LL和爱马仕的帖子，有人来了句“管人相关能不能滚回隔壁”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22445#       发表于 2020-12-15 11:33
+
+
+
+
+实际这些也算半个2.5次元企划，分同类没问题∠( ᐛ 」∠)_
+
+
+
+
+
+ 
