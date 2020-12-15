@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 12:05** 
+> ## **本文件最后更新于2020-12-15 14:04** 
 
 
 
@@ -5345,8 +5345,8 @@ YYSY。死宅做女神的观音兵没点B数么XD
 
 バンドのみんなにポーズをお任せしたら2枚目はこうなりました。こんな愉快なみなさんと当日頑張りますのでよろしゅうお願いいたしますPartying face
 
-<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_k87m1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_b9Xzn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxlVgAEx9FS?format=jpg&amp;name=medium" id="aimg_R5554" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EouZaxnU0AklZQj?format=jpg&amp;name=medium" id="aimg_KgLYv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 下午11:22 · 2020年12月8日·Twitter for iPhone
@@ -29942,4 +29942,1046 @@ LL有不少动作呢，新团CV才公布，明年还有PS4版的音游</blockquo
 
 
 
- 
+
+
+-----
+
+####  katern  
+##### 22446#       发表于 2020-12-15 12:22
+
+
+
+
+泥哥圣经这种东西要多少有多少，随便点开一个高楼看高赞就知道了
+
+本质上一群年轻小孩子自嗨，偶尔看看还挺乐，看多了就没感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22447#       发表于 2020-12-15 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">樱花革命这暴死感也太严重了， 脚本松崎史也有什么出名的作品吗，角色声优全是新人，而且质量极差，完全没有感情，和这些人比，船狐可能还真的强一些。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22448#       发表于 2020-12-15 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49725851&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-15 11:15</a>
+我兜了一圈，发现最大的问题不就是大家都喜欢把小圈子的内容上升到整个群体上。
+
+当然我也是，昨天看 ...</blockquote>
+如果你觉得粉头政委和自我催眠是正常行为，我也佩服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真的太V了。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22449#       发表于 2020-12-15 12:26
+
+
+
+ 本帖最后由 yla 于 2020-12-15 12:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49726605&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-15 12:23</a>
+
+如果你觉得粉头政委和自我催眠是正常行为，我也佩服这真的太V了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">难道你觉得整天窥屏然后阴阳怪气就是正常行为吗。
+
+相对来说给自己找乐子，看的不乐了直接换个频道不是合理多了。我觉得还是编辑下，就如我说的，就是小圈子互相以为对面小圈子是群体意识。
+
+所谓粉头政委，冲蝗gachi们一直是感到没乐子了就停手，想找乐子就来冲，不强求参与。
+
+所谓的自我催眠，我所说的不黑屁是没乐子直接右上角，不贴大字报“XXX这播的什么臭鱼烂虾，你们怎么还在看，我关了”。
+
+
+终究是个娱乐，你的时间也许比你想的更值钱那么一丢丢
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 22450#       发表于 2020-12-15 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49725896&amp;ptid=1969498" target="_blank">499 发表于 2020-12-15 11:19</a>
+有没有老哥说一下昨天那件T恤是天哥送给tskk了还是说天哥的衣服tskk拿来晒一下 ...</blockquote>
+龙发体恤推的原文是"我的"
+被吐槽签名变淡了是因为天使穿过洗了
+
+我觉得应该是以前被天使塞的，以前有提到过卖不出去然后大家都很嫌弃这样
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22451#       发表于 2020-12-15 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49726594&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-15 12:22</a>
+
+樱花革命这暴死感也太严重了， 脚本松崎史也有什么出名的作品吗，角色声优全是新人，而且质量极差， ...</blockquote>
+cv界僧多粥少，现在日本厂商出手页游让新人配主役已经是大趋势了，特别是这种偏偶像养成的手游<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22452#       发表于 2020-12-15 12:41
+
+
+
+ 本帖最后由 CAserlumos 于 2020-12-15 12:43 编辑 
+
+彩虹木口宇宙人狼，这是哪个鬼才拉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"> 
+◢ホロライブ◣
+白上フブキ
+夏色まつり
+白銀ノエル
+紫咲シオン
+潤羽るしあ
+◢にじさんじ◣
+本間ひまわり
+椎名唯華
+月ノ美兎
+フレン・E・ルスタリオ
+郡道美玲
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22453#       发表于 2020-12-15 12:42
+
+
+
+
+大活来啦！
+
+
+
+
+
+
+D831DF2B-1AA2-4C5E-917A-C2205E757E4B.jpeg
+(72.23 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-15 12:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/124215b6i74g5ste0z0syb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22454#       发表于 2020-12-15 12:43
+
+
+
+
+大的要来了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22455#       发表于 2020-12-15 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v圈要统合了吗？最强的永世帝国诞生。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22456#       发表于 2020-12-15 12:45
+
+
+
+
+好活，据说是郡道拉的？
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 22457#       发表于 2020-12-15 12:45
+
+
+
+<blockquote>絵生voice 发表于 2020-12-15 12:28
+龙发体恤推的原文是"我的"
+
+被吐槽签名变淡了是因为天使穿过洗了
+</blockquote>
+别人给天使签名了，天使转手就送另外的人了，感觉挺别扭的
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22458#       发表于 2020-12-15 12:45
+
+
+
+
+这个有乐子
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22459#       发表于 2020-12-15 12:46
+
+
+
+
+郡道原来这么nb的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 22460#       发表于 2020-12-15 12:47
+
+
+
+
+有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 22461#       发表于 2020-12-15 12:48
+
+
+
+
+没有兔皇？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22462#       发表于 2020-12-15 12:49
+
+
+
+
+兔皇哪能让你们随便蹭，派出一个金盾代表一个sc代表够给面子了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22463#       发表于 2020-12-15 12:50
+
+
+
+
+有意思啊，虹杏统合可否与兔皇兔妈一战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22464#       发表于 2020-12-15 12:52
+
+
+
+
+想看杏女虹男
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22465#       发表于 2020-12-15 12:54
+
+
+
+
+杏女虹男那杏就只能派夏吹萝卜子这种，又要被骂杏吸血了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+不过确实很想看葛夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22466#       发表于 2020-12-15 12:54
+
+
+
+
+想看杏女虹男那杏的人选也就那么几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22467#       发表于 2020-12-15 12:55
+
+
+
+
+还不如说虹有葵杏不上luna不够看
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22468#       发表于 2020-12-15 12:57
+
+
+
+
+郡道混在里面不觉得有点喜感吗，一姐，二姐，反抗军头子，准准接班人和....不快女王？
+谁组的局啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22469#       发表于 2020-12-15 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏女虹男，那杏女也就夏吹巧可萝卜子梅露了，但有夏吹在，虹男也得来几个重量级吧，还是虹亏了。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22470#       发表于 2020-12-15 12:59
+
+
+
+
+郡道发的推所以是她拉的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 22471#       发表于 2020-12-15 13:00
+
+
+
+
+真牛逼，
+
+虽然冷静一下就觉得效果可能没那么好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22472#       发表于 2020-12-15 13:00
+
+
+
+
+木口那边还好，虹这边选人确实有点意思，看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22473#       发表于 2020-12-15 13:01
+
+
+
+
+先不提这里面有多少人不熟，能快进到评论区信者大战吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 22474#       发表于 2020-12-15 13:02
+
+
+
+
+大的终于来了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 22475#       发表于 2020-12-15 13:02
+
+
+
+
+郡道拉的没问题，推她发的，润润前几天单独关注了郡道，很明显了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22476#       发表于 2020-12-15 13:02
+
+
+
+
+如果真的郡道组的局那也太喜感了，看到不下五条“其他人都很好但郡道不行，能不能换别人啊？”，
+郡道的马内甲小姐姐，现在是什么心情啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 22477#       发表于 2020-12-15 13:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我相信是郡道拉的 因为其他人拉的肯定不会带阿希
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -rm7-| + 1|+1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 22478#       发表于 2020-12-15 13:06
+
+
+
+
+这对位又可以快乐发散了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22479#       发表于 2020-12-15 13:08
+
+
+
+ 本帖最后由 某穆克拉 于 2020-12-15 13:12 编辑 
+
+白上フブキ（大家长）
+
+夏色まつり（左膀右臂）
+
+白銀ノエル（TANK）
+
+紫咲シオン（继承人）
+
+潤羽るしあ（SC天才）
+
+VS
+
+本間ひまわり（左膀右臂）
+
+椎名唯華（TANK）
+
+月ノ美兎（大家长）
+
+フレン・E・ルスタリオ（继承人）
+
+郡道美玲（SC天才）
+
+
+感谢楼下提供思路。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 22480#       发表于 2020-12-15 13:09
+
+
+
+
+白銀ノエル（坦克）
+vs
+椎名唯華（坦克）
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22481#       发表于 2020-12-15 13:10
+
+
+
+
+这顺序有什么讲究吗
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 22482#       发表于 2020-12-15 13:10
+
+
+
+
+日南和椎名那标个大就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 22483#       发表于 2020-12-15 13:11
+
+
+
+
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，已经想看下次的两方联动人选了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22484#       发表于 2020-12-15 13:13
+
+
+
+
+怕不是没有下次了，今天的信者大战一定很热闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl  尼哥开始号召给sega刷一星了，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22485#       发表于 2020-12-15 13:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇是失去权势的大家长，月之是逐渐过气的大家长。月之曾经请相信相信虹的我，狐皇也曾要是木口失去信赖我就不干了。真实合适。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22486#       发表于 2020-12-15 13:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次多窗，应该是最直观欣赏彩虹同接被木口吊打的机会了
+
+
+
+
+
+
+
+-----
+
+####  s32244153  
+##### 22487#       发表于 2020-12-15 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49727116&amp;ptid=1969498" target="_blank">AKili 发表于 2020-12-15 13:10</a>
+
+日南和椎名那标个大就完事了</blockquote>
+这两个对标 第一眼同样想到大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22488#       发表于 2020-12-15 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 22489#       发表于 2020-12-15 13:17
+
+
+
+
+按图看不是椎名对夏色祭，月之对白银吗
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 22490#       发表于 2020-12-15 13:25
+
+
+
+
+吊打不了吧，木口也不是高同接选手，微弱领先？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 22491#       发表于 2020-12-15 13:38
+
+
+
+
+如果油管没bug应该能吊打，现在就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 22492#       发表于 2020-12-15 13:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/133949cdky0dxpwp4hffg0.png" referrerpolicy="no-referrer">
+
+
+<strong>snapshot_2019-07-12-15-11-09.png</strong> (1011.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 13:39 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22493#       发表于 2020-12-15 13:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提醒一下，虹杏各自最近一次宇宙狼人，虹最高同接4w（虽然是虹男），杏2.5w。所以杏奴差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 22494#       发表于 2020-12-15 13:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是把我兔皇漏了算了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 22495#       发表于 2020-12-15 13:46
+
+
+
+
+为什么没有mrr<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22496#       发表于 2020-12-15 13:47
+
+
+
+
+怎么你们啥时候都能转进到嗯开我兔宝，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22497#       发表于 2020-12-15 13:48
+
+
+
+【告知】12月16日19時〜 #にじホロ宇宙人狼 
+
+
+
+我明白了，12月16活动，12月17虹就爆炸，真是毫不拖泥带水
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|心心念念的12.17竟然是这样实现的。.|
+| SuntoryNomu| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 22498#       发表于 2020-12-15 13:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">结果还是没说船狐配音是谁，真的是要暴死。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22499#       发表于 2020-12-15 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49727479&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-15 13:43</a>
+提醒一下，虹杏各自最近一次宇宙狼人，虹最高同接4w（虽然是虹男），杏2.5w。所以杏奴差不多得了。 ...</blockquote>
+兔皇6w2卓尔不群<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22500#       发表于 2020-12-15 14:03
+
+
+
+
+最大赢家：5ch
+
+
+说是这么说，这种一万个anti盯着的直播估计大家都会收着演，效果大概率会很无聊。
+
+
+
+
+
