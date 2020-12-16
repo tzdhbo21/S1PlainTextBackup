@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 16:03** 
+> ## **本文件最后更新于2020-12-16 18:03** 
 
 
 
@@ -916,17 +916,7 @@ Live2DモデルVerの大幅アップデート！！今後の各ライバー配�
 ####  屑屑代沟尼亚  
 ##### 22542#       发表于 2020-12-15 15:49
 
-
-
-<blockquote>絵生voice 发表于 2020-12-15 15:25
-当然是实质虹人夏色祭当外交官来的
-
-啦</blockquote>
-狐皇就算了 团长润润傻紫哪个像是阿希叫得动的
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4331,6 +4321,25 @@ b收入占90%还去404长时间播的人，对中国人什么看法 <img src="ht
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -6938,7 +6947,7 @@ sy ...</blockquote>
 
 
 -4549057aa19863f0.jpg
-(47.67 KB, 下载次数: 0)
+(47.67 KB, 下载次数: 1)
 
 
 
@@ -7270,52 +7279,7 @@ syl，油管 ...</blockquote>在兔子那边中文版聊的唯一结果就是引
 ####  屑屑代沟尼亚  
 ##### 22859#       发表于 2020-12-16 10:05
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736660&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-16 09:27</a>
-
-出hlm的事跟祭丝谈这个，有一个没一个肯定要把V按死在B站 
-
-说到底傻逼希现在还在给冲国祭丝 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">被白皮冲恶心是指发推都要日英双语？
-
-nga搞这套就算了 你楼就别这样了吧
-
-
-
-
-
-
-
-Screenshot_2020-12-16-10-02-00-191_com.twitter.android~01.png
-(90.01 KB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-12-16 10:04 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202012/16/100441yc04el7klnnef2sg.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8205,22 +8169,7 @@ nano这事我觉得没有白皮也不会烧成这样
 ####  屑屑代沟尼亚  
 ##### 22904#       发表于 2020-12-16 10:58
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49737352&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-16 10:25</a>
-
-我怎么记得这个repo是这边祭丝楼的
-
-而且是两次的事情，一次引流到她在别人直播间apex
-
-另一次是黑 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以白皮恶心到了不也一样在舔
-
-什么这边养熟了她招魂不就是在骗自己吗
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8770,10 +8719,11 @@ https://ngabbs.com/read.php?tid=24244763
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 若风之景| + 1|好评加鹅|
 | sw11133| + 1|怎么还有人会舔新时代人，太怪了.|
 | JoelBirch| + 1|那确实|
 
@@ -9882,16 +9832,7 @@ nano怎么说呢，虽然B站提供了大多数的流量和收益，但是404直
 ####  weiweiEX  
 ##### 22989#       发表于 2020-12-16 13:27
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49738897&amp;ptid=1969498" target="_blank">甜甜圈与棒棒糖 发表于 2020-12-16 12:07</a>
-
-说白了这次大规模进场带节奏的80%以上都是压根就不看她的人纯粹来踩一脚的，比如你综放了一晚上屁的祭丝[ ...</blockquote>
-nga现在是只要开个xx事件楼，就能引一批压根不看的人来拱火啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道是不是holo这波之后nga发现带节奏流量更大，分分钟上百页
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11035,6 +10976,25 @@ ak47喷了，这是要血洗虹人吗<img src="https://static.saraba1st.com/imag
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11061,6 +11021,25 @@ ak47喷了，这是要血洗虹人吗<img src="https://static.saraba1st.com/imag
 【熟】莉光组合Anti头子——椎名唯华合集
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -11098,6 +11077,499 @@ ak47喷了，这是要血洗虹人吗<img src="https://static.saraba1st.com/imag
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                               
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23056#       发表于 2020-12-16 16:03
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-16 16:08 编辑 
+
+怎么还有在待机间直球斗虫的，囚人太有武德了 <blockquote>えんじぇるくん
+
+​これを機に海外ニキが興味持ってくれたら嬉しいな</blockquote>
+
+人人都黑hlm，人人都是hlm。
+
+
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23057#       发表于 2020-12-16 16:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">兔子王牌总是隐藏的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">一出真的没法斗
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 23058#       发表于 2020-12-16 16:08
+
+
+
+[https://youtu.be/ZpCP3JBmaVw](https://youtu.be/ZpCP3JBmaVw)
+
+<img src="https://img.saraba1st.com/forum/202012/16/160804wyb8seete4se4qqe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpVH6AlUcAQQGH8.jpg</strong> (336.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 16:08 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23059#       发表于 2020-12-16 16:10
+
+
+
+
+虽然很不好啦，但我真的很好奇郡道能不能被最高同接那位20倍杀<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23060#       发表于 2020-12-16 16:12
+
+
+
+ 本帖最后由 holoan 于 2020-12-16 16:14 编辑 
+
+回错编辑
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 23061#       发表于 2020-12-16 16:15
+
+
+
+
+谁？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23062#       发表于 2020-12-16 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 葛皇想跟兔皇斗法，还需要再经一劫才行，
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23063#       发表于 2020-12-16 16:23
+
+
+
+
+只要肯用葛夸，一定能把兔子变成兔煲
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23064#       发表于 2020-12-16 16:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 不仲来嘞，椎名概要栏把郡道的地址写错了，太不仲了，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23065#       发表于 2020-12-16 16:28
+
+
+
+
+郡道直播间也开了（[https://youtu.be/6OqZPfC1z8A](https://youtu.be/6OqZPfC1z8A)），看在是郡拉的人的份上，勉强跟月之双开吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 23066#       发表于 2020-12-16 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49741641&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-16 16:10</a>
+
+虽然很不好啦，但我真的很好奇郡道能不能被最高同接那位20倍杀</blockquote>
+郡道最多800了
+
+最高少说好几万
+
+百倍都有可能
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 23067#       发表于 2020-12-16 16:35
+
+
+
+
+bora跟大猩猩和胡桃，还行，乱杀了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 23068#       发表于 2020-12-16 17:07
+
+
+
+<blockquote>CeVIO的界限，应该还不止于此吧？
+
+
+可不。</blockquote>
+【音楽的同位体】過去を喰らう covered by 可不(KAFU)
+[https://youtu.be/du77j06KPeU](https://youtu.be/du77j06KPeU)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23069#       发表于 2020-12-16 17:11
+
+
+
+
+前面汴那么久，突然一下变得这么冷清有些不习惯啊
+
+这就是暴风雨前的宁静吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+syl   兔妈什么时候出道啊
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/171105wqc3dzu88qy349u8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpV6t6IVgAAL4qL.jpg</strong> (602.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 17:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23070#       发表于 2020-12-16 17:21
+
+
+
+
+
+理芽
+
+@Virtual_rime
+
+ · 20m
+
+【LIVE】
+
+12/20(日)夜にYouTubeから無料配信のカバーライブを開催します!!
+
+
+【理芽 STREAMING COVER LIVE「CHOCOLATE LIVE」】
+
+12/20(日) OPEN 19:30 / START 20:00 [https://youtu.be/2k9sLL**Iw](https://youtu.be/2k9sLL**Iw)
+
+
+大好きな曲を沢山カバーします
+
+今からドキドキやけど…楽しく歌いたいと思います!!
+
+
+#理芽 #CHOCOLATELIVE
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23071#       发表于 2020-12-16 17:25
+
+
+
+
+天皇这一句英语都看不到，白上这一句日语都看不到，太真实了。
+
+
+SYL：
+
+天皇这👎是怎么回事？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23072#       发表于 2020-12-16 17:36
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-16 17:25
+天皇这一句英语都看不到，白上这一句日语都看不到，太真实了。
+
+
+SYL：
+</blockquote>
+当然是阴湿虹人点的啦，高贵的天皇和平民玩到一起去了，作为箱头还和敌社联动，不行
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 23073#       发表于 2020-12-16 17:36
+
+
+
+
+关于为什么没人聊大箱之外的东西
+
+现在管人最主要的看点之一就是贩卖人际关系了，个人势活整的再好谁看啊，大箱底边随便来个凸待同接不就几十倍杀的？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23074#       发表于 2020-12-16 17:43
+
+
+
+
+油男真的在认真研究家乡税啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+全是和牛，这不是超级诱人吗
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23075#       发表于 2020-12-16 17:49
+
+
+
+
+哪有那么多原因<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+就拿v综来说，活跃人数总共才多少，那么多底边个人势和小箱，有一起看的v偶尔聊两句差不多了
+
+讨论管人绕不过大箱就像谈足球绕不过五大联赛一样，其他小联赛哪有那么多关注度<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 23076#       发表于 2020-12-16 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49742559&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-16 17:43</a>
+
+油男真的在认真研究家乡税啊
+
+全是和牛，这不是超级诱人吗</blockquote>
+郡道搞过这个家乡税的直播
+
+看着基本就是土特产买买买
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23077#       发表于 2020-12-16 17:59
+
+
+
+
+郡道在推上控诉葵说她坏话（玩笑
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23078#       发表于 2020-12-16 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49742614&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-16 17:49</a>
+
+郡道搞过这个家乡税的直播
+
+看着基本就是土特产买买买</blockquote>
+应该是同一种类型的配信，但油男地理水平太liver了，被评论一直在质疑国籍（他自己概要栏：移籍日本真是太好啦～）
+
+
+这种配信还挺有意思的，不如说家乡税这种东西就挺别致（？）的，土特产超级市场啊；
+
+（顺便好奇一下老师买了什么，油男看上草莓和酸奶了——）
+
+
+
+
+
+                              
