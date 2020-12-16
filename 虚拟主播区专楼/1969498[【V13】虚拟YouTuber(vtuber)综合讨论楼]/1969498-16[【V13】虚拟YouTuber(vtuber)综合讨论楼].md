@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 22:03** 
+> ## **本文件最后更新于2020-12-17 00:05** 
 
 
 
@@ -15749,17 +15749,17 @@ met意外地高。rin怎么那么低，还不如人家新人<img src="https://st
 
 
 
- 本帖最后由 十四洲 于 2020-12-16 22:00 编辑 
+ 本帖最后由 十四洲 于 2020-12-16 22:26 编辑 
 
 
-<img src="https://img.saraba1st.com/forum/202012/16/215949iby8r4r99rrr8rf4.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202012/16/222610r4dhfk2k92fmhz9t.png" referrerpolicy="no-referrer">
 
 
 <strong>。.png</strong> (1.07 MB, 下载次数: 0)
 
 下载附件
 
-2020-12-16 21:59 上传
+2020-12-16 22:26 上传
 
 
 
@@ -15841,4 +15841,405 @@ wawon的百鬼夜行本来就含已毕业的人，早就有柚子白濑玲azuma�
 
 
 
-                       
+
+
+-----
+
+####  rzrbtk  
+##### 23295#       发表于 2020-12-16 22:04
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-16 22:14 编辑 
+
+以下内容需要积分高于 50000 才可浏览
+
+DUSTCELL 2nd
+
+[https://1drv.ms/v/s!AnHwxHDn9hAamF1RUW28AI2DQh5A](https://1drv.ms/v/s!AnHwxHDn9hAamF1RUW28AI2DQh5A?e=aUtNY5)
+
+
+楼主看到就加一下二楼吧
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23296#       发表于 2020-12-16 22:07
+
+
+
+
+后知后觉，太空狼人杀原来登录ns了啊，感觉虹杏真的要靠这个贴起来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 23297#       发表于 2020-12-16 22:45
+
+
+
+
+天猫线下联动这太能聊了 40分钟就唱了两首 在Nico这两人有交集吗？
+
+不过好歹能唱完 不像towa老笑场
+
+okayu这是搬家到公司附近了吧 最近能抓到各种人带会家
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23298#       发表于 2020-12-16 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49745445&amp;ptid=1969498" target="_blank">biye 发表于 2020-12-16 22:45</a>
+
+天猫线下联动这太能聊了 40分钟就唱了两首 在Nico这两人有交集吗？
+
+不过好歹能唱完 不像towa老笑场
+
+okayu这 ...</blockquote>
+在天宝家，不是小粥家。
+
+前世好像没啥联系，但是进入木口之后私下应该玩的不错。
+
+这次是棉花糖+歌回，棉花糖没放出来。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23299#       发表于 2020-12-16 22:49
+
+
+
+
+说实话我真的服了cover这个傻逼草台，这个圣诞节巧克力抽卡，一是混了星推上全在抱怨抽一堆星，二是严重缺货，很多画师爹妈和Liver自己都没买到，真就傻逼草台拖后腿，stf脑子进屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23300#       发表于 2020-12-16 22:51
+
+
+
+
+cover海量专精确算，比我懂更比你懂，yagoo自己都抽了星晒上推了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23301#       发表于 2020-12-16 22:54
+
+
+
+
+yagoo晒的更离谱，晒了个毕业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23302#       发表于 2020-12-16 22:56
+
+
+
+
+怎么感觉叶师越来越喜欢用おじさん自称了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 23303#       发表于 2020-12-16 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49745503&amp;ptid=1969498" target="_blank">bluebaby 发表于 2020-12-16 22:54:01</a>
+yagoo晒的更离谱，晒了个毕业的</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yagoo加入cover反抗军
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 23304#       发表于 2020-12-16 23:06
+
+
+
+
+今晚404这什么弱智会限BUG
+
+发一次评论就要刷新一次
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 23305#       发表于 2020-12-16 23:20
+
+
+
+
+b站首页刷到了露露直播中昏倒的短视频，请问是哪一天的直播啊？想看看全程。看今天的直播挺正常，应该没事吧。。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23306#       发表于 2020-12-16 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽卡游戏总要塞点狗粮r卡，正常
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 23307#       发表于 2020-12-16 23:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/233139z79i9b9b9iaaih94.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mi.jpg</strong> (443.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 23:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23308#       发表于 2020-12-16 23:32
+
+
+
+
+田角最新follow了一个带锁的推，你虹新人？有懂哥吗？
+
+Akino AdRiieN
+[https://twitter.com/AkinoA11](https://twitter.com/AkinoA11)
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 23309#       发表于 2020-12-16 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744390&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-16 20:36</a>
+
+YouTube Culture &amp; Trends Report: VTubers
+
+https://www.youtube.com/watch?v=1endAJC_CC8</blockquote>
+整段影片虹只有一秒的画面，油管我要杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+sly,看来在油管眼中根本没有箱的概念，天下V圈是一家<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千万ly  
+##### 23310#       发表于 2020-12-16 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49745685&amp;ptid=1969498" target="_blank">万花筒 发表于 2020-12-16 23:20</a>
+
+b站首页刷到了露露直播中昏倒的短视频，请问是哪一天的直播啊？想看看全程。看今天的直播挺正常，应该没事 ...</blockquote>
+露组的生肉 [https://www.bilibili.com/video/BV1n54y1t7p1](https://www.bilibili.com/video/BV1n54y1t7p1)
+
+简介里有404的地址
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23311#       发表于 2020-12-16 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49745843&amp;ptid=1969498" target="_blank">2black 发表于 2020-12-16 23:39</a>
+
+整段影片虹只有一秒的画面，油管我要杀了你
+
+
+sly,看来在油管眼中根本没有箱的概念，天下V圈是一家 ...</blockquote>
+虽然这片搞得像yagoo赞助了但是其实社长后面露露也出场了。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23312#       发表于 2020-12-16 23:44
+
+
+
+
+每次听别人的歌回都不禁感叹人和人的差别怎么会这么大<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  倒影_  
+##### 23313#       发表于 2020-12-16 23:48
+
+
+
+ 本帖最后由 倒影_ 于 2020-12-16 23:52 编辑 
+
+团长(fh)还有个取得国家资格的职业，完全看不出来
+
+杂谈讲了快20分钟的百鬼，听麻了
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 23314#       发表于 2020-12-16 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49745861&amp;ptid=1969498" target="_blank">千万ly 发表于 2020-12-16 23:42</a>
+
+露组的生肉 https://www.bilibili.com/video/BV1n54y1t7p1
+
+简介里有404的地址</blockquote>
+好的，感谢
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 23315#       发表于 2020-12-16 23:56
+
+
+
+
+看了下武士道的三位V，粉丝分别是1500 2100 2900，其中一位昨天播了次奥术魔刃，另外俩首播后就没动过了
+
+
+
+
+
+                      
