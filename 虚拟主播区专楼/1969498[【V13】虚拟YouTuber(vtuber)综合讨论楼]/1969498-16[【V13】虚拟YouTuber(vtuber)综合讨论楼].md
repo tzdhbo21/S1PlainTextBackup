@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 14:05** 
+> ## **本文件最后更新于2020-12-16 16:03** 
 
 
 
@@ -10133,4 +10133,971 @@ s1希望nga爆炸，就像nga希望tskk爆炸一样荒唐。不过新时代人�
 
 
 
-                                 
+
+
+-----
+
+####  Mr.shelter  
+##### 23004#       发表于 2020-12-16 14:06
+
+
+
+
+那么谁截一下NGAjz和恶搞zz发言的言论举报一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23005#       发表于 2020-12-16 14:07
+
+
+
+
+希望大家能各取所需，各看各的，新旧观众、不同平台用户能老死不相往来<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+虽然这是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 23006#       发表于 2020-12-16 14:08
+
+
+
+ 本帖最后由 NBXX 于 2020-12-16 14:57 编辑 
+<blockquote>结果讨论的都是在日本名气大的</blockquote>
+这句话我不服气。在NGA惊诧youtube上还有各种女菩萨的时候，S1早就聊过了。
+
+
+补充一下，看得多小众也并不代表多高端。热门的东西讨论量高当然正常，在任何社区都是这样。真的喜欢底边不如跟灵风一起去挖那些几十几百关注的小V，乐趣多多。喜欢看流行的大众的，我觉得也没什么好批判的。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23007#       发表于 2020-12-16 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49740176&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-16 14:04</a>
+祝所有希望自己推在外面越播越好的“核心粉”都成为无敌飞雪第二</blockquote>
+怪物家长复活！n又赢！<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23008#       发表于 2020-12-16 14:13
+
+
+
+
+部分祭丝发疯差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，没那么多人和你有共情基础
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23009#       发表于 2020-12-16 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49740212&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-16 14:08</a>
+这句话我不服气。在NGA惊诧youtube上还有各种女菩萨的时候，S1早就聊过了。
+
+补充一下，看得多小众也并不 ...</blockquote>
+主要版内有其他平台主播贴 也没见抱怨v综不讨论底边的人去多讨论。况且即使大箱v在v综也向来是一个对应顶多几个看的人，没有一样没啥讨论，无论箱内核心与否，如果没有人讨论那也会没有存在感。如果觉得缺乏还没人聊的话题，那就发起这个话题，无数人就是这么做的，而话题也是因此而产生甚至有时吸引了新的讨论者来加入的。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 23010#       发表于 2020-12-16 14:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">S1没聊过小众？v综前几个楼去看看？
+
+虽然后面确实变成了虹综然后又变成了杏综，但是一样有人说冷门的，你想讨论不会自己开头吗，其实也有人看冷门的或者小众的，只不过自己看不说而已。
+
+如果你觉得v综杏太多，那可以自己开个楼介绍介绍吸引别人来讨论呀。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23011#       发表于 2020-12-16 14:43
+
+
+
+
+可以别嗦nga牛子了吗要吐了。
+
+
+晚上6点那个大的你们看哪个台？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23012#       发表于 2020-12-16 14:45
+
+
+
+
+我阿葵台润润台二选一吧...
+
+
+其实人狼这种东西没什么偏好的话直接去看每局当狼的人啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23013#       发表于 2020-12-16 14:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 当然是椎名台了，椎名的yygq实力，别人能学一辈子
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23014#       发表于 2020-12-16 14:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">我聊点别的满脑子阿b的nga人也不看啊。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 23015#       发表于 2020-12-16 14:46
+
+
+
+
+没地方发，想了想只能发在这
+
+有些人自诩核心粉，却连直播都没时间跟
+
+工作学习忙没办法就算了，录像也没见去补
+
+“招募有时间跟直播的剪辑man”
+
+真的挺可笑的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|直播不看的“核心粉”老多了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23016#       发表于 2020-12-16 14:49
+
+
+
+
+竟然没人想看月之的台，阿花……虽然我也看西西台就是了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23017#       发表于 2020-12-16 14:52
+
+
+
+
+没特别的偏好 谁当狼看谁吧...主要我对虹这块人选的人狼水平不熟悉不知挑谁，然后杏这次人选里没找来玩的比较好的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23018#       发表于 2020-12-16 14:55
+
+
+
+
+羡慕18点能看油管的，我只能到时候偷偷上b站找转播，或者等人repo
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23019#       发表于 2020-12-16 14:56
+
+
+
+
+我必然看月之台，感觉月之是最可能被鲨鱼待遇的，想看月之在墓地发狂
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23020#       发表于 2020-12-16 14:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">肯定看狼啊，
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 23021#       发表于 2020-12-16 14:58
+
+
+
+
+可别想讨论自己起头了
+前一段灵综的时候是谁第一个跳出来让去新开楼的？
+更别说这都是杏爆炸后的v（杏）综了，敢搁以前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23022#       发表于 2020-12-16 15:00
+
+
+
+
+人狼杏这边推荐日南台，是杏这边几个里当crew比较能看的，大概战斗力有0.8懒狗。不过实际上大多数还是多开谁狼去谁那吧。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23023#       发表于 2020-12-16 15:01
+
+
+
+
+麻烦灵人至少讨论点直播内容好吗，一条晚安推刷七八楼谁受得了。
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 23024#       发表于 2020-12-16 15:07
+
+
+
+
+管人微相关
+<img src="https://p.sda1.dev/0/c26f10308c5da7faacd0fb3d85395950/IMG_CMP_100768461.jpeg" referrerpolicy="no-referrer">
+西沢5㍉在fleet里放了自己人设的3d
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23025#       发表于 2020-12-16 15:11
+
+
+
+
+去天皇待机间看了一眼，虹信已经在对杏奴喊话了，今晚就看天皇了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23026#       发表于 2020-12-16 15:15
+
+
+
+
+看看谁是第一个被80的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23027#       发表于 2020-12-16 15:16
+
+
+
+
+可不可以安排一局天皇亲方当狼，お願い<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 23028#       发表于 2020-12-16 15:17
+
+
+
+
+人狼游戏为啥和80沾边
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 23029#       发表于 2020-12-16 15:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">首刀=80？
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23030#       发表于 2020-12-16 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49740996&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-16 15:17</a>
+
+人狼游戏为啥和80沾边</blockquote>
+首刀-&gt;没游戏性
+
+一直被首刀-&gt;被80
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23031#       发表于 2020-12-16 15:20
+
+
+
+
+80当然是被堵住嘴投出去啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 23032#       发表于 2020-12-16 15:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为上次木口en和jp联动的时候体现出80味了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23033#       发表于 2020-12-16 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">en jp联动那次，用不懂英语强压鲨鱼然后投出去，真的是太过分了
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 23034#       发表于 2020-12-16 15:24
+
+
+
+
+灵儿晚安推比灵儿直播还有趣多了……
+
+
+syl 个人看人狼是喜欢看一个台，享受概率啦
+
+如果是狼，那就看勾心斗角杀人。如果不是，那就带入liver去找狼，也挺有意思。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23035#       发表于 2020-12-16 15:25
+
+
+
+<blockquote>上洛志望者
+
+​ホロライブは英語・インドネシア語・日本語が混じり会うワールドワイドな配信なので暗殺力こそ全てみたいなところある
+
+
+森武智
+
+​最近ロシアでも注目されてきてるぞホロライブ
+
+
+へるがいず
+
+​ホロライブ=AK47です
+
+
+oTToTTo
+
+​ホロ側のコメント欄見に行ったけどパコライト湧いてる以外はスタンプと英語コメが多くて踏み込めない‘
+
+
+えんじぇるくん
+
+​にじさんじ日本もそろそろ英語枠来ないかな</blockquote>
+
+
+
+虽然虹人这么不安我知道不是郡道的错，但是你可以出来磕个头吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23036#       发表于 2020-12-16 15:26
+
+
+
+
+阿花台应该很快就可以看她闲聊了，我也开西西阿花、再挑个木口频道吧
+
+
+Syl，今晚看完大的，可以顺便看一下卵用
+
+≪ 12/16(水) 21:00 ≫ 配信開始
+
+待機場所はこちら▽
+[https://youtu.be/LjU5OOHu_As](https://youtu.be/LjU5OOHu_As)
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 23037#       发表于 2020-12-16 15:28
+
+
+
+
+我当然是去看鸭子玩果缤纷啦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我开了个gbf号
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 23038#       发表于 2020-12-16 15:33
+
+
+
+
+当然看西西yygq啊
+
+
+
+
+
+
+
+-----
+
+####  wety  
+##### 23039#       发表于 2020-12-16 15:38
+
+
+
+
+ak47喷了，这是要血洗虹人吗<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23040#       发表于 2020-12-16 15:38
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1glpqkaz6knj20df05owes.jpg" referrerpolicy="no-referrer">
+
+
+好女人你怎么了，是黄黑P站被铁拳制裁刺激到你了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23041#       发表于 2020-12-16 15:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 如果没有bug的话，能不能做到木口五人组同接最低的都能秒杀你虹最高的，这种盛景
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23042#       发表于 2020-12-16 15:42
+
+
+
+
+天皇主导推理把白上票了之后白上哭哭的桥段可以有吗？想了一下，嗯了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23043#       发表于 2020-12-16 15:42
+
+
+
+
+想得美，其他人可以，阿希必不可能（ry<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23044#       发表于 2020-12-16 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">  2k云了 没bug也做不到 而且bug是都收影响   
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 23045#       发表于 2020-12-16 15:43
+
+
+
+
+有马自立在不太可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23046#       发表于 2020-12-16 15:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 怎么就不可能惹，阿希当狼，然后月之第一轮被刀，然后最后关键的2狼5好人讨论，
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23047#       发表于 2020-12-16 15:45
+
+
+
+
+说起来我想问很久了，西西那个“开什么玩笑，要吐了”出处是什么？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23048#       发表于 2020-12-16 15:46
+
+
+
+
+换个配置就行，狗夸龙船35
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23049#       发表于 2020-12-16 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49741364&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-16 15:46</a>
+换个配置就行，狗夸龙船35</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你怎么漏了木口同接人狼最高的兔啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 23050#       发表于 2020-12-16 15:49
+
+
+
+
+玩这个人狼看同接怎么能少了百鬼呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 23051#       发表于 2020-12-16 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说怎么你虹马车杯选手全在用mii，原来规则定死了。一堆顶了天tier C的配车互啄真的好看吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23052#       发表于 2020-12-16 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49741351&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-16 15:45</a>
+说起来我想问很久了，西西那个“开什么玩笑，要吐了”出处是什么？</blockquote>
+是看到卯月莉莉姆cp的时候<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+我看看到底是谁今晚敢在最后引流卯月，会是卯月推郡道吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 23053#       发表于 2020-12-16 15:55
+
+
+
+ 本帖最后由 NBXX 于 2020-12-16 15:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49741351&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-16 15:45</a>
+
+说起来我想问很久了，西西那个“开什么玩笑，要吐了”出处是什么？</blockquote>
+原梗出自：刃牙
+<[img src="https://i.loli.net/2020/12/16/IZvD87uOCaxKcTq.png" referrerpolicy="no-referrer">
+
+不过一般引申是用在西西吐槽莉光（おりコウ）吧
+[https://www.nicovideo.jp/watch/sm36014519](https://www.nicovideo.jp/watch/sm36014519)
+
+おりコウガチアンチ椎名唯華まとめ
+
+【熟】莉光组合Anti头子——椎名唯华合集
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23054#       发表于 2020-12-16 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 椎名正面回应转会木口传闻只有yygq版权问题，别的没提过
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 23055#       发表于 2020-12-16 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49741351&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-16 15:45</a>
+
+说起来我想问很久了，西西那个“开什么玩笑，要吐了”出处是什么？</blockquote>
+[https://www.bilibili.com/video/B ... from=trigger_reload](https://www.bilibili.com/video/BV1GJ411p7KP/?spm_id_from=trigger_reload)
+
+4分30秒 “要吐了”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
