@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 20:04** 
+> ## **本文件最后更新于2020-12-16 22:03** 
 
 
 
@@ -14830,4 +14830,1015 @@ gbf不开收益化啊。
 
 
 
-                         
+
+
+-----
+
+####  alcoholic1000  
+##### 23250#       发表于 2020-12-16 20:05
+
+
+
+
+卵用这3D我卡在广告就没能成功进去...
+
+但是开了
+[https://www.youtube.com/watch?v=LjU5OOHu_As](https://www.youtube.com/watch?v=LjU5OOHu_As)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 23251#       发表于 2020-12-16 20:07
+
+
+
+
+卯月这3d做的不错啊，眼睛很亮<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 23252#       发表于 2020-12-16 20:09
+
+
+
+
+3Dおりコウセックス<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| UnhappyTails| + 1|やめてくれ|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 23253#       发表于 2020-12-16 20:10
+
+
+
+
+看完唯一的感想：鬼佬眼里，大概 "VTuber = Kizuna AI + hololive"
+
+
+YouTube Culture &amp; Trends Report: VTubers
+[https://www.youtube.com/watch?v=1endAJC_CC8](https://www.youtube.com/watch?v=1endAJC_CC8)
+
+[https://www.youtube.com/trends/articles/report-sources/](https://www.youtube.com/trends/articles/report-sources/) <blockquote>In Focus: VTubers
+
+
+A.I. Channel channel subscriber growth
+
+
+Source: A.I. Channel channel subscribers, all-time
+
+
+47% of viewers are open to watching content from creators or characters who are fictional or virtual
+
+
+Source: On behalf of YouTube, Ipsos MORI conducted an online survey of individuals aged 18-44 in US, UK, FR, DE, JP, IN, BR, SA, EG, Nov 2020. n=16,988. Q text: To what extent do you agree or disagree with each of the following statements? I’m open to watching content from creators or characters who are fictional or virtual [Sum of strongly agree and tend to agree]</blockquote>
+<img src="https://p.sda1.dev/0/f090b7aae229392f53976517c91392a6/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 23254#       发表于 2020-12-16 20:10
+
+
+
+ 本帖最后由 noHentai 于 2020-12-16 20:12 编辑 
+
+其实刚才我没有在NGA repo
+
+
+只是说了一句“数字打不过，游戏也打不过，点进去就看到全死了，真是符合现状”，就破了虹信的防<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 23255#       发表于 2020-12-16 20:11
+
+
+
+<[img src="https://i.loli.net/2020/12/16/13NfEiWGJ6Uc2rL.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 23256#       发表于 2020-12-16 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说了，要吐了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23257#       发表于 2020-12-16 20:13
+
+
+
+
+卯月聊爆，然后rrm来了。
+
+
+虽然大家可能不在意啦，但刚才转场用的"跳——转场——落地“，我很喜欢，没任何技术含量（大概），跟平常看的综艺里的剪辑一样，
+
+但就是有种vtb感，棒
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 23258#       发表于 2020-12-16 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744133&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-16 20:11</a></blockquote>
+刚恰完联动就切入，好快的西西！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23259#       发表于 2020-12-16 20:14
+
+
+
+
+开什么玩笑
+
+<img src="https://img.saraba1st.com/forum/202012/16/201353a9vqqeckqq6dq5qk.png" referrerpolicy="no-referrer">
+
+
+<strong>要吐了.png</strong> (29.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 23260#       发表于 2020-12-16 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">774这个宇宙人狼多窗让主播的核心粉数量暴露无遗，太惨了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23261#       发表于 2020-12-16 20:14
+
+
+
+
+吃瘪兔suki
+
+感觉捡垃圾生存类游戏咱还是喜欢dying light一些
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23262#       发表于 2020-12-16 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">noh老哥与其发这种连1w播放都没有的东西不如repo下虹杏人狼。
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 23263#       发表于 2020-12-16 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744110&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-16 20:10</a>
+
+看完唯一的感想：鬼佬眼里，大概 "VTuber = Kizuna AI + hololive"
+
+
+YouTube Culture &amp; Trends Report: VTu ...</blockquote>
+luna竟然这么多镜头 哭惹
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23264#       发表于 2020-12-16 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉完全注意力被rrm吸走了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 23265#       发表于 2020-12-16 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744145&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-16 20:13</a>
+
+卯月聊爆，然后rrm来了。
+
+
+虽然大家可能不在意啦，但刚才转场用的"跳——转场——落地“，我很喜欢，没任何 ...</blockquote>
+想到了nogibingo当年小鸟和千春的那个游盐湖节目，也是这么一下变了背景
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23266#       发表于 2020-12-16 20:21
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-16 20:31 编辑 
+
+怎么回事，这种明明没有肢体接触却很恶心的中学生情侣空气
+
+<img src="https://img.saraba1st.com/forum/202012/16/203102byv48lrvmos80bdf.png" referrerpolicy="no-referrer">
+
+
+<strong>【#卯月コウ3D】俺が卯月コウになる配信.png</strong> (582.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:31 上传
+
+
+
+
+
+
+是真的在恋爱吗？
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 23267#       发表于 2020-12-16 20:22
+
+
+
+
+木口那个斯巴鲁突然出现在我首页还在玩gbf 是想干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai|-2|碍到你了抱歉啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 23268#       发表于 2020-12-16 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这就是liver王吗，曾经被认为是虹文化的代表吗，你虹还能让我看到一次にじさんロック吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23269#       发表于 2020-12-16 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744218&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-16 20:19</a>
+
+想到了nogibingo当年小鸟和千春的那个游盐湖节目，也是这么一下变了背景</blockquote>
+你们紫紫人怎么啥都想到紫<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，
+
+不过就是这种，现实综艺中的转场要剪辑，V中的转场而是换场景，
+
+明明是一个效果，要做的事却完全不同，很有趣
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23270#       发表于 2020-12-16 20:31
+
+
+
+
+🦊是谁？
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/203117top15erxf1ij0dlu.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 011 - Latest Tweets _ Twitter - twitter.com.png</strong> (265.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23271#       发表于 2020-12-16 20:32
+
+
+
+ 本帖最后由 黑之和 于 2020-12-16 20:34 编辑 
+
+草，五元的面具
+还闻了闻<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">有大叔臭的味道
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23272#       发表于 2020-12-16 20:34
+
+
+
+
+宣传下JST 21:30 船长 YYCEX全卡 EX全卡还是挺有看头的 看上去私下练了不少  实质Netaplay的一种了  难度并不小
+https://youtu.be/3vFLD9kS6as
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 23273#       发表于 2020-12-16 20:35
+
+
+
+
+刚回来，卵用玩抓娃娃机那个是在抓莉莉姆还是什么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23274#       发表于 2020-12-16 20:36
+
+
+
+
+YouTube Culture &amp; Trends Report: VTubers
+[https://www.youtube.com/watch?v=1endAJC_CC8](https://www.youtube.com/watch?v=1endAJC_CC8)
+
+
+
+官方认证的“质”来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23275#       发表于 2020-12-16 20:37
+
+
+
+
+一般路人茄子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23276#       发表于 2020-12-16 20:38
+
+
+
+
+鲨皇：该认真了
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/203816fairofd8d88c7boo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpTD7fUXIAMTVS-.jpg</strong> (334.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:38 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23277#       发表于 2020-12-16 20:38
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-16 20:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744375&amp;ptid=1969498" target="_blank">猫島かおる 发表于 2020-12-16 20:35</a>
+
+刚回来，卵用玩抓娃娃机那个是在抓莉莉姆还是什么</blockquote>
+在抓女朋友（x）
+
+三次机会分别抓上来了绿仙的熊猫、面具（？）和社长带来的水晶龙虾
+
+
+Syl，抓娃娃机里面吉祥物好多，好怀念...
+
+有些吉祥物比liver本体还要更早3D化
+
+<img src="https://img.saraba1st.com/forum/202012/16/204523w41piqfaf0iwu42w.png" referrerpolicy="no-referrer">
+
+
+<strong>【#卯月コウ3D】俺が卯月コウになる配信-3.png</strong> (694 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:45 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/204523lbltk88zqahil6kd.png" referrerpolicy="no-referrer">
+
+
+<strong>【#卯月コウ3D】俺が卯月コウになる配信-2.png</strong> (815.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23278#       发表于 2020-12-16 20:41
+
+
+
+ 本帖最后由 黑之和 于 2020-12-16 20:43 编辑 
+
+米⭕️鼠
+
+syl不想承认被小少爷色到了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+zsyl要被晃吐了吐了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23279#       发表于 2020-12-16 20:44
+
+
+
+ 本帖最后由 黑之和 于 2020-12-16 20:49 编辑 
+
+女装少爷！！！！！！！！！愿望成真<img src="https://p.sda1.dev/0/669af05281fc91c6d8e410950949f7f9/IMG_CMP_81818716.jpeg" referrerpolicy="no-referrer">
+这个中间的原来是少爷<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23280#       发表于 2020-12-16 20:46
+
+
+
+
+要是女人多好，要是女人多好
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 23281#       发表于 2020-12-16 20:48
+
+
+
+
+霞ちゃんのリアクションが見たかったなこれ…<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nocode  
+##### 23282#       发表于 2020-12-16 20:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/204938mpe95ybfbbll4flv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>51.jpg</strong> (14.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:49 上传
+
+
+
+
+
+
+谁能想到，这个新衣服的剪影竟然是卯月……
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 1|悟了|
+| alcoholic1000| + 1|？？？？？？？？？？？？？？？？？？？？.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 23283#       发表于 2020-12-16 20:51
+
+
+
+
+部分楼友每每面对金发男孩都会雌堕，基因是否带了给给信息
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23284#       发表于 2020-12-16 20:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/205642xt9my4mny1ym2m46.png" referrerpolicy="no-referrer">
+
+
+<strong>【#卯月コウ3D】俺が卯月コウになる配信-4.png</strong> (717.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 20:56 上传
+
+
+
+
+
+
+没想到卵用会唱歌
+
+
+虽然很...但气氛...
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|エモ|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 23285#       发表于 2020-12-16 21:08
+
+
+
+
+卯月还有首自己作词的原创曲アイシー，只不过因为版权还是什么再也不见天日了，社长在早期还聊过说听过这首曲子才录的within
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23286#       发表于 2020-12-16 21:10
+
+
+
+ 本帖最后由 空集 于 2020-12-16 21:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 23287#       发表于 2020-12-16 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49744159&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-16 20:14</a>
+774这个宇宙人狼多窗让主播的核心粉数量暴露无遗，太惨了</blockquote>
+met意外地高。rin怎么那么低，还不如人家新人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 23288#       发表于 2020-12-16 21:36
+
+
+
+
+草 刷推怎么看到张新的莫露露fa
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23289#       发表于 2020-12-16 21:41
+
+
+
+
+强如露露，不吃饭不睡觉也是会贫血昏迷的，健康作息真的很重要
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23290#       发表于 2020-12-16 21:41
+
+
+
+ 本帖最后由 十四洲 于 2020-12-16 22:00 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/215949iby8r4r99rrr8rf4.png" referrerpolicy="no-referrer">
+
+
+<strong>。.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-16 21:59 上传
+
+
+
+
+
+
+还有这样的事<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">另外那位不要再拖了啦
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 23291#       发表于 2020-12-16 21:42
+
+
+
+
+wawon的百鬼夜行本来就含已毕业的人，早就有柚子白濑玲azuma这些人了
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23292#       发表于 2020-12-16 21:52
+
+
+
+
+中间那套不是阿菜的新衣服吗，和阿喵喵同一系列的
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23293#       发表于 2020-12-16 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49745023&amp;ptid=1969498" target="_blank">坂田金时kin 发表于 2020-12-16 21:52</a>
+
+中间那套不是阿菜的新衣服吗，和阿喵喵同一系列的</blockquote>
+原来如此，早就发了，错怪了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23294#       发表于 2020-12-16 21:56
+
+
+
+
+懐中道標 ver.EMA（[https://www.youtube.com/watch?v=llje-FhGktY](https://www.youtube.com/watch?v=llje-FhGktY)）
+
+如ema所说，影片厉害。
+
+
+
+
+
+
+                       
