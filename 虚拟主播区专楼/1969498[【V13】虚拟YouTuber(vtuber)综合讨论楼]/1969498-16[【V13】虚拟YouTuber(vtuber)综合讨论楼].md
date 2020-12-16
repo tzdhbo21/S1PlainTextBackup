@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 12:06** 
+> ## **本文件最后更新于2020-12-16 14:05** 
 
 
 
@@ -5814,14 +5814,7 @@ apex回是培育土壤啊，虽然我打的菜打的垃圾没人看，但是我a
 ####  Miduki  
 ##### 22782#       发表于 2020-12-16 01:24
 
-
-
-
-反正我一直是抱着看街头卖艺的心情看v的，节目好就捧个钱场，没钱就捧个人场
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8184,10 +8177,13 @@ nano这事我觉得没有白皮也不会烧成这样
 
 
 
- 参与人数 6战斗力 0
+ 参与人数 9战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| winda|-1|平台入脑|
+| Finsty| + 1|确实|
+| argaregeasr| + 1|没毛病啊，回血|
 | ShuTk4O| + 1|出来好好对线。扣鹅没有意义|
 | 酒瓶止迁| + 2|话糙理不糙，都是惯出来的|
 | 依旧ing|-1|满足了是nb，不满足就冲？|
@@ -8774,10 +8770,11 @@ https://ngabbs.com/read.php?tid=24244763
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| sw11133| + 1|怎么还有人会舔新时代人，太怪了.|
 | JoelBirch| + 1|那确实|
 
 
@@ -8848,14 +8845,7 @@ https://ngabbs.com/read.php?tid=24244763
 ####  Miduki  
 ##### 22933#       发表于 2020-12-16 11:16
 
-
-
-
-希望有yhm被炎能刚烈一点鱼死网破说走就走给新时代人当头棒喝一下<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9382,11 +9372,11 @@ v8那边露头的杏仁，大多数不是野兔子就是crew，现在crew都逐�
 
 
 
- 本帖最后由 JoelBirch 于 2020-12-16 12:05 编辑 
+ 本帖最后由 JoelBirch 于 2020-12-16 12:07 编辑 
 
-用脚投票重要，发声也很重要，“冲”就是隔壁目前实践出来的最有效的发声手段，你Steam退游戏还讲究个完事儿前留个差评把游戏整成红标呢，不过是V圈因为自身的特殊性（字幕组啦，新仇旧恨啦，粉丝群相互攻讦啦，信息差啦，本身相对混乱啦）让这个手段看上去相当下作
+用脚投票重要，发声也很重要，“冲”就是隔壁目前实践出来的最有效的发声手段，你Steam退游戏还讲究个完事儿前留个差评把游戏整成红标呢，不过是V圈因为自身的特殊性（字幕组啦，新仇旧恨啦，粉丝群相互攻讦啦，信息差啦，社区相对开放混乱啦）让这个手段看上去（有时也是实际上）相当下作
 
-当然，YHM依赖是绝症，没法治，这就让用脚投票变得困难
+当然，YHM依赖是绝症，没法治，这就让用脚投票变得困难，让无能狂怒变得常态化
 
 
 
@@ -9482,4 +9472,665 @@ v8那边露头的杏仁，大多数不是野兔子就是crew，现在crew都逐�
 
 
 
-                                  
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 22967#       发表于 2020-12-16 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49738465&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-16 11:36</a>
+
+神经病6次弹唱，看看一周几天，看看日历，第一个周日是几号，告诉我那天有哪个日V敢在阿B播
+
+这周实际就是 ...</blockquote>
+说白了这次大规模进场带节奏的80%以上都是压根就不看她的人纯粹来踩一脚的，比如你综放了一晚上屁的祭丝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+有些人拿个排班搁那车，你老板只按排班表给你发工资加班都不算的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 22968#       发表于 2020-12-16 12:08
+
+
+
+ 本帖最后由 耻照 于 2020-12-16 12:09 编辑 
+
+来点虹浓度，谁来指路一下露皇播断片儿了是咋回事，好几天没看
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22969#       发表于 2020-12-16 12:10
+
+
+
+<blockquote>耻照 发表于 2020-12-16 12:08
+来点虹浓度，谁来指路一下露皇播断片儿了是咋回事，好几天没看</blockquote>
+https://youtu.be/ag7n8O5R_SU
+
+3小时49分半这样
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 22970#       发表于 2020-12-16 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49738928&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-16 12:10</a>
+
+https://youtu.be/ag7n8O5R_SU
+
+3小时49分半这样</blockquote>
+这突然无响应看着也太吓人了
+
+
+
+
+
+
+
+-----
+
+####  papapapadopoulo  
+##### 22971#       发表于 2020-12-16 12:16
+
+
+
+
+虽然尼姑庵被成为绿帽坛，这次居然彻底被绿之前就回过味来了，得改观了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们也别怪那边生气，从100%B站直播，慢慢到现在阿B油管五五开，再没点反应就有问题了。
+
+而且她是被中国内鬼烤了英肉引流了白皮，一个B站出道的日本人油管动态基本都是英文
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22972#       发表于 2020-12-16 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49738840&amp;ptid=1969498" target="_blank">大江户战士 发表于 2020-12-16 12:01</a>
+
+只统计每周有预告的歌回/弹唱的话是这样（每周第一天按周日计算）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">虽然这统计里有些油管没写内容就被算进去了，B站没写内容就没算，联动唱歌也没算
+
+但是大致总计偏差应该也就在3~4次内，
+
+主要问题还是这周因为有个13号还是有吉他的2动，让计算出来的频率和直播内容变的很显眼
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22973#       发表于 2020-12-16 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49738905&amp;ptid=1969498" target="_blank">耻照 发表于 2020-12-16 12:08</a>
+
+来点虹浓度，谁来指路一下露皇播断片儿了是咋回事，好几天没看</blockquote>
+后面就休息了，好像没发推说具体原因
+
+今晚会播
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 22974#       发表于 2020-12-16 12:27
+
+
+
+
+草，现在还有人往油管传英肉的？hlm死不瞑目
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 22975#       发表于 2020-12-16 12:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我们只做你的观众，你也要只属于我们批站，好吗？”（夹住）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 心垂万刃| + 1|草，活学活用|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 22976#       发表于 2020-12-16 12:30
+
+
+
+<blockquote>ShuTk4O 发表于 2020-12-16 12:27
+草，现在还有人往油管传英肉的？hlm死不瞑目</blockquote>
+已经自宫了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22977#       发表于 2020-12-16 12:30
+
+
+
+
+哎呀草，还真hlm复辟啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22978#       发表于 2020-12-16 12:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果这一身骚还是自己惹来的，笑死了
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 22979#       发表于 2020-12-16 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自作贱不可活
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  papapapadopoulo  
+##### 22980#       发表于 2020-12-16 12:43
+
+
+
+ 本帖最后由 papapapadopoulo 于 2020-12-16 12:48 编辑 
+
+那个烤英肉的内鬼是猴楼爆炸之前就烤了，炸了之后他退圈了，可喜可贺。不过她油管直播间的英语同传是不是中国人还有待观察，之前肯定有一个是，现在这个不太清楚。会点外语就要臭显摆的绿帽奴真是没药可救。
+
+nano怎么说呢，虽然B站提供了大多数的流量和收益，但是404直播不能少啊，毕竟有英语弹幕。在B站直播是工作，在404直播是生活<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22981#       发表于 2020-12-16 12:44
+
+
+
+
+这手嫁衣神功真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 22982#       发表于 2020-12-16 12:48
+
+
+
+
+草，绿帽坛名不虚传，这“白骑士”病真就好不了，还搁这自我感动当文化传播大使呢，隔壁前阵子声势浩大的整风看来效果不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22983#       发表于 2020-12-16 12:49
+
+
+
+
+很期待今晚的人狼惹，跑去看了一眼，被嫌弃比较多的是郡道和白上桑（主要是郡），但总体还是好评多的，
+然后评论区，团长那边英文压倒性的多，好像还蛮期待niji vs holo的，也有日语评论劝少搞nijiholo，葵把之前打错的群道改回了郡道，月之直播间在催她开会员和出音声<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+如果按照郡拉虹夏拉杏的说法，原来夏色祭跟露西娅关系很好吗，意外
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22984#       发表于 2020-12-16 12:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">朋友因为有狐狸的梁木，不准备看人狼，我都没法在群里看repo，就指着你楼repo了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 22985#       发表于 2020-12-16 13:10
+
+
+
+
+为什么绿帽谭那点破事能车这么久，以及真是武德
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 22986#       发表于 2020-12-16 13:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骑士是病
+
+得治
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 22987#       发表于 2020-12-16 13:16
+
+
+
+
+而且不只烤肉还同传呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">针不戳
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 22988#       发表于 2020-12-16 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">惊闻之前小火的“天使nano”中之人是AV**，还有这等好事？晚上我就上油管点关注
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22989#       发表于 2020-12-16 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49738897&amp;ptid=1969498" target="_blank">甜甜圈与棒棒糖 发表于 2020-12-16 12:07</a>
+
+说白了这次大规模进场带节奏的80%以上都是压根就不看她的人纯粹来踩一脚的，比如你综放了一晚上屁的祭丝[ ...</blockquote>
+nga现在是只要开个xx事件楼，就能引一批压根不看的人来拱火啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道是不是holo这波之后nga发现带节奏流量更大，分分钟上百页
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 22990#       发表于 2020-12-16 13:41
+
+
+
+
+个人体感希跟润还是蛮多单独联动的，她跟日南我就真看不出来了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22991#       发表于 2020-12-16 13:44
+
+
+
+
+团长和润润都属于活动很好叫到的人，我比较惊讶的是阿希还能喊到傻紫啊，这是重修旧好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 22992#       发表于 2020-12-16 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可不止无关人员不满，之前那动态还有舰长被拱火上去发言呢
+
+这点事谁心里都知道，nano没问题，白皮也不是全抱怨去b站，没问题，nga呢，反正鲸落之后S1 nga和V8，哪里都没有一般意义上的正常人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这情况，中文烤肉成英文，白皮直播间，hlm既视感拉了有70%吧，才隔了两个月，这个病是必然要犯的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 22993#       发表于 2020-12-16 13:55
+
+
+
+
+所以NGA傻逼什么时候爆炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 22994#       发表于 2020-12-16 13:57
+
+
+
+
+要不云P一下想想办法，怎么能治一下nga<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22995#       发表于 2020-12-16 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736660&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-16 09:27</a>
+
+出hlm的事跟祭丝谈这个，有一个没一个肯定要把V按死在B站 
+
+说到底傻逼希现在还在给冲国祭丝 ...</blockquote>
+hlm这事你说对了
+
+
+不是hlm墓碑下面的评论让我见识了面对的是何等不知羞耻、何等卑劣的匪帮，我不至于如此ptsd
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 22996#       发表于 2020-12-16 13:59
+
+
+
+
+我也是服了，holo没炸的时候喷nga萌萌人
+
+holo炸了nga化身恶魔又喷nga带节奏
+
+之前有人在nga挂s1又喷，也不看下自己在s1怎么喷
+
+有免费喷圆脸那种感觉了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 22997#       发表于 2020-12-16 14:00
+
+
+
+
+s1希望nga爆炸，就像nga希望tskk爆炸一样荒唐。不过新时代人至少能付诸实施，不像路灯人只会磨嘴皮子。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22998#       发表于 2020-12-16 14:01
+
+
+
+
+因为nga一直是极端论坛，以前极端到影响正常讨论，现在也极端到影响正常讨论。
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 22999#       发表于 2020-12-16 14:02
+
+
+
+
+没炸那会nga一句净土宗就一笔带过了谁特么鸟你<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 23000#       发表于 2020-12-16 14:02
+
+
+
+
+可能区别就是，S1说就说吧，当放屁就行了，nga到处水是真的能冲到影响在B站直播的
+
+
+
+
+
+
+
+-----
+
+####  papapapadopoulo  
+##### 23001#       发表于 2020-12-16 14:03
+
+
+
+
+还治nga呢，泥潭干啥事都慢人家一拍子，V综之前只有红杏大箱话题，vup综说是讨论所有vup，结果全是维阿。那边鲸落之后B站主场的日V这边才有了点水花。之前还以为S1老宅多，vtb什么的肯定能讨论点冷门东西，结果讨论的都是在日本名气大的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 23002#       发表于 2020-12-16 14:04
+
+
+
+
+祝所有希望自己推在外面越播越好的“核心粉”都成为无敌飞雪第二<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 23003#       发表于 2020-12-16 14:05
+
+
+
+
+5块钱一个号的论坛要求有2000块的内容质量是不是搞错了什么
+
+
+
+
+
+                                 
