@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 04:02** 
+> ## **本文件最后更新于2020-12-16 10:04** 
 
 
 
@@ -6261,4 +6261,1011 @@ b站歌势的上限大概就在这里了吧
 
 
 
-                                       
+
+
+-----
+
+####  真飞鸟i  
+##### 22808#       发表于 2020-12-16 06:55
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-16 06:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只看b站特供yhm，爱国。追着vtb去404，脱脂。响，你是脑子有病吧？把平台和国家捆绑起来，平台粉到这种地步，也是可悲了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 22809#       发表于 2020-12-16 07:51
+
+
+
+
+挺乐的，看你们汴京，油管不能发中文是谁规定的，兔子那边甚至出现过几次中文版聊呢(没错，版聊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+syl，油管竟然出视频介绍v了。我图发不出来，神秘，详情见油管推特号
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 22810#       发表于 2020-12-16 07:54
+
+
+
+ 本帖最后由 猫島かおる 于 2020-12-16 08:06 编辑 
+
+原来发对应语言互动更有效率=不能发自己母语，我以为发其他语言不会怎么样老早就有定论了。这么看重这个的你希望能先学好母语中文，不要再丢人现眼了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22811#       发表于 2020-12-16 07:56
+
+
+
+
+本质还是祭丝因为没能感化小祭，“气息”“歌力”粉发现自己无论是钱还是同接都比不过apex民疯特了，跟辩能不能说中文都没啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 22812#       发表于 2020-12-16 07:59
+
+
+
+
+真为了国家好，看啥管人啊，好好学习工作早日橄榄霓虹
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22813#       发表于 2020-12-16 08:03
+
+
+
+ 本帖最后由 a37356205 于 2020-12-16 08:04 编辑 
+
+不能说中文是自然是旧时代人的陈规陋习，甚至发英文也会被旧时代白皮人出警，毕竟主播只会日语。
+不过新时代白皮涌入后可不讲武德，“你们yhm能不能说英文？爷不懂日文啊”
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 22814#       发表于 2020-12-16 08:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735983&amp;ptid=1969498" target="_blank">丿焰丶 发表于 2020-12-16 07:51</a>
+
+挺乐的，看你们汴京，油管不能发中文是谁规定的，兔子那边甚至出现过几次中文版聊呢(没错，版聊)
+
+sy ...</blockquote>
+没找到啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22815#       发表于 2020-12-16 08:16
+
+
+
+<blockquote>alcoholic1000 发表于 2020-12-16 00:24
+叶师马车8，入弯压圈漂移瞄准、细节上的小操作和对近道的选择判断意识有，操作手感稍微有点跟不上；
+
+
+刚刚 ...</blockquote>
+基本上马车15000以上的局都是这么玩的，看ag打这种20000分的局，基本上所有人都会在特定的地方反复倒车刷道具，马车高分局完全就是pvp游戏了，走线技术真不重要，预判无敌躲劈雷才是最重要的，虽然万分以上的人走线也不差就是了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22816#       发表于 2020-12-16 08:16
+
+
+
+
+祭丝说不给发中文真的扯淡，你去阿希直播间发中文绝对是没有问题的，甚至发一些该删的弱智言论都有可能因为扳手看不懂不被杀
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22817#       发表于 2020-12-16 08:20
+
+
+
+
+最近觉得ina✖️mori也不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 22818#       发表于 2020-12-16 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736084&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-16 08:15</a>
+ 没找到啊</blockquote>
+号子名字Youtube Creators
+
+
+
+
+
+
+
+-----
+
+####  ViviR  
+##### 22819#       发表于 2020-12-16 08:34
+
+
+
+
+虽然隔壁现在因为管人在404的粉丝的问题就打算出征404直播间的行为挺搞的，但这里日常视奸隔壁黑屁，切一半过来随意发散还能汴一晚上经也是挺逗的。话说要扯到爱不爱国的话，404上的白皮大概也是因为太爱国了才要求yhm多在油管播少去批站吧。
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 22820#       发表于 2020-12-16 08:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">祭丝以前可能不被杀，现在有lyger这个香蕉人当扳手，谁知道会干嘛
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22821#       发表于 2020-12-16 08:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736092&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-16 08:16</a>
+
+基本上马车15000以上的局都是这么玩的，看ag打这种20000分的局，基本上所有人都会在特定的地方反复倒车刷 ...</blockquote>
+休闲家庭游戏玩家的震惊.jpg
+
+
+虽然听说过高端局是PVP，但毕竟自己水平不行到不这个层次、对高端操作了解比较少
+
+老哥有没有马车职业局推荐，想长一下见识！！
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 22822#       发表于 2020-12-16 08:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736092&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-16 08:16</a>
+
+基本上马车15000以上的局都是这么玩的，看ag打这种20000分的局，基本上所有人都会在特定的地方反复倒车刷 ...</blockquote>
+8dx到底还是个拼走力的游戏，在打開コース搓道具也是建立在走力过硬的基础上的。前两天的MKW世界大赛结果也证明了这一点，12race+BO3的赛制下走力高的就是爸爸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22823#       发表于 2020-12-16 08:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735598&amp;ptid=1969498" target="_blank">ylssb10438 发表于 2020-12-16 02:48:32</a>
+不管在哪个平台，对中国人说汉语，对欧美人说英语，对日本人说日语不是很正常吗？能更高效的沟通不好吗？之 ...</blockquote>批站或者说国内直播用英语发弹幕深入交流是做不到的。b站有20个字母限制，想用英语交流半句话都打不出，只能蹦几个单词
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22824#       发表于 2020-12-16 08:47
+
+
+
+
+所以有意或无意地不去察觉到以前集体中文自肃是一种为获得主播-观众复合体更大认同感的画地为牢，将对表达自我的自发压迫用交流的有效性这一实际几乎为0的理由正当化，至少在新时代人眼里带着这种深入骨髓的自卑看主播被称为杏奴也就不难理解了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+主播个体对不同语言的差别对待，日本社区整体对中文的反感，长久以来的宣传导致的素质自卑。当英文浓度成为一个指标之后，这种差异就不可能被消解，新时代人的产生就是必然。至于扯上爱不爱国的，除了最基础的国别认同以外，跟爱国半毛钱关系都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 22825#       发表于 2020-12-16 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736249&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-16 08:41</a>
+
+休闲家庭游戏玩家的震惊.jpg
+
+
+虽然听说过高端局是PVP，但毕竟自己水平不行到不这个层次、对高端操作了解 ...</blockquote>
+[https://www.youtube.com/user/MonarMK/videos](https://www.youtube.com/user/MonarMK/videos)
+[https://www.youtube.com/user/tadanokusaan/videos](https://www.youtube.com/user/tadanokusaan/videos)
+
+推荐两个日本玩家。前一个是公认的8dxVS水平世界第一
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 22826#       发表于 2020-12-16 08:55
+
+
+
+
+喜欢一个v到底是喜欢她所提供的内容还是喜欢她的国籍呢，如果你真的喜欢她所提供的内容只能说是萝卜青菜，各有所爱。但现在的ngaer明显大部分喜欢的是yhm的国籍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在这个前提下ngaer当然是想要她们在b站播了，因为ngaer想要的不是“看v直播”而是“看日v在b站b限”。
+
+关于404和b站的，你懂日语的当然可以认为404比b站好，但对大部分不懂日语的观众来说b站是个中文平台，这个可以掩盖所有（不会有人去斗鱼虎牙看v的吧）。
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 22827#       发表于 2020-12-16 09:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">油管发日文交流更有效还挺精神胜利的，我寻思假如一个日本人来中国网站直播，你在满屏中文里面发日文弹幕，确实容易届到；日本人在油管播，你在满屏母语者的日文评论里面发日文评论，能有多高效的交流？
+
+
+倒是充分符合了某位大手子所说的“旧时代人比新时代人更懂日语”，达成共识。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22828#       发表于 2020-12-16 09:09
+
+
+
+
+在充满日语的日语母语vtuber直播间发简单（重要）的英文是很容易钓到主播回复的，我是认知厨我也天天钓。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22829#       发表于 2020-12-16 09:10
+
+
+
+
+破话题来回车轱辘差不多得了 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22830#       发表于 2020-12-16 09:14
+
+
+
+
+油管要和yhm交流的确还是发日文更有效吧，英文中文即使被挑出来读了yhm也经常搞错原意的…其实说来说去想被v读，要么打sc，要么跟着满屏品论复读一样的东西。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 22831#       发表于 2020-12-16 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736431&amp;ptid=1969498" target="_blank">Bondrewd 发表于 2020-12-16 09:03:08</a>
+油管发日文交流更有效还挺精神胜利的，我寻思假如一个日本人来中国网站直播，你在满屏中文里面发日文弹幕， ...</blockquote>那反过来等樱花妹直播间满屏英语的时候发日语就行了，认知大成功。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22832#       发表于 2020-12-16 09:16
+
+
+
+<blockquote>bluebaby 发表于 2020-12-16 09:14
+油管要和yhm交流的确还是发日文更有效吧，英文中文即使被挑出来读了yhm也经常搞错原意的…其实说来说去想被 ...</blockquote>
+所以重要的是简单，一目了然，发一个hello ⭕⭕⭕chan之类的
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22833#       发表于 2020-12-16 09:21
+
+
+
+ 本帖最后由 Vneet 于 2020-12-16 09:24 编辑 
+<blockquote>Rosefinch 发表于 2020-12-16 08:55
+喜欢一个v到底是喜欢她所提供的内容还是喜欢她的国籍呢，如果你真的喜欢她所提供的内容只能说是萝卜青菜， ...</blockquote>
+
+没错，其实他们心里只想认同“日v在b限/b播”这个可以满足私欲、引发自身优越感的事吧∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22834#       发表于 2020-12-16 09:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736549&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-16 09:16</a>
+所以重要的是简单，一目了然，发一个hello ⭕⭕⭕chan之类的</blockquote>
+简单的无关直播内容的英文例如hallo xxx, xxx i love you，要被挑出来不仅得本身日语浓度极高，还得本身发言总人数有要求吧，有四位数的同接的时候我看这种零星英文就都基本被无视了(三位数不知)
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 22835#       发表于 2020-12-16 09:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出hlm的事跟祭丝谈这个，有一个没一个肯定要把V按死在B站 
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说到底傻逼希现在还在给冲国祭丝招魂，心理安慰可以说养熟了（其实估计是她被白皮冲塔冲恶心+她傻逼）
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22836#       发表于 2020-12-16 09:28
+
+
+
+ 本帖最后由 mmbk 于 2020-12-16 09:29 编辑 
+
+木口提供对中国观众群的认同露骨地越来越少，才出现了新时代主播。所以这可不是优越感，恰恰是自卑和被认同的需要造成了这种情形。
+
+再扯两句平台。b提供了两种功能：最方便地提供了表达对中国观众群认同的方式，和用来隔离中文和其他语种——基本等于国别——观众群的方式。很多主播因为懒惰，惯性或者其他不可告人的原因选择b实现这两种功能才造成了平台粉的产生。
+
+所以在阿b播短期能吃到红利，长期有害。有害之处就在于主播就算对所有观众一视同仁，也必须付出精力去维持最开始的认同，掌握不好平衡就是差别对待的根源，何况本身就抱有偏见的那些了。所以主播最应该做的其实是教育好自己的本土观众尊重各国（包括中文）的评论，当然这首先要求自己不对中文评论做出负面反馈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|正解|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22837#       发表于 2020-12-16 09:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 提问，在韩语母语、却喜欢日文的泡菜妹直播间，用韩语容易被认知还是日语容易被认知，
+
+
+你们想明白这个话题，就明白我说的意思了，
+
+
+主播自身的主观意愿非常重要，我不否认有部分“yhm”是喜欢用中文、喜欢博大精深的冲国文化才去批站学中文，用中文和观众交流的，
+
+
+但很显然，大部分都做不到这点，
+
+
+但我们换个角度，某些在404的yhm在舔英语白皮难道是真心喜欢英文、喜欢和印欧语系观众交流吗？当然我也不排除有这种yhm，
+
+
+总结，无论怎么舔、舔谁、在哪舔，其实都没什么本质区别，唯一有区别的大概就是观众心态，
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22838#       发表于 2020-12-16 09:35
+
+
+
+<blockquote>空集 发表于 2020-12-16 09:27
+简单的无关直播内容的英文例如hallo xxx, xxx i love you，要被挑出来不仅得本身日语浓度极高，还得本身 ...</blockquote>
+其实最重要的还是主播自身的意愿。比如在游戏中的时候分神去看弹幕，显眼的简单短句英文和剩下的日文比，下意识挑英文回复也很正常，可以不假思索地回复不让嘴停。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 22839#       发表于 2020-12-16 09:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736733&amp;ptid=1969498" target="_blank">深渊萃取 发表于 2020-12-16 09:35</a>
+其实最重要的还是主播自身的意愿。比如在游戏中的时候分神去看弹幕，显眼的简单短句英文和剩下的日文比， ...</blockquote>
+有道理，不过这种情况也要考虑主播的英语水平了，你说的这种情况我自己置身处地设想了下还挺有道理，不过很多yhm看英文可能就没那么快
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22840#       发表于 2020-12-16 09:44
+
+
+
+<blockquote>丿焰丶 发表于 2020-12-16 07:51
+挺乐的，看你们汴京，油管不能发中文是谁规定的，兔子那边甚至出现过几次中文版聊呢(没错，版聊)
+
+sy ...</blockquote>
+[https://youtu.be/1endAJC_CC8](https://youtu.be/1endAJC_CC8)
+
+油管这vtb潮流介绍的视频做得还挺好的，还提出虚拟形象和观众对内容创作者brand loyalty是否有相关性
+
+
+
+
+
+
+
+-----
+
+####  夜饮潇湘无崖子  
+##### 22841#       发表于 2020-12-16 09:44
+
+
+
+
+如何看待cp展还有人做兔大佐同人（知乎体可以吗）
+
+
+
+
+
+
+-4549057aa19863f0.jpg
+(47.67 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-16 09:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/16/094409iezklgjyt1gng4kg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 22842#       发表于 2020-12-16 09:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736831&amp;ptid=1969498" target="_blank">夜饮潇湘无崖子 发表于 2020-12-16 09:44</a>
+ 如何看待cp展还有人做兔大佐同人（知乎体可以吗）</blockquote>
+这玩意，原兔组组织的呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 22843#       发表于 2020-12-16 09:45
+
+
+
+
+百位同接的话挑弹幕纯粹看直播意愿吧，oto和446都是
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  夜饮潇湘无崖子  
+##### 22844#       发表于 2020-12-16 09:46
+
+
+
+<blockquote>丿焰丶 发表于 2020-12-16 09:45
+这玩意，原兔组组织的呢</blockquote>
+そだよね,便乘无关心
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 22845#       发表于 2020-12-16 09:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我觉得对市场来说，商业行为的本地化会更受欢迎也无可厚非嘛，又不是不让yhm在别的平台播，但是你进别的市场不做调研至少也得知道什么产品热销吧
+现在环境就是用户发现了自己可以选择服务而不是服务选择用户，又何必为主播的客户关系犯愁车轱辘呢，就只有她们做的好不好是不是及格主播的区别罢了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22846#       发表于 2020-12-16 09:47
+
+
+
+
+如何评价兔组先前逼宫B限被骂回去，可在兔田女士实质退出B后又在做同人本
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22847#       发表于 2020-12-16 09:48
+
+
+
+<blockquote>深渊萃取 发表于 2020-12-16 09:47
+如何评价兔组先前逼宫B限被骂回去，可在兔田女士实质退出B后又在做同人本 ...</blockquote>
+inori先生在你杏爆炸之后开直播洗白翻身，当然是要最后再赚一笔咯，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 22848#       发表于 2020-12-16 09:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 呵呵，你彩虹周报就能卖周边宣传册，凭什么我兔组不能卖阿，阳光虹人不要拿这个说事了，
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 22849#       发表于 2020-12-16 09:50
+
+
+
+
+这不是典中典的前男友？男友时期不满这不满那的，但起码关系还维持着。分手了以后，就天天在家里弹琴唱情歌表现自己一往情深深几许？深山夕照深秋雨。哄堂大笑了家人们
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 22850#       发表于 2020-12-16 09:53
+
+
+
+
+这玩意，只能说，木口不出事，这次cp他们也会搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来早就预定好的企划
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 22851#       发表于 2020-12-16 09:54
+
+
+
+
+新时代这种状态继续下去，以后可能对于外国v来说阿b和404就是二选一的情况，不存在两边都发展的可能了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22852#       发表于 2020-12-16 09:55
+
+
+
+
+煞笔兔组，他们能代表谁？
+中国野兔子早就逃到404了，还赖在批站的自动开除粉籍嗷<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+这群人自我感动、擅自期待又擅自失望的样子，真是有够好笑的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 22853#       发表于 2020-12-16 09:57
+
+
+
+
+两边发展不还是看主播个人能力么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22854#       发表于 2020-12-16 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736708&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-16 09:32</a>
+提问，在韩语母语、却喜欢日文的泡菜妹直播间，用韩语容易被认知还是日语容易被认知，
+
+
+你们想明白 ...</blockquote>
+上次roha和bora玩fg同时搞英语接力，最人上人的是英文评论“Where is English”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  维啊今天炸了吗  
+##### 22855#       发表于 2020-12-16 09:59
+
+
+
+ 本帖最后由 维啊今天炸了吗 于 2020-12-16 10:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要yhm做跨国市场分析，意识到文化，常识各方面的差异性是不是太异想天开了。且不说yhm能不能意识到保持客群平等的重要性，国v都天天为石油佬和普通用户的问题打起来，yhm要是真能做到公平，反而让我觉得佩服了
+syl 兔组在hcn刚出事时候的直播里透露出来的懂哥味儿让我作呕，而且事后证明大部分还是云的
+zsyl 有没有人能告诉我这个新参帝华组到底是为什么解散的啊
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 22856#       发表于 2020-12-16 09:59
+
+
+
+
+管人yhm的个人能力嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 22857#       发表于 2020-12-16 10:02
+
+
+
+
+不管是不是有预订好的企划，这企划是出事后在开完直播尼哥谭洗白，还没对逼宫b限这点道歉的从业员带头搞的就足够让人隔应了...哪怕是对兔组大部分人现在还在为兔子付出这点抱有很大的敬意，也没法消除从业员这傻逼还在跳给人带来的恶感
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 22858#       发表于 2020-12-16 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49735983&amp;ptid=1969498" target="_blank">丿焰丶 发表于 2020-12-16 07:51:40</a>
+挺乐的，看你们汴京，油管不能发中文是谁规定的，兔子那边甚至出现过几次中文版聊呢(没错，版聊)
+syl，油管 ...</blockquote>在兔子那边中文版聊的唯一结果就是引来一堆4V人好吧
+不过偶尔发点中文有一个好处，毕竟现在很多泥小将恨不得跳过糊和臭脚直接冲兔子，也算是变相提醒（？）就是这群丈育yhm能不能分清简繁体都是个问题就是了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                      
