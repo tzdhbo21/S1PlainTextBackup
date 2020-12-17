@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 14:06** 
+> ## **本文件最后更新于2020-12-17 16:04** 
 
 
 
@@ -16982,4 +16982,800 @@ VTB的话成品号肯定是不能买的
 
 
 
-                     
+
+
+-----
+
+####  qq845629713  
+##### 23359#       发表于 2020-12-17 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 只能说，华硕冲国区是有脑子的，不然当初真搞出来z490-白上版、z490-aqua版，那时候就晚了，
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 23360#       发表于 2020-12-17 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49750761&amp;ptid=1969498" target="_blank">水原薰 发表于 2020-12-17 14:05</a>
+华硕大陆区业务碾压日区业务呗，有钱不赚那不是傻逼嘛</blockquote>
+谁会跟钱过不去啊，做做样子装給pxj看看也不是不可能，“反正我们反馈发过去了，回不回应是他们的事”
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23361#       发表于 2020-12-17 14:11
+
+
+
+ 本帖最后由 掉头学姐 于 2020-12-17 14:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49750813&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-17 14:09</a>
+只能说，华硕冲国区是有脑子的，不然当初真搞出来z490-白上版、z490-aqua版，那时候就晚了， ...</blockquote>
+。
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 23362#       发表于 2020-12-17 14:12
+
+
+
+
+好像真取消了？乐了，泥哥赢麻了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 23363#       发表于 2020-12-17 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">华硕是4v牌子，有什么不能闹的
+
+这就当个把柄就行，友商再来搞一下，反正没坏处<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 23364#       发表于 2020-12-17 14:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就本子那pc市场懂的都懂，坐牢硕如果真的无视国区要求那确实死的不冤，现在pc市场下滑这么严重还要在最大pc市场玩骚操作那友商可太高兴了
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 23365#       发表于 2020-12-17 14:17
+
+
+
+
+黑屁不到nga 我还黑屁不了你crew？
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 23366#       发表于 2020-12-17 14:20
+
+
+
+
+动手本来就是贱民的义务，婆罗门没有输
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23367#       发表于 2020-12-17 14:22
+
+
+
+
+真取消了？我还以为华硕根本不理管人粉丝，看来这个圈子确实是大了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23368#       发表于 2020-12-17 14:23
+
+
+
+
+华硕什么瓜了？
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 23369#       发表于 2020-12-17 14:25
+
+
+
+
+华硕那个号之前不都出现过几次吗？之前是想商量给糊皇工商 是这个号吗?
+
+我怀疑早以化身暗黑萌萌人了，只是消息没nga快
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23370#       发表于 2020-12-17 14:27
+
+
+
+
+有实锤取消的消息吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 23371#       发表于 2020-12-17 14:28
+
+
+
+ 本帖最后由 フミさん 于 2020-12-17 14:40 编辑 
+
+华硕日本推特的推删了（好像也说本来就没发过），糊皇的推和直播间还没取消，现在应该是这样的一个情况。
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23372#       发表于 2020-12-17 14:30
+
+
+
+
+rog japan没发过推吧，那个b站号也把删推的那条动态删了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23373#       发表于 2020-12-17 14:30
+
+
+
+
+爬了一下隔壁的楼，懂了。
+
+嘛，真有这个必要么？
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23374#       发表于 2020-12-17 14:31
+
+
+
+
+他说稍晚会有公告
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23375#       发表于 2020-12-17 14:31
+
+
+
+
+不过到现在也没法确认华硕日本是发过推的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 23376#       发表于 2020-12-17 14:32
+
+
+
+ 本帖最后由 NBXX 于 2020-12-17 14:33 编辑 
+<blockquote>✨告知✨
+
+
+⏲2021年1/11　19:00~（JST)
+
+
+『マリオカート8DX　2021ホロライブお正月CUP』を開催します！！
+
+参加人数はなんと総勢25名…！？⚡😳
+
+
+2021年もっとも勢いのあるホロライブメンバーは誰だ！？
+
+ぜひお楽しみに…！💜🖤</blockquote>
+<[img src="https://i.loli.net/2020/12/17/3CLpXI876ylW5g9.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23377#       发表于 2020-12-17 14:34
+
+
+
+<blockquote>NBXX 发表于 2020-12-17 14:32
+</blockquote>
+免费……
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23378#       发表于 2020-12-17 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49751028&amp;ptid=1969498" target="_blank">shanzihao 发表于 2020-12-17 14:25</a>
+
+华硕那个号之前不都出现过几次吗？之前是想商量给糊皇工商 是这个号吗?
+
+我怀疑早以化身暗黑萌萌人了，只是 ...</blockquote>
+是这个号，追着狐姨发情的动态还没删呢。
+
+中之人倒是换了，之前那位好像已经被开了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23379#       发表于 2020-12-17 14:43
+
+
+
+<blockquote>NBXX 发表于 2020-12-17 14:32
+</blockquote>
+🦊：要哭了！要哭了！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23380#       发表于 2020-12-17 14:45
+
+
+
+<blockquote>NBXX 发表于 2020-12-17 14:32
+</blockquote>
+🦊：要哭了！要哭了！ 
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23381#       发表于 2020-12-17 14:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇夸皇的宿命对决，再一次。。。但是这次的胜利者也许会是某个新秀。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 23382#       发表于 2020-12-17 14:48
+
+
+
+
+好，那么摆在狐狸面前的问题是，今年又输给夸的话是该哭还是不哭呢？
+
+
+如果是卧薪尝胆苦练了马车来复仇的当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 23383#       发表于 2020-12-17 14:54
+
+
+
+
+不参加
+フレア、はあと、ココ、ころね、ミオ、そら
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 23384#       发表于 2020-12-17 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">上一次莫姨那申必配车就没想着要赢，这次肯定也是演员模式ON啦
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 23385#       发表于 2020-12-17 15:02
+
+
+
+
+华硕这事没什么经可以辩，谁能量大谁好使，口水仗打起来谁能有损失？没准华硕头铁之后发现销量还涨了，反正有人尴尬，但肯定不是我
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23386#       发表于 2020-12-17 15:03
+
+
+
+
+现在的鲨狗才能配得上以前的狐夸吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23387#       发表于 2020-12-17 15:03
+
+
+
+[https://jp.store.asus.com/store/ ... mpaign=HoloLive2020](https://jp.store.asus.com/store/asusjp/ja_JP/list/categoryID.5042753600/?utm_source=Youtube&amp;utm_medium=Refferal&amp;utm_campaign=HoloLive2020)页面目前还在
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23388#       发表于 2020-12-17 15:13
+
+
+
+
+没人汴京吧，都在看lga乐子
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 23389#       发表于 2020-12-17 15:19
+
+
+
+
+不是，为什么一个TW牌子这么嗯舔冲国DD
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23390#       发表于 2020-12-17 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49751597&amp;ptid=1969498" target="_blank">podball 发表于 2020-12-17 15:19</a>
+
+不是，为什么一个TW牌子这么嗯舔冲国DD</blockquote>
+官号运营一个人不能代表公司态度吧
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23391#       发表于 2020-12-17 15:22
+
+
+
+
+要恰饭的嘛，而且一个官号说话顶什么用<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lesismoe  
+##### 23392#       发表于 2020-12-17 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49751597&amp;ptid=1969498" target="_blank">podball 发表于 2020-12-17 15:19</a>
+
+不是，为什么一个TW牌子这么嗯舔冲国DD</blockquote>
+[看个好玩的](https://tw.answers.yahoo.com/question/index?qid=20100526000015KK04183)
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 23393#       发表于 2020-12-17 15:32
+
+
+
+
+这，狮子还转发了，真的有传达到吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千祀蛮巧  
+##### 23394#       发表于 2020-12-17 15:34
+
+
+
+<blockquote>死体残留 发表于 2020-12-17 11:42
+开不了sc怎么成为金游</blockquote>
+昨天说是因为会出现联动的鬼灭形象音乐所以不能开，联动过了能不能就不知道了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23395#       发表于 2020-12-17 15:36
+
+
+
+
+15.36，直播间，狐狸推特存活确认，446推特新增。
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 23396#       发表于 2020-12-17 15:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一个tw的牌子能这么长久在大陆赚钱不是很说明问题吗
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23397#       发表于 2020-12-17 15:42
+
+
+
+
+这么一说好多配件大厂都是TW阿 华硕 微星 技嘉 华擎 影驰
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 23398#       发表于 2020-12-17 15:46
+
+
+
+
+主流一线电脑配件厂全是台湾的，没办法的事
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 23399#       发表于 2020-12-17 15:50
+
+
+
+
+硅产业就是对岸支柱产业之一啊
+
+全球主流硅产业，对岸不直接做的也都有渊源/影响
+
+自产自销的各类牌子、代工、人才人脉……
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23400#       发表于 2020-12-17 15:58
+
+
+
+
+狐皇真要有你们说的那么巨魔，这次就玩“禅让”吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23401#       发表于 2020-12-17 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49751429&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-17 15:03</a>
+
+https://jp.store.asus.com/store/ ... mpaign=HoloLive2020页面目前还在</blockquote>
+页面被撤<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不会泥又赢了吧
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23402#       发表于 2020-12-17 16:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga赢麻了，好！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 23403#       发表于 2020-12-17 16:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23404#       发表于 2020-12-17 16:04
+
+
+
+
+好，如泥所愿
+
+
+
+
+
+                   
