@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 12:10** 
+> ## **本文件最后更新于2020-12-17 22:09** 
 
 
 
@@ -14572,10 +14572,15 @@ tc来了（虽然依然康不了
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 9战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 鷹書たかしょ| + 2|好评加鹅|
+| 专业划水人员| + 1|好评加鹅|
+| 素人不相识| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
 | Joffre✔| + 1||
 | Dualist彩| + 1|好评加鹅|
 | npfjcg| + 1||
@@ -14606,4 +14611,551 @@ tc来了（虽然依然康不了
 
 
 
-                      
+
+
+-----
+
+####  physi1202  
+##### 5317#       发表于 2020-12-17 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">是月卡 她肯定又偷偷去玩原神了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5318#       发表于 2020-12-17 12:14
+
+
+
+
+圣诞，我的圣诞直播<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5319#       发表于 2020-12-17 12:50
+
+
+
+
+看来今天挺不错的，下班之后该好好补一下了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5320#       发表于 2020-12-17 12:53
+
+
+
+
+所以够条件特定出是什么mmo没？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5321#       发表于 2020-12-17 14:19
+
+
+
+
+看描述像手游<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5322#       发表于 2020-12-17 14:41
+
+
+
+
+龙族
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5323#       发表于 2020-12-17 15:01
+
+
+
+
+她今天到底是彩排还是和朋友出去玩
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5324#       发表于 2020-12-17 15:23
+
+
+
+
+当然是彩排完和staff朋友出去玩啦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5325#       发表于 2020-12-17 15:28
+
+
+
+
+上上次送糖上次送药送口罩，猜猜这次士大夫会送什么<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5326#       发表于 2020-12-17 15:34
+
+
+
+
+减肥药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5327#       发表于 2020-12-17 15:37
+
+
+
+
+验孕棒和结婚证
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5328#       发表于 2020-12-17 15:44
+
+
+
+
+婴儿奶粉和婴儿车<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5329#       发表于 2020-12-17 16:06
+
+
+
+
+怎么又要在苔姨那里联动<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">还是有舞元的
+除非能拉个兔鞠打麻将，否则又<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5330#       发表于 2020-12-17 16:11
+
+
+
+
+那圣诞的圭利联动还有吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰封臧列  
+##### 5331#       发表于 2020-12-17 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752186&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2020-12-17 16:11</a>
+那圣诞的圭利联动还有吗</blockquote>
+犬山那儿是播片 不影响
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5332#       发表于 2020-12-17 16:51
+
+
+
+
+今天就这样没了吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 5333#       发表于 2020-12-17 16:53
+
+
+
+
+今天都两播了你还要啥自行车
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 5334#       发表于 2020-12-17 16:54
+
+
+
+
+没了啊，只能去nga找乐子了
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5335#       发表于 2020-12-17 16:57
+
+
+
+
+如果真是彩排明天也估计没了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5336#       发表于 2020-12-17 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752352&amp;ptid=1973472" target="_blank">冰封臧列 发表于 2020-12-17 16:26</a>
+
+犬山那儿是播片 不影响</blockquote>
+播片那个是8点,联动是10点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大概率一天找两个男人联动卜播了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5337#       发表于 2020-12-17 18:19
+
+
+
+
+两个男人比一个好啊， 说明不是非他不可<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5338#       发表于 2020-12-17 18:21
+
+
+
+
+一个男人不行，两个男人可以，十个小白脸射爆
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5339#       发表于 2020-12-17 19:07
+
+
+
+
+《总有一天轮到你》
+
+<img src="https://img.saraba1st.com/forum/202012/17/183513dmr44pp4zpj4ux2x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8C37B3EA-A673-4748-9612-3315FCCFFA72.jpeg</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-17 18:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5340#       发表于 2020-12-17 19:36
+
+
+
+
+那女人呢？气抖冷<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5341#       发表于 2020-12-17 19:39
+
+
+
+
+想多了， 一个人的一生才多少天
+
+就算在不重复的前提下抽中你的概率也
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 5342#       发表于 2020-12-17 19:49
+
+
+
+
+加加速 2分钟一个
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5343#       发表于 2020-12-17 20:25
+
+
+
+ 本帖最后由 A2014720 于 2020-12-17 20:48 编辑 
+
+才看到新的fleet，我也想当士大夫<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+等下怎么还有晕车药的？？？这你也敢要？？？
+
+
+这士大夫其实是哆啦O梦吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5344#       发表于 2020-12-17 21:11
+
+
+
+
+吃了药就困了，这什么剧情？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+           
+
+小麻记得关好门窗啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5345#       发表于 2020-12-17 21:15
+
+
+
+
+一夜过去<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5346#       发表于 2020-12-17 21:17
+
+
+
+
+在出租车上昏睡 起来发现有小小麻了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5347#       发表于 2020-12-17 21:50
+
+
+
+
+今早歌回的麻味好重 suki
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5348#       发表于 2020-12-17 22:08
+
+
+
+
+天真土妹子，真是好骗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+                     
