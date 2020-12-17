@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 00:05** 
+> ## **本文件最后更新于2020-12-17 14:06** 
 
 
 
@@ -8141,10 +8141,12 @@ nano这事我觉得没有白皮也不会烧成这样
 
 
 
- 参与人数 9战斗力 +1
+ 参与人数 11战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 暗的歌奏| + 1|思路广|
+| 胧楼| + 2|v综自然是看不起b站的。|
 | winda|-1|平台入脑|
 | Finsty| + 1|确实|
 | argaregeasr| + 1|没毛病啊，回血|
@@ -15617,7 +15619,7 @@ zsyl要被晃吐了吐了
 <img src="https://img.saraba1st.com/forum/202012/16/205642xt9my4mny1ym2m46.png" referrerpolicy="no-referrer">
 
 
-<strong>【#卯月コウ3D】俺が卯月コウになる配信-4.png</strong> (717.15 KB, 下载次数: 0)
+<strong>【#卯月コウ3D】俺が卯月コウになる配信-4.png</strong> (717.15 KB, 下载次数: 1)
 
 下载附件
 
@@ -15755,7 +15757,7 @@ met意外地高。rin怎么那么低，还不如人家新人<img src="https://st
 <img src="https://img.saraba1st.com/forum/202012/16/222610r4dhfk2k92fmhz9t.png" referrerpolicy="no-referrer">
 
 
-<strong>。.png</strong> (1.07 MB, 下载次数: 0)
+<strong>。.png</strong> (1.07 MB, 下载次数: 1)
 
 下载附件
 
@@ -16242,4 +16244,742 @@ sly,看来在油管眼中根本没有箱的概念，天下V圈是一家 ...</blo
 
 
 
-                      
+
+
+-----
+
+####  sgssk  
+##### 23316#       发表于 2020-12-17 00:12
+
+
+
+<blockquote>柊彩香
+
+@Ayaka_Hiragi
+
+来週の配信でやること決めた　いつもより遅い時間にやるわ</blockquote>草，老姐啊我是听你歌迷上你的，着实不是很希望你这晚点播是播奥术魔刃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">整不出活就去跟u社对线啊！
+
+u社究竟是主动放弃自由放养了，还是几边企划忙不过来带点中人自己因素而临时搁置了呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">猜也猜不出名堂，睡觉算了
+
+
+顺带她还不知道什么时候把置顶推换成了5月的fixer20W再生感谢，过于看不懂实际意义，谜
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23317#       发表于 2020-12-17 00:38
+
+
+
+
+不奇怪啊，不奇怪，小少爷的雌堕本真的很多
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 23318#       发表于 2020-12-17 00:48
+
+
+
+
+昨天的v吞司这个基本不走动的人对静冈的反应好微妙，舞元一diss静冈就立马很神秘的はい的打断了。
+
+还对静冈的鱼港这么熟，对东京场live重开的反应也是最大的，虽然知道你有在看皇女直播，但至于这么激动吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+syl，苔姨和皇女的联动封面怎么还加了自bantalk以来的，有什么联系吗（
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 23319#       发表于 2020-12-17 01:09
+
+
+
+ 本帖最后由 寒星 于 2020-12-17 01:32 编辑 
+
+算了，想想在你楼发这个没啥意思，拉夫变种而已
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 23320#       发表于 2020-12-17 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49739276&amp;ptid=1969498" target="_blank">papapapadopoulo 发表于 2020-12-16 12:43</a>
+那个烤英肉的内鬼是猴楼爆炸之前就烤了，炸了之后他退圈了，可喜可贺。不过她油管直播间的英语同传是不是中 ...</blockquote>
+懂了，下次ccll开播我也去当英语同传
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23321#       发表于 2020-12-17 08:46
+
+
+
+ 本帖最后由 黑之和 于 2020-12-17 08:48 编辑 
+
+小少爷
+ssr
+<img src="https://p.sda1.dev/0/80006d671d411434d9ccc61c99084b35/IMG_CMP_61384800.jpeg" referrerpolicy="no-referrer">
+[https://twitter.com/sikinoyuki/status/1339151284495032320](https://twitter.com/sikinoyuki/status/1339151284495032320)
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 23322#       发表于 2020-12-17 08:49
+
+
+
+<blockquote>万花筒 发表于 2020-12-16 23:20
+b站首页刷到了露露直播中昏倒的短视频，请问是哪一天的直播啊？想看看全程。看今天的直播挺正常，应该没事 ...</blockquote>
+就3天前，下播的时候
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 23323#       发表于 2020-12-17 10:21
+
+
+
+
+辗转反侧想了一晚上，快2021了斯巴鲁播个gbf还有三万人同接，三万！之前虹杏联动狐狸兔头加起来也就三万吧，艹，我们骑空士是真热情，傻逼kmr fkhr不配，艹
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23324#       发表于 2020-12-17 10:29
+
+
+
+
+下一个管人金游决定了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23325#       发表于 2020-12-17 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2434新衣卫星里竟然混了个卵用的女装，seed1期现在还没女装的是不是只有社筑了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23326#       发表于 2020-12-17 10:41
+
+
+
+
+gbf春晚都有20w人看，不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23327#       发表于 2020-12-17 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49748340&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-17 10:36</a>
+2434新衣卫星里竟然混了个卵用的女装，seed1期现在还没女装的是不是只有社筑了 ...</blockquote>
+对，而且现在推上还没有社女装fanart，这不合理<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 23328#       发表于 2020-12-17 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">gbf这破游486肯定玩不下去的，最好也别玩下去
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23329#       发表于 2020-12-17 11:36
+
+
+
+
+有数字为什么不玩？每天一小时轻松周回赚个同接和订阅不好么
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 23330#       发表于 2020-12-17 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">开不了sc怎么成为金游
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23331#       发表于 2020-12-17 11:46
+
+
+
+ 本帖最后由 fangjun96 于 2020-12-17 11:53 编辑 
+
+华硕倒是又找了杏来宣传硬件，硬实力冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 23332#       发表于 2020-12-17 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49749004&amp;ptid=1969498" target="_blank">holoan 发表于 2020-12-17 11:36</a>
+
+有数字为什么不玩？每天一小时轻松周回赚个同接和订阅不好么</blockquote>
+看你不知道给你说声，她昨晚播了三个小时，大部分时间都花在主线剧情上了。
+
+剧情播完就没得播了。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 23333#       发表于 2020-12-17 12:14
+
+
+
+
+隔壁武德真能把华硕也橄榄了也是好事<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23334#       发表于 2020-12-17 12:14
+
+
+
+
+算上打不过农盘子的时间，gbf播主线剧情大概能播几个月<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23335#       发表于 2020-12-17 12:17
+
+
+
+
+手游直播的核心内容当然是抽卡了
+
+剧情有结束卡池会结束吗？
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 23336#       发表于 2020-12-17 12:25
+
+
+
+
+我GBF和PCR剧情全都SKIP的，要是有看的V同时视听还是有兴趣的，不过PCR不提，GBF主线后面还是需要盘子的不然打不过就是了
+
+不过另一方面剧情活动倒是基本脚打，但是要想享受活动还是得有个基本人物关系认识
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 23337#       发表于 2020-12-17 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发“z?kkp？”给阳光巨乳妹总比给白色坦克来得好一点
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23338#       发表于 2020-12-17 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49749494&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-17 12:14</a>
+
+算上打不过农盘子的时间，gbf播主线剧情大概能播几个月</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">课的足够多就不需要农盘子！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23339#       发表于 2020-12-17 12:41
+
+
+
+
+gbf这主线剧情太长了而且也没太大意思 反正我18年4月入坑时是直接看了几章就全skip急着去开六婊了 后面也是疯狂skip   活动剧情不skip感觉已经是我的极限 本质农的游戏
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23340#       发表于 2020-12-17 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49749634&amp;ptid=1969498" target="_blank">yla 发表于 2020-12-17 12:26</a>
+课的足够多就不需要农盘子！</blockquote>
+gbf要硬氪当年有个著名截图是充值卡论斤氪......
+问题是就算这样如果是刚入坑的话那堆大量的非氪金游戏内制作东西你没有也是就没用，不如直接买成型号
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23341#       发表于 2020-12-17 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49749814&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-17 12:44</a>
+
+gbf要硬氪当年有个著名截图是充值卡论斤氪......
+
+问题是就算这样如果是刚入坑的话那堆大量的非氪金游戏内 ...</blockquote>
+VTB的话成品号肯定是不能买的
+
+一开始等级低根本进不了做武器的本也没办法
+
+现在月中一堆东西都能井，重课还是能直接课出个能用的盘子的
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23342#       发表于 2020-12-17 13:43
+
+
+
+
+日本华硕的广告关你大陆区啥事<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这能橄榄就出鬼了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23343#       发表于 2020-12-17 13:44
+
+
+
+
+郡道晚上九点跟哈弟狮子神一起apex，
+一个很会打apex一个比较会打apex还很会唱歌，郡道.......很会讲相声？
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23344#       发表于 2020-12-17 13:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/17/134542y4gyy6z6e1y11z16.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201217134400.png</strong> (11.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-17 13:45 上传
+
+
+
+
+
+不会真没了吧
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23345#       发表于 2020-12-17 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 23346#       发表于 2020-12-17 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 23347#       发表于 2020-12-17 13:48
+
+
+
+
+泥潭费拉，泥哥武德
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23348#       发表于 2020-12-17 13:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是我贷款黑屁被打脸了吗
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23349#       发表于 2020-12-17 13:49
+
+
+
+
+尼哥又赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 23350#       发表于 2020-12-17 13:49
+
+
+
+
+泥哥不赢你坛就看乐子，泥哥赢了holo就输，最后赢的是S1！我们是冠军！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 23351#       发表于 2020-12-17 13:54
+
+
+
+
+只要1v1中没有S1,S1就不会输了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23352#       发表于 2020-12-17 14:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">NGA那边号召抵制的帖子一发就锁，怎么还能赢的
+
+
+
+
+
+
+
+-----
+
+####  一夜四次羊  
+##### 23353#       发表于 2020-12-17 14:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 23354#       发表于 2020-12-17 14:02
+
+
+
+
+话说这rog的b站账号的表态也挺迷的，中国区还管得了日本区么
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23355#       发表于 2020-12-17 14:03
+
+
+
+
+不会这个ok是已经反映了还没有回复的意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23356#       发表于 2020-12-17 14:04
+
+
+
+
+学莉莉丝，国服管不到就完了。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23357#       发表于 2020-12-17 14:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 23358#       发表于 2020-12-17 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49750725&amp;ptid=1969498" target="_blank">梅斯之围 发表于 2020-12-17 14:02</a>
+话说这rog的b站账号的表态也挺迷的，中国区还管得了日本区么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">华硕大陆区业务碾压日区业务呗，有钱不赚那不是傻逼嘛
+
+
+
+
+
+                     
