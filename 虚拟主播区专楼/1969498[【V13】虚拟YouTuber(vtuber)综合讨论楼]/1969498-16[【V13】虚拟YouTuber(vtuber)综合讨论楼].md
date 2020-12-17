@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 22:04** 
+> ## **本文件最后更新于2020-12-18 00:09** 
 
 
 
@@ -19086,10 +19086,11 @@ nga每日一赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 
 
- 参与人数 5战斗力 -2
+ 参与人数 6战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 轩辕无|-1|欢乐多|
 | lovcavil|-2|好评加鹅|
 | admentus| + 1|均衡教派|
 | JoelBirch|-1|神经病啊|
@@ -20499,10 +20500,11 @@ inui的英文发音很标准阿，果然水平不低省一楼，这样两家马�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ylssb10438| + 1|短发suki|
 | 目力干员leison| + 1||
 
 
@@ -21024,4 +21026,250 @@ SYL：
 
 
 
-              
+
+
+-----
+
+####  fghc_h  
+##### 23579#       发表于 2020-12-17 22:17
+
+
+
+
+一个字，稳
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 23580#       发表于 2020-12-17 22:37
+
+
+
+
+玩了一周2077回来看管人，发现油管bug好像还没修好，真的太棒了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23581#       发表于 2020-12-17 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49755196&amp;ptid=1969498" target="_blank">pliee 发表于 2020-12-17 21:48</a>
+
+咋还要哭上了。。点进去看的我一脸蒙蔽</blockquote>
+因为这个迟来的mv多吃了100+差评 氛围渲染过头
+
+本来ver2.0披露目是安排在10月份复归那时发表的推迟了2个月，mv是几个月前已经准备好的
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 23582#       发表于 2020-12-17 22:54
+
+
+
+
+今天乐子太大了。早上还在疯狂嘲笑GOG的事情，下午没想到来了个更大的。
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 23583#       发表于 2020-12-17 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿希说下个月要做一个推荐三个月内出道的新人v的企划
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23584#       发表于 2020-12-17 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49756001&amp;ptid=1969498" target="_blank">えびふらいおん 发表于 2020-12-17 23:30</a>
+阿希说下个月要做一个推荐三个月内出道的新人v的企划</blockquote>
+阿希，在做什么共荣圈的美梦<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23585#       发表于 2020-12-17 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希年纪大了会变成艾琳或者mega（她俩都搞过推荐底边那一套，虽然我觉得是作秀热度）那种样子吗。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23586#       发表于 2020-12-17 23:38
+
+
+
+
+阿希是真的为了这个圈子好的，希望你们不要骂她傻逼了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23587#       发表于 2020-12-17 23:39
+
+
+
+
+虽然，但是你楼两个月前：“怎么还有推整个圈子的傻逼”
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23588#       发表于 2020-12-17 23:41
+
+
+
+
+你们再这么捧下去我都要变成祭丝了（吐
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23589#       发表于 2020-12-17 23:42
+
+
+
+
+看来芙宝今晚心情真的不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 23590#       发表于 2020-12-17 23:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马自立:大家一起友好相处不好吗
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 23591#       发表于 2020-12-18 00:04
+
+
+
+
+感觉阿泡变成祭丝不会让楼里的祭丝感觉多高兴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23592#       发表于 2020-12-18 00:05
+
+
+
+
+市井女人中的理想主义者－－佐藤希
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 23593#       发表于 2020-12-18 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49755107&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-17 21:40</a>
+
+3d 2.0，天皇之后是35啊</blockquote>
+上皇以后是35，cover的名字叫念旧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+             
