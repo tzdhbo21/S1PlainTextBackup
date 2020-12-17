@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 16:04** 
+> ## **本文件最后更新于2020-12-17 18:06** 
 
 
 
@@ -17428,9 +17428,10 @@ rog japan没发过推吧，那个b站号也把删推的那条动态删了
 
 
 
+ 本帖最后由 絵生voice 于 2020-12-17 16:48 编辑 
 
 不参加
-フレア、はあと、ココ、ころね、ミオ、そら
+はあと、ココ、ころね、ミオ、そら
 
 
 
@@ -17778,4 +17779,1628 @@ https://jp.store.asus.com/store/ ... mpaign=HoloLive2020页面目前还在</bloc
 
 
 
-                   
+
+
+-----
+
+####  wiig  
+##### 23405#       发表于 2020-12-17 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">官推下面还有假的Ollie在搅混水
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 23406#       发表于 2020-12-17 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说VTB就小众圈子吗，小众圈子的小众论坛NGA V区能量这么大？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23407#       发表于 2020-12-17 16:09
+
+
+
+
+这件事我站尼哥的，喂cover吃屎永远不嫌多，不要停，继续喂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23408#       发表于 2020-12-17 16:12
+
+
+
+ 本帖最后由 kikiwalu 于 2020-12-17 16:13 编辑 
+
+糊皇推下头那个糊狮大脸猫玩坦克世界的回复可太不基德了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23409#       发表于 2020-12-17 16:18
+
+
+
+
+赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">尼哥牛逼
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23410#       发表于 2020-12-17 16:24
+
+
+
+
+不过那边赢，v综永远看戏不会输
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 23411#       发表于 2020-12-17 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752154&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-17 16:09</a>
+
+这件事我站尼哥的，喂cover吃屎永远不嫌多，不要停，继续喂</blockquote>
+就算工商取消了，cover也能拿违约金啊，这波不亏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+再说了送出去的东西rog还能要回来不成
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23412#       发表于 2020-12-17 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼哥能闹当然有能量，闹这事情人少都能放大
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  依旧ing  
+##### 23413#       发表于 2020-12-17 16:26
+
+
+
+
+不是挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+rog收获了一波v⭕口碑，有了爱国buff可以继续大摇大摆卖660p；泥哥一直在赢，一路凯歌武德充沛；s1在人类观察中收获了快乐和语录截图。只有木口受伤的世界完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 23414#       发表于 2020-12-17 16:28
+
+
+
+
+狐假虎威罢了
+
+
+
+
+
+
+
+-----
+
+####  mus2012  
+##### 23415#       发表于 2020-12-17 16:29
+
+
+
+
+噗噗。违约金撑死才多少，这种宣传都放出来的工商又被取消的扇脸事件，大概能给其他没搞清楚状况的企业认清现实
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 23416#       发表于 2020-12-17 16:30
+
+
+
+
+狮白毒奶功力过高，狼半仙二代
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23417#       发表于 2020-12-17 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752357&amp;ptid=1969498" target="_blank">依旧ing 发表于 2020-12-17 16:26</a>
+
+不是挺好
+
+rog收获了一波v⭕口碑，有了爱国buff可以继续大摇大摆卖660p；泥哥一直在赢，一路凯歌武德 ...</blockquote>
+木口能拿到rog的违约金吧
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 23418#       发表于 2020-12-17 16:31
+
+
+
+
+给点不够塞牙缝的违约金嘛，也就这样了
+
+这种工商也不会有送什么实体东西到cover那的吧，是节目内给优惠码然后到特定页面购买的形式
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23419#       发表于 2020-12-17 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次工商是送了笔记本电脑来着，这次就不知道了。
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 23420#       发表于 2020-12-17 16:32
+
+
+
+
+《她不同意》
+
+页面都撤了，看看狐坦什么时候删推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 23421#       发表于 2020-12-17 16:33
+
+
+
+ 本帖最后由 Kanchiki 于 2020-12-17 17:04 编辑 
+
+编辑了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23422#       发表于 2020-12-17 16:34
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-17 16:36 编辑 
+
+反正按照中国这边的赞助合同可以不给，艺人风评不能出现问题是肯定写在条款里的。就算万一中的万一没写，搞得你cover敢去告华硕一样。
+
+不如说尼哥坛事情还没做绝，如果真上了之后去烧，代言期间艺人出PR问题是要倒过来赔厂商钱的。
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 23423#       发表于 2020-12-17 16:35
+
+
+
+
+草，虽然昨天弱智尼哥车我nano，不过这回属实不赖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该买一块打人硕的RTX3070叻，听说这回tuf性价比不错
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23424#       发表于 2020-12-17 16:36
+
+
+
+
+FBK删推了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23425#       发表于 2020-12-17 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 木口也没输阿，拿到了违约金，
+
+
+反倒是打人硕这边赔偿了违约金给“净土宗最讨厌”的木口本社，
+
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23426#       发表于 2020-12-17 16:36
+
+
+
+
+我就等着删推撤直播间一条龙，然后开打世界大战了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23427#       发表于 2020-12-17 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">木口还有胆子接cn企业工商也是挺草的，老老实实找个金主靠山挖本土工商吧。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23428#       发表于 2020-12-17 16:36
+
+
+
+
+以后谁说糊姨是功利逼我跟谁急，商品都给撤了还硬播，这种雷锋精神国内都不多见了😭
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23429#       发表于 2020-12-17 16:38
+
+
+
+ 本帖最后由 nowaki 于 2020-12-17 16:39 编辑 
+
+严格来说这是家cn4v企业
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23430#       发表于 2020-12-17 16:38
+
+
+
+
+怎么没胆接，有人敢给就敢接，到时候撤掉粉丝心疼一波又打钱了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23431#       发表于 2020-12-17 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752461&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-17 16:36</a>
+
+FBK删推了</blockquote>
+推还在，只是取消转推了，已经能想到狐皇气急败坏转推yygq的样子，然后被运营安抚命令取消了转推。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23432#       发表于 2020-12-17 16:38
+
+
+
+
+视频私享了！赢了赢了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 23433#       发表于 2020-12-17 16:38
+
+
+
+
+直播撤了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23434#       发表于 2020-12-17 16:39
+
+
+
+
+直播也撤了好像
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23435#       发表于 2020-12-17 16:39
+
+
+
+ 本帖最后由 空集 于 2020-12-17 16:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 作为法律工作者看到老是动不动谈违约金和合同还挺莫名的，你起码得先涉诉 ，包括和b之前也是，又不是货物买卖合同或者借款合同那么单纯，合作类的合同关系优先还轮不到违约金。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 23436#       发表于 2020-12-17 16:39
+
+
+
+
+赢麻了赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 23437#       发表于 2020-12-17 16:40
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23438#       发表于 2020-12-17 16:40
+
+
+
+
+好！尼哥牛逼！这次是真心的！
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23439#       发表于 2020-12-17 16:40
+
+
+
+
+那下次我也买华硕支持下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23440#       发表于 2020-12-17 16:42
+
+
+
+
+赢了赢了
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23441#       发表于 2020-12-17 16:44
+
+
+
+
+很难不支持，呆等着慢性死亡吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23442#       发表于 2020-12-17 16:45
+
+
+
+
+这件事还有一个看点是打人硕作为跨国企业沟通效率好高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23443#       发表于 2020-12-17 16:45
+
+
+
+
+油管好智能啊，前几天郡道刚聊到自己看了葛叶被童田称呼为葛叶ちゃん的剪辑，今天就推给我了，明明是两个月前的视频了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23444#       发表于 2020-12-17 16:45
+
+
+
+
+说实话这次有点太快了吧，国区话语权这么大？一个电话过去就没了？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23445#       发表于 2020-12-17 16:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">还是不懂为啥国区运营可以影响到日区的活动
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 23446#       发表于 2020-12-17 16:47
+
+
+
+
+听说国区占了华硕全球市场的40%（道听途说未验证）
+那确实可以站在你的头上拉屎
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 23447#       发表于 2020-12-17 16:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49751124&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-17 14:32</a></blockquote>
+常闇トワエイリアンホロライブ4期生
+@tokoyamitowa
+フレア先輩も参加できるようで
+なんと総勢26名になりましたよ～～赤いビックリマーク赤いビックリマークエイリアン炎
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 23448#       发表于 2020-12-17 16:49
+
+
+
+
+证明日本人的确不买pc<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23449#       发表于 2020-12-17 16:49
+
+
+
+
+怎么说好的国区公告还没出，等着拿公告去跳4v脸，然后就能打起来了
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 23450#       发表于 2020-12-17 16:49
+
+
+
+
+最大市场在大陆，最大生产地也是大陆，各地给了那么多政策优惠，打人硕大陆区话语权压一头也很正常。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23451#       发表于 2020-12-17 16:50
+
+
+
+
+同样是出现了公关危机，员工近2W人的跨国企业华硕用半天就沟通解决了问题，员工百人左右的创业公司cover上上下下便秘了一个月最后放了个屁。
+
+
+太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 23452#       发表于 2020-12-17 16:51
+
+
+
+
+泥潭赢麻了，然后心动撤掉白上女士的曲子了吗？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23453#       发表于 2020-12-17 16:52
+
+
+
+
+上次那个日本乐子人拿蝗钓鱼直播猪厂的荒野，猪厂不也反应超级快，播了到一半日本运营就打电话过来了，视频中还直接用google翻译了句 中文抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23454#       发表于 2020-12-17 16:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 对于白上来说，只是一次工作取消了，说不定快乐的打的吃叙叙苑了呢（yagoo请客哦
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 23455#       发表于 2020-12-17 16:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">赢麻了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23456#       发表于 2020-12-17 16:58
+
+
+
+
+EMA
+
+@eumza1
+
+·
+
+13m
+
+クリスマスケーキ予約したよ！1人だけど
+
+
+
+我不信，misumi我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 23457#       发表于 2020-12-17 16:59
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-17 17:00 编辑 
+
+拿到违约金也算赢的话那我祝杏每天都赢，赢麻
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23458#       发表于 2020-12-17 16:59
+
+
+
+
+打人硕这是屁股直接相关的企业，4V问题绝对是一刀切，心动这种互联网公司的屁股可就模糊多了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23459#       发表于 2020-12-17 17:00
+
+
+
+
+【放送中止のお知らせ】
+
+２０時から予定してました紹介放送なのですが
+諸事情により本日の放送は中止になりました。
+
+楽しみに待っててくれた皆さんには申し訳ございません。
+よろしくお願いいたします。
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23460#       发表于 2020-12-17 17:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/17/170011xpwbgcpg1ppcfcmi.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201217165717.png</strong> (45.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-17 17:00 上传
+
+
+
+
+
+真没了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 23461#       发表于 2020-12-17 17:01
+
+
+
+
+nga大战5ch，开始了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23462#       发表于 2020-12-17 17:02
+
+
+
+
+郡道被anti骂是メスガキ，然后直接截出来怼了，正在激寒幼女rp，难顶
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23463#       发表于 2020-12-17 17:03
+
+
+
+
+5ch能有什么直接相关，没啥作用的，现在比较有意思的是看4v白皮能带多少节奏
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23464#       发表于 2020-12-17 17:03
+
+
+
+
+狐狸这一口屎吃下去又要找人发泄了，夸夸我们要不马车大赛不参加了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 23465#       发表于 2020-12-17 17:04
+
+
+
+<blockquote>坂田金时kin 发表于 2020-12-17 17:03
+5ch能有什么直接相关，没啥作用的，现在比较有意思的是看4v白皮能带多少节奏 ...</blockquote>
+炎上日本华硕啊，不过日本华硕真的有份额么。。
+
+
+
+
+
+
+
+-----
+
+####  nocode  
+##### 23466#       发表于 2020-12-17 17:04
+
+
+
+
+如果白皮炎上了能不能诱导他们去冲良心想？实现双赢局面<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|未曾设想的道路|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 23467#       发表于 2020-12-17 17:05
+
+
+
+
+nga每日一赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23468#       发表于 2020-12-17 17:06
+
+
+
+
+一鼓作气是不是sega也给他端了？
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 23469#       发表于 2020-12-17 17:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/17/170751vdg7mpgvd11eiap4.gif" referrerpolicy="no-referrer">
+
+
+<strong>bf976b12gy1g91f1a9btng206o06ond3.gif</strong> (583.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-17 17:07 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23470#       发表于 2020-12-17 17:09
+
+
+
+
+白皮能闹出什么事来，红迪0帖相关一片净土，4chan也是几个老词反复说，战斗力比s1还费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23471#       发表于 2020-12-17 17:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有什么nga大战5ch啊，nga和5ch都没有那种影响力，他们能做的只有反馈罢了，本质上还是在当前环境下华硕做出了正确（或者说唯一）的选择，事实上虽然一直车心动，但心动也确实没收了杏的版权。华硕还是强在效率高，心动还没确定要不要违约，华硕就坚定了即使违约也要避免此事。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23472#       发表于 2020-12-17 17:10
+
+
+
+<blockquote>nocode 发表于 2020-12-17 17:04
+如果白皮炎上了能不能诱导他们去冲良心想？实现双赢局面</blockquote>
+那你虹真是永远输，联想算是虹的大金主了，这下子真的可以实现一统了
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23473#       发表于 2020-12-17 17:10
+
+
+
+
+这次不能像上次md那样打差评，抵制都不知道怎么抵制
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 23474#       发表于 2020-12-17 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">华硕要是够巨魔，就该给彩虹一个工商
+
+我不信谁能去冲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 23475#       发表于 2020-12-17 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752816&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-17 17:06</a>
+
+一鼓作气是不是sega也给他端了？</blockquote>
+世嘉的樱花大战手游暴死了，不需要端
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23476#       发表于 2020-12-17 17:11
+
+
+
+
+别骂了别骂了，旧时代人只想好好养老而已<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23477#       发表于 2020-12-17 17:12
+
+
+
+
+换个角度打人硕海外没工商成，反而把泥哥和pxj给工商了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23478#       发表于 2020-12-17 17:13
+
+
+
+
+你们赢了，虽然是crew我也不爽了。
+
+晚上找女朋友看电影去，傻逼管人，傻逼管人观众。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch|-1|神经病啊|
+| 星の守|-1|野兔子差不多得了|
+| 目力干员leison| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23479#       发表于 2020-12-17 17:15
+
+
+
+
+其实这就是和碧蓝那种一批的cn部分损失没切干净的延迟生效罢了，挺预料之中的，三酱没必要敲锣打鼓，差不多得了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 23480#       发表于 2020-12-17 17:17
+
+
+
+
+不是怎么还有人以为华硕给了holo定金，取消就没收定金吗？要违约金那得cover去告华硕，我支持去告，最好打个几年官司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 23481#       发表于 2020-12-17 17:19
+
+
+
+
+Cover坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23482#       发表于 2020-12-17 17:19
+
+
+
+
+怕不是官司没打完你呆就無了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23483#       发表于 2020-12-17 17:20
+
+
+
+
+yy那么多有什么意义，说出违约金就挺弱智的，有就有，没有就没有，就那么简单
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23484#       发表于 2020-12-17 17:23
+
+
+
+
+ATLUS能不能拿出华硕一半的速度让calli玩上P3<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 23485#       发表于 2020-12-17 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好赢，这波得支持。去推特评论里拱火一下
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 23486#       发表于 2020-12-17 17:27
+
+
+
+
+为什么工商没了啊，说不定是“技术原因”呢
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 23487#       发表于 2020-12-17 17:35
+
+
+
+
+建议再开一座观察nga楼来平衡一下
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23488#       发表于 2020-12-17 17:42
+
+
+
+
+fs能不能拿出华硕一半速度让inacalli玩上黑魂
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 23489#       发表于 2020-12-17 17:45
+
+
+
+
+FS小作坊哪有闲心公关这屁事儿，抓紧做老头环吧，国内外魂圈天天发疯，急<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23490#       发表于 2020-12-17 17:45
+
+
+
+
+この後「正しくなれない」配信記念、少しTwin Piano Liveも。
+[https://www.youtube.com/watch?v=mVg2DXVHWZk](https://www.youtube.com/watch?v=mVg2DXVHWZk)
+
+
+ずっと真夜中でいいのに。少见的生唱直播，快来。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 23491#       发表于 2020-12-17 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49753190&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-17 17:45</a>
+FS小作坊哪有闲心公关这屁事儿，抓紧做老头环吧，国内外魂圈天天发疯，急 ...</blockquote>
+他最好慢点，再来个2077我受不了啊
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 23492#       发表于 2020-12-17 17:50
+
+
+
+
+之前不是微软的谁已经玩到老头环了吗，好歹播个片解解瘾啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23493#       发表于 2020-12-17 17:51
+
+
+
+
+管人好好听听别人真正的实力，再想想自己的斤两，别在那直播嗯翻了，就没有不车祸的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 23494#       发表于 2020-12-17 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49753249&amp;ptid=1969498" target="_blank">ylssb10438 发表于 2020-12-17 17:50</a>
+之前不是微软的谁已经玩到老头环了吗，好歹播个片解解瘾啊</blockquote>
+微软的大佬不放洋屁不舒服的，快算了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 23495#       发表于 2020-12-17 17:54
+
+
+
+
+真希望ACAね和ikura多搞点直播<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 23496#       发表于 2020-12-17 17:58
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-17 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49753222&amp;ptid=1969498" target="_blank">wiig 发表于 2020-12-17 17:48</a>
+他最好慢点，再来个2077我受不了啊
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+之前爆料春季就该有新消息了，按工期算也差不多，就算受疫情影响……这游戏也早该过了中期工程，毕竟FS现在手里要么一个这一个装甲核心，要么全力老头环，进程应该问题不大
+
+
+
+
+
+                
