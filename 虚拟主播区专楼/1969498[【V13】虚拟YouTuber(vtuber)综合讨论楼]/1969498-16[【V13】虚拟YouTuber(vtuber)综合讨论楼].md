@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 00:09** 
+> ## **本文件最后更新于2020-12-18 10:03** 
 
 
 
@@ -18733,7 +18733,7 @@ EMA
 <img src="https://img.saraba1st.com/forum/202012/17/170011xpwbgcpg1ppcfcmi.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20201217165717.png</strong> (45.89 KB, 下载次数: 0)
+<strong>QQ截图20201217165717.png</strong> (45.89 KB, 下载次数: 1)
 
 下载附件
 
@@ -19463,7 +19463,7 @@ FS小作坊哪有闲心公关这屁事儿，抓紧做老头环吧，国内外魂
 <img src="https://img.saraba1st.com/forum/202012/17/181249kkgo8zv8rv9ctdgd.png" referrerpolicy="no-referrer">
 
 
-<strong>c68c959acaec610c5047bc86d1f3cecaaf07ce09.png@518w.png</strong> (648.04 KB, 下载次数: 0)
+<strong>c68c959acaec610c5047bc86d1f3cecaaf07ce09.png@518w.png</strong> (648.04 KB, 下载次数: 1)
 
 下载附件
 
@@ -21272,4 +21272,389 @@ SYL：
 
 
 
-             
+
+
+-----
+
+####  JoelBirch  
+##### 23594#       发表于 2020-12-18 00:16
+
+
+
+
+月灵姐转了茉莉花20W播放祝贺推，之后四连推
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 23595#       发表于 2020-12-18 00:20
+
+
+
+
+你们这些黑佐藤希的，要知耻
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 23596#       发表于 2020-12-18 00:41
+
+
+
+
+祭丝赶紧出道啊，特别是女祭丝，贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23597#       发表于 2020-12-18 00:50
+
+
+
+
+不也挺好么？让大家看看她会推哪些新人，会不会推底边。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 23598#       发表于 2020-12-18 00:54
+
+
+
+
+马自立真好啊……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23599#       发表于 2020-12-18 01:05
+
+
+
+
+ema新曲有<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 23600#       发表于 2020-12-18 01:10
+
+
+
+
+盐天使：中国語にしたい（勉強がてら
+
+…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 23601#       发表于 2020-12-18 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 23602#       发表于 2020-12-18 01:41
+
+
+
+
+？？？？这人怎么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脑回路
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 23603#       发表于 2020-12-18 01:46
+
+
+
+
+苔总突击直播追忆信姬
+
+太牛逼啦，虚拟追悼会，太v了太v了
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 23604#       发表于 2020-12-18 02:24
+
+
+
+
+人還在hololive那好好的追悼個毛綫啊，這也太V了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23605#       发表于 2020-12-18 03:01
+
+
+
+
+不速报，rog B站动态删除，另传新增新媒体运营职位**。
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 23606#       发表于 2020-12-18 03:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49756526&amp;ptid=1969498" target="_blank">MisForTunez 发表于 2020-12-18 01:10</a>
+盐天使：中国語にしたい（勉強がてら
+
+…</blockquote>
+结合上下文语境，是指想把apex的语音换成中文。
+然而事实证明，想通过游戏语音来学习外语，都是在骗自己。<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23607#       发表于 2020-12-18 08:21
+
+
+
+
+看到了吧，惹恼我们木口的下场就是开除，
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23608#       发表于 2020-12-18 08:25
+
+
+
+
+我全都要.jpg
+
+
+
+
+
+
+1092CE5A-BA4B-43DB-9AC9-DF5087739C27.jpeg
+(67.11 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-18 08:24 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/082454rd2y3k52kyx2d27j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23609#       发表于 2020-12-18 08:47
+
+
+
+ 本帖最后由 yla 于 2020-12-18 08:50 编辑 
+
+rog那个官方动态跳脸就跳了，最后来一句木口nmsl，这不被开都不可能。
+
+syl 昨晚看阿委马车有感，这mii怎么还能捏出扎古，dcd这些东西的
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 23610#       发表于 2020-12-18 09:10
+
+
+
+
+开不开小编另说 我今天就要看到那个要去华硕总部举牌的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+在不在贵楼啊 把牌子拿出来展示下吧
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 23611#       发表于 2020-12-18 09:12
+
+
+
+
+怎么可能开小编，大概就是调职吧。。
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 23612#       发表于 2020-12-18 09:13
+
+
+
+
+可能是升了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23613#       发表于 2020-12-18 09:15
+
+
+
+
+这次我支持打人硕打4V<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23614#       发表于 2020-12-18 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49757636&amp;ptid=1969498" target="_blank">kikiwalu 发表于 2020-12-18 09:15</a>
+这次我支持打人硕打4V
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+很难不支持<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            
