@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 04:01** 
+> ## **本文件最后更新于2020-12-18 11:10** 
 
 
 
@@ -23145,7 +23145,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_jqSen" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_noHHo" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
 
 
 
@@ -23200,4 +23200,612 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-       
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53763#       发表于 2020-12-17 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49746700&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-17 02:37</a>
+
+有个问题啊。。艾斯去过和之国还和大和打了一架，那肯定知道御田，那去到白胡子船上不可能没听说过御田，所 ...</blockquote>
+东海出来的新人海贼怎么会想要去认识不知名岛上死掉的前任领主
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 53764#       发表于 2020-12-17 08:47
+
+
+
+
+果实觉醒这个坑还没填呢，搞不好自然系最终又大翻身
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53765#       发表于 2020-12-17 09:33
+
+
+
+
+自然系有老三大将还是强的
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 53766#       发表于 2020-12-17 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49747410&amp;ptid=98922" target="_blank">陈玉礼 发表于 2020-12-17 08:47</a>
+
+果实觉醒这个坑还没填呢，搞不好自然系最终又大翻身</blockquote>
+自然系觉醒就是改变气候，鸡狗打了十天把一个岛的气候变成半冰半火
+
+
+
+
+
+
+
+-----
+
+####  z_shaw  
+##### 53767#       发表于 2020-12-17 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=2734475&amp;ptid=98922" target="_blank">传说中的 发表于 2005-11-13 19:07:54</a>
+白胡子多少钱了？</blockquote>现在给出了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  传说中的小鱼  
+##### 53768#       发表于 2020-12-17 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49748754&amp;ptid=98922" target="_blank">z_shaw 发表于 2020-12-17 11:17</a>
+
+现在给出了
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+啊，这，15年了。。。
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 53769#       发表于 2020-12-17 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49747410&amp;ptid=98922" target="_blank">陈玉礼 发表于 2020-12-17 08:47</a>
+
+果实觉醒这个坑还没填呢，搞不好自然系最终又大翻身</blockquote>
+自然系直接把冰火岛气候连环境都永久变了
+
+这后果目前除了自然系其他系根本达不到
+
+
+动物系体术，超人系奇妙，自然系就是最厉害
+
+果实都有上下限，所以互相有穿插很正常
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53770#       发表于 2020-12-17 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49749952&amp;ptid=98922" target="_blank">扭头就走 发表于 2020-12-17 13:01</a>
+
+自然系直接把冰火岛气候连环境都永久变了
+
+这后果目前除了自然系其他系根本达不到</blockquote>
+超人系各种不讲道理好不好
+
+
+童趣果实和消极果实这种东西见谁秒谁，不是有个限速器神乌索普，草帽团就团灭了
+
+
+
+
+
+
+
+-----
+
+####  烤鱼饼  
+##### 53771#       发表于 2020-12-17 13:58
+
+
+
+
+前期自然系太强了，于是放出凯撒和卡布里这种杂鱼自然系调节平衡呗
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 53772#       发表于 2020-12-17 16:25
+
+
+
+<blockquote>波隆 发表于 2020-12-16 19:04
+恶魔果实座次再次大洗牌：
+
+最早自然系吊打一切
+
+后来超人系凭着花样比较多成功上位
+</blockquote>
+前三大将的自然系战力还是很高的呀
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53773#       发表于 2020-12-18 01:55
+
+
+
+
+自然系最倒霉的是烟鬼吧
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53774#       发表于 2020-12-18 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49756653&amp;ptid=98922" target="_blank">灰狼 发表于 2020-12-18 01:55</a>
+
+自然系最倒霉的是烟鬼吧</blockquote>
+烟男吃亏就吃亏在他是个正面角色
+
+举个例子，火灾最主要的致死原因是烟雾窒息，如果把这个特性实装了烟男就是移动的化学武器外加控场大师
+
+然而一个对标卡普的未来海贼王宿敌必杀技是活活把人憋死这太上不得台面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 53775#       发表于 2020-12-18 02:41
+
+
+
+
+凯撒那个瓦斯果实是不是烟烟果实的上位替代？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53776#       发表于 2020-12-18 05:41
+
+
+
+
+啊于是情报说御田死了几年之后白胡子就知道这件事情了，但最后还是没有去打凯多
+
+
+果然白胡子也是丑陋的成年人啊（雾），不过想干啥就干啥某种意义上也是主角的特权就是了
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 53777#       发表于 2020-12-18 08:40
+
+
+
+<blockquote>灰狼 发表于 2020-12-18 05:41
+啊于是情报说御田死了几年之后白胡子就知道这件事情了，但最后还是没有去打凯多
+
+
+果然白胡子也是丑陋的成年 ...</blockquote>
+和之国应该是很早就设定好的，但御田这角色多半是后面加上去的，记得当初雷利说过罗杰靠听万物之声了解石碑上的古代文字写什么，结果后面变靠御田
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53778#       发表于 2020-12-18 09:12
+
+
+
+ 本帖最后由 DGIL 于 2020-12-18 09:26 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/090811wprm6i83n6aqlrai.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201218085813.jpg</strong> (173.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 09:08 上传
+
+
+
+
+
+
+本来，海贼王里没啥报仇要素，不管是谁，自己的人生自己做主
+
+艾斯处刑罗杰旧部，比如雷利都不来，事后路飞和萨博也没一心想着报仇
+
+小马哥带领的白残党在和黑胡子了断之战后也放下了（哦~有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">九侠，为报仇而生，我差点忘记了
+
+
+
+但是有白胡子的时候不一样，这是白胡子的招牌之一吧？
+
+曾在罗杰船上的小丑巴基都说过“绝对不能碰白胡子的人”，<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+感觉只能解释为下船了就不算了？那是他自己的人生<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53779#       发表于 2020-12-18 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49757347&amp;ptid=98922" target="_blank">tyauto 发表于 2020-12-18 08:40</a>
+
+和之国应该是很早就设定好的，但御田这角色多半是后面加上去的，记得当初雷利说过罗杰靠听万物之声了解石 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">果然问题最后还是出在这个人身上
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53780#       发表于 2020-12-18 09:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/091450yz4axp5vapsjbp7p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201218090339.jpg</strong> (190.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 09:14 上传
+
+
+
+
+
+
+这里本来或许是和之国，现在肯定不是了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53781#       发表于 2020-12-18 09:18
+
+
+
+ 本帖最后由 DGIL 于 2020-12-18 09:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+感觉上去又能乍地。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">不过按现在的套路也没啥不可能的，一次解决两个皇拉一下进度也行
+
+和之国篇快完结了吧？我们直接进入世界的篇章吧（想快进到和之国篇完结，开下一章，想看世界局势
+
+
+
+1000话重点是回忆艾斯了
+
+话说如果不是烧烧果实被吃了我真怀疑能搞出复活
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有凤凰有手术还有黄泉果实
+
+联手没准能搞大事
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 53782#       发表于 2020-12-18 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49757643&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 09:15</a>
+
+这里本来或许是和之国，现在肯定不是了</blockquote>
+看这山水地貌，也可能是花之国
+
+
+
+
+
+
+
+-----
+
+####  Acatv  
+##### 53783#       发表于 2020-12-18 10:11
+
+
+
+
+之前还可以说和之国闭关锁国白胡子不知情，现在好了，只要跟御田扯上关系，剧情就会很别扭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ネオグランゾン  
+##### 53784#       发表于 2020-12-18 10:25
+
+
+
+
+和之国御田的补丁越打越多，对某些角色的人设真是灾难性的打击
+
+
+红发：“不管什么原因，我都不会原谅伤害我朋友的人！”
+
+白胡子：“我绝不会饶恕伤害我家人的人”
+
+
+凯多：“御田是我杀的”
+
+
+红发&amp;白胡子：“哦，那没事了”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 53785#       发表于 2020-12-18 10:37
+
+
+
+<blockquote>DGIL 发表于 2020-12-18 09:13
+果然问题最后还是出在这个人身上</blockquote>
+御田其实可以不要和其他人有联系就单纯的和之国将军然后被凯多大蛇篡-国，结果尾田为了捧御田硬是和白胡子罗杰扯上关系，导致现在一堆剧情bug
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 53786#       发表于 2020-12-18 10:39
+
+
+
+
+御田这是不是属于后期打补丁结果把整个局面都毁了的典型
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53787#       发表于 2020-12-18 10:42
+
+
+
+
+尾田乡土爱情节毁了白胡子，为了一个傻逼御田已经开始无脑毁人设了，有隔壁岸本亲爹一个人带崩眼睛忍者的味了
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53788#       发表于 2020-12-18 10:49
+
+
+
+
+这样看鸟笼剧情其实问题还好了，至少没有影响到别的人
+
+
+
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 53789#       发表于 2020-12-18 10:51
+
+
+
+
+感觉白胡子没去报仇也勉强说得通。。毕竟人都死了，萨奇死了白胡子都没啥表示，一个菜逼黑胡子不比凯多好打多了
+
+不过这话有个更大的生草点就是凯多几十年没见过玲玲，也没和白胡子打过，那他挑战四皇数次被抓难道都是被香克斯抓的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fmchar  
+##### 53790#       发表于 2020-12-18 11:00
+
+
+
+
+御田不就是强行出戏反而惹人厌的典型案例
+
+
+
+
+
+
+
+-----
+
+####  拉萨乌姆  
+##### 53791#       发表于 2020-12-18 11:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红发顶上拦下凯多，大妈一艘船直奔凯多老窝，到白胡子这儿就怂了呗
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 53792#       发表于 2020-12-18 11:08
+
+
+
+
+尾田的脑子大概真的不太好使了，我觉得OP再连载下去他大概率精神层面会出现问题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+      
