@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 11:10** 
+> ## **本文件最后更新于2020-12-18 17:51** 
 
 
 
@@ -23145,7 +23145,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_noHHo" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_SAtFQ" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
 
 
 
@@ -23808,4 +23808,864 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-      
+
+
+-----
+
+####  银翼的维罗西  
+##### 53793#       发表于 2020-12-18 11:12
+
+
+
+
+白胡子这么伟岸的形象被尾田自己毁了
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 53794#       发表于 2020-12-18 11:27
+
+
+
+
+其实复仇和救人还是有些不同的，只能这么解释了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 53795#       发表于 2020-12-18 11:34
+
+
+
+
+真没想到白胡子死了都要拿来鞭尸给御田打补丁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 53796#       发表于 2020-12-18 11:58
+
+
+
+
+御田是强大的兄弟，不是需要我保护的儿子  &lt;-------------这个解释可以么？
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53797#       发表于 2020-12-18 12:04
+
+
+
+
+。。。。。。
+
+所以简单的说就是白胡子怕了，凯多就是最强。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ネオグランゾン  
+##### 53798#       发表于 2020-12-18 12:05
+
+
+
+
+其实退一万步来说，白胡子得知消息时御田确实已死多年，如果白胡子用萨博在德岛上那段各自的人生理论也确实可以勉强解释不复仇的原因
+
+然而问题却是本话中白胡子自己给出的理由完全不是这个。给出的理由反而是因为忌惮凯多个人势力所以不敢轻动，这就给人一种欺软怕硬，太过掉价的感觉了。
+
+
+红发：“没有人可以阻止这个时代的暴走了”
+
+白胡子：“怕啥，老子可是白胡子”
+
+凯多：<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+记得和之国开始前尾田还给白胡子加了一段义侠的设定。把抢来的财富用来接济贫苦人民。现在好了，和之国人民不聊生，正需有人救人于水火当中。而且当年好兄弟也死于奸人之手。结果白胡子一听凯多大名，吓得屁都不敢放一个。尾田你可以的
+
+
+突然想起了赤犬的一句话：“白胡子海贼团真是一群胆小鬼，没办法，毕竟船长如此嘛”
+
+无怪乎艾斯听到后立马无能狂怒了
+
+
+其实更惨的是以藏的人设。白胡子嘛，毕竟是外人。但御田是以藏的主君，和之国是他的故乡。结果这种情况下白胡子缩了以藏也跟着缩了连家都不回去看一眼，何其薄情也！
+
+
+不过没关系，我已经替尾田想好补丁了
+
+就说御田自从看到One Piece后已得知古今未来之事。故已委托罗杰与白胡子最后会面时替他传个话。就说20余年后自有天降救世主来解救和之国，在此之前和之国不管如何天翻地覆自己生死如何白胡子也一定得按兵不动。白胡子则信了他的话，并误以为艾斯就是罗杰和御田等待的那个人。这也可以解释为什么白胡子一直把艾斯当未来的海贼王培养。白胡子原本的打算可能是让艾斯历练历练。等到达御田约定的年数以及艾斯实力够格后让艾斯亲自带人解救和之国。唯一算错的一点则是艾斯并不是那个天选之人
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| evangelina| + 1|欢乐多|
+| jxzeroga0| + 1|1000话让你画了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 53799#       发表于 2020-12-18 12:10
+
+
+
+
+可不可以说御田是尾田亲爹了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53800#       发表于 2020-12-18 12:10
+
+
+
+
+三眼女可以看历史文本？
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 53801#       发表于 2020-12-18 12:14
+
+
+
+
+剧情也铺垫得差不多了，第1000话就愉快地让御田震撼复活吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53802#       发表于 2020-12-18 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49759732&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2020-12-18 12:05</a>
+
+其实退一万步来说，白胡子得知消息时御田确实已死多年，如果白胡子用萨博在德岛上那段各自的人生理论也确实 ...</blockquote>
+自来也：别骂了别骂了
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53803#       发表于 2020-12-18 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49759732&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2020-12-18 12:05</a>
+
+其实退一万步来说，白胡子得知消息时御田确实已死多年，如果白胡子用萨博在德岛上那段各自的人生理论也确实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">我想好了，这样的,因为御田已经死了，为一个死去的兄弟和凯多全面开战损失太大太多儿子，所以就算了，大仁大义！
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53804#       发表于 2020-12-18 13:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49759841&amp;ptid=98922" target="_blank">Freemasons 发表于 2020-12-18 12:14</a>
+
+剧情也铺垫得差不多了，第1000话就愉快地让御田震撼复活吧</blockquote>
+我构思了一下，也不是不行
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">布鲁克招魂，手术果实整点当年的细胞或者DNA和佛朗奇的科学力量联手，在让凤凰之火修复，在想个办法让大妈把灵魂拍进去，或者干脆手术果实也能做，能换身能搞永生手术，没准也行
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53805#       发表于 2020-12-18 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49758235&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2020-12-18 10:08</a>
+
+看这山水地貌，也可能是花之国</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">已知的话。。只能是花之国了
+
+
+
+
+
+
+
+-----
+
+####  拉萨乌姆  
+##### 53806#       发表于 2020-12-18 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760361&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 13:00</a>
+
+我想好了，这样的,因为御田已经死了，为一个死去的兄弟和凯多全面开战损失太大太多儿子，所以就算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我绝对不允许别人伤害我家人，死了的不算
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53807#       发表于 2020-12-18 13:08
+
+
+
+ 本帖最后由 DGIL 于 2020-12-18 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49758583&amp;ptid=98922" target="_blank">tyauto 发表于 2020-12-18 10:37</a>
+
+御田其实可以不要和其他人有联系就单纯的和之国将军然后被凯多大蛇篡-国，结果尾田为了捧御田硬是和白胡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">是这样的。。我本来以为是个有大仁大义的明君，甚至武功不高
+
+结果一定要天下无敌。。人品武功修为都为天下人着迷，是个名人接触后都喜欢他
+
+一帮人狂舔。。 真正讨厌他的现在只有黑炭一家
+
+凯多虽然是最后下手的，但是想念到现在还在寻死。。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">以前塑造一些角色，展开了说后都很有魅力
+
+但是这个开局就说，所有人都喜欢他，人气极高的，非常有魅力的，罗杰白胡子都为他着迷的御田。。反而就觉得吹崩了。。
+
+什么都要硬是和他有关系
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53808#       发表于 2020-12-18 13:10
+
+
+
+ 本帖最后由 DGIL 于 2020-12-18 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760405&amp;ptid=98922" target="_blank">**乌姆 发表于 2020-12-18 13:04</a>
+
+我绝对不允许别人伤害我家人，死了的不算</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">合理，这片大海上无人不知，绝不能伤白胡子的人，但是如果干死了。。。那。。
+
+可能也就算了
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53809#       发表于 2020-12-18 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49659930&amp;ptid=98922" target="_blank">Keynes 发表于 2020-12-9 12:59</a>
+
+https://b23.tv/iukkPD
+
+这个鸟笼的也还不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 53810#       发表于 2020-12-18 13:38
+
+
+
+
+尾田现在算是彻底跌落神坛了吧
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53811#       发表于 2020-12-18 14:04
+
+
+
+ 本帖最后由 DGIL 于 2020-12-18 14:23 编辑 
+
+海军本部都敢碰一碰。。这和之国不敢打，怎么说都怪怪的
+
+只能说死了的就算了。。最好的兄弟也没有办法
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有这下坐实凯多智皇了。。
+
+他到处溜达给自己打广告做营销，调查好在哪里整一出加点人气
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不然。。给白团逮到堵他一手就完事了，拿下凯多和之国那点防御能力又算啥
+
+事先调查好周围环境布置好人手才敢去吧
+
+
+再说到硬打和之国，就算凯多在，白胡子有震震果实，小马哥会飞，以藏熟路，还有猫狗不可能找不到白胡子，那就再带上毛皮团
+
+现在路飞能打白胡子当然也能。。。白团去打比其他团有优势多了，或许还能带上红发（哦。。你说红发和御田感情妹那么深。。那没事了。。
+
+这代价当然有，但是有些东西是原则问题，一是白胡子的招牌人设不能动他家人和后面追加的御田好兄弟（就借一年都差点要干挺罗杰）总觉得不能就这样算了吧。。
+
+还能有拯救和之国百姓的大义，不过确实。。又不熟，管他们的。。
+
+
+结论只能是。。凯多牛逼。。打不过。。但是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想到他前面给九侠刺得哇哇乱叫，虽然现在升天补回一点逼格加上前面大妈上岸他惊慌不已，打起来也就是势均力敌，
+
+大妈一艘船都敢硬上凯多了那么大妈牛逼吗？大妈当然牛逼。。可是也被佛朗奇直接骑脸，给甚平多次击飞
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">整一个谐星。。4皇阿。。也是到头了，两人虽然没什么伤。。但是BOSS的压迫感大不如前。。
+
+现在学了路飞学了有穿甲伤害的流樱，糊弄一下也就过去了。
+
+。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉整个和之国真的很闹剧，然后还有个时不时给你强调一下最最牛逼天下第一无敌的御田
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后之前凯多被抓几十次处死大概是海军做的？
+
+还是也是打广告做市场阿。。
+
+
+还是御田的问题。。补丁越多。。问题越多。。
+
+干脆别补丁那么多糊弄过去算了。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">而且越来越怪。。现在搞成这样。。你当年为啥不让老婆把你们全部传送走阿。。
+
+还能比现在更惨？
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53812#       发表于 2020-12-18 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760448&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 13:08</a>
+
+是这样的。。我本来以为是个有大仁大义的明君，甚至武功不高
+
+结果一定要天下无敌。。人品武功修为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强推之耻吧，前面讨论的挺多了，相当于两个半皇团这种可以挑战海军的力量，结果死得毫无牌面。
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 53813#       发表于 2020-12-18 14:17
+
+
+
+
+其实御田死了，白胡子没反应也很好解释啊，御田最后都下了白胡子的船了，表面上和白胡子已经没有一毛钱的关系，生死由自己，何况御田死在凯多手上是凯多耍了阴招，这事白胡子肯定不知道，毕竟凯多肯定说自己是堂堂正正赢的，没人会说自己拿小孩当人质赢的吧？
+
+这么看来，从白胡子的角度就是，御田和凯多sala，输了，死了，那也没什么好不服的
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53814#       发表于 2020-12-18 14:25
+
+
+
+
+和之国连载至今，我越来越感受到——尾田君的格局其实不大...
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53815#       发表于 2020-12-18 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760771&amp;ptid=98922" target="_blank">sandro 发表于 2020-12-18 13:38</a>
+
+尾田现在算是彻底跌落神坛了吧</blockquote>
+销量过得去，目测2021的热点不会很多。
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 53816#       发表于 2020-12-18 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49761191&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-12-18 14:25</a>
+
+和之国连载至今，我越来越感受到——尾田君的格局其实不大...</blockquote>
+可这不能解释之前的三大篇啊
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53817#       发表于 2020-12-18 15:43
+
+
+
+<blockquote>武男 发表于 2020-12-18 14:13
+强推之耻吧，前面讨论的挺多了，相当于两个半皇团这种可以挑战海军的力量，结果死得毫无牌面。 ...</blockquote>
+差点砍死凯多，基本只在罗白之下了，攻击力够，防御力没那么高，没有人质凯多已经无了，再配9侠，以当时的水平，基本就是皇团， 死得太没有排面了。。事迹也并不能让大家共情，泪流面满面的觉得感人，都是一堆人都是狂吹他好，你应该感动了，他是伟大牛逼无敌充满魅力的领导者等等，这话又明吹凯多，其实还是在捧御田
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53818#       发表于 2020-12-18 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49761191&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-12-18 14:25</a>
+
+和之国连载至今，我越来越感受到——尾田君的格局其实不大...</blockquote>
+毕竟霓虹金，一写zz就原形毕露
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53819#       发表于 2020-12-18 15:49
+
+
+
+ 本帖最后由 武男 于 2020-12-18 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49762085&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 15:43</a>
+
+差点砍死凯多，基本只在罗白之下了，攻击力够，防御力没那么高，没有人质凯多已经无了，再配9侠，以当时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时还有罗杰残党想过来帮忙，外面还有白团，莫利亚那时候还在跟凯多对线。。简直就是光月家是不可能翻车的，我要吹爆御田.jpg。结果呢。说白了，能力越大，责任越大，你坐拥着可以动摇改写世界局势的力量然后眼睁睁的看着局势不可逆转的恶化。然后想卖读者眼泪，读者怎么可能共情这个啊。
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗Xi  
+##### 53820#       发表于 2020-12-18 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49759732&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2020-12-18 12:05</a>
+
+其实退一万步来说，白胡子得知消息时御田确实已死多年，如果白胡子用萨博在德岛上那段各自的人生理论也确实 ...</blockquote>
+客观理性人间正义——赤犬
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗Xi  
+##### 53821#       发表于 2020-12-18 16:14
+
+
+
+
+在虎扑看到个类比，如果基德杀了薇薇占领了阿拉巴斯坦，王路飞为了不影响寻找onepicece的海贼王大业选择了大事化小不管不问，王路飞依旧是海上最侠义的海贼。
+
+
+
+
+
+
+
+-----
+
+####  美人希  
+##### 53822#       发表于 2020-12-18 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49758734&amp;ptid=98922" target="_blank">qzfjnv 发表于 2020-12-18 10:51</a>
+感觉白胡子没去报仇也勉强说得通。。毕竟人都死了，萨奇死了白胡子都没啥表示，一个菜逼黑胡子不比凯多好打 ...</blockquote>
+话说香克斯有确认是天龙人吗
+
+— from OPPO PAAM00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 53823#       发表于 2020-12-18 16:32
+
+
+
+
+当初有人猜测大妈对凯多的恩情就是帮助其挡下了白胡子，结果就这？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙手马弗  
+##### 53824#       发表于 2020-12-18 16:36
+
+
+
+
+我的观点是让子弹再飞一会儿，尾田一直以来的格局都是比较大的，应该不会在和之国这个小国翻车……
+
+
+
+
+
+
+
+-----
+
+####  Acatv  
+##### 53825#       发表于 2020-12-18 16:43
+
+
+
+ 本帖最后由 Acatv 于 2020-12-18 16:48 编辑 
+
+突然想起来这一话的操作，主要还是为了抬大和，让大和跟艾斯搭上线以增加读者对其的接受度，“空降的敌方boss叛逆nt女儿”跟“艾斯在和之国的老朋友”比起来明显后者更有资格作我王路飞的同伴。
+
+至于这一操作带来的一系列bug，就随便编几个理由吧。
+比如艾斯为什么能从和之国全身而退？那就安排凯多三灾全部出门，四皇老家也能唱空城计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于白团为什么知道和之国情况却毫无动作，那肯定是白胡子怕了啊，鬼岛不比海军本部吓人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 53826#       发表于 2020-12-18 17:08
+
+
+
+
+编故事难免出现bug，可怕的是为了圆一个bug又补上十个最后千疮百孔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53827#       发表于 2020-12-18 17:11
+
+
+
+
+红发和御田不熟吗？
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53828#       发表于 2020-12-18 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49762619&amp;ptid=98922" target="_blank">龙手马弗 发表于 2020-12-18 16:36</a>
+
+我的观点是让子弹再飞一会儿，尾田一直以来的格局都是比较大的，应该不会在和之国这个小国翻车…… ...</blockquote>
+白胡子的问题是可以再看看，但是光一个御田和之国已经翻车了……
+
+到现在不知道这人魅力在哪，光是善待家臣这点虽然还行，但op里这种人多了，明哥对家人还没得说呢
+
+他这个人设真就不如弄成一个家臣或者浪人，跟着兄弟们快乐几十年最后被将军黑了。现在这样太憋屈了
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53829#       发表于 2020-12-18 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763223&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-18 17:28</a>
+
+白胡子的问题是可以再看看，但是光一个御田和之国已经翻车了……
+
+到现在不知道这人魅力在哪，光是善待家臣 ...</blockquote>
+和之国整个副本都是尾田乡土爱，御田是乡土爱中的乡土爱嘛
+
+
+御田这傻逼原型是11区的几个人物包括礼拜六大魔王和石川五右卫门，尾田移情了呗。
+
+
+以后也别笑隔壁岸本亲爹了，御田也差点意思就是尾田亲爹了
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 53830#       发表于 2020-12-18 17:35
+
+
+
+ 本帖最后由 banglian 于 2020-12-18 17:38 编辑 
+
+御田是长篇惯例的血统国王类角色+鸟人/香狄亚战士/居鲁士类的战士角（还是终极加强版）+人见人爱魅力/携带重要技能（解历史文本）的公主角，缝太多导致不伦不类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我觉得最好笑是他缝了那么多buff，结果随便就被无拳无勇的大蛇给骗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53831#       发表于 2020-12-18 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763278&amp;ptid=98922" target="_blank">届得到 发表于 2020-12-18 17:34</a>
+
+和之国整个副本都是尾田乡土爱，御田是乡土爱中的乡土爱嘛
+
+
+御田这傻逼原型是11区的几个人物包括礼拜六大 ...</blockquote>
+原型不是忠臣藏那个被人坑了的家主吗
+
+反正我对忠臣藏这个故事了解也就限于基努李维斯那个奇葩烂片，没法进一步评价
+
+其实也没啥，东亚三国一提到自己国家，脑子正常的作者肯定多少都要抬一手的，只是这个抬得有点不太能理解了
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53832#       发表于 2020-12-18 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49762619&amp;ptid=98922" target="_blank">龙手马弗 发表于 2020-12-18 16:36</a>
+
+我的观点是让子弹再飞一会儿，尾田一直以来的格局都是比较大的，应该不会在和之国这个小国翻车…… ...</blockquote>
+省省吧，尾田在和之国翻车太多次了
+
+
+上一回所谓让人激动人心到落泪的章节
+
+
+出来就这？
+
+
+尾田现在就是自嗨乡土爱
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53833#       发表于 2020-12-18 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763310&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-18 17:37</a>
+
+原型不是忠臣藏那个被人坑了的家主吗
+
+反正我对忠臣藏这个故事了解也就限于基努李维斯那个奇葩烂片，没法 ...</blockquote>
+御田的烹刑出来的时候就已经确认了原型是同样被烹杀的石川五右卫门
+
+
+后面那放荡子国主成为明君的轨迹又是照着礼拜六大魔王来画的
+
+
+这人物从人设到原型到剧情就是个缝合怪，所以违和的一塌糊涂
+
+
+
+
+
+     
