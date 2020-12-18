@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 18:03** 
+> ## **本文件最后更新于2020-12-18 20:07** 
 
 
 
@@ -23247,4 +23247,597 @@ ASOBINOTES ONLINE FEST 2nd フロア紹介②
 
 
 
-          
+
+
+-----
+
+####  alcoholic1000  
+##### 23698#       发表于 2020-12-18 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763124&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-18 17:19</a>
+
+翔哥已经可以正常参加这种大型活动了啊，确实好起来了，要玩铁拳好啊</blockquote>
+作为观众是希望能够好起来，但事实是确实再也回不去了
+
+Syl,缺德
+[https://sm.ms/image/ZASiugHpRPcyOtv](https://sm.ms/image/ZASiugHpRPcyOtv)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23699#       发表于 2020-12-18 18:18
+
+
+
+
+喷了，想去看看蒜头直播B综当天的反应，结果全是认知NGA发言，泥潭怎么一个一个都这么喜欢认知隔壁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23700#       发表于 2020-12-18 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49762986&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-18 17:07</a>
+
+敌在指挥部，怎么派了个水母幼体过来？？（多来点）</blockquote>
+新角色？可以造？玩家的？
+
+自从因为我太久没上线导致账号被B站收回后，难道我又要装回舰B了吗
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 23701#       发表于 2020-12-18 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49762986&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-18 17:07:58</a></blockquote>这TM不是抄舰C的wo酱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  S_koname  
+##### 23702#       发表于 2020-12-18 18:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这叫借鉴
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23703#       发表于 2020-12-18 18:32
+
+
+
+
+要是几年前可能还有人说抄舰吸，然而现在时代变了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 23704#       发表于 2020-12-18 18:38
+
+
+
+
+舰吸已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 渡边给田中画的关底船还不如你苔，也不知道是不是收了阿祖蓝钱来搞死舰吸的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 23705#       发表于 2020-12-18 18:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">不是都早就习惯了吗，事到如今说抄也没什么意义，遇到没抄的才是新闻吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 23706#       发表于 2020-12-18 18:41
+
+
+
+
+田中再让渡边和A士多画几次，阿祖蓝（划掉）WOWS就能成为霓虹唯一指定舰游了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23707#       发表于 2020-12-18 18:44
+
+
+
+
+田中宁愿找画师画周边也不愿意多花点心思在线上，我现在就想看看田中和fkhr谁先顶不住<img src="https://static.saraba1st.com/image/smiley/carton2017/027.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23708#       发表于 2020-12-18 18:45
+
+
+
+
+这说的是啥，月大小姐还看scp啊
+
+
+
+
+
+
+J1IXK9B0323O)NBCHN0NQ{I.png
+(24.72 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-18 18:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/184454gcefpiszz6ju4jep.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23709#       发表于 2020-12-18 18:49
+
+
+
+
+所以说，有人陪你过圣诞了吗？ssk
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/184832san8cdbajsjcb7zq.png" referrerpolicy="no-referrer">
+
+
+<strong>【メイキング】ヤシロ&amp;amp;ササキのレバガチャダイパン#27 また帰ってきた未公開シーン集.png</strong> (383.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 18:48 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/184831ig8d4bq9bfof88qw.png" referrerpolicy="no-referrer">
+
+
+<strong>【メイキング】ヤシロ&amp;amp;ササキのレバガチャダイパン#27 また帰ってきた未公開シーン集.png</strong> (432.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 18:48 上传
+
+
+
+
+
+
+[https://www.youtube.com/watch?v=oHgAaYuOTjQ](https://www.youtube.com/watch?v=oHgAaYuOTjQ)
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 23710#       发表于 2020-12-18 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鲨皇倒了，日增没有一万了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23711#       发表于 2020-12-18 18:52
+
+
+
+
+有女管人明确圣诞不播的吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23712#       发表于 2020-12-18 19:03
+
+
+
+
+老爱偶像厨真的届到辻希美了,还跳了舞<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=LQeeji4nT8U](https://www.youtube.com/watch?v=LQeeji4nT8U)
+[https://www.youtube.com/watch?v=K7fiMtiWiAw&amp;t=0s](https://www.youtube.com/watch?v=K7fiMtiWiAw&amp;t=0s)
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 23713#       发表于 2020-12-18 19:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/191152vh9aakb2jjp3895k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>@7EC332W4HIXSZ8`~XCS7[C.jpg</strong> (141.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 19:11 上传
+
+
+
+
+
+
+这人我不太熟，但我觉得你们认识
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| xkyxz| + 1|思路广|
+| ylssb10438| + 1|思路广|
+| 白夜凛音| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 23714#       发表于 2020-12-18 19:17
+
+
+
+
+我觉得直钩钓0人不是明智行为
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23715#       发表于 2020-12-18 19:23
+
+
+
+
+你说的是新时代的0人还是旧时代的0人？
+
+管人圣诞播不播都无所谓，反正我没空看
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 23716#       发表于 2020-12-18 19:31
+
+
+
+
+bsyl eve平安夜会在b站直播，不留档
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23717#       发表于 2020-12-18 19:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/193519iweefrmwehoho24y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Epg9Lr5VoAAjU4Q.jpg</strong> (124.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 19:35 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|好评加鹅|
+| 过不了审| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 23718#       发表于 2020-12-18 19:42
+
+
+
+ 本帖最后由 Zaphikel 于 2020-12-18 19:46 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/194128ml3zwo2wrp6gvvlf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6556c4efda0a821c9bbbf185d874aced38ad4434.jpg</strong> (395.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 19:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/194646fpq1q1j4b4q11ji1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>841456d5a664b5e375dc645152982317b7a41c94.jpg</strong> (479.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 19:46 上传
+
+
+
+
+
+
+帕里、高槻律、oto、樱樱火四人线下聚餐
+
+经典国产椰子汁瞩目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23719#       发表于 2020-12-18 19:47
+
+
+
+
+如今的0人当然是我大灵儿人啦！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23720#       发表于 2020-12-18 19:53
+
+
+
+
+0现在自己和msm杏爱创作逍遥的很，当年贴贴的老同事一个快烧没了一个想播不能播，也不知道她还记不记得这俩人。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23721#       发表于 2020-12-18 20:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/200559kwwnndr85nu8v9wr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>三枝明那 3Dお披露目配信決定！.jpg</strong> (238.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 20:05 上传
+
+
+
+
+
+
+哦哦哦哦哦！！！
+
+来了！！！！！！！哦哦哦！！！！哦哦哦！！！！
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 23722#       发表于 2020-12-18 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763991&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-18 18:49</a>
+
+所以说，有人陪你过圣诞了吗？ssk</blockquote>
+有啊，我们这些观众啊
+
+
+
+
+
+         
