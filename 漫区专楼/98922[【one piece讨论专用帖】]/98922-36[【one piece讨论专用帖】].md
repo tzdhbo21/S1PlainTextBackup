@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-16 02:01** 
+> ## **本文件最后更新于2020-12-17 04:01** 
 
 
 
@@ -22637,4 +22637,567 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-        
+
+
+-----
+
+####  灰狼  
+##### 53732#       发表于 2020-12-16 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734657&amp;ptid=98922" target="_blank">akstcle 发表于 2020-12-16 00:11</a>
+
+在霸气废掉自然系的免伤效果后幻兽种简直神果实，直接具有复数能力，比双果实还强。
+
+看大妈送人的行为幻兽 ...</blockquote>
+你确定如果这样这是人情而不是坑他么
+
+
+虽然洛克斯有恶魔果实图鉴也不奇怪，其实根本不知道这是啥果实的情况也存在吧
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 53733#       发表于 2020-12-16 08:27
+
+
+
+
+顶点的人吃果实都不会瞎吃吧，肯定有图鉴才会吃
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 53734#       发表于 2020-12-16 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49736160&amp;ptid=98922" target="_blank">刹那の劍 发表于 2020-12-16 08:27</a>
+
+顶点的人吃果实都不会瞎吃吧，肯定有图鉴才会吃</blockquote>
+当年凯多只是个见习生，算不上什么顶点
+
+而且有罗杰海贼团的巴基作为例子，顶点海贼团还瞎吃的人肯定是有的
+
+
+
+
+
+
+
+-----
+
+####  烤鱼饼  
+##### 53735#       发表于 2020-12-16 10:09
+
+
+
+
+鱼鱼果实，能在海里游泳吗？
+
+还是大妈给的，大和不会真是大妈女儿吧
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 53736#       发表于 2020-12-16 10:17
+
+
+
+
+鲤鱼 王凯多...<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  露结为霜  
+##### 53737#       发表于 2020-12-16 11:30
+
+
+
+
+这果实什么效果还都不知，并不能评价强弱。
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 53738#       发表于 2020-12-16 12:32
+
+
+
+
+动物系果实里最拔尖的幻兽系果实里唯一会进化的鲤鱼王果实？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 53739#       发表于 2020-12-16 12:43
+
+
+
+
+如果凯多是暴鲤龙
+
+那他的配招是不是
+
+破坏死光 火焰喷射 镰鼬 水溅跃
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 53740#       发表于 2020-12-16 12:44
+
+
+
+
+重复编辑
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 53741#       发表于 2020-12-16 12:48
+
+
+
+
+我尼玛喷了
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 53742#       发表于 2020-12-16 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49737134&amp;ptid=98922" target="_blank">烤鱼饼 发表于 2020-12-16 10:09</a>
+
+鱼鱼果实，能在海里游泳吗？
+
+还是大妈给的，大和不会真是大妈女儿吧</blockquote>
+恶魔果实的设定就是海水里没力气，所以游泳肯定是不行的，但呼吸没问题，所以淹不死，估计最终结果是和吃了果实的鱼人下海差不多
+
+
+如果凯多没有首抽中大奖的话，一般的鱼鱼果实肯定是个大坑货...
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 53743#       发表于 2020-12-16 12:58
+
+
+
+
+喷了，虎扑回复说那索隆原来是要砍了真龙桃之助
+
+
+
+
+
+
+
+-----
+
+####  yth329  
+##### 53744#       发表于 2020-12-16 14:47
+
+
+
+
+算是近年来WT玩得最好的一个梗了
+
+可惜无法掩盖剧情上的拉跨
+
+
+
+
+
+
+
+-----
+
+####  饭太稀  
+##### 53745#       发表于 2020-12-16 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53746#       发表于 2020-12-16 16:10
+
+
+
+
+鱼鱼果实喷了
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53747#       发表于 2020-12-16 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49733312&amp;ptid=98922" target="_blank">是这样 发表于 2020-12-15 22:02</a>
+
+鱼鱼果实盖欧卡形态！
+
+
+— from Google Pixel 2, Android 11 of S1 Next Goose v2.4.3</blockquote>
+盖欧卡是虎鲸
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 53748#       发表于 2020-12-16 16:16
+
+
+
+
+那艾尼路一个十万伏特凯多十万条命都接不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  战斗鸡  
+##### 53749#       发表于 2020-12-16 18:03
+
+
+
+<blockquote>759465155 发表于 2020-12-16 16:16
+那艾尼路一个十万伏特凯多十万条命都接不起</blockquote>
+龙属性电半减抵消了啊。水龙双属性貌似只有龙仙两个弱点。
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 53750#       发表于 2020-12-16 18:58
+
+
+
+
+这明明就是一条龙啊，鱼鱼果实什么鬼？
+
+
+
+
+
+
+
+-----
+
+####  hatahata  
+##### 53751#       发表于 2020-12-16 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49742752&amp;ptid=98922" target="_blank">战斗鸡 发表于 2020-12-16 18:03:41</a>
+龙属性电半减抵消了啊。水龙双属性貌似只有龙仙两个弱点。</blockquote>暴鲤龙是水飞行啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53752#       发表于 2020-12-16 19:04
+
+
+
+
+恶魔果实座次再次大洗牌：
+
+最早自然系吊打一切
+
+后来超人系凭着花样比较多成功上位
+
+现在好了，战国凯多小马哥三人联手把动物系送上神坛
+
+再看看气态自然系这么潜力巨大的分支代表居然是凯撒这种一路挨打过来的货色，自然系真是T0跌到下水道，惨绝人寰啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 53753#       发表于 2020-12-16 20:10
+
+
+
+
+有点好奇大和妈，会不会是个鱼人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53754#       发表于 2020-12-16 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49743296&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-12-16 18:58</a>
+
+这明明就是一条龙啊，鱼鱼果实什么鬼？</blockquote>
+鱼跃龙门
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53755#       发表于 2020-12-16 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49743373&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-16 19:04</a>
+
+恶魔果实座次再次大洗牌：
+
+最早自然系吊打一切
+
+后来超人系凭着花样比较多成功上位</blockquote>
+你们自然系没有自己的世界吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53756#       发表于 2020-12-16 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49742752&amp;ptid=98922" target="_blank">战斗鸡 发表于 2020-12-16 18:03</a>
+
+龙属性电半减抵消了啊。水龙双属性貌似只有龙仙两个弱点。</blockquote>
+他说的是暴鲤龙
+
+
+水+飞四倍弱电
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 53757#       发表于 2020-12-16 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49743373&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-16 19:04</a>
+
+恶魔果实座次再次大洗牌：
+
+最早自然系吊打一切
+
+后来超人系凭着花样比较多成功上位</blockquote>
+其实挺好的
+
+这个正是尾田倡导的
+
+
+果实强，更强的是把他用的好的那个人吧
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53758#       发表于 2020-12-16 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49737244&amp;ptid=98922" target="_blank">svmkty 发表于 2020-12-16 10:17</a>
+
+鲤鱼 王凯多...</blockquote>
+是王多鱼
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53759#       发表于 2020-12-16 22:23
+
+
+
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_jqSen" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53760#       发表于 2020-12-17 02:37
+
+
+
+
+有个问题啊。。艾斯去过和之国还和大和打了一架，那肯定知道御田，那去到白胡子船上不可能没听说过御田，所以白胡子不可能不知道御田的死讯了，那么？我们还记得吗。。不管是谁，只要动了白胡子的人就会被白团追杀到天涯海角，这是所有人都知道的，后面为了救艾斯连海军本部都打。。那为什么不去帮御田报仇？不要说和之国不好打。。以前还能说不知道。。现在没可能不知道了。。还是说艾斯从大和那里，得到了御田日记里的事，因为时机未到？还是又联系到罗杰最后和他喝酒时候说的事？。感觉都不太对。。没处理好就会拉低白胡子，和之国篇要把所有大佬都拖下水么。。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53761#       发表于 2020-12-17 02:40
+
+
+
+
+而且凯多团不在的和之国，艾斯和大和要是联手可以翻天吧
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53762#       发表于 2020-12-17 02:47
+
+
+
+ 本帖最后由 DGIL 于 2020-12-17 02:51 编辑 
+
+有了幻兽系果实，动物全面崛起 人人大佛  狐狐九尾狐  鸟鸟 凤凰 鱼鱼 龙 蛇蛇 八稚大蛇(怀疑大蛇没死透)续超人系玩出花后动物系也花样百出，自然系过时了，虽然强还是强
+
+
+
+
+
+       

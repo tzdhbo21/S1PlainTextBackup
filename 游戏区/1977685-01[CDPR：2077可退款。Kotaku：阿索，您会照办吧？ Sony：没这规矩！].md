@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-15 16:19** 
+> ## **本文件最后更新于2020-12-17 18:20** 
 
 
 
@@ -101,10 +101,13 @@ Kotaku的记者费了好大的劲，排了好长的队，总算找到一个真�
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 5战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 幽灵部长助理| + 1|急了急了|
+| sqd| + 1|索索急了|
+| lesangellos|-1||
 | Patrick000321| + 1|平衡|
 | DoomsDay|-1|你软也一样拒绝退款怎么不提啊.|
 
@@ -278,10 +281,14 @@ steam你退多了账号也要被针对
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 6战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| mimighost|-1|表达一下态度|
+| 千本blur| + 1||
+| lesangellos| + 1||
+| 蒼銀|-1|转进如风|
 | nesrelax|-1|围任救驴真的很难看|
 | caicaistar|-1|说明任天堂玩家不行|
 
@@ -1672,10 +1679,11 @@ epic和任天堂怎么说？（不愧是波兰精户，妙啊） ...</blockquote
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| lesangellos|-1||
 | kyonkoo|-1|思路广|
 
 
@@ -1889,4 +1897,409 @@ GOG申请了退款 目前邮件还没有回复...</blockquote>
 
 
 
-                                              
+
+
+-----
+
+####  白徵明  
+##### 101#       发表于 2020-12-15 16:19
+
+
+
+ 本帖最后由 白徵明 于 2020-12-15 16:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49729092&amp;ptid=1977685" target="_blank">janet_ddr 发表于 2020-12-15 16:08</a>
+
+索尼哪会穷，前几个月看到的财报不知多赚钱而且还是多个产业都在赚，重新回到历史高位了。
+
+
+一句话概括就 ...</blockquote>
+[https://weibo.com/5080252415/JxMQhiLOL](https://weibo.com/5080252415/JxMQhiLOL)
+
+   你管这种叫用户不对？脑子没问题吧？
+
+
+
+
+
+
+
+
+-----
+
+####  rayaxu  
+##### 102#       发表于 2020-12-15 16:21
+
+
+
+
+延期的时候在gog退款表示退回钱包，想想还是没退，原来是能原路退回的吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫不萌  
+##### 103#       发表于 2020-12-15 16:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说不定微软索尼连和蠢驴唱红白脸，想退没门
+
+
+
+
+
+
+
+-----
+
+####  pilipala  
+##### 104#       发表于 2020-12-15 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49726470&amp;ptid=1977685" target="_blank">wujae 发表于 2020-12-15 12:12</a>
+
+精驴这波有操作的，先手来个主机体验被PC秒杀，让PC党自来水为其辩护，生造阶级矛盾，发动群众斗群众。后手 ...</blockquote>
+讲真，看看高配PC和PS4的价格，确实是有阶级差异了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  莱纳斯  
+##### 105#       发表于 2020-12-15 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49729249&amp;ptid=1977685" target="_blank">rayaxu 发表于 2020-12-15 16:21</a>
+
+延期的时候在gog退款表示退回钱包，想想还是没退，原来是能原路退回的吗 ...</blockquote>
+他们更改退款条款的官方微博说的2种方式，其中一种时原支付方式退款
+
+
+
+
+
+
+
+-----
+
+####  D-JoeII  
+##### 106#       发表于 2020-12-15 20:55
+
+
+
+<blockquote>nocode 发表于 2020-12-15 12:05
+xss推文里没有啊？文章作者加的私货？</blockquote>
+有不過在另一條推
+
+https://twitter.com/dark1x/status/1338598144758714370?s=09
+
+Series S sits alongside Series X - think of it like 2.5 best. Lower res but pretty solid.
+
+
+
+
+
+
+
+-----
+
+####  泉美  
+##### 107#       发表于 2020-12-15 20:58
+
+
+
+<blockquote>Q6: Hello; I have three questions. First, regarding the refunds again, but another issue: I was wondering whether your console partners, like Microsoft and Sony will by any chance participate in the refunds, or is the financial burden yours only? The second question – are you considering giving away a bigger DLC for free to make gamers feel less disappointed? Is it on the table? And the last one – could you comment on the latest leak from Jason Schreier about the change in your bonus policy? I’m wondering – will it be connected with the game’s revenues or will you be giving out bonuses at nominal value to retain the staff? That’s all from me.
+
+
+MN: I’ll start – the question is whether Microsoft and Sony are participating financially in refunds. One has to understand: Microsoft and Sony have refund policies for every product that is released digitally on their storefronts. Despite several articles I’ve seen that things are being set up just for us, it’s actually not true – these policies are in place and have always been in place; they’re not offered specifically for us. Anyone who has purchased any title on the PlayStation network or the Microsoft storefront can ask for a refund, and if it’s made within certain boundaries, usually related to time, usage and so on, can ask for that refund. Our procedure here with Microsoft and Sony is not different than with any other title released on any of those storefronts. I want to state that clearly, as there seem to be certain misconceptions. In terms of financial participation, when our product is refunded, the share from the store that Microsoft took is refunded, and of course it’s something that is subtracted from the share of revenues that would normally be transmitted to CD PROJEKT. It’s, of course, not shared with us and is instead refunded to the given player – the given customer. I think that pretty much sums up the first one. Regarding the second question – we have stated our policy in terms of what we are doing with the players for now, and that’s where we stand. Regarding the third question – we don’t really comment on what someone else has stated about what’s going on at the studio. Thank you. </blockquote>
+精户今天这电话会议记录提到了索尼和微软并没有给2077开特别的退款通道，各家依然按各家的退款规则进行退款。
+ <blockquote>最后，我们始终希望每个购买我们游戏的玩家都能满意而归。如果您愿意给我们一次机会，我们将非常感谢。但如果您对游戏在您主机上的表现不满意且不愿意等待后续更新，您可以选择通过 PSN 或 Xbox 等原购买渠道退款。如果退款被拒绝，请邮件至 helpmerefund@cdprojektred.com ，相关工作人员将全力提供帮助。从今天开始，您可以在接下来的一周内，即 2020 年 12 月 21 日之前提出申请。</blockquote>再细看昨天晚上发的声明，其实在说你“可以”通过原渠道退款，如果退不了期限之前告诉我们我们帮你退。结果给大家造成了一种精户和索尼微软达成协议的错觉。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  janet_ddr  
+##### 108#       发表于 2020-12-15 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49729232&amp;ptid=1977685" target="_blank">白徵明 发表于 2020-12-15 16:19</a>
+
+https://weibo.com/5080252415/JxMQhiLOL
+
+   你管这种叫用户不对？脑子没问题吧？</blockquote>
+都真金白银消费了为啥不能叫？
+
+
+
+
+
+
+
+-----
+
+####  ssd  
+##### 109#       发表于 2020-12-15 22:14
+
+
+
+
+支持先搞索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hytg10  
+##### 110#       发表于 2020-12-15 22:46
+
+
+
+
+我就看PS5国行上线怎么被各路好汉给安排的生死不能。
+
+
+
+
+
+
+
+-----
+
+####  想要jk  
+##### 111#       发表于 2020-12-16 00:19
+
+
+
+
+两方都得罪算波兰传统嘛
+
+
+
+
+
+
+
+-----
+
+####  popchong  
+##### 112#       发表于 2020-12-16 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732669&amp;ptid=1977685" target="_blank">泉美 发表于 2020-12-15 20:58</a>
+
+精户今天这电话会议记录提到了索尼和微软并没有给2077开特别的退款通道，各家依然按各家的退款规则进行退 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">精户这波祸水东引玩的溜啊
+
+
+
+
+
+
+
+-----
+
+####  Tackstone  
+##### 113#       发表于 2020-12-16 00:29
+
+
+
+
+要是微软这时候仗着自己这边量不大来一把带头退款把索尼架在火上烤就好玩了。不过应该不至于。
+
+
+
+
+
+
+
+-----
+
+####  lanyu_u  
+##### 114#       发表于 2020-12-16 00:33
+
+
+
+
+“NINTENDO!”
+
+
+
+
+
+
+
+-----
+
+####  clover293  
+##### 115#       发表于 2020-12-16 00:53
+
+
+
+
+钱都是小问题，关键cdpr现在开个先河说能退，那以后又有工作室说我们要退咋办?你同意吗？
+
+
+
+
+
+
+
+-----
+
+####  FanKiE  
+##### 116#       发表于 2020-12-16 00:56
+
+
+
+
+导演在微博上说你们观众觉得我电影不好看可以直接找电影院退票，结果电影院一脸懵逼
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 117#       发表于 2020-12-16 01:40
+
+
+
+<blockquote>youheng 发表于 2020-12-15 14:04
+有点搞政治的那个味道了，单方面宣布能退款，把矛盾转嫁给索尼和玩家，然后有人开始围任救索，进一步矛盾到 ...</blockquote>
+不，我觉得围任救索只是某些人的膝跳反射
+
+
+
+
+
+
+
+-----
+
+####  greyair  
+##### 118#       发表于 2020-12-16 02:09
+
+
+
+
+xbox用户太少了，竟然好多不知道xbox可以自助退款，每年一次的基本是无理由退款。买了游戏，或者买错游戏的，游玩时间很短的找客服也很容易退款。不能退款基本是买了太长时间，或者游玩时间过长。
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 119#       发表于 2020-12-16 02:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49726426&amp;ptid=1977685" target="_blank">紫苑寺友子 发表于 2020-12-15 12:08</a>
+
+我寻思着，这不是应该波兰人自己去和索尼沟通，发个声明让玩家自己退，然后自己不动？
+
+还是没想到真有人会 ...</blockquote>
+波兰人不会这么蠢的
+
+
+明明就是知道退款时平台策略，他们空口无凭，自然就可以随便乱开支票啦，然后火力就转移到索尼和微软哪里了
+
+
+如果这两家松口真要开始处理退款了，蠢驴才会急吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vaststars  
+##### 120#       发表于 2020-12-17 16:26
+
+
+
+
+为啥一个喷蠢驴的帖子变成喷任豚了
+任任们做错了什么
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  历史厨  
+##### 121#       发表于 2020-12-17 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49752350&amp;ptid=1977685" target="_blank">vaststars 发表于 2020-12-17 16:26</a>
+
+为啥一个喷蠢驴的帖子变成喷任豚了
+
+任任们做错了什么</blockquote>
+Whataboutism:
+
+the technique or practice of responding to an accusation or difficult question by making a counter-accusation or raising a different issue.
+
+-牛津词典
+
+
+Donald Trump这几年来玩这个屡试不爽，也导致这个越来越流行。现在都进牛津英语词典了。
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 122#       发表于 2020-12-17 17:48
+
+
+
+
+口嗨立人设
+蠢驴尽力了
+
+
+
+
+
+                                             
