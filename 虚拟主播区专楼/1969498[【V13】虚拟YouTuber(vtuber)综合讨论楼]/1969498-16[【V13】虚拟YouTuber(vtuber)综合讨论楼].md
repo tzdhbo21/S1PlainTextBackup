@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 20:07** 
+> ## **本文件最后更新于2020-12-18 22:04** 
 
 
 
@@ -23799,6 +23799,8 @@ bsyl eve平安夜会在b站直播，不留档
 
 
 
+ 本帖最后由 alcoholic1000 于 2020-12-18 20:09 编辑 
+
 
 <img src="https://img.saraba1st.com/forum/202012/18/200559kwwnndr85nu8v9wr.jpg" referrerpolicy="no-referrer">
 
@@ -23817,6 +23819,20 @@ bsyl eve平安夜会在b站直播，不留档
 哦哦哦哦哦！！！
 
 来了！！！！！！！哦哦哦！！！！哦哦哦！！！！
+
+
+
+三枝明那(@333akina)の3Dお披露目配信が決定！
+<strong>SEGA</strong>さんのゲキ！チュウマイチーム(@performai)ご協力のもと、音楽ゲーム筐体でのプレイングをリアルタイムで映し出す、業界初の配信…！？
+
+
+≪ 12/25(金)21:00 ≫ 開始！
+
+
+🌶待機場所▽
+[https://youtu.be/yF4hkZUVQzc](https://youtu.be/yF4hkZUVQzc)
+
+
 
 
 
@@ -23840,4 +23856,549 @@ bsyl eve平安夜会在b站直播，不留档
 
 
 
-         
+
+
+-----
+
+####  katern  
+##### 23723#       发表于 2020-12-18 20:08
+
+
+
+
+【歌枠】Piano バラード歌枠！ - ハニカムステーション！ #8【HACHI】
+[https://www.youtube.com/watch?v=lDDjbtH2QW8](https://www.youtube.com/watch?v=lDDjbtH2QW8)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23724#       发表于 2020-12-18 20:11
+
+
+
+
+宣传下kr<img src="https://p.sda1.dev/0/439f06022247b202876f23757b2f2d17/IMG_CMP_185461535.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23725#       发表于 2020-12-18 20:12
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-18 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49764901&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-18 20:06</a>
+
+有啊，我们这些观众啊</blockquote>
+ssk圣诞都不一定播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+Syl，这个世嘉赞助玩音乐游戏机台是什么，还特别说了是业界初次？
+
+Zsyl，友友说是搬了个maimai
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23726#       发表于 2020-12-18 20:15
+
+
+
+
+说的是sega的街机吧
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 23727#       发表于 2020-12-18 20:18
+
+
+
+<img src="https://p.sda1.dev/0/47f9f776816d144c572ca825ce87dc97/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/dc8c169abccf9bb38178e5ef155b158b/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7d3f84c8d823c605bf304961e9e2f517/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/37b35939296bb14839ac30882fae0500/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/52f93fda5a296905447067e4547617e4/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 23728#       发表于 2020-12-18 20:18
+
+
+
+ 本帖最后由 noHentai 于 2020-12-18 20:21 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23729#       发表于 2020-12-18 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49764896&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-18 20:06</a>
+哦哦哦哦哦！！！
+
+来了！！！！！！！哦哦哦！！！！哦哦哦！！！！</blockquote>
+3d小辣椒能不能多唱点
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 23730#       发表于 2020-12-18 20:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">上次mikopeko3d是不是也是搬了台街机进棚来玩？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23731#       发表于 2020-12-18 20:33
+
+
+
+
+管人圈子真要一统了？
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 23732#       发表于 2020-12-18 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49765223&amp;ptid=1969498" target="_blank">死体残留 发表于 2020-12-18 20:33</a>
+
+上次mikopeko3d是不是也是搬了台街机进棚来玩？</blockquote>
+wacca赞助的洗衣机
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23733#       发表于 2020-12-18 20:39
+
+
+
+
+社筑也搬了个机台，所以我也不太明白这个业界首次是什么意思，世嘉的业界首次？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 23734#       发表于 2020-12-18 20:40
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-18 20:53 编辑 
+
+【NIJISANJI KRクリスマスボイス2020販売開始！】
+
+
+ 「クリスマスボイス2020」を販売します！
+
+12月18日（金）20時～28日（月）20時まで！🎄
+
+
+ライバーと一緒に暖かいクリスマスを過ごしてください！🎅
+
+
+▽販売ページリンク▽
+[https://nijisanji-kr.booth.pm](https://nijisanji-kr.booth.pm) 
+
+
+#にじさんじKR #クリスマスボイス2020
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/203922qjo5d5yulz9nn0nc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Epg-JXtVoAA-Yuf.jpg</strong> (1.81 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 20:39 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/203922x1ze1cxx1exx0kde.png" referrerpolicy="no-referrer">
+
+
+<strong>201218203837.png</strong> (100.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 20:39 上传
+
+
+
+
+
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202012/18/203922lm1e3mmgh7hu3313.png" referrerpolicy="no-referrer">
+
+
+<strong>201218202831.png</strong> (63.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 20:39 上传
+
+
+
+
+
+
+
+惯例REPO：
+
+Bora音声的声音好小，
+
+日语听不懂听不懂听不懂听不懂听不懂，
+
+EX: "Yaho, Bora Dayo~" 听不懂听不懂听不懂 "干巴咯，Byebye~"
+
+好可爱好可爱好可爱好可爱好可爱可爱就完事了。
+
+
+靠吵死了不该连播的声音好大。
+
+Iroha唱歌好可爱好可爱好可爱可爱就完事了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23735#       发表于 2020-12-18 21:04
+
+
+
+
+HACHI唱桜流し，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23736#       发表于 2020-12-18 21:05
+
+
+
+
+有没有人管管了！
+
+
+
+
+
+
+D5397EE8-9835-47C1-9BDD-7DA2809DA308.jpeg
+(45.25 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-18 21:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/210520q7j7nhdgi0jgwzjr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23737#       发表于 2020-12-18 21:11
+
+
+
+
+四期都批量2.0了，486的装上了吗？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 23738#       发表于 2020-12-18 21:11
+
+
+
+
+放弃吧
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 23739#       发表于 2020-12-18 21:13
+
+
+
+
+486 2.0不早装上了，只不过是原皮不常用罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23740#       发表于 2020-12-18 21:18
+
+
+
+
+吓死我了还以为是新衣服
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 23741#       发表于 2020-12-18 21:18
+
+
+
+
+华硕又和holo有啥乐子？有无懂哥讲讲
+
+— from HUAWEI LIO-AN00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23742#       发表于 2020-12-18 21:22
+
+
+
+
+没什么乐子，大家都赢了，很完美<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23743#       发表于 2020-12-18 21:39
+
+
+
+
+郡道又去吃贵贵菜然后呕吐了，这是被上帝限制高消费了啊，
+然后同时星川也因为明天的3D紧张到吐，这也是一种贴贴吧
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23744#       发表于 2020-12-18 21:48
+
+
+
+<blockquote>bluebaby 发表于 2020-12-18 21:05
+有没有人管管了！</blockquote>
+无处发泄欲望的老女人对着自己男宠发情不很正常
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23745#       发表于 2020-12-18 21:55
+
+
+
+<blockquote>vorastrix 发表于 2020-12-18 21:18
+华硕又和holo有啥乐子？有无懂哥讲讲
+
+
+— from HUAWEI LIO-AN00, Android 10 of S1 Next Goose v2.4.3 ...</blockquote>
+nga对rog给holo工商发起的抗议取得了成功
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 23746#       发表于 2020-12-18 21:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49765854&amp;ptid=1969498" target="_blank">vorastrix 发表于 2020-12-18 21:18</a>
+
+华硕又和holo有啥乐子？有无懂哥讲讲
+
+
+— from HUAWEI LIO-AN00, Android 10 of S1 Next Goose v2.4.3 ...</blockquote>
+ROGJP找狐联动，然后炎上了之后ROGCN跟那边反映了一下，ROGJP直接就把联动/工商取消了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">现在换4v急了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23747#       发表于 2020-12-18 22:03
+
+
+
+
+狐皇到手的工商被扬了还不许人找相熟的牛郎烫一下？理解万岁好吧。
+
+
+
+
+
+        
