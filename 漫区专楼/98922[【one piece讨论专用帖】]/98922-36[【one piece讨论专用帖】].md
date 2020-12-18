@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 17:51** 
+> ## **本文件最后更新于2020-12-19 04:01** 
 
 
 
@@ -23145,7 +23145,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_SAtFQ" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_rTqa0" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
 
 
 
@@ -23757,6 +23757,25 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 不过这话有个更大的生草点就是凯多几十年没见过玲玲，也没和白胡子打过，那他挑战四皇数次被抓难道都是被香克斯抓的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 团结奋进碇真嗣| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -24668,4 +24687,471 @@ https://b23.tv/iukkPD
 
 
 
-     
+
+
+-----
+
+####  evangelina  
+##### 53834#       发表于 2020-12-18 17:53
+
+
+
+ 本帖最后由 evangelina 于 2020-12-18 17:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760990&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 14:04</a>
+
+海军本部都敢碰一碰。。这和之国不敢打，怎么说都怪怪的
+
+只能说死了的就算了。。最好的兄弟也没有办法</blockquote>
+
+
+早说了御田就是OP里的杰克苏，谁跟他沾边都难讨到好，罗杰白胡子凯多都得给他抬架子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53835#       发表于 2020-12-18 18:04
+
+
+
+ 本帖最后由 届得到 于 2020-12-18 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763466&amp;ptid=98922" target="_blank">evangelina 发表于 2020-12-18 17:53</a>
+
+早说了御田就是OP里的杰克苏，谁跟他沾边都难讨到好，罗杰白胡子凯多都得给他抬架子 ...</blockquote>
+本来就是个乡巴佬村长儿子求五皇复仇凯多的事
+
+
+为了捧这村长非要让乡巴佬强行搭上白胡子和罗杰的船<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，白胡子这种满天下收儿子的破例让这乡巴佬当兄弟而不是儿子，海贼王跪求白胡子把这乡巴佬借给自己。
+
+
+真的是一己之力带崩白胡子和红发两人人设
+
+
+
+
+
+
+
+-----
+
+####  guiminan  
+##### 53836#       发表于 2020-12-18 18:24
+
+
+
+
+说起来我看过一个同人写的是白胡子在打赢顶上后就去和之国揍凯多，最后在和凯多、大妈的激战中壮烈牺牲的剧情，现在看来同人都比尾田会编<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53837#       发表于 2020-12-18 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760990&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 14:04</a>
+
+海军本部都敢碰一碰。。这和之国不敢打，怎么说都怪怪的
+
+只能说死了的就算了。。最好的兄弟也没有办法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个前面的楼层我们也谈过了，本来这玩意逼格还在的时候看起来很虎，结果好家伙，御田的剧情出来以后。凯多：油锅大王天下无敌。怎么海军就给他下油锅呢。
+
+至于人设营销这个，都说他是网红型烙印币四皇了，专门去刷流量。
+
+
+
+
+
+
+
+-----
+
+####  所在彼方  
+##### 53838#       发表于 2020-12-18 20:35
+
+
+
+
+one piece的正体是预言书，白胡子的形象不会崩 。现在应该已经可以基本确定去过拉夫德鲁的人获得了一定来自未来的信息，所以御田直接让老婆把家臣送去二十年后找命中注定的人。 罗杰得到ONE PIECE后透露过一部分未来给白胡子，白胡子知道自己不是御田等的那个人，所以才没有去干预也制止艾斯去干预和之国的事。
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 53839#       发表于 2020-12-18 22:35
+
+
+
+
+当年御田装傻骗过了所有人，暗杀了凯多，制造了克隆凯多之后隐居幕后，正式成为达斯维……黑武士，老婆和家臣全被骗了，大和才是需要被救的公主！
+
+
+然后就让索隆斩假凯多，御田穿着黑色盔甲登场，一句I'm you father对桃之助说到一半被五皇一拳轰飞，一切都好起来了，这样我觉得还有救XD （并不
+
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53840#       发表于 2020-12-18 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763021&amp;ptid=98922" target="_blank">赚钱娶老婆 发表于 2020-12-18 17:11</a>
+
+红发和御田不熟吗？</blockquote>
+相当熟
+
+红发和巴基都说过御田老哥以后有困难可以找我
+
+看来红发也怕凯多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗杀翻看是  
+##### 53841#       发表于 2020-12-18 23:22
+
+
+
+
+御田这个角色真的是删了好，不知道怎么想的搞这么个杰克苏上去
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 53842#       发表于 2020-12-18 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49767456&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2020-12-18 23:22</a>
+御田这个角色真的是删了好，不知道怎么想的搞这么个杰克苏上去</blockquote>
+就当一个npc和翻译官就成了，偏要刷时髦。
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53843#       发表于 2020-12-19 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763744&amp;ptid=98922" target="_blank">guiminan 发表于 2020-12-18 18:24</a>
+ 说起来我看过一个同人写的是白胡子在打赢顶上后就去和之国揍凯多，最后在和凯多、大妈的激战中壮烈牺牲的剧 ...</blockquote>
+这剧情好在哪？
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53844#       发表于 2020-12-19 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763570&amp;ptid=98922" target="_blank">届得到 发表于 2020-12-18 18:04</a>
+ 本来就是个乡巴佬村长儿子求五皇复仇凯多的事  为了捧这村长非要让乡巴佬强行搭上白胡子和罗杰的船 ...</blockquote>
+御田没回和之国之前的剧情有什么问题
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53845#       发表于 2020-12-19 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49765267&amp;ptid=98922" target="_blank">所在彼方 发表于 2020-12-18 20:35</a>
+
+one piece的正体是预言书，白胡子的形象不会崩 。现在应该已经可以基本确定去过拉夫德鲁的人获得了一定来自 ...</blockquote>
+把剧情抛给所谓预言的话，这主线就彻底没意思了。要是相信什么预言，而自己不主动去做什么，那就很讨厌。不知道你有没有看过深渊传说。最终boss就是讨厌那样的世界。虽然预言跟宿命是不一样的。这种处理得比较好的就是降世神通，本来有机会提前杀掉大boss，但是我不会这么做，因为有比我更适合阻止你的人，他会做的比我更好。
+
+
+不过我觉得尾田能搞出这种破事儿，估计也想不到那层。one piece不能既是一个笑话也是一个预言。
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 53846#       发表于 2020-12-19 00:46
+
+
+
+
+这下完了，谁只要跟御田沾点关系，逼格都要蹭蹭的往下掉，有种尾田就要栽在和之国的感觉，确切的说，尾田可能要栽在御田手里。其实可以这么圆，白胡子阅人无数，早就看穿了御田就是个无脑之人，成不了啥大事，不过武力尚可，暂时就当个工具人用用吧，当然做戏要做全套，怎么说也是四皇，不要做得太明显，这样的一个二货死了，怎么可能再让自己的儿子们白白的为他去送命。
+
+
+
+
+
+
+
+-----
+
+####  csd  
+##### 53847#       发表于 2020-12-19 00:53
+
+
+
+ 本帖最后由 csd 于 2020-12-19 00:59 编辑 
+
+所以白胡子的人设也只是炒作出来的而已吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+难怪顶上红狗一句白团都是胆小鬼失败者就让艾斯直接破防，看来确实是戳到痛处上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  公西赤  
+##### 53848#       发表于 2020-12-19 01:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768167&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-12-19 00:46</a>
+
+这下完了，谁只要跟御田沾点关系，逼格都要蹭蹭的往下掉，有种尾田就要栽在和之国的感觉，确切的说，尾田可 ...</blockquote>
+那也太厚黑了，白胡子不止于此……
+
+主要观众实在不觉得这位太子爷有什么魅力可言，倒是傻的冒泡。
+
+不知道和之国的人这么心心念念，草帽团听完心向往之是怎么一回事，感情和读者太脱节了~
+
+
+这就搞得回忆录里出场的人物怎么都很别扭。
+
+特别是甚么凯多钦定要花三五年才能追赶上御田的实力这种莫名其妙的设定，搞得这个臃肿的篇章已经让大家都不买账了。
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 53849#       发表于 2020-12-19 01:23
+
+
+
+
+老白不打和之国的理由也简单
+
+黑胡子下船的时候，麻子要抓，老白不让他追，理由是预感不好
+
+打和之国的危险程度也不小，可能是觉得为了死了的弟弟和生死未卜的儿子搭上还活着的儿子不值得吧
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 53850#       发表于 2020-12-19 01:24
+
+
+
+
+事实证明
+
+老白这个预感还是很灵验的
+
+艾斯就是因为不听话
+
+搭上一堆人命（
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53851#       发表于 2020-12-19 02:08
+
+
+
+
+“你考虑过会有多大的牺牲吗”
+
+
+那你们旁边这个白色月牙胡子的老头是考虑了牺牲所以跑到海上来天天找儿子认的吗
+
+
+
+
+
+
+
+-----
+
+####  饭太稀  
+##### 53852#       发表于 2020-12-19 02:11
+
+
+
+
+以前单个篇章不好看其实也就算了，和之国要命的跟主线和全作收尾部分密不可分，上面的预言基本就是我设想的最不愿看到的展开。这章又是预言又是穿越，和之国一群人等待救世主，知道op秘密的人都各安天命，打御田脸看起来是不可能打的，连带D和最终岛这些核心谜底我现在也把期待往低放了
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53853#       发表于 2020-12-19 02:18
+
+
+
+
+群友就抱怨，“以藏居然也没主动想回去，还要艾斯去才跟着去”
+
+
+我只能说，这说明了大家所谓仁义其实都是嘴上说说的，出海了就不想回去，也懒得给自己找事，非常真实，这才是海贼。总说尾田埋伏笔nb，暗线丰富，说不定这也是伏笔，你们以为所谓暗线是指消失的100年的真相，其实不是，真正的暗线是这群海贼所谓仁义的脸，早晚要全给撕破，告诉你们，赤犬才是真的大好人。尾田的暗线，牛逼。
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 53854#       发表于 2020-12-19 03:32
+
+
+
+ 本帖最后由 evangelina 于 2020-12-19 03:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763570&amp;ptid=98922" target="_blank">届得到 发表于 2020-12-18 18:04</a>
+
+本来就是个乡巴佬村长儿子求五皇复仇凯多的事
+
+
+为了捧这村长非要让乡巴佬强行搭上白胡子和罗杰的船 ...</blockquote>
+
+凯多的人设也崩了吧？在智将和莽夫间反复横跳。
+
+
+其实偷袭也就偷袭吧，还强调凯多敬重御田觉得对不住他。这感觉不如又使诈算计还过去那么多年没忘记对方，凯多别是爱上御田了吧
+
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 53855#       发表于 2020-12-19 03:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768543&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-18 12:18</a>
+
+群友就抱怨，“以藏居然也没主动想回去，还要艾斯去才跟着去”
+
+
+我只能说，这说明了大家所谓仁义其实都是 ...</blockquote>
+仁义如何暂且不提，我个人觉得是出海了就视为独立成人了吧，故乡虽然重要但跟自己的梦想相比还是太渺小了，要是故乡出点事就老心想念念的就别出海了，比如东海肯定也不是一片太平，也有小打小闹，但你现在让路飞掉头回东海去帮他的家乡解决烦恼啥的，他肯定也不干啊
+
+薇薇那种之所以执意要回故乡是因为她本身是王位继承人，而且出海对她来说不是目的，而是达成她目的的手段，以藏又不是和之国大名啥的，出海对他来说不是手段而是目的，毕竟出海就是为了寻求无拘无束的自由生活，既然出来了也就没必要特意回去了吧
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 53856#       发表于 2020-12-19 03:46
+
+
+
+ 本帖最后由 evangelina 于 2020-12-19 03:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768115&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-19 00:37</a>
+
+把剧情抛给所谓预言的话，这主线就彻底没意思了。要是相信什么预言，而自己不主动去做什么，那就很讨厌。 ...</blockquote>
+
+
+同意，one piece是预言书的话这漫画一些立意怕不是都要被毁了。
+
+
+要是五皇能对世界产生影响不是因为他打算成为大海上最自由的人，而是某个预言钦定的。其他人为与不为都是给五皇铺路，只因为他命中如此。那五皇这一路的冒险又算什么。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
