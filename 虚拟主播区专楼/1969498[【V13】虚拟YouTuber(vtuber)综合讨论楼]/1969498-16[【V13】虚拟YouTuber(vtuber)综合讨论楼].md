@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 20:04** 
+> ## **本文件最后更新于2020-12-19 22:06** 
 
 
 
@@ -26278,7 +26278,7 @@ js可爱
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-19 20:04 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-19 20:24 编辑 
 
 飞快地跑回来看星川但叶师全部错过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -26295,6 +26295,50 @@ js可爱
 
 
 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/200600ue5467f5i4xo5b55.png" referrerpolicy="no-referrer">
+
+
+<strong>【初3Dお披露目】世界１可愛くてごめん！W【にじさんじ:#星川サラ3D】-2.png.png</strong> (627.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:06 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/201229n1amelde14b6dibj.png" referrerpolicy="no-referrer">
+
+
+<strong>【初3Dお披露目】世界１可愛くてごめん！W【にじさんじ:#星川サラ3D】-3.png.png</strong> (689.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/202451wfybdwe3786d7fbg.png" referrerpolicy="no-referrer">
+
+
+<strong>【初3Dお披露目】世界１可愛くてごめん！W【にじさんじ:#星川サラ3D​】-4.png.png</strong> (449.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:24 上传
+
+
+
+
+
 [https://www.youtube.com/watch?v=9lPuJIcGdUM](https://www.youtube.com/watch?v=9lPuJIcGdUM)
 
 
@@ -26303,4 +26347,2139 @@ js可爱
 
 
 
-     
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23832#       发表于 2020-12-19 20:11
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gltfblizdfj20xv0j1ad6.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gltfbpzw9uj20xh0j3whw.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gltfbv8j61j20xt0iwn0g.jpg" referrerpolicy="no-referrer">
+
+
+请给我钱
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 23833#       发表于 2020-12-19 20:16
+
+
+
+
+错过十几分钟还行<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zwxclear  
+##### 23834#       发表于 2020-12-19 20:18
+
+
+
+
+这个过场
+
+<img src="https://img.saraba1st.com/forum/202012/19/201830n2zzu6z0iuauzagb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201219201802.png</strong> (906.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 23835#       发表于 2020-12-19 20:18
+
+
+
+
+星川3d这个眼睛还做的挺好看的，但是3d以后只剩可爱没有欠揍了是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依旧ing  
+##### 23836#       发表于 2020-12-19 20:19
+
+
+
+
+过场的床上视角爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 23837#       发表于 2020-12-19 20:21
+
+
+
+<img src="https://i.loli.net/2020/12/19/gf4Tz6asOVx1yD7.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 23838#       发表于 2020-12-19 20:21
+
+
+
+
+果不其然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叛忍
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 23839#       发表于 2020-12-19 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">别舔了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23840#       发表于 2020-12-19 20:25
+
+
+
+
+发了那么多，钱打了吗？之前的那次不算
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23841#       发表于 2020-12-19 20:27
+
+
+
+ 本帖最后由 Vneet 于 2020-12-19 20:29 编辑 
+
+看了一个bml什么玩意，一只天猫金主爸爸在伴舞
+
+wc最后还变人形了。
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 23842#       发表于 2020-12-19 20:33
+
+
+
+
+跟前面3位电音，mea的怎么这么拉
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 23843#       发表于 2020-12-19 20:33
+
+
+
+
+过场挺有趣的
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 23844#       发表于 2020-12-19 20:34
+
+
+
+
+舔到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 23845#       发表于 2020-12-19 20:34
+
+
+
+
+草，阿希来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  这声音也太牙白了
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 23846#       发表于 2020-12-19 20:34
+
+
+
+
+届到了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23847#       发表于 2020-12-19 20:34
+
+
+
+
+限界阿希来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哭了草
+
+
+
+
+
+
+
+-----
+
+####  qwe759364  
+##### 23848#       发表于 2020-12-19 20:35
+
+
+
+
+马小姐来了，转播man无了
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 23849#       发表于 2020-12-19 20:35
+
+
+
+
+肥希来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23850#       发表于 2020-12-19 20:35
+
+
+
+
+希小姐连线语无伦次泣不成声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒼島燃灯  
+##### 23851#       发表于 2020-12-19 20:35
+
+
+
+
+草，第一个是阿希
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 23852#       发表于 2020-12-19 20:36
+
+
+
+
+草，睿站这个转播断了一下然后把小肥妹给盖了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23853#       发表于 2020-12-19 20:37
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 20:54 编辑 
+
+老师来了！！
+
+这不是完全掰不起来嘛！
+
+<img src="https://img.saraba1st.com/forum/202012/19/204229r9h0llcha9zfykoh.png" referrerpolicy="no-referrer">
+
+
+<strong>【初3Dお披露目】世界１可愛くてごめん！W【にじさんじ:#星川サラ3D】-5.png.png</strong> (465.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:42 上传
+
+
+
+
+
+
+三个凸待名额，一个holo一个虹一个苔，突出一个端水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/205352qz2oefpc1vnp1nci.png" referrerpolicy="no-referrer">
+
+
+<strong>【初3Dお披露目】世界１可愛くてごめん！W【にじさんじ:#星川サラ3D】-6.png.png</strong> (598.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:53 上传
+
+
+
+
+
+
+
+草，厄介军舰厨
+
+
+
+
+
+
+
+-----
+
+####  蒼島燃灯  
+##### 23854#       发表于 2020-12-19 20:37
+
+
+
+
+掐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23855#       发表于 2020-12-19 20:37
+
+
+
+
+草，这转播也太阳光了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23856#       发表于 2020-12-19 20:38
+
+
+
+
+holo(✘) ykw(✔)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23857#       发表于 2020-12-19 20:40
+
+
+
+
+还是那句，有必要么？看着就觉得滑稽。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 23858#       发表于 2020-12-19 20:40
+
+
+
+
+抵制不绝对就是绝对不抵制
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 23859#       发表于 2020-12-19 20:41
+
+
+
+
+红团长mix挨打，什么玩意
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 23860#       发表于 2020-12-19 20:43
+
+
+
+
+当然有必要了，杏粉不知道杏现在有多脏么....<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 23861#       发表于 2020-12-19 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团长的声音怎么这么抖
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 23862#       发表于 2020-12-19 20:43
+
+
+
+
+这个mix反而显得比较有现场感
+
+
+
+
+
+
+
+-----
+
+####  Abyssmarionette  
+##### 23863#       发表于 2020-12-19 20:44
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-19 20:25
+发了那么多，钱打了吗？之前的那次不算</blockquote>
+开播前又打了1w2
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23864#       发表于 2020-12-19 20:45
+
+
+
+
+当然有必要啦，这就是小辫子，不能留的。
+
+杏奴差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 23865#       发表于 2020-12-19 20:46
+
+
+
+
+中国爱这动次打次也忒接地气了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23866#       发表于 2020-12-19 20:46
+
+
+
+<blockquote>plok201 发表于 2020-12-19 20:43
+当然有必要了，杏粉不知道杏现在有多脏么....</blockquote>
+脏不脏又不是杏仁决定的，就像他们当初认为赤井心惩罚过重且tskk惩罚过轻一样
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23867#       发表于 2020-12-19 20:48
+
+
+
+
+希望pxj和字幕组共同努力，建设完全切割404的cn 虚拟主播新环境。
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 23868#       发表于 2020-12-19 20:50
+
+
+
+
+虹两月前就发了公告禁止转播和杏的联动，大雄……
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 23869#       发表于 2020-12-19 20:51
+
+
+
+
+啊b转播被掐了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23870#       发表于 2020-12-19 20:51
+
+
+
+
+阳光虹人好耶
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 23871#       发表于 2020-12-19 20:53
+
+
+
+
+切的是你杏，和404有什么关系
+你杏＝404？
+哦，杏奴脑子里可能还真是这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 23872#       发表于 2020-12-19 20:53
+
+
+
+
+绯赤这个3D非常不适合黑屏，看起来就像片轮少女一样。选曲也不知道是哪位大才选的，对比太明显了，催着人去回忆那个300万播放的视频呢。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23873#       发表于 2020-12-19 20:54
+
+
+
+
+说的好像pxj对两头跑的主播没意见一样，赶紧切割了只剩专供yhm和残存国v不香吗。
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 23874#       发表于 2020-12-19 20:54
+
+
+
+
+天无二日，爱始皇是我心中唯一的太阳
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23875#       发表于 2020-12-19 20:54
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gltgjw5pefj20xr0ixad7.jpg" referrerpolicy="no-referrer">
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gltgjzef07j20xu0j3dj6.jpg" referrerpolicy="no-referrer">
+
+
+她的loading画面不讲武德<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LilMemo| + 1|太可爱了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 23876#       发表于 2020-12-19 20:54
+
+
+
+
+杏奴差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23877#       发表于 2020-12-19 20:54
+
+
+
+
+那么阿批那些杏海盗组以及转载杏繁体熟肉的能不能也给橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 23878#       发表于 2020-12-19 20:54
+
+
+
+
+DJ（放歌）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23879#       发表于 2020-12-19 20:55
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 20:58 编辑 
+
+这什么cp厨，太好笑了，再笑一次
+
+不破...说实话有点emo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怕不是又要切一次...
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23880#       发表于 2020-12-19 20:55
+
+
+
+
+那只是觉着404能随便联动，两社牌面人物都能一起人狼，看起来两家公司没人在意。
+
+一到b站见到凸待来了个敌社的人就跟见了鬼一样抖着手切转播，太阳光，让咱这种阴湿人不适罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23881#       发表于 2020-12-19 20:57
+
+
+
+
+DJ打到哈恰玛的歌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 23882#       发表于 2020-12-19 20:57
+
+
+
+
+草 还有哈恰玛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 23883#       发表于 2020-12-19 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你B还是不够彻底，不如直接把holo相关的全部下了
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 23884#       发表于 2020-12-19 20:59
+
+
+
+
+哈哈哈，看啊b弹幕逗乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 23885#       发表于 2020-12-19 20:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777153&amp;ptid=1969498" target="_blank">a37356205 发表于 2020-12-19 20:58</a>
+
+你B还是不够彻底，不如直接把holo相关的全部下了</blockquote>
+那是马保国的待遇，算了吧。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23886#       发表于 2020-12-19 20:59
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 21:02 编辑 
+
+阿叶！！
+
+（这歌太掐嗓子了）
+
+星川3d配信都要敲上一句催下次配信
+
+
+叶大师！！能不能像个男人，主动邀请啊！！！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23887#       发表于 2020-12-19 21:00
+
+
+
+
+干嘛，nga钦定的fh不比马保国那点破事严重多了。本路灯人双手支持全面封禁好吧。
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 23888#       发表于 2020-12-19 21:00
+
+
+
+
+叶星，我的叶星，阿叶你咋还不跟星川联动，这卫星咋还不下来
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 23889#       发表于 2020-12-19 21:01
+
+
+
+
+杏奴差不多得了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23890#       发表于 2020-12-19 21:01
+
+
+
+
+虽然叶星是很好的，但是还是很想杀了不破啊……这到底泡了多少虹女了……只恨自己不是虹男
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23891#       发表于 2020-12-19 21:02
+
+
+
+
+星川<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23892#       发表于 2020-12-19 21:02
+
+
+
+
+杏奴差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 23893#       发表于 2020-12-19 21:04
+
+
+
+
+没看转播，刚才玻璃人有多乐
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23894#       发表于 2020-12-19 21:05
+
+
+
+
+不破是男女通吃的，一般人学不来
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23895#       发表于 2020-12-19 21:06
+
+
+
+
+本来应该驱逐出境，但叔叔法外开恩，划了一片灰色地带。杏奴不感恩戴德，还想反攻倒算？耗子尾汁，好好反思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23896#       发表于 2020-12-19 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  反正我在404看又无所谓  只是看直播和管直播的人要看场直播手动紧急切三次，烤肉要剪掉三段，麻烦的是他们wwww   
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23897#       发表于 2020-12-19 21:07
+
+
+
+
+stf同意liver开心，只有转播人和尼哥谭的阳光人血压爆炸，这实在有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 23898#       发表于 2020-12-19 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777221&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-19 07:01</a>
+
+虽然叶星是很好的，但是还是很想杀了不破啊……这到底泡了多少虹女了……只恨自己不是虹男 ...</blockquote>
+牛郎本职工作没什么问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23899#       发表于 2020-12-19 21:09
+
+
+
+
+你郡庆祝完星川3D回来，在军舰曲中开始自搜，然后发现一堆“郡道+星川/马自立/犬山滚蛋”，不知是什么心情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+省一楼，郡道昨天读了三十多个棉花糖，好久没有如此充实！
+再省一楼，月之这是接到了uha工商？新project是什么啊？uha不是给杏fes赞助吗？两开花？
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 23900#       发表于 2020-12-19 21:09
+
+
+
+
+虹人中应该没有铁血转播民吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23901#       发表于 2020-12-19 21:10
+
+
+
+
+记录一下出现的人
+
+郡神-amigo
+
+不破
+
+赤井心
+
+叶
+
+绿仙
+
+夏色祭
+
+谢林
+
+翔哥
+
+织姬星
+
+
+真是温柔的好女人啊...
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 23902#       发表于 2020-12-19 21:11
+
+
+
+
+什么？我2077都通了几天了，宫皇的英灵殿还没打完？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23903#       发表于 2020-12-19 21:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777372&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-19 21:09</a>
+你郡庆祝完星川3D回来，在军舰曲中开始自搜，然后发现一堆“郡道+星川/马自立/犬山滚蛋”，不知是什么心情[ ...</blockquote>
+uha好像找了好几家
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 23904#       发表于 2020-12-19 21:12
+
+
+
+ 本帖最后由 某穆克拉 于 2020-12-19 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777372&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-19 21:09</a>
+
+你郡庆祝完星川3D回来，在军舰曲中开始自搜，然后发现一堆“郡道+星川/马自立/犬山滚蛋”，不知是什么心情[ ...</blockquote>
+小白月之空妈还有艾琳，都请了。好像自己也要推一个v出来的样子。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23905#       发表于 2020-12-19 21:15
+
+
+
+
+每次看到“阳光虹人”这四个字就觉得很搞笑，不知道是哪个小天才说出来的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+话说BML有什么乐子吗，准备看录播的没跟上<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23906#       发表于 2020-12-19 21:16
+
+
+
+
+月之去跟小白时乃空一起上企划啊......
+虽然感觉其实有很多次了,但还是很感慨，月之长大了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+好怕月之变成姨<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 23907#       发表于 2020-12-19 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777462&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-19 21:15</a>
+每次看到“阳光虹人”这四个字就觉得很搞笑，不知道是哪个小天才说出来的
+
+话说BML有什么乐子吗，准 ...</blockquote>
+可以看爱丽丝和海牛的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23908#       发表于 2020-12-19 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777462&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-19 21:15</a>
+每次看到“阳光虹人”这四个字就觉得很搞笑，不知道是哪个小天才说出来的
+
+话说BML有什么乐子吗，准 ...</blockquote>
+nga虹人
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 23909#       发表于 2020-12-19 21:22
+
+
+
+
+杏奴差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+转播人同意b小将开心，只有贵楼杏奴血压爆炸，这实在有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 23910#       发表于 2020-12-19 21:25
+
+
+
+
+去看了一下绯赤的切片，原来后面屏幕上是一只身上一直在掉粉的鲸鱼，上面是落樱，b站有心了。切片比直播的好了一点，但是还是不好听。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 23911#       发表于 2020-12-19 21:27
+
+
+
+
+海外看不了bml直播 看了下hh的回放 我只想杀摄影的马
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23912#       发表于 2020-12-19 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 人家liver和阿杏玩的开心，staff也同意联动，
+
+
+你nga阳光虹人反对？你算老几？
+
+
+阳光囚人前几天不去冲和杏联动的月之吗？老双标阳光囚人了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23913#       发表于 2020-12-19 21:28
+
+
+
+
+秒发切片吗，这不得给百万调音师调教后再发吗舰队巅峰九折排面<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23914#       发表于 2020-12-19 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777602&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2020-12-19 21:25</a>
+去看了一下绯赤的切片，原来后面屏幕上是一只身上一直在掉粉的鲸鱼，上面是落樱，b站有心了。切片比直播的 ...</blockquote>
+别瞎说，团长紧张有点拉跨，直播比这好听
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23915#       发表于 2020-12-19 21:31
+
+
+
+
+选曲单相思的原因当然是…………阿B的观众喜欢阿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 23916#       发表于 2020-12-19 21:34
+
+
+
+
+团长歌力确实就那样，免费那榜排个D底端其实差不多<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 23917#       发表于 2020-12-19 21:37
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-19 21:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777655&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2020-12-19 21:29</a>
+
+别瞎说，团长紧张有点拉跨，直播比这好听</blockquote>
+我说的是bml的直播和切片。
+
+你说的那个我去听了一下，还行吧，就是声音一直颤来颤去的，可能我夏色祭版本听多了，不是喜欢绯赤这种唱法。顺便bml的版本能垮成这样也是想不到。
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 23918#       发表于 2020-12-19 21:37
+
+
+
+
+nga都吹这场bml是世界最大管人live了，就这吗
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23919#       发表于 2020-12-19 21:40
+
+
+
+
+世界最大？观看人数最多还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  你是个好人  
+##### 23920#       发表于 2020-12-19 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻了下绿帽潭虹楼，也没几个阴湿的，不及楼友一半吧
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 23921#       发表于 2020-12-19 21:43
+
+
+
+
+月灵这体调不良连鸽两周，放假旅游去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23922#       发表于 2020-12-19 21:44
+
+
+
+<img src="https://i.loli.net/2020/12/19/gY4AXdcNxBQjqHf.png" referrerpolicy="no-referrer">我在nico看得，还可以
+
+太君们最后那曲都看感动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 23923#       发表于 2020-12-19 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777777&amp;ptid=1969498" target="_blank">759465155 发表于 2020-12-19 21:37</a>
+
+nga都吹这场bml是世界最大管人live了，就这吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像勉勉强强只有一半算是油管人
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23924#       发表于 2020-12-19 21:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/214414p23c31xv6xxir66q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7c891ad5ad6eddc49ad302be2edbb6fd52663338.jpg</strong> (99.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 21:44 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AIOS  
+##### 23925#       发表于 2020-12-19 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777777&amp;ptid=1969498" target="_blank">759465155 发表于 2020-12-19 21:37</a>
+
+nga都吹这场bml是世界最大管人live了，就这吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那你找一个出来？
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 23926#       发表于 2020-12-19 21:51
+
+
+
+
+确实 没杏人的演唱会我杏奴不认的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23927#       发表于 2020-12-19 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 丰州不比你这bml强多了？，
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 23928#       发表于 2020-12-19 21:52
+
+
+
+
+不是吹世界最大，是亚洲最大
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23929#       发表于 2020-12-19 21:52
+
+
+
+
+切片好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+这是一部分人录像一部分人现场吗
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 23930#       发表于 2020-12-19 21:52
+
+
+
+
+整个bml大部分都是录播，能不快么
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 23931#       发表于 2020-12-19 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏奴差不多得了
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 23932#       发表于 2020-12-19 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些杏奴yygq前先看看切片内容吧，这也能嗯云的吗
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23933#       发表于 2020-12-19 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">差不多得了，这一页哪有杏仁，虚空打靶，顺便那帖子里面不就有人举例虹的live就比bml大。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 23934#       发表于 2020-12-19 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777950&amp;ptid=1969498" target="_blank">AIOS 发表于 2020-12-19 21:49</a>
+
+那你找一个出来？</blockquote>
+当然是我大杏明天的2nd啦，没有我大杏能叫管人live？一帮cylx凑起来的东西，狗都不看<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23935#       发表于 2020-12-19 21:55
+
+
+
+
+味觉糖搞的那个企划不知道具体是怎么样，有点虹杏的代表倒是很正常，但怎么还有艾琳一家的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 23936#       发表于 2020-12-19 21:56
+
+
+
+
+这个亚洲最大不是世界最大的话
+
+那就是欧洲/北美/南美/非洲/大洋洲/南极洲还有更大的咯……
+
+没有的话那也的确是世界最大啦
+
+虽说的确是这个事实，可世界最大四个字听起来实在觉得挺滑稽的
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 23937#       发表于 2020-12-19 21:56
+
+
+
+
+看得好累啊，你们谁是杏奴能不能自己标出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  间隙白垢  
+##### 23938#       发表于 2020-12-19 21:57
+
+
+
+
+你楼某些人深知大义不在自己，还是要借嘲讽泥哥pxj的大旗暗搓搓为木口辨白
+
+真的很靓仔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23939#       发表于 2020-12-19 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真看live，还得看我虹明年的fes阿，肯定不会因为疫情取消的fes阿，
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23940#       发表于 2020-12-19 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个真飞鸟不就是死硬派杏奴么
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 23941#       发表于 2020-12-19 21:59
+
+
+
+<img src="https://i.loli.net/2020/12/19/8qfXbkK6zsdem5R.gif" referrerpolicy="no-referrer">
+可爱～
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|这个真的，超级|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23942#       发表于 2020-12-19 21:59
+
+
+
+
+HH真强啊
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 23943#       发表于 2020-12-19 22:00
+
+
+
+
+挺火星地发现眠大佐的关注列表里有个江户lena<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23944#       发表于 2020-12-19 22:01
+
+
+
+
+想了下ニコニコ超パーティー2018和バーチャル大晦日2018大概比不过BML吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 23945#       发表于 2020-12-19 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会自觉上路灯的不就是杏仁么
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23946#       发表于 2020-12-19 22:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778035&amp;ptid=1969498" target="_blank">759465155 发表于 2020-12-19 21:54</a>
+当然是我大杏明天的2nd啦，没有我大杏能叫管人live？一帮cylx凑起来的东西，狗都不看 ...</blockquote>
+你是忘了切号么 和另一个人你说他问你答这套组合拳给我看楞了?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23947#       发表于 2020-12-19 22:03
+
+
+
+ 本帖最后由 admentus 于 2020-12-19 22:05 编辑 
+
+虹两国的不就比你批大多了？你批现场都没坐满呢
+
+
+另外要aoe杏奴请查历史回复，我还以为楼友这么长时间屁股认得差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+比起什么“给杏洗地”，还是无知的新时代人云旧时代更加令人讨厌。至于杏的live...杏奴会不知道你杏在这方面差虹多少吗？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 23948#       发表于 2020-12-19 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 自问自答虚空打靶顺劈的死个🐴不过分吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1||
+
+
+
+查看全部评分
+
+
+
+
+ 

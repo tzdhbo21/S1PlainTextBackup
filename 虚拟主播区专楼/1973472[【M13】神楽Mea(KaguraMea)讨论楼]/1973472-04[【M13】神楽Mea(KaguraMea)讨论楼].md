@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 16:12** 
+> ## **本文件最后更新于2020-12-19 22:12** 
 
 
 
@@ -16753,4 +16753,1921 @@ b博
 
 
 
-                  
+
+
+-----
+
+####  physi1202  
+##### 5434#       发表于 2020-12-19 17:51
+
+
+
+<img src="https://p.sda1.dev/0/5add11d2f0d3b7fe686a4592b7831024/IMG_CMP_176814995.jpeg" referrerpolicy="no-referrer">
+我不会被新时代人打吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5435#       发表于 2020-12-19 17:59
+
+
+
+
+我们精神上支持你
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5436#       发表于 2020-12-19 17:59
+
+
+
+ 本帖最后由 路人庚 于 2020-12-19 18:04 编辑 
+
+照片返图好评
+
+syl，fleet两条
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/180417dc4nflaffzc3e0h4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3F89B408-DEA9-4509-9C3A-A0533C513127.jpeg</strong> (108.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 18:04 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/180418plfg55fdalfwz1lf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5BF2D39D-3E67-4F9A-A0C7-8CB014F9C96E.jpeg</strong> (53.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 18:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5437#       发表于 2020-12-19 18:07
+
+
+
+
+么得意思，到你麻了喊一声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5438#       发表于 2020-12-19 18:08
+
+
+
+[https://live.bilibili.com/5086](https://live.bilibili.com/5086)
+
+已经开始了吗？
+
+
+话说这个应该就是播片吧？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5439#       发表于 2020-12-19 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠你楼了，我也懒得跟直播
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5440#       发表于 2020-12-19 18:10
+
+
+
+
+唱跳可能是播片 不过应该会有互动
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5441#       发表于 2020-12-19 18:13
+
+
+
+
+6分钟一个，你咩姐在第25个，应该是8点之后了
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 5442#       发表于 2020-12-19 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49774295&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2020-12-19 18:10</a>
+
+唱跳可能是播片 不过应该会有互动</blockquote>
+别想了都是录播，B站没资源也没胆子搞这么多人的直播
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 5443#       发表于 2020-12-19 18:20
+
+
+
+
+开了喊一下
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5444#       发表于 2020-12-19 19:07
+
+
+
+
+不是都说是录播吗 那小麻的那俩fleet是啥意思
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5445#       发表于 2020-12-19 19:15
+
+
+
+
+现场互动可能不是录播,但是现场互动大概率只是给模型配个音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5446#       发表于 2020-12-19 19:15
+
+
+
+
+日本应该是传流，按前面几人看的话
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 5447#       发表于 2020-12-19 19:23
+
+
+
+
+冷鸟第一首歌有现场乐队的
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 5448#       发表于 2020-12-19 19:43
+
+
+
+
+从中场休息播片反应来看新时代人基本都坐在后面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不担心被打了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5449#       发表于 2020-12-19 20:06
+
+
+
+
+现在第20个节目，你咩姐估计8点半
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5450#       发表于 2020-12-19 20:12
+
+
+
+
+有点紧张 估计小麻出场要满屏3zm 774 呜↑呜↓<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| npfjcg|-1|那还挺弱智的|
+| Cushaw|-1|那还挺弱智的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5451#       发表于 2020-12-19 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5452#       发表于 2020-12-19 20:25
+
+
+
+
+第24个了，后面一个就是你咩姐力
+[https://live.bilibili.com/5086](https://live.bilibili.com/5086)
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5453#       发表于 2020-12-19 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">desu
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5454#       发表于 2020-12-19 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5455#       发表于 2020-12-19 20:27
+
+
+
+
+不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 准备手动打call刷掉垃圾弹幕
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5456#       发表于 2020-12-19 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我关弹幕了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5457#       发表于 2020-12-19 20:28
+
+
+
+
+正面作战 绝不投降！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5458#       发表于 2020-12-19 20:29
+
+
+
+
+来了，正好放在天猫后面还行，这就是叔叔的爱吗
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5459#       发表于 2020-12-19 20:30
+
+
+
+
+三字母已经刷起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5460#       发表于 2020-12-19 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5461#       发表于 2020-12-19 20:31
+
+
+
+
+这就是bls那次线下事前大作战的新军服3D
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5462#       发表于 2020-12-19 20:31
+
+
+
+
+这3d脸不行啊
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 5463#       发表于 2020-12-19 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这怎么全程在刷无关的东西，弹幕延迟？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5464#       发表于 2020-12-19 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">为什么echo，这首歌一直不太对胃口
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5465#       发表于 2020-12-19 20:32
+
+
+
+
+弹幕延迟吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5466#       发表于 2020-12-19 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就是那个，照着草莓果酱改的头吗
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 5467#       发表于 2020-12-19 20:32
+
+
+
+
+电麻了电麻了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5468#       发表于 2020-12-19 20:32
+
+
+
+
+上了舞台才发现,这3D大衣真是好设计
+
+要给做3D的厂家点个赞
+
+不过草莓果酱的脸没有原装适配
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 5469#       发表于 2020-12-19 20:32
+
+
+
+
+最蠢的就是这套3D根本没做取消大衣的模式
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5470#       发表于 2020-12-19 20:33
+
+
+
+
+虽然没翻车，但我实在听不清这女人唱echo的发音<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5471#       发表于 2020-12-19 20:33
+
+
+
+
+这3d侧脸看着非常奇怪
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5472#       发表于 2020-12-19 20:33
+
+
+
+
+叔叔的这几个3D脸都不太行（
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5473#       发表于 2020-12-19 20:34
+
+
+
+
+她好可爱，她真迷人
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5474#       发表于 2020-12-19 20:34
+
+
+
+
+草莓来了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5475#       发表于 2020-12-19 20:34
+
+
+
+
+可爱
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5476#       发表于 2020-12-19 20:34
+
+
+
+
+可爱
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 5477#       发表于 2020-12-19 20:34
+
+
+
+
+B站这播放器怎么弹幕还关不掉
+
+
+SB真多
+
+
+
+
+
+
+
+-----
+
+####  依旧ing  
+##### 5478#       发表于 2020-12-19 20:34
+
+
+
+
+草莓果酱好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 5479#       发表于 2020-12-19 20:34
+
+
+
+
+还有换衣特效 还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5480#       发表于 2020-12-19 20:34
+
+
+
+
+草莓牛奶来了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5481#       发表于 2020-12-19 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">几首原创曲里果然这首听得最多
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 5482#       发表于 2020-12-19 20:35
+
+
+
+
+重复利用mmd
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5483#       发表于 2020-12-19 20:35
+
+
+
+
+编舞没变吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 5484#       发表于 2020-12-19 20:35
+
+
+
+
+当初真的是mea跳的吗，一直以为是mmd
+
+
+
+
+
+
+
+-----
+
+####  vegetable  
+##### 5485#       发表于 2020-12-19 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49776663&amp;ptid=1973472" target="_blank">春风女神狄璐卡 发表于 2020-12-19 20:34</a>
+
+B站这播放器怎么弹幕还关不掉
+
+
+SB真多</blockquote>
+弹幕设置那个按钮点下去不就关掉了
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 5486#       发表于 2020-12-19 20:36
+
+
+
+
+截图到了一张很好笑的脸
+
+<img src="https://img.saraba1st.com/forum/202012/19/203554hbxaujqns3ipszmp.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201219203503.png</strong> (18.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5487#       发表于 2020-12-19 20:36
+
+
+
+
+mmd是这样的啊，去年第一次出来的时候就该察觉了啊
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5488#       发表于 2020-12-19 20:36
+
+
+
+
+不行,个人感觉这个脸没有自己的3d的好,不够味儿
+
+
+
+
+
+
+
+-----
+
+####  小良与兔  
+##### 5489#       发表于 2020-12-19 20:36
+
+
+
+
+眼睛好奇怪
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5490#       发表于 2020-12-19 20:36
+
+
+
+
+如果bls先弄好的，可能就不是这个样子了。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5491#       发表于 2020-12-19 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线下会的时候锤过了吧，大家伙心里都清楚这套3d实际用起来怎么样
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5492#       发表于 2020-12-19 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">之前没注意，现在才发现这个草莓皮肤，水袋晃得还挺明显的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5493#       发表于 2020-12-19 20:39
+
+
+
+
+这个money~money~money的退场音还不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感谢现场老哥
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5494#       发表于 2020-12-19 20:39
+
+
+
+
+走了走了，打游戏打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 5495#       发表于 2020-12-19 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有鲜虾仁讲讲现场啥气氛吗，有问候亲属吗，有假人慢打吗
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 5496#       发表于 2020-12-19 20:40
+
+
+
+
+最后说话的部分才是自己动补的，你们参考一下她这时候说话的姿势名下能感受到和前面是不一样的。所以早说了是MMD有些人就一厢情愿觉得是她自己跳的
+
+
+
+
+
+
+
+-----
+
+####  vegetable  
+##### 5497#       发表于 2020-12-19 20:41
+
+
+
+
+站直了脚会穿模，根本没有200斤嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5498#       发表于 2020-12-19 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">谁管你啊，她就是自己跳的
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 5499#       发表于 2020-12-19 20:41
+
+
+
+
+她自己那个模型是不是修过了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5500#       发表于 2020-12-19 20:42
+
+
+
+
+那么echo是mmd吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+不过fmt绝对是她跳的<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5501#       发表于 2020-12-19 20:42
+
+
+
+<blockquote>gongge666 发表于 2020-12-19 20:40
+最后说话的部分才是自己动补的，你们参考一下她这时候说话的姿势名下能感受到和前面是不一样的。所以早说了 ...</blockquote>
+哪有一厢情愿，去年的时候制作人在推特恭喜的时候大家都知道了
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5502#       发表于 2020-12-19 20:42
+
+
+
+
+遛了溜了
+
+去夜之城
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5503#       发表于 2020-12-19 20:42
+
+
+
+
+似乎这个草莓果酱皮肤的袖子与裙子的穿模问题一直没解决，只要胳膊下垂就必定会穿模
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5504#       发表于 2020-12-19 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49776821&amp;ptid=1973472" target="_blank">LIPP 发表于 2020-12-19 20:41</a>
+她自己那个模型是不是修过了</blockquote>
+修过了，脸完全改掉了，改的很彻底
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 5505#       发表于 2020-12-19 20:42
+
+
+
+
+第一首是应该是自己跳的，第二首跳的太好了，无所谓，好看就行
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 5506#       发表于 2020-12-19 20:43
+
+
+
+
+开了一下弹幕差点吐了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5507#       发表于 2020-12-19 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">上次bml就说是mmd了啊，不如说这种远程节目除了mmd其他就等着事故吧
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 5508#       发表于 2020-12-19 20:44
+
+
+
+
+这种拼盘live，mea的弹幕有看的必要么
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5509#       发表于 2020-12-19 20:44
+
+
+
+
+昨天说了今天会有一勃来着，该等个突击了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5510#       发表于 2020-12-19 20:44
+
+
+
+
+之前还有不承认的，这次石锤了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5511#       发表于 2020-12-19 20:45
+
+
+
+
+弹幕就那样了，基本就是刷上上下下那一段
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5512#       发表于 2020-12-19 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你开下屏蔽词又不难，我看个动画片都要弄三四页屏蔽词，看个直播没必要那么特殊吧
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 5513#       发表于 2020-12-19 20:46
+
+
+
+
+安心等明天
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5514#       发表于 2020-12-19 20:46
+
+
+
+
+对了，是不是自从草莓果酱的原创曲出来之后，她就没有自己再亲自唱过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总感觉几次听的都是一样的
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 5515#       发表于 2020-12-19 20:47
+
+
+
+
+现场坐在前面的观众反应还是可以的 后面新时代人啥样我就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 5516#       发表于 2020-12-19 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49776940&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2020-12-19 20:46</a>
+
+对了，是不是自从草莓果酱的原创曲出来之后，她就没有自己再亲自唱过了总感觉几次听的都是一样的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">昨天唱了（发疯版清唱）
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5517#       发表于 2020-12-19 20:50
+
+
+
+
+看今天还播吗？不播看动画去了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5518#       发表于 2020-12-19 20:53
+
+
+
+
+anti怎么比天狗还费拉 只会呜呜还刷不过打call 刷这tm是啥的时候还有路人说"这人唱的不挺好的” 能种个鬼的梁木哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5519#       发表于 2020-12-19 20:56
+
+
+
+
+她要播估计也会等整场结束了之后再播了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5520#       发表于 2020-12-19 20:57
+
+
+
+
+其他参与bml又另外开台撞过来也不是没有
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5521#       发表于 2020-12-19 20:58
+
+
+
+
+bml板 ECHO感觉不好听，听完我都觉得草莓牛奶好听了。
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5522#       发表于 2020-12-19 20:59
+
+
+
+
+只能说之前B站观众确实品味奇特，猎奇心理严重
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5523#       发表于 2020-12-19 20:59
+
+
+
+
+确实，我宣布草莓牛。。草莓果酱更好听
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5524#       发表于 2020-12-19 21:03
+
+
+
+
+bml官号直接上传了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5525#       发表于 2020-12-19 21:04
+
+
+
+
+echo她没用力唱的感觉，还是消音问题，有几个镜头好听
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 5526#       发表于 2020-12-19 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">high曲不行，等明天的抒情曲
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5527#       发表于 2020-12-19 21:05
+
+
+
+
+可能她不适合用电音吧
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5528#       发表于 2020-12-19 21:06
+
+
+
+
+切片还不错，最后adiue+后面现场老哥money~money~money~都截进去了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5529#       发表于 2020-12-19 21:08
+
+
+
+
+这切片可以啊 叔叔的马可以复活一天
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 5530#       发表于 2020-12-19 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我发现我最喜欢的还是《别人的女朋友》
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5531#       发表于 2020-12-19 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是把，那群拉跨anti连弹幕都发不好
+
+有啥好怕
+
+我就没见到几个
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 5532#       发表于 2020-12-19 21:12
+
+
+
+
+现场版别人的女朋友 谁不想听呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5533#       发表于 2020-12-19 21:12
+
+
+
+
+anti是你麻的一大特色，不能不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 5534#       发表于 2020-12-19 21:12
+
+
+
+
+不是吧 有啥好不开心的
+
+看他们无能狂怒发弹幕多有意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5535#       发表于 2020-12-19 21:13
+
+
+
+
+想听，明天会有么<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5536#       发表于 2020-12-19 21:16
+
+
+
+
+bls会唱别人的女朋友吗 这也是小麻名曲啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5537#       发表于 2020-12-19 21:18
+
+
+
+
+萌萌爱豆模式的你咩必不可能唱（奶
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 5538#       发表于 2020-12-19 21:18
+
+
+
+
+艹，为什么播片到吊人的时候放烟火了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+烟火声 mea 烟火声
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5539#       发表于 2020-12-19 21:23
+
+
+
+
+井皇害我妹听下去<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5540#       发表于 2020-12-19 21:26
+
+
+
+
+想听杂谈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灬神丨龟灬  
+##### 5541#       发表于 2020-12-19 21:29
+
+
+
+
+明天才是正餐<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5542#       发表于 2020-12-19 21:29
+
+
+
+
+好了，直接开**循环
+
+夜之城我来了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 5543#       发表于 2020-12-19 21:33
+
+
+
+
+其实歌我感觉不如她平时的高质量歌回,不过模型还是挺好看的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5544#       发表于 2020-12-19 21:35
+
+
+
+
+虽然anti，但你麻录歌从来都不如直播唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 5545#       发表于 2020-12-19 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777732&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2020-12-19 21:35</a>
+
+虽然anti，但你麻录歌从来都不如直播唱啊</blockquote>
+直播唱歌什么歌都唱所以听着不错，但录歌往往都是选她自己喜欢的歌，众所周知你麻的审美跟正常人完全不一样。bgm声音太大了她觉得刚好，这首歌风格不适合她她就是要唱这种歌，3D渲染做得还不如别人家免费的好但她就是喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">她是典型的你让她自己做主就是害了她的类型
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 5546#       发表于 2020-12-19 21:55
+
+
+
+
+说白了还是小土妞任性<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">欠收拾一下就好了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5547#       发表于 2020-12-19 22:03
+
+
+
+
+小麻需要我来照顾她罢了
+
+
+
+
+
+               
