@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 22:04** 
+> ## **本文件最后更新于2020-12-19 10:05** 
 
 
 
@@ -23596,10 +23596,11 @@ J1IXK9B0323O)NBCHN0NQ{I.png
 
 
 
- 参与人数 3战斗力 +4
+ 参与人数 4战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 车子走| + 1|思路广|
 | xkyxz| + 1|思路广|
 | ylssb10438| + 1|思路广|
 | 白夜凛音| + 2|好评加鹅|
@@ -24394,11 +24395,345 @@ ROGJP找狐联动，然后炎上了之后ROGCN跟那边反映了一下，ROGJP�
 
 
 
+ 本帖最后由 IDIDIDID 于 2020-12-18 22:05 编辑 
 
 狐皇到手的工商被扬了还不许人找相熟的牛郎烫一下？理解万岁好吧。
 
+可是就怕货比货啊，葵皇招招手就能摇来红到发紫的虹男，还是两个。反观……
 
 
 
 
-        
+
+
+
+-----
+
+####  cheatdeath3  
+##### 23748#       发表于 2020-12-18 22:10
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-18 22:03
+狐皇到手的工商被扬了还不许人找相熟的牛郎烫一下？理解万岁好吧。
+
+可是就怕货比货啊，葵皇招招手就能摇来 ...</blockquote>
+葵皇又烫不了黑黑，菜有菜的好处，比如可供选择玩法更多。
+
+
+
+
+
+
+
+-----
+
+####  swordofsoul1  
+##### 23749#       发表于 2020-12-18 22:33
+
+
+
+<blockquote>katern 发表于 2020-12-18 19:03
+老爱偶像厨真的届到辻希美了,还跳了舞
+
+
+https://www.youtube.com/watch?v=LQeeji4nT8U
+</blockquote>
+这位也叫nozomi
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23750#       发表于 2020-12-18 22:40
+
+
+
+
+メリッサと緑仙の「レッド・パージ！！！」合わせてみた
+[https://twitter.com/motoNY_k1r/status/1333417621165801472](https://twitter.com/motoNY_k1r/status/1333417621165801472)
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 23751#       发表于 2020-12-18 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49766262&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-18 21:48</a>
+无处发泄欲望的老女人对着自己男宠发情不很正常</blockquote>
+是心系大家庭的糊皇在给同社底边引流呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 23752#       发表于 2020-12-18 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">死神能不能不吹这阴间笛子了。。。。
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 23753#       发表于 2020-12-18 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763696&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-18 18:18</a>
+
+喷了，想去看看蒜头直播B综当天的反应，结果全是认知NGA发言，泥潭怎么一个一个都这么喜欢认知隔壁 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为都在Q综车完了，B综就没怎么车了。加上泥哥们的反应着实精彩，很正常嘛。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 23754#       发表于 2020-12-19 00:00
+
+
+
+
+狐皇今天没有播拳击已经是极大的克制了。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23755#       发表于 2020-12-19 00:17
+
+
+
+
+葛皇他今天怎么这么？可爱？
+
+
+可怕...<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 23756#       发表于 2020-12-19 00:43
+
+
+
+
+兔子明天久违的周末昼粹，播DDLC还行
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23757#       发表于 2020-12-19 01:04
+
+
+
+ 本帖最后由 admentus 于 2020-12-19 01:17 编辑 
+
+ddlc看封面画说喜欢sayori，因为喜欢短发，lovelive里也喜欢花陽，反正就是好短发角色这口（这么一想她以前的avatar也是短发，这么这辈子就变长发麻花辫了...）
+
+中间聊了下生日礼物的事情，跟观众的来回挺有意思“你最想要（生日礼物）是现金吧”“不，是你们的爱哟”，剩下的还有啥信息播完全都忘了，这游戏看挖坑实在太难熬，比mc填沙子还无聊
+
+最后被野兔子小小坑了下，退出游戏重进扛了两拨尸潮，不过总算是渡过了第七天
+
+兔子又有了个非常沉迷的游戏还是蛮令人开心的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1|好评加鹅|
+| 过不了审| + 1|复兴！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23758#       发表于 2020-12-19 01:09
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/010836mffx5a52gwim4ch2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EphRvupVoAAeA_F.jpg</strong> (264.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 01:08 上传
+
+
+
+
+
+[https://twitter.com/kuuneru514/status/1339910832159801346](https://twitter.com/kuuneru514/status/1339910832159801346)
+
+<img src="https://img.saraba1st.com/forum/202012/19/010836z72tiwuttvm28kiv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpcJmv5UcAEWcHU.jpg</strong> (399.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 01:08 上传
+
+
+
+
+
+[https://twitter.com/zono_05/status/1339549981326204929](https://twitter.com/zono_05/status/1339549981326204929)
+
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 23759#       发表于 2020-12-19 01:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49765322&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-18 20:39</a>
+社筑也搬了个机台，所以我也不太明白这个业界首次是什么意思，世嘉的业界首次？ ...</blockquote>
+因为管人没人做过maimai直播，更没人试过3Dmaimai直播，所以这是业界首次管人直播打maimai
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 23760#       发表于 2020-12-19 03:44
+
+
+
+
+深夜红楚蟹联动，但是气氛微妙不一定有新粮…
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 23761#       发表于 2020-12-19 06:16
+
+
+
+
+不怎么懂scp，月灵怎么还看这玩意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+联系之前推特发的骰子app，大概率也玩coc吧，这也太宅了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23762#       发表于 2020-12-19 09:26
+
+
+
+
+scp年轻人看的多啊。  至于喜欢coc说不定是受了某个长辈的影响呢
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23763#       发表于 2020-12-19 09:27
+
+
+
+
+风怒
+
+
+
+
+
+       
