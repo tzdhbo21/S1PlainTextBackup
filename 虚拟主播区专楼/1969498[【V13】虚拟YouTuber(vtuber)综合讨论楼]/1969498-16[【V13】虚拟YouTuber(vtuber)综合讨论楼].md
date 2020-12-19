@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 22:06** 
+> ## **本文件最后更新于2020-12-20 00:06** 
 
 
 
@@ -28230,8 +28230,9 @@ nga都吹这场bml是世界最大管人live了，就这吗</blockquote>
 
 
 
+ 本帖最后由 BonkoraKKK 于 2020-12-19 22:18 编辑 
 
-这个亚洲最大不是世界最大的话
+（今年以来）这个亚洲最大不是世界最大的话
 
 那就是欧洲/北美/南美/非洲/大洋洲/南极洲还有更大的咯……
 
@@ -28329,10 +28330,12 @@ nga都吹这场bml是世界最大管人live了，就这吗</blockquote>
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ylssb10438| + 1||
+| 絵生voice| + 1|好评加鹅|
 | alcoholic1000| + 1|这个真的，超级|
 
 
@@ -28422,6 +28425,25 @@ HH真强啊
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 759465155| + 1|思路广|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -28469,10 +28491,11 @@ HH真强啊
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 759465155| + 1|好评加鹅|
 | flyskywalker92| + 1||
 
 
@@ -28482,4 +28505,1126 @@ HH真强啊
 
 
 
- 
+
+
+-----
+
+####  nowaki  
+##### 23949#       发表于 2020-12-19 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏奴还有脸劈人，你们现在到哪不是人人喊打啊，自觉点挨打就对了。还敢还手？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23950#       发表于 2020-12-19 22:06
+
+
+
+
+pxj差不多得了，不过vtuberfesjapan两天都有狐，可能在pxj那的确是不存在的活动
+
+
+
+
+
+
+C3131A53-AF24-4777-961F-6FF0F173FD9E.jpeg
+(79.36 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-19 22:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/220547bp75m23o42wtppot.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+F402660D-AF23-4B0A-A490-5A4361E9F071.jpeg
+(78 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-19 22:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/220550w0d0bzf0fpia0qpw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 23951#       发表于 2020-12-19 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外宾吗，这个时候你敢坐满的吗
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 23952#       发表于 2020-12-19 22:08
+
+
+
+
+肥希现在的作用就是被钓鱼拿来当乐子，在看星川3D没空看bml是吧，等一个瞳人形推特钓鱼
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 23953#       发表于 2020-12-19 22:08
+
+
+
+
+不是吧 现在劈个杏奴都要司马,太危险了 还是劈虹人吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 2|杏奴sm|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23954#       发表于 2020-12-19 22:09
+
+
+
+
+那你别一上来就亚洲/世界最大管人live啊，corona酱统治下的最大管人live或者线上观看人数最多的管人live没啥问题
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 23955#       发表于 2020-12-19 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778138&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-19 22:02</a>
+
+你是忘了切号么 和另一个人你说他问你答这套组合拳给我看楞了?
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 ...</blockquote>
+泥潭谈到倪哥就魔怔全反对，这么好钓，切号多麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这不是还有理智阳光杏仁嘛，好起来了好起来了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|钓术有待提高|
+| nowaki| + 2|无脑反对nga有理，钓鱼劈杏不行，真的双标.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23956#       发表于 2020-12-19 22:10
+
+
+
+
+劈杏奴不要担心司马，当pxj要担心
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 23957#       发表于 2020-12-19 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778159&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-19 22:03</a>
+虹两国的不就比你批大多了？你批现场都没坐满呢
+
+
+另外要aoe杏奴请查历史回复，我还以为楼友这么长时间屁股 ...</blockquote>
+两国半个场不能坐人放舞台顶多也就6k，虹馆FH8k吧我记得，和RD1st预定的東京ガーデンTheater差不多
+
+青海展示馆倒是有可能比bml大
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 23958#       发表于 2020-12-19 22:11
+
+
+
+
+最大的线下live是超party，你们要不要查查琦玉竞技场能装多少人...
+[https://www.bilibili.com/video/BV1bb411w7oE](https://www.bilibili.com/video/BV1bb411w7oE)
+
+不过反正以后再也不会有了
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 23959#       发表于 2020-12-19 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778114&amp;ptid=1969498" target="_blank">sgssk 发表于 2020-12-19 22:00</a>
+
+挺火星地发现眠大佐的关注列表里有个江户lena</blockquote>
+有一些小活动一起作为参加者参加过
+
+可能打过照面或者是礼节性的知晓了对方然后关注一下吧
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 23960#       发表于 2020-12-19 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778161&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-19 22:03</a>
+
+自问自答虚空打靶顺劈的死个🐴不过分吧
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+给这位阳光杏仁加个鹅哦，有这样随口死马🐴的阳光杏仁，武德依旧的杏仁，杏随时都可以吹响反击号角
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|钓鱼司马是互联网公理，你都自认了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 23961#       发表于 2020-12-19 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">认真的说，对最大是怎么定义的，线下观众最多？线上观众最多？参加的liver数量最多？参加liver们的粉丝数量最多？
+不过你们车这个真没啥意思，一开始发起这个话题的就是钓鱼的，最重要的还是，这是《我们》组织的。
+从这个意义上来说，也许nga说这话的人们无知，但也是朴素情怀。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 23962#       发表于 2020-12-19 22:16
+
+
+
+
+参演质量来讲也是过于参差不齐，HH和爱丽丝出场与其他人肉眼可见的氛围差距<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+国v来讲就泠鸢发挥还可以，最后艾因雪哥腌玫瑰扳回一城吧
+
+
+个人感觉这场最佳还是no，thankyou
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 23963#       发表于 2020-12-19 22:16
+
+
+
+
+垃圾圆脸明天下午要去那个糖的工商，晚上就2ndlive，是不是实锤这live是播片了...
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23964#       发表于 2020-12-19 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778288&amp;ptid=1969498" target="_blank">free 发表于 2020-12-19 22:11</a>
+
+最大的线下live是超party，你们要不要查查琦玉竞技场能装多少人...
+
+https://www.bilibili.com/video/BV1bb4 ...</blockquote>
+nico超vtuber只算一部分吧，拿这个来没什么说服力<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 23965#       发表于 2020-12-19 22:17
+
+
+
+
+杏奴云pxj劈pxj云管人，好家伙这也太绕了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23966#       发表于 2020-12-19 22:18
+
+
+
+
+真是最大、敢说最大的还不挂在招牌上面嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 23967#       发表于 2020-12-19 22:19
+
+
+
+
+平均质量是真的菜，上限和下限差距太大，顺便证明了mrV这歌确实不太适合多人live，炒热气氛上和ヒトガタ差距有点大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23968#       发表于 2020-12-19 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778262&amp;ptid=1969498" target="_blank">759465155 发表于 2020-12-19 22:09</a>
+
+泥潭谈到倪哥就魔怔全反对，这么好钓，切号多麻烦
+
+
+这不是还有理智阳光杏仁嘛，好起来了好起来了 ...</blockquote>
+的确是好钓 这就车了2页了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23969#       发表于 2020-12-19 22:19
+
+
+
+
+今天还有人在直播吃虫子呢，很明显是播片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 23970#       发表于 2020-12-19 22:19
+
+
+
+
+差不多得了，小心被冲蝗政委查身份，每天破坏团结
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 23971#       发表于 2020-12-19 22:20
+
+
+
+
+免费终于真的不看杏了，我很欣慰。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23972#       发表于 2020-12-19 22:22
+
+
+
+
+2ndlive不是21号后天吗...
+
+不过播片肯定是的，兔子这两天游戏播的爽死，明天还要继续ddlc。前两周事情那么多天天舞蹈课结果到live前的周末就能没事好好播游戏了，这不就是录好了
+
+quote芙宝，“要说2天后不是录像我都不信”
+
+
+
+
+
+
+
+-----
+
+####  ZUOUZU  
+##### 23973#       发表于 2020-12-19 22:23
+
+
+
+
+泥潭和尼哥潭思路和b站都不在一个回路上，b站做这个live是跟着数据走的，你们搁这聊规模谈质量，人家在乎这个吗
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 23974#       发表于 2020-12-19 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各位也要理解杏奴为啥跳脚，天天嘲讽nga，结果人家ccll越办越红火。天天拿来吹的数字也干不过别人了，sc打不过，同接（人气）干不过，会员（舰队）干不过。live不给上，工商不给接，周边不给出。
+
+天天缩在s1阴湿别人冲蝗无用，结果tskk天天会员发言，缩在防空洞里怕的要死。大棒握在别人nga手里，杏奴天天阴湿有啥用啊，别人已经开始动员全面冲击官号了，离猴楼全面挨打也没几天了。不知道全员天天会员发言的时候，你杏的数字还能多好看哦。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">奉劝s1的杏仁早点转推，多看点阳光的虹liver，不要缩在s1当阴湿杏奴了。从现在做起，开始补优质虹v直播，做阳光虹人。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| xkyxz| + 1|欢乐多|
+| 目力干员leison| + 1|欢乐多|
+| admentus| + 1|太阴湿了，suki|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 23975#       发表于 2020-12-19 22:24
+
+
+
+
+杏的live除了MC部分都是录播不是早就是共识了吗
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23976#       发表于 2020-12-19 22:26
+
+
+
+ 本帖最后由 Map-2 于 2020-12-19 22:27 编辑 
+
+阳光虹人？这版本不得看P家？
+“我早就是幻士了啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">”
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 23977#       发表于 2020-12-19 22:27
+
+
+
+
+话说给心心练舞的时间真的够么，这才几天啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23978#       发表于 2020-12-19 22:28
+
+
+
+ 本帖最后由 winda 于 2020-12-19 22:30 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 23979#       发表于 2020-12-19 22:29
+
+
+
+
+哪来的杏仁啊
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 23980#       发表于 2020-12-19 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778355&amp;ptid=1969498" target="_blank">free 发表于 2020-12-19 22:16</a>
+垃圾圆脸明天下午要去那个糖的工商，晚上就2ndlive，是不是实锤这live是播片了... ...</blockquote>
+空妈是后天参加"那个糖的工商"吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 23981#       发表于 2020-12-19 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778496&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-19 22:29</a>
+
+空妈是后天参加"那个糖的工商"吧</blockquote>
+哦对，说错了，都是后天21号，垃圾圆脸下午去吃糖，晚上就live，垃圾
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23982#       发表于 2020-12-19 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778434&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-19 22:23</a>
+各位也要理解杏奴为啥跳脚，天天嘲讽nga，结果人家ccll越办越红火。天天拿来吹的数字也干不过别人了 ...</blockquote>
+杏奴把红脸白脸都唱了可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是到这时候了还记着虹杏大战也太旧时代了吧。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23983#       发表于 2020-12-19 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 批站数字还真的有人在意阿，阳光虹人自己批站数字垃圾的一比就不说了，
+
+
+我杏都没人在乎批站那点屁数据。这数字除了用来踩虹毫无用处，
+
+
+当然了，现在404数字也秒杀你虹了，批站数字自然没人在意了
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 23984#       发表于 2020-12-19 22:33
+
+
+
+ 本帖最后由 a37356205 于 2020-12-19 22:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LIVE的立牌又被顺走了，不过这次不是mea的
+<img src="https://p.sda1.dev/0/054b25f3e5a5a3ced601196159b12cd2/IMG_CMP_241528455.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/91373ec6c478ee601ae6de8e37066d8c/IMG_CMP_98685706.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 23985#       发表于 2020-12-19 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778434&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-19 22:23</a>
+各位也要理解杏奴为啥跳脚，天天嘲讽nga，结果人家ccll越办越红火。天天拿来吹的数字也干不过别人了 ...</blockquote>
+讲的很好，而且木口这sc已经缩水360万了，同接也是一跌再跌，可以说未来是没什么希望的
+
+12/1-12/18 24:00
+
+\9,370,269 ぺこら
+\7,764,977 るしあ
+\6,740,285 あくあ
+\6,496,360 ココ
+\4,196,642 フレア
+\4,105,145 ラミィ
+\3,475,132 わため
+\3,368,597 あやめ
+\3,206,290 マリン
+\2,974,215 ミオ
+\2,802,949 みこ
+\2,791,667 シオン
+\2,308,513 ノエル
+\2,224,202 はあと
+\2,144,485 かなた
+\1,898,621 ぼたん
+\1,878,832 まつり
+\1,826,708 ころね
+\1,690,943 アキ
+\1,647,955 スバル
+\1,547,697 ねね
+\1,359,216 おかゆ
+\1,108,572 フブキ
+\   978,877 トワ
+\   765,342 ルーナ
+\   759,952 すいせい
+\   664,960 ポルカ
+\   614,602 ロボ子
+\   572,650 ちょこ
+\   411,247 そら
+\     90,282 メル
+\81,786,184(－3,651,332)
+
+\4,837,764 キアラ
+\4,128,749 カリオペ
+\3,601,396 ぐら
+\2,816,817 ワトソン
+\1,509,480 イナニス
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 23986#       发表于 2020-12-19 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778539&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-19 22:33</a>
+
+批站数字还真的有人在意阿，阳光虹人自己批站数字垃圾的一比就不说了，
+
+
+我杏都没人在乎批站那点屁 ...</blockquote>
+还是2k哥哥会说话，gachi了
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 23987#       发表于 2020-12-19 22:37
+
+
+
+
+平心而论，几个月前，谁会想到今天木口现了原型，或许这就是一个时代的落幕吧，唉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  759465155  
+##### 23988#       发表于 2020-12-19 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778551&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-19 22:34</a>
+
+讲的很好，而且木口这sc已经缩水360万了，同接也是一跌再跌，可以说未来是没什么希望的
+
+
+12/1-12/18 24:0 ...</blockquote>
+杏仁攒钱准备2nd呢，别尬黑，大的要来了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23989#       发表于 2020-12-19 22:39
+
+
+
+
+说到数字，按照油管给出的答复来看这个“bug”估计是不会修了，你杏是真的完了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23990#       发表于 2020-12-19 22:39
+
+
+
+
+你楼阴湿杏奴实在不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这种时候比起黑屁，不应该团结起来先把尼哥谭的批小将给打倒吗
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23991#       发表于 2020-12-19 22:39
+
+
+
+<blockquote>文明礼貌小宝宝</blockquote>
+<img src="https://i.loli.net/2020/12/19/5yjCQG8xoE9RfzB.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  没有爱就看不见  
+##### 23992#       发表于 2020-12-19 22:39
+
+
+
+
+杏奴（如果有的话）有考虑过去nga当阳光虹人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 23993#       发表于 2020-12-19 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778601&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-19 22:39</a>
+你楼阴湿杏奴实在不行
+
+这种时候比起黑屁，不应该团结起来先把尼哥谭的批小将给打倒吗 ...</blockquote>
+就是，被全歼之前至少给狗叔创一波收吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23994#       发表于 2020-12-19 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778551&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-19 22:34</a>
+讲的很好，而且木口这sc已经缩水360万了，同接也是一跌再跌，可以说未来是没什么希望的
+
+12/1-12/18 24:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个月工商接多了嘛，进步进步。
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 23995#       发表于 2020-12-19 22:42
+
+
+
+ 本帖最后由 水原薰 于 2020-12-19 22:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778544&amp;ptid=1969498" target="_blank">a37356205 发表于 2020-12-19 22:33</a>
+LIVE的立牌又被顺走了，不过这次不是mea的</blockquote>
+hh那个立牌是做的人自己带回去和酒姬民会后聚餐用了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+顺便hh2月7号的live票价是200，但好像会比现场延迟60分钟，量力而行吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 23996#       发表于 2020-12-19 22:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你虹还是先解决一下节目拉跨的问题吧，如果说你虹前两次马车杯是火影本篇，那这次马车就是博人传了，
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 23997#       发表于 2020-12-19 22:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/224530g0tg5blb2t1036g3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201219224507.png</strong> (67.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 22:45 上传
+
+
+
+
+
+所以bug到底修没修好
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 23998#       发表于 2020-12-19 22:49
+
+
+
+
+所以星川8W6是修好的？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23999#       发表于 2020-12-19 22:50
+
+
+
+
+应该没修好吧，我看有些人同接还是没什么变化，还是比bug之前少很多
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24000#       发表于 2020-12-19 22:51
+
+
+
+
+怎么才不看你综一小会又开始信者大战了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+所有人被冲到开会限也太夸张了，蝗还没死呢，就算对于糊坦隔壁也只是等出事再看乐子的，印象中都没人专门车过糊吧
+
+像那些还在阿批做杏海盗切片的前人上人，这些家伙都没被冲，你综倒是有些人开始草木皆兵了，贱不贱呐
+
+希望大家以后各看各的互不干涉，B限民和404民永远不要同屏出现
+
+
+
+
+
