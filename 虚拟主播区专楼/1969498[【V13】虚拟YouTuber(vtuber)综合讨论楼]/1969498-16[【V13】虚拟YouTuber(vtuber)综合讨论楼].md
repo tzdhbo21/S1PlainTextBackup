@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 18:05** 
+> ## **本文件最后更新于2020-12-19 20:04** 
 
 
 
@@ -25629,6 +25629,25 @@ shiba当天也有事情不能参赛，推牛姨出来补位，E组出线：
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25671,6 +25690,8 @@ shiba当天也有事情不能参赛，推牛姨出来补位，E组出线：
 
 
 
+ 本帖最后由 alcoholic1000 于 2020-12-19 18:50 编辑 
+
 
 <img src="https://img.saraba1st.com/forum/202012/19/180339z885395c8vccje85.jpg" referrerpolicy="no-referrer">
 
@@ -25690,7 +25711,596 @@ shiba当天也有事情不能参赛，推牛姨出来补位，E组出线：
 [https://twitter.com/nijisanji_app/status/1340235543997603840](https://twitter.com/nijisanji_app/status/1340235543997603840)
 
 
+<img src="https://img.saraba1st.com/forum/202012/19/183200yo90eexghvaovixu.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】g-1..png</strong> (887.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 18:32 上传
 
 
 
-      
+
+
+
+地狱啊
+
+<img src="https://img.saraba1st.com/forum/202012/19/185048aape06sm00ummqga.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】g-2..png</strong> (616.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 18:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23802#       发表于 2020-12-19 18:25
+
+
+
+
+芽威譜流断差亜 樋口楓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 23803#       发表于 2020-12-19 18:27
+
+
+
+ 本帖最后由 秋月孝三 于 2020-12-19 18:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以不练走力而是把希望寄托于べビパ这种運ゲー上是没有前途的啊通风口
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后第一场就是前コ
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 23804#       发表于 2020-12-19 18:31
+
+
+
+
+bml-vr全是录播吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23805#       发表于 2020-12-19 18:32
+
+
+
+
+谢林这片头，小学馆警告.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 23806#       发表于 2020-12-19 18:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">月灵魂体调不良，SR又咕了
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 23807#       发表于 2020-12-19 18:35
+
+
+
+
+HH这现场力和其他真的不是一个等级的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 23808#       发表于 2020-12-19 18:42
+
+
+
+
+不过瘾不过瘾，等HH 2.7的LIVE了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 23809#       发表于 2020-12-19 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">不都是播片吗
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 23810#       发表于 2020-12-19 18:47
+
+
+
+
+好家伙，才看见组长在B限，正面抗BML还行
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 23811#       发表于 2020-12-19 18:48
+
+
+
+
+公主最后一局太可惜了，就差一点第二然后晋级<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 23812#       发表于 2020-12-19 18:50
+
+
+
+
+上个月路过小白直播间看她在螳螂村，怎么今天还在这附近转悠
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23813#       发表于 2020-12-19 18:53
+
+
+
+
+至少爱丽丝自己发推马车杯是是在live后台参加的，至于是直播还是播片就自由心证了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23814#       发表于 2020-12-19 19:10
+
+
+
+
+铃木也发推了，看口气不像是播片<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+syl   阿宅什么都舔到了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/19/190450z414vx4bbbvuv7kk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpkxbgxUcAAso9p.jpg</strong> (369.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 19:04 上传
+
+
+
+
+
+
+
+zsyl   
+
+
+おとなの掟 / Doughnuts Hole (covered byアザミ &amp; Ci from BOOGEY VOXX)
+[https://www.youtube.com/watch?v=OdJqUzvdrq4](https://www.youtube.com/watch?v=OdJqUzvdrq4)
+
+有点椎名林檎的味道了，真好啊真好<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 23815#       发表于 2020-12-19 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49774936&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-19 18:53</a>
+
+至少爱丽丝自己发推马车杯是是在live后台参加的，至于是直播还是播片就自由心证了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hanser有与观众互动，“现场问答”，所以确实有人是现场唱的？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 23816#       发表于 2020-12-19 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49775228&amp;ptid=1969498" target="_blank">a37356205 发表于 2020-12-19 19:11</a>
+
+hanser有与观众互动，“现场问答”，所以确实有人是现场唱的？</blockquote>
+歌播片和互动直播分开来很难？？？上一届就是这样的啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23817#       发表于 2020-12-19 19:13
+
+
+
+
+skb部，尊安洁诗子全都小组第八，郡道小组第七，这也是一种贴贴。
+省一楼，郡道昨天的烦恼湘潭不知为何有一个上了yahoonews<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 23818#       发表于 2020-12-19 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49775228&amp;ptid=1969498" target="_blank">a37356205 发表于 2020-12-19 19:11</a>
+
+hanser有与观众互动，“现场问答”，所以确实有人是现场唱的？</blockquote>
+“嗓子不疼”这种，不用真互动……
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 23819#       发表于 2020-12-19 19:17
+
+
+
+
+又听不到时而银铃时而杠铃的笑声呖<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 23820#       发表于 2020-12-19 19:20
+
+
+
+
+忘记已经开了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">  深海フェス
+
+[https://www.youtube.com/watch?v=Bizxhyzdx78&amp;feature=youtu.be](https://www.youtube.com/watch?v=Bizxhyzdx78&amp;feature=youtu.be)
+
+<img src="https://img.saraba1st.com/forum/202012/19/192108lagbwaonwr9zege9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EoecRq2UwAIPbOj.jpg</strong> (284.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 19:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23821#       发表于 2020-12-19 19:22
+
+
+
+
+怎么听起来叶师也在事务所呢，难道有3D叶星？
+
+
+
+
+
+
+
+-----
+
+####  _68_  
+##### 23822#       发表于 2020-12-19 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23823#       发表于 2020-12-19 19:36
+
+
+
+ 本帖最后由 十四洲 于 2020-12-19 19:44 编辑 
+
+虽然我也想看叶星，但叶师在打枪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl，草，刚好精准错过叶师
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 23824#       发表于 2020-12-19 19:39
+
+
+
+
+3d敛财回搞bg营业不合适，又不是莉光
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 23825#       发表于 2020-12-19 19:40
+
+
+
+
+叶哥？还录了问候视频啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 23826#       发表于 2020-12-19 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好耶，到爱丽丝了
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 23827#       发表于 2020-12-19 19:53
+
+
+
+
+海牛可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 23828#       发表于 2020-12-19 19:55
+
+
+
+
+有人听得出爱丽丝电音么，怎么都说电音
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 23829#       发表于 2020-12-19 19:57
+
+
+
+
+js可爱
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 23830#       发表于 2020-12-19 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49775939&amp;ptid=1969498" target="_blank">梅斯之围 发表于 2020-12-19 19:55</a>
+
+有人听得出爱丽丝电音么，怎么都说电音</blockquote>
+和冰糖一个级别的电音
+
+主要还是选曲问题，就不是能在live上唱的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23831#       发表于 2020-12-19 20:01
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 20:04 编辑 
+
+飞快地跑回来看星川但叶师全部错过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/19/200407y8q36vvntn08pwpn.png" referrerpolicy="no-referrer">
+
+
+<strong>【初3Dお披露目】世界１可愛くてごめん！W【にじさんじ:#星川サラ3D】.png.png</strong> (606.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 20:04 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=9lPuJIcGdUM](https://www.youtube.com/watch?v=9lPuJIcGdUM)
+
+
+
+
+
+
+
+     
