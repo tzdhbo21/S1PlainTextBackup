@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-18 22:11** 
+> ## **本文件最后更新于2020-12-19 16:12** 
 
 
 
@@ -16315,10 +16315,19 @@ bw广州有去线下的吗 发现普通票没了 纠结要不要买VIP票 又怕
 
 
 
- 参与人数 7战斗力 +10
+ 参与人数 16战斗力 +20
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 素人不相识| + 1|好评加鹅|
+| 国民掷弹兵| + 1|好评加鹅|
+| 鷹書たかしょ| + 2||
+| llconforever| + 1||
+| Dualist彩| + 1|好评加鹅|
+| Joffre✔| + 1||
+| KarinC| + 1|好评加鹅|
+| 春澄春奈| + 1|好评加鹅|
+| 静夜观星| + 1|好评加鹅|
 | turezyy| + 2|好评加鹅|
 | 路人庚| + 1|好评加鹅|
 | 专业划水人员| + 1|好评加鹅|
@@ -16334,4 +16343,414 @@ bw广州有去线下的吗 发现普通票没了 纠结要不要买VIP票 又怕
 
 
 
-                   
+
+
+-----
+
+####  Dualist彩  
+##### 5412#       发表于 2020-12-18 22:23
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-18 22:27 编辑 
+
+又是转推又是直播帮叔叔带货，小麻还有利用价值<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+为什么要让你麻干这种404大物的活，我看hh她们其他人也没转啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 5413#       发表于 2020-12-18 22:25
+
+
+
+
+要被叔叔榨干了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5414#       发表于 2020-12-18 22:28
+
+
+
+
+要脱水了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5415#       发表于 2020-12-18 22:29
+
+
+
+
+小麻可听叔叔话了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5416#       发表于 2020-12-18 22:34
+
+
+
+
+这就是调教吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5417#       发表于 2020-12-18 23:23
+
+
+
+
+这是姨化<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 5418#       发表于 2020-12-19 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49766711&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2020-12-18 22:23</a>
+
+又是转推又是直播帮叔叔带货，小麻还有利用价值
+
+为什么要让你麻干这种404大物的活，我看hh她们其他 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">转推是观众说要转一下的啊 
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 5419#       发表于 2020-12-19 07:13
+
+
+
+
+其他大物又不离了叔叔就活不了
+
+
+你麻可是“大部分收入来自B站”
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5420#       发表于 2020-12-19 08:49
+
+
+
+
+这周忙成一坨直播都不怎么能看，昨天更是8点多就昏迷了，难顶
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5421#       发表于 2020-12-19 10:38
+
+
+
+ 本帖最后由 路人庚 于 2020-12-19 10:42 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/103737e68qsb8s8tftosb8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5F58AF85-D6A1-4BA5-B2A9-0F54849B8A32.jpeg</strong> (558.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 10:37 上传
+
+
+
+
+
+
+
+（鉴于你咩姐喜欢拿现实故事作段子，所以这肯定不是梦，这就是前几天手机tc时候的真相<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+加一个新推，anmr那边又请mea搞宣传了么（
+
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5422#       发表于 2020-12-19 10:53
+
+
+
+
+给黄兔子宣传一下就跟帮家里人一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5423#       发表于 2020-12-19 11:07
+
+
+
+
+24万订阅的个人势大物（ ）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5424#       发表于 2020-12-19 11:10
+
+
+
+
+小麻没事就视奸你楼 都<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">入脑了
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 5425#       发表于 2020-12-19 11:21
+
+
+
+
+楼友里肯定有一位是小麻
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5426#       发表于 2020-12-19 11:23
+
+
+
+
+请务必让我品尝一下肉体<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 5427#       发表于 2020-12-19 11:25
+
+
+
+
+艹楼友就是艹小麻<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5428#       发表于 2020-12-19 11:29
+
+
+
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5429#       发表于 2020-12-19 11:30
+
+
+
+
+😰🏃🏃🏃
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5430#       发表于 2020-12-19 13:14
+
+
+
+
+再见，偷花人好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 5431#       发表于 2020-12-19 14:25
+
+
+
+
+都偷花人了
+
+不整个柏拉图式恋爱吗
+
+想听到我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 5432#       发表于 2020-12-19 14:49
+
+
+
+
+梦都是反的
+
+实际上是男朋友在她播的时候偷偷和阿宅亲热 mea一直在播没有察觉
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|被你发现了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 5433#       发表于 2020-12-19 15:07
+
+
+
+
+b博
+
+
+
+
+
+                  
