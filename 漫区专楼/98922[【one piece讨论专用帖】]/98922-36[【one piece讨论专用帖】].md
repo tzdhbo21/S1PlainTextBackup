@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 04:01** 
+> ## **本文件最后更新于2020-12-19 18:01** 
 
 
 
@@ -1591,7 +1591,15 @@ B漫这分页看得真难受</blockquote>
 ####  uswhzh  
 ##### 52590#       发表于 2020-5-21 09:08
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote>luoyianwu 发表于 2020-5-21 07:41
+路飞除了大闹和开趴还能干嘛？</blockquote>
+我不允许这片大海还有比我更自由的海盗。路飞，凋零。
+
+
+
+
 
 
 
@@ -13459,7 +13467,14 @@ op其实很好收，空白一百年和op摆明了是一件东西。。。。
 ####  uswhzh  
 ##### 53228#       发表于 2020-8-7 01:52
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+凯多还没退场呢，这边都要搞车轮战帮五皇赢了怎么还在轮凯多
+
+
+
+
 
 
 
@@ -23145,7 +23160,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_rTqa0" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_YTUXT" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
 
 
 
@@ -24436,6 +24451,25 @@ https://b23.tv/iukkPD
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 睡耘居主| + 1|我觉得思路是抓了一定救死了却并不报仇.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25154,4 +25188,559 @@ one piece的正体是预言书，白胡子的形象不会崩 。现在应该已�
 
 
 
-    
+
+
+-----
+
+####  波隆  
+##### 53857#       发表于 2020-12-19 05:47
+
+
+
+
+说不定最后又要绕回日式仁义的路子上：
+
+老白：我现在去打爆凯多给兄弟报仇不是不行，但是我打爆了他那就是个海贼之间以暴制暴，和之国国民从此道德败坏兄弟在天之灵一定不乐意，等预言（指穿越众）
+
+德岛不就是这个思路吗：
+
+藤虎：我打爆明哥不是不行，但是七武海是我们放出来的，我打完政府自会出来粉饰太平，不能唤醒民众只能是重蹈覆辙，推笼子去
+
+可能这一套日本人比较信吧
+
+
+
+
+
+
+
+-----
+
+####  所在彼方  
+##### 53858#       发表于 2020-12-19 08:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768115&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-19 00:37</a>
+
+把剧情抛给所谓预言的话，这主线就彻底没意思了。要是相信什么预言，而自己不主动去做什么，那就很讨厌。 ...</blockquote>
+能写成JOJO5滚石篇那样也行啊，五皇的冒险是命中注定的，但罗杰的冒险是有意义的
+
+
+
+
+
+
+
+-----
+
+####  欧金金  
+##### 53859#       发表于 2020-12-19 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有没有可能现在的低走是故意的，后面口碑逆转，WT再次封神？
+
+
+
+
+
+
+
+-----
+
+####  海克托尔  
+##### 53860#       发表于 2020-12-19 10:37
+
+
+
+
+不提御田形象描写上的突兀，但说报仇这事适当留白也就算了，还有一堆人硬掰理由解释白胡子动机，真的不觉得这种事越找理由越显得心虚吗
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53861#       发表于 2020-12-19 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49769586&amp;ptid=98922" target="_blank">欧金金 发表于 2020-12-19 09:56</a>
+ 有没有可能现在的低走是故意的，后面口碑逆转，WT再次封神？</blockquote>
+这不可能……和之国尾田明显自我感觉良好（两年后都是）。七水之都有过口碑逆转？但那里前期是气氛差，不是剧情差。
+两年后说起来各方面都不行了，很重要的指标“名场面”都找不出了，连彩页好像也没以前好看了……
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 53862#       发表于 2020-12-19 10:51
+
+
+
+
+WT不一直是宿命论血统论者由始至终都在鼓吹五皇天命所归吗？OP里的人寄托给预言不是再正常不过了
+
+为什么你们现在才觉得OP低走拉胯，WT2年后在核心剧情和人物描写上有不拉胯的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+鱼人岛的核心矛盾乙姬剧情逻辑是不是幼稚到可笑？德岛通过藤虎和明哥描写七武海和海军的矛盾因为藤虎推鸟笼不是彻底变成了笑话？蛋糕岛篇号称山治年，花了力气描写的主角山治是不是反而比之前更加不堪了？至于和之国核心剧情御田就不说了。
+
+999白胡子这笔根本就没有提的必要，突破下限强行描黑大概是真的急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   因为感受到灭世之刃带来的压力与挫败感自己常年当JUMP土皇帝的自尊被打了个稀烂后神经衰弱了吧
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 53863#       发表于 2020-12-19 11:08
+
+
+
+
+看完这话了，1000话应该是爆d和onepiece的料
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53864#       发表于 2020-12-19 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768703&amp;ptid=98922" target="_blank">evangelina 发表于 2020-12-19 03:32</a>
+
+凯多的人设也崩了吧？在智将和莽夫间反复横跳。
+
+
+其实偷袭也就偷袭吧，还强调凯多敬重御田觉得对不住他。 ...</blockquote>
+尾田现在就在搞人人都爱杰克苏
+
+
+和隔壁的岸本鼬一个德行
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53865#       发表于 2020-12-19 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49770041&amp;ptid=98922" target="_blank">uponutopia 发表于 2020-12-19 10:51</a>
+
+WT不一直是宿命论血统论者由始至终都在鼓吹五皇天命所归吗？OP里的人寄托给预言不是再正常不过了
+
+为什么你 ...</blockquote>
+我觉得是11区的普遍的小农心态造成的
+
+
+这群画漫画的非要玩政治，就各种露怯，隔壁的岸本也是提出一个自己结局不了的世界和平的政治问题后各种犯傻
+
+
+乙姬和傻逼御田都是同一个坑
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53866#       发表于 2020-12-19 11:28
+
+
+
+
+说是预言书还不如是时光机，三王能打开时光机带着d族人回800年前。
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 53867#       发表于 2020-12-19 12:35
+
+
+
+
+刚看到 艾斯VS大和 的时候，还以为会变成坛友预测的走向——
+
+
+艾斯：我在和之国遇到一个叫光月御田的人，她活的很好。
+
+
+白胡子：那就好。
+
+
+结果居然不是？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theti  
+##### 53868#       发表于 2020-12-19 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763744&amp;ptid=98922" target="_blank">guiminan 发表于 2020-12-18 18:24:53</a>
+说起来我看过一个同人写的是白胡子在打赢顶上后就去和之国揍凯多，最后在和凯多、大妈的激战中壮烈牺牲的剧 ...</blockquote>哪里能看，去观摩一下
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 53869#       发表于 2020-12-19 13:03
+
+
+
+ 本帖最后由 gs2-d2up 于 2020-12-19 13:05 编辑 
+
+现在官翻还没出来，希望正确的翻译不是“这些只能用命运来解释”。我很不喜欢在海贼王这种自由的漫画里反复强调“命运”之类的。之前的篇章也提到过“D是神的天敌”，但好像没有像和之国这部分一样那么简单粗暴地归结为“命运”<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53870#       发表于 2020-12-19 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768708&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-19 03:36</a>
+
+仁义如何暂且不提，我个人觉得是出海了就视为独立成人了吧，故乡虽然重要但跟自己的梦想相比还是太渺小了 ...</blockquote>
+打金狮子的剧场版路飞：“回东海去吧，反正冒险随时都能继续。”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 53871#       发表于 2020-12-19 13:25
+
+
+
+
+和之国彻底拉胯，难以想象这曾是写出沙之国和空岛的尾田
+
+
+
+
+
+
+
+-----
+
+####  rt7539515  
+##### 53872#       发表于 2020-12-19 13:46
+
+
+
+
+御田传这么拉胯不在于御田本身，在于其他人对御田的态度。我现在就担心路飞也去舔御田。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 53873#       发表于 2020-12-19 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771342&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-18 23:04</a>
+
+打金狮子的剧场版路飞：“回东海去吧，反正冒险随时都能继续。”</blockquote>
+只看过漫画但是脸好疼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 53874#       发表于 2020-12-19 15:13
+
+
+
+ 本帖最后由 azbhg1 于 2020-12-19 16:31 编辑 
+
+重复了，编辑
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 53875#       发表于 2020-12-19 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768708&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-19 03:36</a>
+ 仁义如何暂且不提，我个人觉得是出海了就视为独立成人了吧，故乡虽然重要但跟自己的梦想相比还是太渺小了 ...</blockquote>
+以藏就不是自己想出海，他是想把御田拽回来才被迫跟上去的，和路飞那种自己决定出海的原点上就不一样，从何谈自由自在的海上生活。
+
+
+
+
+
+
+
+-----
+
+####  zxzx7753  
+##### 53876#       发表于 2020-12-19 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771054&amp;ptid=98922" target="_blank">C男人 发表于 2020-12-19 12:35</a>
+
+刚看到 艾斯VS大和 的时候，还以为会变成坛友预测的走向——
+
+
+艾斯：我在和之国遇到一个叫光月御田的人，她 ...</blockquote>
+天天在一艘船上  对下细节就知道搞错了  不这样搞也对
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 53877#       发表于 2020-12-19 15:52
+
+
+
+ 本帖最后由 C男人 于 2020-12-19 15:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772598&amp;ptid=98922" target="_blank">zxzx7753 发表于 2020-12-19 15:27</a>
+
+天天在一艘船上  对下细节就知道搞错了  不这样搞也对</blockquote>
+白胡子：好的，我们来对一下细节，那家伙是和服打扮对吧？  <img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+马尔高：他做事鲁莽，一根筋，根本不听别人说话。
+
+
+乔兹：身材比一般人高大，背后绑着粗大的红白绳结。
+
+
+蒂奇：他和父亲关系不太好。
+
+
+以藏：他身边的人都敬重他、信赖他，但有时又表现的很怕他，每天都在全力阻止他的胡作非为。
+
+
+艾斯：没错，就是你们说的这个家伙！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+白胡子：他这些年为何不出海来找我们？
+
+
+艾斯：他爹不让他出岛，甚至给她戴了镣铐。
+
+
+白胡子：不出所料。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 斯塔久| + 1|思路广|
+| beats0815| + 1|细节全对上了|
+| gooswan| + 1|见鬼了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  红色的卫兵  
+##### 53878#       发表于 2020-12-19 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772472&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-12-19 15:13</a>
+
+以藏就不是自己想出海，他是想把御田拽回来才被迫跟上去的，和路飞那种自己决定出海的原点上就不一样，从 ...</blockquote>
+有道理，本话以藏的态度完全不合理。
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53879#       发表于 2020-12-19 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771719&amp;ptid=98922" target="_blank">rt7539515 发表于 2020-12-19 13:46</a>
+
+御田传这么拉胯不在于御田本身，在于其他人对御田的态度。我现在就担心路飞也去舔御田。
+
+
+  -- 来自 能手机 ...</blockquote>
+五皇估计也免不了这一刀
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53880#       发表于 2020-12-19 16:18
+
+
+
+ 本帖最后由 moeful 于 2020-12-19 16:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772859&amp;ptid=98922" target="_blank">C男人 发表于 2020-12-19 15:52</a>
+
+白胡子：好的，我们来对一下细节，那家伙是和服打扮对吧？  
+
+
+马尔高：他做事鲁莽，一根筋，根本不 ...</blockquote>
+毫无破绽Q.E.D
+
+再加一个，
+
+
+“其实他是男的。”
+
+
+“啊是男的嘛，这么厉害，的确听说过那个国家有一部分人喜欢男扮女装。原来如此。” 
+
+
+ 就完全没有违和了。
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53881#       发表于 2020-12-19 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772924&amp;ptid=98922" target="_blank">红色的卫兵 发表于 2020-12-19 15:59</a>
+有道理，本话以藏的态度完全不合理。</blockquote>
+弟弟生死不明也完全不在乎，就太奇怪了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53882#       发表于 2020-12-19 17:05
+
+
+
+
+说起来，和国管红发叫赤太郎，如果翻成中文，小赤佬更合适吧？
+
+
+
+
+
+   

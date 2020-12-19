@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 10:05** 
+> ## **本文件最后更新于2020-12-19 18:05** 
 
 
 
@@ -23596,10 +23596,11 @@ J1IXK9B0323O)NBCHN0NQ{I.png
 
 
 
- 参与人数 4战斗力 +5
+ 参与人数 5战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| WDDzzZ| + 1|欢乐多|
 | 车子走| + 1|思路广|
 | xkyxz| + 1|思路广|
 | ylssb10438| + 1|思路广|
@@ -24736,4 +24737,960 @@ scp年轻人看的多啊。  至于喜欢coc说不定是受了某个长辈的�
 
 
 
-       
+
+
+-----
+
+####  JoelBirch  
+##### 23764#       发表于 2020-12-19 10:53
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-19 10:58 编辑 
+
+看看SCP其实也还蛮正常的吧，日本本来就喜欢搞灵异这一套，受众应该不小，宅度高点好，爱的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+昨天契约者推发的哈姆那条推着实把我逗笑了，从细节中发现有趣东西的02，可爱呐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23765#       发表于 2020-12-19 11:02
+
+
+
+
+醒来，发现错过了ina时隔两月的歌回和郡道的烦恼湘潭，睡得很好
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 23766#       发表于 2020-12-19 12:20
+
+
+
+<[img src="https://s3.ax1x.com/2020/12/19/rtzTuF.png" referrerpolicy="no-referrer">
+
+感觉兰酱又变小了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| winda| + 1|偶像服好看|
+| 过不了审| + 1|没想到差距这么大|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23767#       发表于 2020-12-19 12:26
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 12:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">知道啦！！
+
+<img src="https://img.saraba1st.com/forum/202012/19/122557jsaffk1uzi005qxz.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】-2.p.png</strong> (566.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 12:25 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/122642ivv9ljfhn9hxcfh9.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】-3.p.png</strong> (569.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 12:26 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=s6JFLeSju48](https://www.youtube.com/watch?v=s6JFLeSju48)
+
+
+A组出线，突出一个天道酬勤
+
+皇女、女骑士、夕阳莉莉、白雪巴、小偶像
+
+<img src="https://img.saraba1st.com/forum/202012/19/124641k8lcvol8lcflzepv.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】-5.p.png</strong> (514.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 12:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23768#       发表于 2020-12-19 13:10
+
+
+
+
+这兔子早上发推说要睡回笼觉，开播还真是刚睡醒的声音，是猪吗你？
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23769#       发表于 2020-12-19 13:22
+
+
+
+
+介绍飞鸟的时候看到墨镜长发一瞬间以为是鹰宫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 23770#       发表于 2020-12-19 13:22
+
+
+
+
+啊，兔子现在才玩DDLC可能也有刚换电脑，莫妮卡那边可以放心点的原因吧
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 23771#       发表于 2020-12-19 13:23
+
+
+
+
+SCP和X档案差不多啊。日本都市传说之类的不是挺流行的么。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23772#       发表于 2020-12-19 13:27
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 13:52 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/132656iiexxpugr68urcpc.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】-6.p.png</strong> (681.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 13:26 上传
+
+
+
+
+
+
+
+但凡有一个正常人
+
+
+B组出线：
+
+阿喵喵、哈哥、舞元、Alice、司会
+
+其中哈哥因为个人原因不能参加下一轮，比赛中途掉线的路易斯补位
+
+<img src="https://img.saraba1st.com/forum/202012/19/134208dp0lu0k90bdi6tl0.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】-7.p.png</strong> (518.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 13:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23773#       发表于 2020-12-19 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">B组：阿喵喵无双
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 23774#       发表于 2020-12-19 13:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 23775#       发表于 2020-12-19 13:39
+
+
+
+
+爱丽丝在bml更衣室参加<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 23776#       发表于 2020-12-19 13:52
+
+
+
+
+哈哥指定掉线的露易丝进本战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  饼脸遥  
+##### 23777#       发表于 2020-12-19 13:53
+
+
+
+
+哈哥这意思是让最下位顶上？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23778#       发表于 2020-12-19 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771768&amp;ptid=1969498" target="_blank">饼脸遥 发表于 2020-12-19 13:53</a>
+
+哈哥这意思是让最下位顶上？</blockquote>
+路易斯开局掉线，然后搓麻将去了，最下位是因为网络问题
+
+
+
+
+
+
+
+-----
+
+####  饼脸遥  
+##### 23779#       发表于 2020-12-19 13:57
+
+
+
+
+不过说实话昨天看路易斯的三人联动 实力好像和フミ差不多。。。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 23780#       发表于 2020-12-19 13:58
+
+
+
+
+774也来偶像服了呀
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23781#       发表于 2020-12-19 14:09
+
+
+
+
+为什么待机的这么多人在看夜见啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 23782#       发表于 2020-12-19 14:22
+
+
+
+
+真正的虚拟偶像箱774
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23783#       发表于 2020-12-19 14:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 14:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/142355uu5h3v92ywumuhvf.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】-c2..png</strong> (673.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 14:23 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/142416i1q41qtqquy1qh1r.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯​】-c.png</strong> (434.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 14:24 上传
+
+
+
+
+
+
+草C组出线：
+
+成濑鸣、nrk、弦月、月撇、噗
+
+<img src="https://img.saraba1st.com/forum/202012/19/144120sk1ojztj1c8qtzt7.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】c-3..png</strong> (515.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 14:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 23784#       发表于 2020-12-19 14:40
+
+
+
+
+兔头和噗提并列第四晋级
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 23785#       发表于 2020-12-19 14:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4race的预选赛制说实话就是会让奇迹发生第二次的
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23786#       发表于 2020-12-19 14:44
+
+
+
+ 本帖最后由 winda 于 2020-12-19 14:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">nrk两周前mnnt联动时还是马车初心者，现在和成濑一组能小组第二出线，厉害啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23787#       发表于 2020-12-19 14:50
+
+
+
+
+郡道自报名到现在只和skb部播过一次马车，现在刚起床就准备去比赛了，我倒是要看看是有多自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 23788#       发表于 2020-12-19 15:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/152415nl4s1664442k0rsg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EplLEdPVQAEWalx.jpg</strong> (90.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 15:24 上传
+
+
+
+
+
+
+
+
+兔姨不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23789#       发表于 2020-12-19 15:26
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 15:47 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/152808h4jxk5j6s847jy77.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯​】 d.jpg</strong> (326.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 15:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/154315kgd1zkgwyfyogpr4.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】d-2..png</strong> (511.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 15:43 上传
+
+
+
+
+
+
+ハッピートリガー四缺一<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 23790#       发表于 2020-12-19 15:39
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-19 11:02
+醒来，发现错过了ina时隔两月的歌回和郡道的烦恼湘潭，睡得很好</blockquote>
+昨晚一撇濑跑来加了郡道会员
+
+可以有
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 23791#       发表于 2020-12-19 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772229&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-19 14:50</a>
+
+郡道自报名到现在只和skb部播过一次马车，现在刚起床就准备去比赛了，我倒是要看看是有多自信 ...</blockquote>
+还是歪头3d，真的修不好了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23792#       发表于 2020-12-19 16:16
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 17:10 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/161730pknnia4hiz4n4bkl.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】e-1..png</strong> (652.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 16:17 上传
+
+
+
+
+
+
+博士，因为很正常所以看起来不正常了起来
+
+长尾景有点本事
+
+<img src="https://img.saraba1st.com/forum/202012/19/165440r6ovechppvbflvf5.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】e-2..png</strong> (474.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 16:54 上传
+
+
+
+
+
+
+长尾景这个第一太稳了...<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">过于强
+
+
+shiba当天也有事情不能参赛，推牛姨出来补位，E组出线：
+
+长尾、爱园、春崎、fumi、牛姨
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 23793#       发表于 2020-12-19 16:17
+
+
+
+
+这组太恐怖了，让人想要逃离的混沌
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 23794#       发表于 2020-12-19 16:19
+
+
+
+
+草，这组一堆神经病<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 23795#       发表于 2020-12-19 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49773038&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-19 16:11</a>
+还是歪头3d，真的修不好了么</blockquote>
+只是落枕了啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，才不是断脖子迷拟Q呢
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23796#       发表于 2020-12-19 17:31
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-19 17:48 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/173032pz0qmnxt25pfbhnm.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】f-1..png</strong> (862.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 17:30 上传
+
+
+
+
+
+
+阿葵在增重，企图通过这种方式增加mii的质量吗<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/19/174752blv7as701yslvovz.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 予選【#マリカにじさんじ杯】f-2..png</strong> (666.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 17:47 上传
+
+
+
+
+
+
+
+ハッピートリガー全员出线！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 23797#       发表于 2020-12-19 17:35
+
+
+
+
+安定の六位、ロックマン剣持<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 23798#       发表于 2020-12-19 17:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">在竞争激烈的F组里第一出线，算是预选最大黑马了桃子
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 23799#       发表于 2020-12-19 17:54
+
+
+
+
+兔子今天一周目随着sayori变成歪脖子树结束，明天打算接着播完。播ddlc实在没啥想法，三年前就看了好多相关游戏视频了，唯一的感想大概就是兔子读起台词来比游戏角色要可爱多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过总感觉她这反应不仅是知道这游戏是怎么样的，以前还去详细了解过？二周目教室后面的sayori遗照彩蛋发现得真的好快
+
+<img src="https://img.saraba1st.com/forum/202012/19/174605veidse0zewd0i4si.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EplB60DU0AAk5yz.jpg</strong> (420.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 17:46 上传
+
+
+
+
+
+[https://twitter.com/eretto_/status/1340176101251768321](https://twitter.com/eretto_/status/1340176101251768321)
+
+<img src="https://img.saraba1st.com/forum/202012/19/174606zvwuj1ahhj8tw1h8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eplx3jGUUAAOoDH.jpg</strong> (161.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 17:46 上传
+
+
+
+
+
+[https://twitter.com/Sco_ttie/status/1340227567308079104](https://twitter.com/Sco_ttie/status/1340227567308079104)
+
+
+豆ラッコ老师今天还在fanbox上公开了自己画的兔子色图，这真是个美好的世界
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 23800#       发表于 2020-12-19 18:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/180023u2p2t97bzyssyonq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>HK3FR8Xl.jpg</strong> (44.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 18:00 上传
+
+
+
+
+
+
+
+拉面其实还挺像样的，不过配菜就。。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 23801#       发表于 2020-12-19 18:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/19/180339z885395c8vccje85.jpg" referrerpolicy="no-referrer">
+
+
+<strong>公式情報バラエティ番組『ツキイチ！にじさんじ』 12月号の放送日時は≪ 12:23(水)20-.jpg</strong> (632.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-19 18:03 上传
+
+
+
+
+
+
+有叶子没阿叶, 世界线...?
+[https://twitter.com/nijisanji_app/status/1340235543997603840](https://twitter.com/nijisanji_app/status/1340235543997603840)
+
+
+
+
+
+      
