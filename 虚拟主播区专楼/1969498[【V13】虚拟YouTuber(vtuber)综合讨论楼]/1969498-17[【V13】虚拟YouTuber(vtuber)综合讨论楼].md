@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 00:06** 
+> ## **本文件最后更新于2020-12-20 02:04** 
 
 
 
@@ -870,4 +870,497 @@ bug是杏人的，虹的同接是真的，不要问为什么。
 
 
 
-                                                
+
+
+-----
+
+####  IDIDIDID  
+##### 24045#       发表于 2020-12-20 00:06
+
+
+
+
+说起来我还是猜不到武士道能给这live参谋个啥，他家自己的live就够拉了。不会让D4DJ或者邦邦登台吧？那不是魔怔人大爆发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 24046#       发表于 2020-12-20 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星川这个过场太强了，太有那味儿了，不愧是你
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 24047#       发表于 2020-12-20 00:24
+
+
+
+
+说起来，三期不是杏最强的吗，兔皇又是三期最强的
+
+粽船火团都有新衣服了，为什么只有兔皇没有新衣服……
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 24048#       发表于 2020-12-20 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49779335&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-19 23:41</a>
+顺便这到底是不是“bug”，到底有没有“修好”，明天早上9点鲨皇歌回见分晓。不要求13W，起码高峰得有6位数 ...</blockquote>
+鲨皇歌回是21号，注意时差，今天鲨皇的订阅过了一天半才涨一万，亡了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24049#       发表于 2020-12-20 00:30
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-20 00:34 编辑 
+
+02姐像是会称病然后去旅游的人吗？超级阳角啊那可是……不过这身体不舒服真是令人难受，前段时间太忙累趴了吗？中文什么的还是慢慢来吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+syl，虽说不知道她打算学到什么程度，不过这架势估计很快能吊打我的塑料日语<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+zsyl，所以姐姐你到底啥时候来播？急<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24050#       发表于 2020-12-20 00:30
+
+
+
+
+因为这就是“king”所背负的，等明年过气了被下一个king压了solo live办了就有新衣服了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24051#       发表于 2020-12-20 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49779822&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2020-12-20 00:29</a>
+
+鲨皇歌回是21号，注意时差，今天鲨皇的订阅过了一天半才涨一万，亡了 ...</blockquote>
+[https://pbs.twimg.com/media/EpTD ... =jpg&amp;name=large](https://pbs.twimg.com/media/EpTD7fUXIAMTVS-?format=jpg&amp;name=large)
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 24052#       发表于 2020-12-20 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49779847&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 00:32</a>
+https://pbs.twimg.com/media/EpTD7fUXIAMTVS-?format=jpg&amp;name=large</blockquote>
+不好意思记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 24053#       发表于 2020-12-20 00:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 24054#       发表于 2020-12-20 00:50
+
+
+
+
+野兔子到底是为什么，在你楼这么卑微
+
+peko最强好吗<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24055#       发表于 2020-12-20 00:54
+
+
+
+
+全方位被团长吊打的兔子有啥好吹的，sc比得过吗，同接（人气）比得过吗，工商比得过吗？你兔心心念念的pcr 说不定哪天就开始舔新团长了哦
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 24056#       发表于 2020-12-20 00:54
+
+
+
+
+惊了，油管可以直接给视频打赏了？
+[https://support.google.com/youtube/answer/9632365](https://support.google.com/youtube/answer/9632365)
+
+但是好像不是所有视频都有这个功能
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24057#       发表于 2020-12-20 01:03
+
+
+
+
+都是群老面孔日复一日复读反串，早就没有鱼了就一边钓鱼一边假装被钓
+嗯，又是v综其乐融融的一天
+
+也不嫌恶心
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 24058#       发表于 2020-12-20 01:06
+
+
+
+
+新团长这超紧张
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24059#       发表于 2020-12-20 01:06
+
+
+
+
+野兔子老RP了，卑微的背后是真正的自信<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24060#       发表于 2020-12-20 01:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/011132gvrvo9jc8okvc1jp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20201220_010948.jpg</strong> (782.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 01:11 上传
+
+
+
+
+
+
+[https://twitter.com/frengchiano2/status/1340340303094398981?s=19](https://twitter.com/frengchiano2/status/1340340303094398981?s=19)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 24061#       发表于 2020-12-20 01:16
+
+
+
+
+野兔子越来越有另一个兔子的粉丝内味了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 24062#       发表于 2020-12-20 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777602&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2020-12-19 21:25</a>
+
+去看了一下绯赤的切片，原来后面屏幕上是一只身上一直在掉粉的鲸鱼，上面是落樱，b站有心了。切片比直播的 ...</blockquote>
+太紧张了吧，也可以理解
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 24063#       发表于 2020-12-20 01:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780185&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-20 01:11</a>
+
+https://twitter.com/frengchiano2/status/1340340303094398981?s=19</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这位的皮咱真的喜欢，就是实在太马自立了，对耳朵不好
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 24064#       发表于 2020-12-20 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49779157&amp;ptid=1969498" target="_blank"> ShuTk4O 发表于 2020-12-19 23:25</a> 要考hsk怎么也得学个一年半载的。还是突击补下英语考个托福雅思更现实 </blockquote>
+万一人学两三个月就考过了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 24065#       发表于 2020-12-20 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778990&amp;ptid=1969498" target="_blank"> ZUOUZU 发表于 2020-12-19 23:12</a> 炎播片纯扯淡，人播片是因为自己菜，现场拿不出手才播片，真有人不明白这个道理？拿播片说事单纯就是个互相攻击的工具，举个旗玩饭圈打架罢了 </blockquote>
+所以播片就是菜呀<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24066#       发表于 2020-12-20 01:41
+
+
+
+
+lulu一边工作一边学了一年考过的hsk4，直播中文日语55开水平。月灵姐能超越吗
+
+
+
+
+
+
+
+-----
+
+####  奇拉奇拉  
+##### 24067#       发表于 2020-12-20 01:41
+
+
+
+
+说实话我觉得nga杏奴浓度比s1高，s1这边主要是杏奴还敢亮身份看起来还不少，nga那边的杏奴都暗搓搓批了其他皮混进其他讨论，但是那股味道还是很浓的，容易辨认。
+不过这是前几天的观察，这一阵没啥乐子可看加上七色太监和井孝子实在辣眼睛就懒得去那边观察了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24068#       发表于 2020-12-20 01:43
+
+
+
+
+瞎说什么，我大杏的迫真偶像们人人没日没夜的练歌练舞，歌力进步一日千里，怎么能播片呢，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24069#       发表于 2020-12-20 01:49
+
+
+
+<blockquote>free 发表于 2020-12-20 01:43
+瞎说什么，我大杏的迫真偶像们人人没日没夜的练歌练舞，歌力进步一日千里，怎么能播片呢，嘻嘻 ...</blockquote>
+免指导，明天冲cover官号的独轮车备好了没？
+
+冲蝗反杏可不能缺了您啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24070#       发表于 2020-12-20 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780463&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-20 01:49</a>
+
+免指导，明天冲cover官号的独轮车备好了没？
+
+冲蝗反杏可不能缺了您啊</blockquote>
+明天不是和鸭皇联动？你说官号不是A酱凸待吗，这个怎么冲...
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24071#       发表于 2020-12-20 01:58
+
+
+
+<blockquote>free 发表于 2020-12-20 01:54
+明天不是和鸭皇联动？你说官号不是A酱凸待吗，这个怎么冲...</blockquote>
+今天LGG3大字报挂走廊了啊，就是冲a酱预热啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 24072#       发表于 2020-12-20 02:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780509&amp;ptid=1969498" target="_blank"> free 发表于 2020-12-20 01:54</a> 引用:nowaki 发表于 2020-12-20 01:49 免指导，明天冲cover官号的独轮车备好了没？ 冲蝗反杏可不能缺了您啊 明天不是和鸭皇联动？你说官号不是A酱凸待吗，这个怎么冲... </blockquote>
+有虫啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+                                               
