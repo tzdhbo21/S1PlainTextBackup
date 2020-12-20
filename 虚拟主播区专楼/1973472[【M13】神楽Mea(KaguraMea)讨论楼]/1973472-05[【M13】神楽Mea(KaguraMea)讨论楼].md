@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 23:05** 
+> ## **本文件最后更新于2020-12-21 00:07** 
 
 
 
@@ -3647,10 +3647,11 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| whbstc4545| + 1||
 | elect| + 1||
 | azccc52| + 1||
 | planetcd| + 1|共勉|
@@ -5211,4 +5212,513 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 
 
 
-                                       
+
+
+-----
+
+####  草牛  
+##### 6309#       发表于 2020-12-20 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是愣头青呗，处事不冷静也不圆滑，我们这刚毕业的学生不少都有这毛病，硬的不行，吃几次亏就好了，不过我知道你们不少人就好这一口，青少年特有的精气神
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6310#       发表于 2020-12-20 23:11
+
+
+
+
+不成熟就会付出代价，天经地义
+
+
+虽然这句话是正确的，但不一定是对的（卫宫士郎饼干）
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 6311#       发表于 2020-12-20 23:12
+
+
+
+
+如果一直硬下去的话……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6312#       发表于 2020-12-20 23:12
+
+
+
+
+因为自己已经做不到了，所以喜欢她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+你麻从来都是遇强则强，正经场合你见过她拉胯的离谱过么？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6313#       发表于 2020-12-20 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 6314#       发表于 2020-12-20 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">年纪大了活得功利了，才羡慕起她年轻的样子
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 6315#       发表于 2020-12-20 23:14
+
+
+
+
+楼友平均年龄再评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6316#       发表于 2020-12-20 23:15
+
+
+
+
+你们不会都是叔叔吧.jpg
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6317#       发表于 2020-12-20 23:15
+
+
+
+
+如果一直硬下去的话，那么“ファンがいつか1人になって”的那天也不会远了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6318#       发表于 2020-12-20 23:17
+
+
+
+
+给你楼一首歌吧，感觉这简介写的还蛮好的，估计没少sj你楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+       
+[https://b23.tv/mbNya4](https://b23.tv/mbNya4)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 6319#       发表于 2020-12-20 23:17
+
+
+
+ 本帖最后由 thisisaspider 于 2020-12-20 23:20 编辑 
+
+说人愣头青就太高高在上了，社会人很容易用自己大人的想法来批判孩子太孩子气。
+
+但是不是所有东西都必须按社会规则来的，成人的规则很多都只是大家没办法抵抗社会的重力用来说服自己罢了。
+
+她失败的原因还是能力达不到期待的东西。
+
+还是一无所有的时候（甚至不知道明天在哪的时候）她才表现得比任何人都坚强。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+像流星一般的生存方式————星川莎拉
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 6320#       发表于 2020-12-20 23:19
+
+
+
+
+大家，都会发病啊.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6321#       发表于 2020-12-20 23:20
+
+
+
+
+想一直陪着她……看她到底会成为这样的人。是保持现在的无论遇到什么挫折都依然站起来的不死鸟，还是被苔姨同化成为一个卑鄙的大人。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6322#       发表于 2020-12-20 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 6323#       发表于 2020-12-20 23:23
+
+
+
+
+諦めた者と　賢い者だけが
+勝者の時代に　何処で息を吸う
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 6324#       发表于 2020-12-20 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">有好心人能私信我一下没看见的内容吗
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 6325#       发表于 2020-12-20 23:27
+
+
+
+
+見えない世界に色をつける声は僕だ<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6326#       发表于 2020-12-20 23:29
+
+
+
+
+年纪越大背负的东西越多，也就越难割舍，也越会妥协
+
+
+与其期待她能一直保持坚韧，不如在还觉得这人有意思的时候多看两眼
+
+
+“不能再像小时候那样任性了”
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6327#       发表于 2020-12-20 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民又该总结情报了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6328#       发表于 2020-12-20 23:31
+
+
+
+
+能不能阳光一点啊，感想都这么沉重，s1都是坦克民<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6329#       发表于 2020-12-20 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏消息是叉腰穿模，好消息是骨架确实大，说不定很重
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6330#       发表于 2020-12-20 23:34
+
+
+
+
+模型那么细的腰都可以穿模还有什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6331#       发表于 2020-12-20 23:34
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/233431bu0x5ukba5yjyayg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>37C1E07A-B1E2-4870-83AC-283AA2DCB719.jpeg</strong> (399.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 23:34 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/233433aaembwlbabl6bxfz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3A765076-FD1D-4D9E-8302-67AF035EDFF0.jpeg</strong> (379.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 23:34 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/233435qfm9f9lrfm69sdsf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DFAF06CD-805E-4F6B-A633-F6453844C95A.jpeg</strong> (348.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 23:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 6332#       发表于 2020-12-20 23:38
+
+
+
+
+咩咩，我可爱的咩咩，今晚梦中会见到你吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6333#       发表于 2020-12-20 23:39
+
+
+
+
+看样子到家了，等到12点看看有无直播
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 6334#       发表于 2020-12-20 23:52
+
+
+
+
+都累坏了，肯定洗洗睡
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6335#       发表于 2020-12-21 00:05
+
+
+
+
+群里看到极光3D有张胸穿模了，平板民又活了
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 6336#       发表于 2020-12-21 00:07
+
+
+
+
+那个模型,不穿模的都是怪物了
+
+
+
+
+
+                                      
