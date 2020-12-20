@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 14:07** 
+> ## **本文件最后更新于2020-12-20 16:04** 
 
 
 
@@ -1462,6 +1462,25 @@ lulu一边工作一边学了一年考过的hsk4，直播中文日语55开水平�
 
 月灵老实说只在霹雳霹雳玩玩就好，离得太近到时候要是有尼哥跳出来要指导她不准去N播那就舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甜甜圈与棒棒糖| + 1|欢乐多|
+
+
+
+查看全部评分
 
 
 
@@ -3848,13 +3867,7 @@ syl没什么特别的，因为以前在聊，所以现在也在聊。也没有�
 ####  Fakerの幻影  
 ##### 24204#       发表于 2020-12-20 11:52
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为fh公司本来就是泥哥定的
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5787,15 +5800,7 @@ ccll作为画师建箱，下属liver本质为个人势，虽联动频繁但不�
 ####  Fakerの幻影  
 ##### 24295#       发表于 2020-12-20 13:45
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783836&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 13:26</a>
-泥潭巨魔维阿被重拳出击了，这才叫铁拳</blockquote>
-钱到位了，已经删了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5871,4 +5876,1272 @@ ccll作为画师建箱，下属liver本质为个人势，虽联动频繁但不�
 
 
 
-                                        
+
+
+-----
+
+####  ひびき  
+##### 24300#       发表于 2020-12-20 14:13
+
+
+
+
+瞅了眼bml，爱丽丝怎么这么会扭啊，hso<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24301#       发表于 2020-12-20 14:21
+
+
+
+
+bml结束了我就一直在循环爱丽丝<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 24302#       发表于 2020-12-20 14:21
+
+
+
+ 本帖最后由 Vneet 于 2020-12-20 14:24 编辑 
+<blockquote>Abyssmarionette 发表于 2020-12-20 13:48
+就不能en的运营是个正常人知道不要和蝗这个陷入政治炎上的人扯上关系吗，en躲蝗躲得比谁都快
+
+[f:0 ...</blockquote>
+
+确实，杏EN可谓很机智了，只远离炎上源头就对了，其他人该怎么就怎么样。不去搞扩大化（也搞不得自己也是杏）
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 24303#       发表于 2020-12-20 14:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一眼看去全是杏，这就是杏楼吗
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24304#       发表于 2020-12-20 14:24
+
+
+
+
+泥潭相关 手机端哪个应用更好用啊，鹅球传两张动图传不上<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 24305#       发表于 2020-12-20 14:29
+
+
+
+
+我很喜欢一句话
+f**k u and never come back
+换日本人听了不应该特定到死？
+杏奴别只谈fh不谈尊重和态度啊
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 24306#       发表于 2020-12-20 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784326&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-20 14:24</a>
+
+泥潭相关 手机端哪个应用更好用啊，鹅球传两张动图传不上</blockquote>
+手机端建议下专用的图床app，一般都支持sm.ms图床，那个可以凑合用着
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 24307#       发表于 2020-12-20 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784326&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-20 14:24</a>
+泥潭相关 手机端哪个应用更好用啊，鹅球传两张动图传不上</blockquote>
+我ipad在用s1 fun,可以试试看。鹅球除了传图不行还是挺好用的
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24308#       发表于 2020-12-20 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784372&amp;ptid=1969498" target="_blank">Bondrewd 发表于 2020-12-20 14:29</a>
+手机端建议下专用的图床app，一般都支持sm.ms图床，那个可以凑合用着</blockquote>
+sm.ms上传后贴哪个链接到论坛里咧？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24309#       发表于 2020-12-20 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49781205&amp;ptid=1969498" target="_blank">寒星 发表于 2020-12-20 06:58</a>
+nga好歹关掉集合基本就看不到了，V综我一点进来经常一整页都是被我屏蔽的
+
+不过nga还是没法看，除 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是玩屏蔽当鸵鸟，这行为还想分高下？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24310#       发表于 2020-12-20 14:34
+
+
+
+
+小蜜蜂的red purge百万了，B站搬运号这个视频居然被干了，我们BXJ裤衩可太红啦！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24311#       发表于 2020-12-20 14:35
+
+
+
+
+杏奴能不能不要总往蝗的个人行为上面洗啊，杏在批站公告支持一个中国，推特公告“某些地方的民族主义者”，然后又以推特公告为准，这还不叫fh世界上还有fh的事吗
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24312#       发表于 2020-12-20 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784386&amp;ptid=1969498" target="_blank">苍浅° 发表于 2020-12-20 14:31</a>
+我ipad在用s1 fun,可以试试看。鹅球除了传图不行还是挺好用的</blockquote>
+S1fun安卓的话去哪里下。。
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 24313#       发表于 2020-12-20 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784420&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-20 14:35</a>
+S1fun安卓的话去哪里下。。</blockquote>
+https://s1fun.koalcat.com/app/s1fun-0.9.4-build16.apk
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24314#       发表于 2020-12-20 14:46
+
+
+
+ 本帖最后由 Map-2 于 2020-12-20 14:56 编辑 
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/144556tjlhtcuz6b9lrot6.gif" referrerpolicy="no-referrer">
+
+
+<strong>688AF8EEAC87371EDEC66151C7313B14.gif</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 14:45 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/144557iavzja8vawatda81.gif" referrerpolicy="no-referrer">
+
+
+<strong>C637941901958B49425B69202010CF78.gif</strong> (932.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 14:45 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/145612idi1l1m29ldqqhd3.gif" referrerpolicy="no-referrer">
+
+
+<strong>AF1A43FAEC7D8409435A8D06F8E402B2.gif</strong> (595.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 14:56 上传
+
+
+
+
+
+传两张爱丽丝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| caupollen| + 1|可爱|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ywwuyi  
+##### 24315#       发表于 2020-12-20 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49782938&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-20 12:03</a>
+
+你砍游被某团写文章算不算定性，还在用明确td人士的稿子c2机关算不算fh企业？
+
+如果觉得你杏定性了，请别双 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  U2FsdGVk  
+##### 24316#       发表于 2020-12-20 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 24317#       发表于 2020-12-20 14:50
+
+
+
+ 本帖最后由 Junchoon 于 2020-12-20 15:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784412&amp;ptid=1969498" target="_blank">free 发表于 2020-12-20 14:35</a>
+
+杏奴能不能不要总往蝗的个人行为上面洗啊，杏在批站公告支持一个中国，推特公告“某些地方的民族主义者”， ...</blockquote>
+我错了，杏社是纯SB！
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24318#       发表于 2020-12-20 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784506&amp;ptid=1969498" target="_blank">ywwuyi 发表于 2020-12-20 14:46</a></blockquote>
+爽球怎么还来视奸的，还是先搞搞自己电脑吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 24319#       发表于 2020-12-20 14:55
+
+
+
+
+怎么又开始分锅了，cover管不好liver还想赚中国的粉丝经济，早晚要炸锅，tskk和其他人不过加速了这过程罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24320#       发表于 2020-12-20 15:00
+
+
+
+
+。。。。。说实话 别虚无车轱辘了 我打了几个小时2077你们还在这搅这个 不如我楼下开始该聊直播聊直播
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 24321#       发表于 2020-12-20 15:00
+
+
+
+
+宝可梦和杏社好像在12/28有次商业合作，本任豚表示遗憾和谴责。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24322#       发表于 2020-12-20 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784537&amp;ptid=1969498" target="_blank">Junchoon 发表于 2020-12-20 14:50</a>
+
+实话实说，虽然杏社是SB无误，但“某些地方的民族主义者”那是二傻子翻译的锅，日文公告里也没有。
+
+我实 ...</blockquote>
+cover的官方公告，那你说红线这句应该怎么理解好吧
+[https://cover-corp.com/2020/09/27/200927/](https://cover-corp.com/2020/09/27/200927/)
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/150106njxdsz0xysyskzr0.png" referrerpolicy="no-referrer">
+
+
+<strong>下载.png</strong> (132.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 15:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24323#       发表于 2020-12-20 15:01
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/142331q96t8998k8f46i4k.jpg" referrerpolicy="no-referrer">
+
+
+V8+crew+S1+维阿，要素爆炸。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 24324#       发表于 2020-12-20 15:02
+
+
+
+ 本帖最后由 poipanchao 于 2020-12-20 15:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784537&amp;ptid=1969498" target="_blank">Junchoon 发表于 2020-12-20 14:50</a>
+
+实话实说，虽然杏社是SB无误，但“某些地方的民族主义者”那是二傻子翻译的锅，日文公告里也没有。
+
+我实 ...</blockquote>
+不是，我英文差，百度百科也是傻逼没错，但是
+
+公告原文
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/150351vfss5n0zbmsm8b2t.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201220150255.png</strong> (22.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 15:03 上传
+
+
+
+
+
+nationalist，英语单词，主要用作名词、形容词，作名词时译为“民族主义者；国家主义者；怀有本民族优越感者”，作形容词时译为“民族主义的；民族主义者的；怀有极度民族优越感的”。 
+
+
+
+你告诉我正确的翻译是啥
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 絵生voice| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24325#       发表于 2020-12-20 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784386&amp;ptid=1969498" target="_blank">苍浅° 发表于 2020-12-20 14:31</a>
+我ipad在用s1 fun,可以试试看。鹅球除了传图不行还是挺好用的</blockquote>
+确实还是鹅球好用，s1fun功能还不齐全
+
+
+
+
+
+
+
+-----
+
+####  扶桑洛槿  
+##### 24326#       发表于 2020-12-20 15:03
+
+
+
+
+除了v综杏奴是没有地方能公开聊杏了么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 24327#       发表于 2020-12-20 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783482&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-20 12:55</a>
+
+参加的不是就三个人，怎么这么多自来水
+
+
+星街すいせい☄ホロライブ0期生</blockquote>
+所以因为是自己常用的润喉糖吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 24328#       发表于 2020-12-20 15:06
+
+
+
+
+我错了，杏社是纯SB！
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 24329#       发表于 2020-12-20 15:07
+
+
+
+
+说实话，杏只能在v综了，要不缩回q群，nga不行，s1立个杏综不会被人更yygq？本来这也没人喜欢虫，几个nga老哥也不能说说得有问题，但得饶人处且饶人，别车了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 苍浅°| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24330#       发表于 2020-12-20 15:11
+
+
+
+
+V版人马上要和杏其他liver享受一个待遇了，二狗牛逼啊。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24331#       发表于 2020-12-20 15:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784537&amp;ptid=1969498" target="_blank">Junchoon 发表于 2020-12-20 14:50</a>
+
+我错了，杏社是纯SB！</blockquote>
+云了 兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 24332#       发表于 2020-12-20 15:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是不是忘了塔吧
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24333#       发表于 2020-12-20 15:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">又是没啥信息浓度的一天
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24334#       发表于 2020-12-20 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784723&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 15:11</a>
+V版人马上要和杏其他liver享受一个待遇了，二狗牛逼啊。</blockquote>
+哪个二狗？已知KK吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24335#       发表于 2020-12-20 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784816&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-20 15:19</a>
+
+哪个二狗？已知KK吗？</blockquote>
+泥潭创始人兼所有者
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 24336#       发表于 2020-12-20 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784409&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 14:34</a>
+小蜜蜂的red purge百万了，B站搬运号这个视频居然被干了，我们BXJ裤衩可太红啦！ ...</blockquote>
+2016还是2017开始的禁曲吧，原因依稀记得是B站给做了个专栏结果建政的人太多了a
+
+毕竟歌词是左壬的阴阳怪气，在国内略显危险也挺正常的
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24337#       发表于 2020-12-20 15:23
+
+
+
+
+真服了，钓着钓着就分不清你楼楼友的言论是真糊涂还是装糊涂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 24338#       发表于 2020-12-20 15:23
+
+
+
+ 本帖最后由 Bondrewd 于 2020-12-20 15:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784407&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-20 14:34</a>
+sm.ms上传后贴哪个链接到论坛里咧？</blockquote>
+就复制图片的链接然后在首尾加上[img][/img]
+
+以小白图床app为例，上传完毕之后进设置里面改成BBCODE格式，点击复制就可以直接复制粘贴到论坛了。
+
+<img src="https://i.loli.net/2020/12/20/b8VFND1TvypsOkA.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|再也不用担心鹅球放不下图了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 24339#       发表于 2020-12-20 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784741&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-20 15:12</a>
+
+云了 兄弟</blockquote>
+你不能这样，我为冲蝗出过力，我刚才还在投诉Pokemon公司，我要见楼主！我要见楼主！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24340#       发表于 2020-12-20 15:24
+
+
+
+[https://bbs.nga.cn/read.php?tid=24732483](https://bbs.nga.cn/read.php?tid=24732483)
+
+收集贴 明天是2ND了，那么各位 偶像 今天在干什么呢
+
+
+绿帽坛小将都知道不对劲了，只有你楼杏奴还在天天repo谁谁谁今天又发推声称自己练歌练舞了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24341#       发表于 2020-12-20 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">  这又不是新闻  收集的人才是刚发现新大陆吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24342#       发表于 2020-12-20 15:29
+
+
+
+[https://www.nicovideo.jp/watch/sm37987898](https://www.nicovideo.jp/watch/sm37987898)
+
+夢月ロアの魔界訛り、使っただけで炎上する呪文と化す
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">口了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 24343#       发表于 2020-12-20 15:31
+
+
+
+ 本帖最后由 ひびき 于 2020-12-20 15:43 编辑 
+
+373+昨天那个和她联动那个男V能否把木口+木口星干翻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+那男的（大蔵優介）中之人谁啊，我感觉打两个优10没什么问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 24344#       发表于 2020-12-20 15:33
+
+
+
+
+MLGBD，SB杏社去死吧！原来12/28那次活动是Nico的工商，SB杏社搞得好像Pokemon给的工商一样。
+
+我TMD还发投诉，SB杏社去死！SB杏社去死！SB杏社去死！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多?|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24345#       发表于 2020-12-20 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24346#       发表于 2020-12-20 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784857&amp;ptid=1969498" target="_blank">Bondrewd 发表于 2020-12-20 15:23</a>
+就复制图片的链接然后在首尾加上
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+测试
+<img src="https://i.loli.net/2020/12/20/284yVmPlujXkcSY.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 24347#       发表于 2020-12-20 15:39
+
+
+
+
+测试<img src="https://i.loli.net/2020/12/20/YiRqrzNQj8OdLhv.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24348#       发表于 2020-12-20 15:39
+
+
+
+
+大藏优介正听着呢，不过吊打杏这个标准是不是太低了......
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 24349#       发表于 2020-12-20 15:44
+
+
+
+
+太稳了，live唱出录播水平<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 24350#       发表于 2020-12-20 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785025&amp;ptid=1969498" target="_blank">free 发表于 2020-12-20 15:39</a>
+大藏优介正听着呢，不过吊打杏这个标准是不是太低了......</blockquote>
+话说免费评过君之宮吗？能排到哪个等级？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 24351#       发表于 2020-12-20 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785025&amp;ptid=1969498" target="_blank">free 发表于 2020-12-20 15:39</a>
+大藏优介正听着呢，不过吊打杏这个标准是不是太低了......</blockquote>
+到底是杏拉垮还是mmr滤镜没了的原因啊...
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24352#       发表于 2020-12-20 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785130&amp;ptid=1969498" target="_blank">奥尔斯蒂德 发表于 2020-12-20 15:48</a>
+
+话说免费评过君之宮吗？能排到哪个等级？</blockquote>
+C里边比较强的吧，跟美波七海应该差不太多
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24353#       发表于 2020-12-20 15:53
+
+
+
+<[img src="https://i.loli.net/2020/12/20/NgzS3UuBRIXp49b.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/20/MN5kYwBTDih1FXS.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 24354#       发表于 2020-12-20 15:57
+
+
+
+
+NGA那个贴一进去就是某天音彼方，简单搜了下某天音彼方最近都在干什么。
+<[img src="https://i.loli.net/2020/12/20/HTrVfZUpyew3quL.png" referrerpolicy="no-referrer">
+
+
+不过说到上舞蹈课这个问题。
+
+我觉得HOLO不如想一下如何解决摄影对焦和机位切换比较实际一点。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24355#       发表于 2020-12-20 15:58
+
+
+
+
+杏大多数人都是普通人ktv水平，硬要说的话确实有滤镜加成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+免费的C榜真的不是随便塞进去的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24356#       发表于 2020-12-20 16:00
+
+
+
+
+别你妈杏了，都去给我去B综看京观。
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 24357#       发表于 2020-12-20 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785256&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 16:00</a>
+别你妈杏了，都去给我去B综看京观。</blockquote>
+在看了，哈人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24358#       发表于 2020-12-20 16:01
+
+
+
+
+你杏会唱歌的加一起有5个人么？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 24359#       发表于 2020-12-20 16:01
+
+
+
+
+兔皇又被DDLC作者认知了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 24360#       发表于 2020-12-20 16:03
+
+
+
+
+成功就是成功，什么歌力整活买数据都是马后炮，给既定结果找的理由
+
+
+
+
+
+                                      
