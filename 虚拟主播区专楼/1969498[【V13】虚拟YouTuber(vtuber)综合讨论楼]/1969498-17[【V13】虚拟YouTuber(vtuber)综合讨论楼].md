@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 22:59** 
+> ## **本文件最后更新于2020-12-21 02:02** 
 
 
 
@@ -7357,8 +7357,9 @@ hololive罪大恶极怎么做都是错不提，2434上个月SC前排也没一个
 
 
 
+ 本帖最后由 Kojimaru 于 2020-12-21 01:10 编辑 
 
-有人在s1q群给狗叔打小报告才被塞的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">s1真正的底线是啥要懂啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
 
 
 
@@ -10333,4 +10334,530 @@ A酱这英语怎么一股咖喱口音
 
 
 
-                                
+
+
+-----
+
+####  Suny08  
+##### 24531#       发表于 2020-12-20 23:02
+
+
+
+
+刚才去补了黑黑的新歌，你虹是要正式开始把黑黑这块招牌做起来的意思么，还专门写个故事来塑造的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 24532#       发表于 2020-12-20 23:07
+
+
+
+
+木口这么多人开歌回，D不过来了
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 24533#       发表于 2020-12-20 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49790506&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-20 23:02</a>
+
+刚才去补了黑黑的新歌，你虹是要正式开始把黑黑这块招牌做起来的意思么，还专门写个故事来塑造的 ...</blockquote>
+从组合频道创建投的第一首歌就在写故事加设定了啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 24534#       发表于 2020-12-20 23:14
+
+
+
+
+**转卖厨不得好死，某个hnst的五人挂画4444拍完转手挂15000
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 24535#       发表于 2020-12-20 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49790506&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-20 23:02</a>
+
+刚才去补了黑黑的新歌，你虹是要正式开始把黑黑这块招牌做起来的意思么，还专门写个故事来塑造的 ...</blockquote>
+双人频道的运营是CNR＋这个团队，直属黑黑、不从属ICKR。管理者ODA算是叶师之前的朋友，除了帮忙运营黑黑双人频道，还会负责黑黑两个人单人频道的部分主催工作和周边。
+
+
+顺便一提这些前世今生150年的故事...其实有一部分是叶师（和葛皇）自己嘴里跑火车出来的，就PUBG、RP初期，不要小瞧两个打枪时无聊的厨二病啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 24536#       发表于 2020-12-20 23:25
+
+
+
+
+看了下en圣诞剪辑，虽然绝对没有在阴阳谁啦，但看着好怪啊，
+gura：I didn’t come here to be bullied <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">!
+Calli : But it does not mean you are not going to be <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24537#       发表于 2020-12-20 23:47
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-21 00:12 编辑 
+
+郡gachi不如去看看EN华生的mom joke。侦探虽然一直被劈T台主播但是直播垃圾话真的有意思。
+
+
+
+
+
+推上一个给咒术回战画背景的大佬画的holoEN：
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001124fruffaimoan58wmn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpHYB6VUcAEelPI.jpg</strong> (459.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001134qmv0uqungagvu0x2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpMAgbbUwAEBMsf.jpg</strong> (469.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001145e6q6q9zqqlgl5j3w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpSHKmMVQAEasBD.jpg</strong> (554.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001155g34tcq1nnnz0yqc0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpTh_5kU8AAwz27.jpg</strong> (927.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001207pzrw38j2j8jjwwea.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpTvjSxU0AE6cON.jpg</strong> (750.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:12 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1||
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 24538#       发表于 2020-12-21 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49790991&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 23:47</a>
+郡gachi不如去看看EN华生的mom joke。侦探虽然一直被劈T台主播但是直播垃圾话真的有意思。 ...</blockquote>
+我已经有在看终极t台女主播郡道美玲了，等哪天华生跟ina联动的时候看她能不能让我有点兴趣吧，目前感觉一联动就地藏。
+省一楼，郡道极少时候真的说话完全无内容，虚无到了一定程度，t台会限两小时没有任何信息量，觉得这样的她很厉害
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24539#       发表于 2020-12-21 00:15
+
+
+
+
+和三张仿美漫风的：
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001357lp6ot1coc6q4bvkb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpiVjZBVoAEfy9h.jpg</strong> (931.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:13 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001406z1v0gk6nkgelpyvl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpiVlm3U8AIqP_O.jpg</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:14 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/001509sir2vlid9f256y99.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Epc5eBHVQAEJdxv.jpg</strong> (743.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 00:15 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 24540#       发表于 2020-12-21 00:21
+
+
+
+
+目前很喜欢这位（[https://twitter.com/crunchy_mmloni?s=21](https://twitter.com/crunchy_mmloni?s=21)），出本的，我很喜欢这位的美丽邦邦女同本，
+按现在画takamori的速度，估计下次cm就会有新作了吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 24541#       发表于 2020-12-21 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49791255&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-21 00:21</a>
+
+目前很喜欢这位（https://twitter.com/crunchy_mmloni?s=21），出本的，我很喜欢这位的美丽邦邦女同本，
+
+按 ...</blockquote>
+郡道开始转尊妈安洁还有crossick的同人了
+
+
+模仿郡gachi是不是：要是她当时珍惜某人还能找到他自己的贴贴同人
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 24542#       发表于 2020-12-21 00:35
+
+
+
+
+好图，多来点
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 24543#       发表于 2020-12-21 00:38
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-21 00:42 编辑 
+
+虹拉垮官网上了一批周边，社筑柴卡社长梦追绿仙，还有个迷之名字<strong>マーダーミステリー 『消えた緑仙の謎』</strong>、没猜错应该是偷跑的企划周边
+
+
+要跑团了、还是什么演剧企划？既然值得出谷，那筹备工作应该有很多
+
+
+Syl，顺手查了一下
+マーダーミステリーの参加者は通常6人から20人で
+
+
+
+
+还会有其他参与者吗？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 24544#       发表于 2020-12-21 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49791333&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2020-12-21 00:33</a>
+郡道开始转尊妈安洁还有crossick的同人了
+
+
+模仿郡gachi是不是：要是她当时珍惜某人还能找到他自己的贴贴 ...</blockquote>
+她当年要是跟疑似美人的某人线下了，现在估计能躺在卖cp官谷得来的钱堆上睡觉，
+不过就没得跟奶油妹啵啵了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 24545#       发表于 2020-12-21 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24546#       发表于 2020-12-21 00:49
+
+
+
+
+火彩人怎么又来车小免的榜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24547#       发表于 2020-12-21 01:15
+
+
+
+
+https://twitter.com/A_maze3/status/1340561335000551425?s=19<img src="https://p.sda1.dev/0/1e9e3ab1592af262dda0f3f39cef550c/IMG_CMP_101847339.jpeg" referrerpolicy="no-referrer">
+很有感觉的一张马车大会fa
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24548#       发表于 2020-12-21 01:16
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-21 01:17 编辑 
+
+刚刚刷视频刷到月灵姐之前的晚安小视频，免费投的那个，看到了这个……不是，免费哥，至于吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8ce094ad9c2706dc3335387772caf3c6/2020-12-21 (2).png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 24549#       发表于 2020-12-21 01:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
