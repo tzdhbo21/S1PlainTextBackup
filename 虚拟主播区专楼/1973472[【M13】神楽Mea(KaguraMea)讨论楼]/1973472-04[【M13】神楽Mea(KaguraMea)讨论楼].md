@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 00:12** 
+> ## **本文件最后更新于2020-12-20 12:11** 
 
 
 
@@ -17069,10 +17069,11 @@ syl，fleet两条
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 若风之景|-2||
 | npfjcg|-1|那还挺弱智的|
 | Cushaw|-1|那还挺弱智的|
 
@@ -18636,6 +18637,25 @@ bls会唱别人的女朋友吗 这也是小麻名曲啊
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -19124,4 +19144,278 @@ bls会唱别人的女朋友吗 这也是小麻名曲啊
 
 
 
-              
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 5575#       发表于 2020-12-20 02:09
+
+
+
+
+要是有人能画个3形态的咩坐在一起用丝袜羊腿给阿宅做那个的场景就好了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+我想想都boki了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5576#       发表于 2020-12-20 07:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780637&amp;ptid=1973472" target="_blank">我想做mkm的舔狗 发表于 2020-12-20 02:09</a>
+要是有人能画个3形态的咩坐在一起用丝袜羊腿给阿宅做那个的场景就好了
+我想想都boki了 ...</blockquote>
+想想都🐍爆
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5577#       发表于 2020-12-20 09:47
+
+
+
+
+有一说一，你咩太过健全，不听声音立绘不懂很难冲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5578#       发表于 2020-12-20 09:51
+
+
+
+
+抱怀里揉肥脸
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5579#       发表于 2020-12-20 09:51
+
+
+
+ 本帖最后由 路人庚 于 2020-12-20 09:56 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/095117pydc8ce3kr8yjzzk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>223A5B80-A4B2-40E6-960B-94695E995573.jpeg</strong> (281.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 09:51 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/095613hwzwie1i55k2hznk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EC21F72D-5B8D-46D6-9CA8-4036709D95AE.jpeg</strong> (34.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 09:56 上传
+
+
+
+
+
+
+
+推特更新之后终于新增了fleet推送功能（喜极而泣
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5580#       发表于 2020-12-20 09:53
+
+
+
+
+bsyl，新推，大约1小时的随机回复时间
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5581#       发表于 2020-12-20 10:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/101239t8wipbbaab3vfz84.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1EB26572-0574-4140-AF2D-EC4A0942FCC9.jpeg</strong> (281.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 10:12 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/101239g6svxxj4swlvsw5s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0F1CC955-70A3-4310-9BBC-4A819D0B978C.jpeg</strong> (77.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 10:12 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/101241dmmevzzooek3mlu3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>68C2009F-C111-4713-A03A-5216BAEF16F1.jpeg</strong> (107.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 10:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5582#       发表于 2020-12-20 11:02
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/110125daql7twkjw7t5lgk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C9A75053-B641-4370-BADF-36C233DADB5E.jpeg</strong> (335.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 11:01 上传
+
+
+
+
+
+
+
+加一个新推，早上起来就恰牛排还行
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 5583#       发表于 2020-12-20 11:04
+
+
+
+
+要debu了，坦克民狂喜
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 5584#       发表于 2020-12-20 11:51
+
+
+
+
+牛排不会debu，牛丼才会debu
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5585#       发表于 2020-12-20 12:10
+
+
+
+
+同好会nb
+[https://www.bilibili.com/video/BV1Tf4y1e7KS](https://www.bilibili.com/video/BV1Tf4y1e7KS)
+
+【BLS应援手书】No.1【神楽めあ】
+
+
+
+
+
+             
