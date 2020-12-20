@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 02:04** 
+> ## **本文件最后更新于2020-12-20 10:03** 
 
 
 
@@ -1156,6 +1156,25 @@ peko最强好吗<img src="https://static.saraba1st.com/image/smiley/face2017/222
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -1363,4 +1382,821 @@ lulu一边工作一边学了一年考过的hsk4，直播中文日语55开水平�
 
 
 
-                                               
+
+
+-----
+
+####  JoelBirch  
+##### 24073#       发表于 2020-12-20 02:12
+
+
+
+
+02姐想学就学，至于到什么水平，随缘吧，不重要
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 24074#       发表于 2020-12-20 02:28
+
+
+
+
+所以02的皮有重新找人捏吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24075#       发表于 2020-12-20 02:35
+
+
+
+
+明天期待一下这个，这不得算你圈非学院派第一人之战
+
+看这个站位，应该mimi唱LiSA，hachi唱uru
+
+[https://www.youtube.com/watch?v=Frgcg3ZROWg](https://www.youtube.com/watch?v=Frgcg3ZROWg)
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/023451u2zjul0rxbjubbxr.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (462.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 02:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 24076#       发表于 2020-12-20 02:40
+
+
+
+
+月灵老实说只在霹雳霹雳玩玩就好，离得太近到时候要是有尼哥跳出来要指导她不准去N播那就舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 24077#       发表于 2020-12-20 02:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥哥敢对华族讲这些吗
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 24078#       发表于 2020-12-20 02:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780769&amp;ptid=1969498" target="_blank">free 发表于 2020-12-20 02:35</a>
+明天期待一下这个，这不得算你圈非学院派第一人之战
+
+看这个站位，应该mimi唱LiSA，hachi唱uru</blockquote>
+这哪分得出高下，又不是live现场对唱。小免你莫要拿修过的歌出来骗人
+
+
+
+
+
+
+
+-----
+
+####  Erikas  
+##### 24079#       发表于 2020-12-20 02:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">月灵
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24080#       发表于 2020-12-20 03:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780835&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-20 02:49</a>
+
+这哪分得出高下，又不是live现场对唱。小免你莫要拿修过的歌出来骗人</blockquote>
+只要俩人的声音是一起处理的就行，就能看个差不多了
+
+
+明天7点还有夜雾的3D毕业回，6点半有理芽live，看哪个呢...
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 24081#       发表于 2020-12-20 03:52
+
+
+
+
+跟盆友讨论的时候突然有个想法，木口六七期会不会来akb退役成员体验生活呢，像渡边麻美这样的选手肯定不可能，如果是单纯为了钱的话看看nenechi好像也不错，当然偶像的收益我也不懂就是了
+
+
+
+
+
+
+
+-----
+
+####  papapapadopoulo  
+##### 24082#       发表于 2020-12-20 04:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780400&amp;ptid=1969498" target="_blank">奇拉奇拉 发表于 2020-12-20 01:41</a>
+
+说实话我觉得nga杏奴浓度比s1高，s1这边主要是杏奴还敢亮身份看起来还不少，nga那边的杏奴都暗搓搓批了其他 ...</blockquote>
+NGA不是遍地杏奴吗，冲蝗就是杏奴的赎罪券，杏奴的挡箭牌，只有拿冲蝗说事才能用“侦察”来掩饰自己想偷偷看猴楼的现实，才能在有人要冲他喜欢的猴楼幕刃时用4v转移话题，才能给阿B的猴楼海盗找个苟活的理由。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 24083#       发表于 2020-12-20 06:52
+
+
+
+
+免榜非学院派第一人之战，你圈就算了
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 24084#       发表于 2020-12-20 06:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49781053&amp;ptid=1969498" target="_blank">papapapadopoulo 发表于 2020-12-20 04:14</a>
+NGA不是遍地杏奴吗，冲蝗就是杏奴的赎罪券，杏奴的挡箭牌，只有拿冲蝗说事才能用“侦察”来掩饰自己想偷 ...</blockquote>
+nga好歹关掉集合基本就看不到了，V综我一点进来经常一整页都是被我屏蔽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过nga还是没法看，除了刚鲸落那段时间，现在又回到专楼养蛊时代了，历史在不断重复，因为当权的还是那批人，“新时代人”要么在nga被打压或者同化，要么就跑到V8去变成新时代乐子人了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 24085#       发表于 2020-12-20 07:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49781205&amp;ptid=1969498" target="_blank">寒星 发表于 2020-12-20 06:58</a>
+nga好歹关掉集合基本就看不到了，V综我一点进来经常一整页都是被我屏蔽的
+
+不过nga还是没法看，除 ...</blockquote>
+你拿希望新时代人怎么样呢？
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 24086#       发表于 2020-12-20 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49781053&amp;ptid=1969498" target="_blank">papapapadopoulo 发表于 2020-12-20 04:14</a>
+NGA不是遍地杏奴吗，冲蝗就是杏奴的赎罪券，杏奴的挡箭牌，只有拿冲蝗说事才能用“侦察”来掩饰自己想偷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">难怪我看着感觉怪怪的，大师我悟了！
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 24087#       发表于 2020-12-20 08:51
+
+
+
+
+体感上，bug应该在前天晚上修好了
+
+
+
+
+
+
+
+-----
+
+####  一夜四次羊  
+##### 24088#       发表于 2020-12-20 08:55
+
+
+
+ 本帖最后由 一夜四次羊 于 2020-12-20 08:56 编辑 
+
+免指导学唱歌了吗 不学以后怎么排榜啊.不过你的受众基本也不计较这些吧有个乐子就行了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">.
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24089#       发表于 2020-12-20 09:11
+
+
+
+
+鲨皇开始了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24090#       发表于 2020-12-20 09:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">没有了，没有高数字了，只是普通的可**唱歌了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 24091#       发表于 2020-12-20 09:15
+
+
+
+
+鲨皇开播十多分钟也就4w3，这就是你杏第一v吗？原来都是靠bot撑起来的啊，油管一管bot就现原形了，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|好评加鹅|
+| nowaki| + 2|回血|
+| pansherry|-2|嘻嘻代|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24092#       发表于 2020-12-20 09:19
+
+
+
+
+果然是最近忙live忘记给bot续费了，yagoo太辛苦力！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24093#       发表于 2020-12-20 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">solo4w3诶，木口数据这么膨胀的么
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 24094#       发表于 2020-12-20 09:27
+
+
+
+ 本帖最后由 admentus 于 2020-12-20 09:28 编辑 
+
+以前咱圣鲨皇歌回同接可是有十万的哩，四万五万同接玩个游戏就能达到，再看看十二月，可怜的鲨鲨被油管gank成什么样了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+en信杏奴还不快去冲了油管<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 2|不至于不至于|
+| pansherry|-2|继续报团取暖吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 24095#       发表于 2020-12-20 09:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鲨皇专武就这？兔皇秒杀。
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 24096#       发表于 2020-12-20 09:30
+
+
+
+
+又疯了一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 24097#       发表于 2020-12-20 09:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野兔子早都因为鲨皇疯过了吧
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24098#       发表于 2020-12-20 09:32
+
+
+
+
+你楼某些“自称”野兔子罢了吧
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 24099#       发表于 2020-12-20 09:33
+
+
+
+
+不是，怎么就因为报团取暖这种理由扣鹅了，你是觉着v综有个巨魔阴湿人秘密组织吗？
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24100#       发表于 2020-12-20 09:34
+
+
+
+
+不过也罢了，反正你楼能不败坏自己推名声的大概也没几个就是了，平常心，平常心<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24101#       发表于 2020-12-20 09:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49781662&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-20 09:33</a>
+不是，怎么就因为报团取暖这种理由扣鹅了，你是觉着v综有个巨魔阴湿人秘密组织吗？ ...</blockquote>
+我就随便写点理由，没别的，就是是看你不顺眼啦
+
+反正也有人帮你加回来不是
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24102#       发表于 2020-12-20 09:37
+
+
+
+
+1. 以后没有鲨皇，只有鲨宝了。
+
+2. JP分社在兔皇坚强领导下重夺本社之位。
+
+3. 所以我昨天就说了这“bug”没“修好”对大家都好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24103#       发表于 2020-12-20 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49781632&amp;ptid=1969498" target="_blank">admentus 发表于 2020-12-20 09:27</a>
+以前咱圣鲨皇歌回同接可是有十万的哩，四万五万同接玩个游戏就能达到，再看看十二月，可怜的鲨鲨被油管gank ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">10w歌回是什么神秘玩意，我怎么不知道，是哪场啊？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24104#       发表于 2020-12-20 09:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">很难不支持对阴湿野兔子的清洗，与我一起塑造阳光杏人论坛。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24105#       发表于 2020-12-20 09:39
+
+
+
+
+安静听歌不好么？开live chat直接把我浏览器卡死了夜行
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 24106#       发表于 2020-12-20 09:41
+
+
+
+<blockquote>winda 发表于 2020-12-20 09:38
+10w歌回是什么神秘玩意，我怎么不知道，是哪场啊？</blockquote>
+11.13，11w9
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24107#       发表于 2020-12-20 09:46
+
+
+
+
+这可真是不是一家人不进一家门啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/094632qi0292g5zt1ocv90.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20201220094550.png</strong> (161.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 09:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 24108#       发表于 2020-12-20 09:48
+
+
+
+ 本帖最后由 fangjun96 于 2020-12-20 09:50 编辑 
+
+这楼里风向是又团建了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">发疯的总是那几个syl 原来是鲨皇，这个5w确实只能看个人理解了，难道白皮提前圣诞团建去了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+zsyl  兔皇秒了秒了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24109#       发表于 2020-12-20 09:50
+
+
+
+
+以月灵的直播频率和专业水平，这供需关系还蛮不一样的，这也能被开的话，那尼哥是真滴牛批，必🥜👿
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 24110#       发表于 2020-12-20 09:51
+
+
+
+ 本帖最后由 过不了审 于 2020-12-20 09:56 编辑 
+
+开会回来赶上半截，看楼友说是圣诞歌回，还是这方面了解太少了感觉都没听过，挺好，上次en联动mc的圣诞树也很有气氛。虽然我觉得是不是有些太早了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+怎么刚赶上就没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 24111#       发表于 2020-12-20 09:54
+
+
+
+<blockquote>过不了审 发表于 2020-12-20 09:51
+开会回来赶上半截，看楼友说是圣诞歌回，还是这方面了解太少了感觉都没听过，挺好，上次e联动mc的圣诞树也 ...</blockquote>
+圣诞节开始确实挺早的，很多地方圣诞集会会在平安夜前两三周就摆起来，城市里的圣诞装饰更是11月底就有
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24112#       发表于 2020-12-20 09:55
+
+
+
+
+对白皮来说圣诞就是他们的春节，到时候大概率人不在的，现在提前过了很好了。
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 24113#       发表于 2020-12-20 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24114#       发表于 2020-12-20 09:59
+
+
+
+
+真不是和jay过吗
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 24115#       发表于 2020-12-20 09:59
+
+
+
+
+日增不过万、solo不过十万的鲨宝配得上sc半月缩水360万的fh企业
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24116#       发表于 2020-12-20 10:00
+
+
+
+
+怎么没有牛姨（USA）的养老金神曲的，活该你糊了
+
+
+
+
+
+                                              
