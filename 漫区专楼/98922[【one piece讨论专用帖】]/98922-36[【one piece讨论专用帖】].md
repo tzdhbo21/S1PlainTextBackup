@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-19 18:01** 
+> ## **本文件最后更新于2020-12-20 18:01** 
 
 
 
@@ -22945,14 +22945,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 ####  759465155  
 ##### 53748#       发表于 2020-12-16 16:16
 
-
-
-
-那艾尼路一个十万伏特凯多十万条命都接不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -23160,7 +23153,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_YTUXT" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_DZ4QX" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
 
 
 
@@ -24796,12 +24789,13 @@ https://b23.tv/iukkPD
 
 
 
+ 本帖最后由 武男 于 2020-12-20 12:43 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49760990&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-18 14:04</a>
 
 海军本部都敢碰一碰。。这和之国不敢打，怎么说都怪怪的
 
 只能说死了的就算了。。最好的兄弟也没有办法</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个前面的楼层我们也谈过了，本来这玩意逼格还在的时候看起来很虎，结果好家伙，御田的剧情出来以后。凯多：油锅大王天下无敌。怎么海军就给他下油锅呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个前面的楼层我们也谈过了，本来这玩意逼格还在的时候看起来很虎，结果好家伙，御田的剧情出来以后。凯多：油锅大王天下无敌。怎么海军就没给他下油锅呢。
 
 至于人设营销这个，都说他是网红型烙印币四皇了，专门去刷流量。
 
@@ -25743,4 +25737,889 @@ WT不一直是宿命论血统论者由始至终都在鼓吹五皇天命所归吗
 
 
 
-   
+
+
+-----
+
+####  24k纯帅  
+##### 53883#       发表于 2020-12-19 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49773166&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-12-19 16:25</a>
+弟弟生死不明也完全不在乎，就太奇怪了。</blockquote>
+其实也还好，以藏应该是在白船找到了梦想或者是家，当初御田跳槽的时候他就没走，尾田反正逛贴吧，下一话给他加一句台词就糊弄过去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53884#       发表于 2020-12-19 19:20
+
+
+
+<blockquote>24k纯帅 发表于 2020-12-19 18:51
+其实也还好，以藏应该是在白船找到了梦想或者是家，当初御田跳槽的时候他就没走，尾田反正逛贴吧，下一话 ...</blockquote>
+在御田这里是做傻批殿下的小弟，在白胡子那边是做世界最强之一的儿子，什么都不用操心，对于从小就带弟弟卖艺的以藏，更合适哪里就不必我多说了吧XD
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53885#       发表于 2020-12-19 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49774905&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-12-19 18:51</a>
+
+其实也还好，以藏应该是在白船找到了梦想或者是家，当初御田跳槽的时候他就没走，尾田反正逛贴吧，下一话 ...</blockquote>
+萨博那种每个人都有自己的冒险言论也就罢了，以藏这种和之国自认家臣的再说什么梦想或新家就太怪了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+又想起来当年象岛猫狗给桃子那惊天一跪了，皮毛族和月光世代交好信守诺言就已经够浪漫了，就非要再整个皮毛族两个老大都是御田家臣，结果现在怎么想这20年都怪怪的。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 53886#       发表于 2020-12-19 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49773584&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-19 17:05</a>
+说起来，和国管红发叫赤太郎，如果翻成中文，小赤佬更合适吧？</blockquote>
+红太狼🐺
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53887#       发表于 2020-12-19 22:36
+
+
+
+ 本帖最后由 赚钱娶老婆 于 2020-12-19 23:44 编辑 
+
+下面再搞出一个D字一族全是和之国分支也不奇怪了，天王是和之国的，五老星世袭的祖籍也是和之国，伊姆更是和之国人，红发和巴基是和之国真太子。
+
+
+
+
+
+
+
+-----
+
+####  tornadoDA  
+##### 53888#       发表于 2020-12-19 22:56
+
+
+
+
+我真的很奇怪wt既然有乡土情，为啥不把和之国人画的好看一点，御田包括和之国一众角色造型都太丑了吧
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53889#       发表于 2020-12-19 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778810&amp;ptid=98922" target="_blank">tornadoDA 发表于 2020-12-19 22:56</a>
+
+我真的很奇怪wt既然有乡土情，为啥不把和之国人画的好看一点，御田包括和之国一众角色造型都太丑了吧 ...</blockquote>
+海贼王的特色人设，卡文迪许只有一个。
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53890#       发表于 2020-12-19 23:55
+
+
+
+
+我最气的是说说和之国武士强，都在哪呢？顶尖高手全是御田旧部。一个反派强力武士都没，连中boss小头目都没有，赤犬你在怕什么，忍者不算武士吧，而且忍者也很菜啊。
+别说巨人岛，说不定鱼人岛和象岛，就连小人族的平均战斗力都要比和之国高
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 53891#       发表于 2020-12-20 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778810&amp;ptid=98922" target="_blank">tornadoDA 发表于 2020-12-19 22:56</a>
+
+我真的很奇怪wt既然有乡土情，为啥不把和之国人画的好看一点，御田包括和之国一众角色造型都太丑了吧 ...</blockquote>
+以藏、小菊虽是女装大佬但颜值很高啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 53892#       发表于 2020-12-20 01:47
+
+
+
+
+太搞笑了，凯多知道是艾斯搞事只敢发脾气不敢去找白胡子。白胡子那边以为是连御田都力战不敌不敢贸然行动。
+白胡子知道真相就搞笑了。
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  wwdzcjsmxx  
+##### 53893#       发表于 2020-12-20 01:48
+
+
+
+
+请问大家现在都在哪里看？TX的翻译不习惯。。。以前追的字幕组都找不到了。。。
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53894#       发表于 2020-12-20 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780454&amp;ptid=98922" target="_blank">萝卜roto 发表于 2020-12-20 01:47</a>
+
+太搞笑了，凯多知道是艾斯搞事只敢发脾气不敢去找白胡子。白胡子那边以为是连御田都力战不敌不敢贸然行动。 ...</blockquote>
+黑暗海洋法则
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53895#       发表于 2020-12-20 02:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49778810&amp;ptid=98922" target="_blank">tornadoDA 发表于 2020-12-19 22:56</a>
+
+我真的很奇怪wt既然有乡土情，为啥不把和之国人画的好看一点，御田包括和之国一众角色造型都太丑了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">好想念女帝鹰眼卡文迪许这些人阿
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53896#       发表于 2020-12-20 02:41
+
+
+
+ 本帖最后由 灰狼 于 2020-12-20 02:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772472&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-12-19 15:13</a>
+
+以藏就不是自己想出海，他是想把御田拽回来才被迫跟上去的，和路飞那种自己决定出海的原点上就不一样，从 ...</blockquote>
+但有一副御田上摆船以后大家喝酒吃肉唱歌跳舞的图他也是跳得最欢脱的一个。。。
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53897#       发表于 2020-12-20 03:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780454&amp;ptid=98922" target="_blank">萝卜roto 发表于 2020-12-20 01:47</a>
+
+太搞笑了，凯多知道是艾斯搞事只敢发脾气不敢去找白胡子。白胡子那边以为是连御田都力战不敌不敢贸然行动。 ...</blockquote>
+你这么一说越发显得红发伟岸了，顶上战争先挡凯多后上海军本部，算上跟老白船长交涉就是一挑三
+
+面子果实，yyds<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53898#       发表于 2020-12-20 03:14
+
+
+
+
+这话出来以后，最大的受害者是海军本部<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+四皇杀了自家兄弟，老白：算了吧，代价太大，先忍了
+
+海军抓了自家儿子，老白：吹哨子摇人，扬了海军
+
+自家被四皇砸了场子，凯多：发发脾气得了，都是道上人以和为贵
+
+自家产业供应商被海军抓了，凯多的小弟：大将押运算个鸟，扬了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吵吵了这么多年将皇同级甚至皇副同级，合着最后四皇的共识是团结一致扬海军，上哪说理去
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 53899#       发表于 2020-12-20 04:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49772859&amp;ptid=98922" target="_blank">C男人 发表于 2020-12-19 15:52</a>
+白胡子：好的，我们来对一下细节，那家伙是和服打扮对吧？  
+
+
+马尔高：他做事鲁莽，一根筋，根本不 ...</blockquote>
+艾斯:我还跟她干了一架，不分胜负。
+
+白胡子:什么！那家伙居然退步成这样了？！
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 53900#       发表于 2020-12-20 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780788&amp;ptid=98922" target="_blank">灰狼 发表于 2020-12-20 02:41</a>
+
+但有一副御田上摆船以后大家喝酒吃肉唱歌跳舞的图他也是跳得最欢脱的一个。。。 ...</blockquote>
+他在回忆里的行为逻辑全是基于家臣跟随主君这一点的，毕竟当时御田也跳的比谁都欢...
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53901#       发表于 2020-12-20 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49763466&amp;ptid=98922" target="_blank">evangelina 发表于 2020-12-18 17:53</a>
+
+早说了御田就是OP里的杰克苏，谁跟他沾边都难讨到好，罗杰白胡子凯多都得给他抬架子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">主要这个人造型。。我觉得设计得也不行
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不知道有没有真心喜欢御田的，大概还是有的吧
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53902#       发表于 2020-12-20 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49764432&amp;ptid=98922" target="_blank">武男 发表于 2020-12-18 19:28</a>
+
+这个前面的楼层我们也谈过了，本来这玩意逼格还在的时候看起来很虎，结果好家伙，御田的剧情出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">得亏海贼王世界没有兴起直播阿短视频之类的东西，不然岂不是。。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">大新闻笑裂开来，我要谁红谁就能红
+
+那个草帽~就决定是你了，15亿的五皇
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53903#       发表于 2020-12-20 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780869&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-20 03:02</a>
+
+你这么一说越发显得红发伟岸了，顶上战争先挡凯多后上海军本部，算上跟老白船长交涉就是一挑三
+
+面子果实 ...</blockquote>
+登场还直接当下赤犬的攻击
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">在加一点~
+
+本来叫嚣要沉掉玛丽乔亚的黑胡子见到红发到来     黑胡子：“现在还不是和你开战的时候，撤了兄弟们”
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">世界大会期间直接去见五老星      五老星：“我们特地给你腾出了时间”
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">面子果实天下无敌
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53904#       发表于 2020-12-20 12:50
+
+
+
+ 本帖最后由 DGIL 于 2020-12-20 12:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780902&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-20 03:14</a>
+
+这话出来以后，最大的受害者是海军本部
+
+四皇杀了自家兄弟，老白：算了吧，代价太大，先忍了
+
+海军抓 ...</blockquote>
+白胡子和白胡子海贼团也是阿。。。现在我们再来回看一下赤犬的嘴炮感觉就不同咯。。。（除了罗杰的部分是他口嗨
+
+<img src="https://img.saraba1st.com/forum/202012/20/125025g85316zhbuuu21ol.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201220124721.jpg</strong> (41.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 12:50 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/125032isyidksivqk6k9iu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201220124728.jpg</strong> (84.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 12:50 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/125044upxyzmrpf4yszdpr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201220124732.jpg</strong> (145.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 12:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53905#       发表于 2020-12-20 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49780455&amp;ptid=98922" target="_blank">wwdzcjsmxx 发表于 2020-12-20 01:48</a>
+
+请问大家现在都在哪里看？TX的翻译不习惯。。。以前追的字幕组都找不到了。。。 ...</blockquote>
+现在贴吧很多民间汉化的，每一话出来的时候就去刷刷，挑看得顺眼的上<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53906#       发表于 2020-12-20 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49775731&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-12-19 19:42</a>
+
+萨博那种每个人都有自己的冒险言论也就罢了，以藏这种和之国自认家臣的再说什么梦想或新家就太怪了吧。[f: ...</blockquote>
+当初我们都以为是被杰克冤枉。。结果人真的在这里
+
+以为皮毛族和月光世代交好。。。结果尼玛的是家臣。。
+
+还祸害了全国人民。。可能从这里开始就变味了？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 53907#       发表于 2020-12-20 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783204&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-20 12:30:54</a>
+不知道有没有真心喜欢御田的，大概还是有的吧</blockquote>知乎有，知乎好多
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53908#       发表于 2020-12-20 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783708&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-20 13:12</a>
+
+当初我们都以为是被杰克冤枉。。结果人真的在这里
+
+以为皮毛族和月光世代交好。。。结果尼玛的是家臣。。
+
+ ...</blockquote>
+这个倒不至于，我专门回去翻了一下御田捡到猫狗时，猫狗说过他们小时候听到老人们说皮毛族和光月一族世代兄弟才专门出海去和之国的。
+
+
+当然，因为闹翻这20年就没去找白团还是。。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53909#       发表于 2020-12-20 16:28
+
+
+
+ 本帖最后由 DGIL 于 2020-12-20 16:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785437&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-12-20 16:16</a>
+
+这个倒不至于，我专门回去翻了一下御田捡到猫狗时，猫狗说过他们小时候听到老人们说皮毛族和光月一族世代 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">啊~~好像是这样~想起来了，御田那段有点忘记了，御田传中最喜欢的就是罗白的部分
+
+
+20年，他们出来了，就在象岛干等
+
+又不是不想复仇
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还是说御田交代了只能死等20年后的天命之子
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">那提前做准备也没问题把？
+
+说起来以前说不想靠人自己解决。。现在搞不定了，死皮赖脸的靠五皇帮忙。。
+
+啊啊啊。。那对了。。是只能由五皇来帮他们
+
+路飞现在已经是钦定的命运之子了把
+
+也是罗杰在等待的那个人
+
+有点德岛最后一定要由路飞击倒明哥那个味道了。。
+
+只不过规模扩大到了世界的命运的范畴
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53910#       发表于 2020-12-20 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784064&amp;ptid=98922" target="_blank">Algie 发表于 2020-12-20 13:51</a>
+
+知乎有，知乎好多
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧。。。说明起码还是有人喜欢的，也好
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53911#       发表于 2020-12-20 16:34
+
+
+
+
+收看jf的各位观众大家好！今年真是十分不容易的一年。各位里应该也有很多收到了新冠影响的人。
+在仿佛是在做梦一般的状况里，即使如此大家也在打起精神努力，想给各位业界的人士们赠予拍手。是这样的一年。
+在jump里总的来说就是鬼灭太厉害了。很高兴它能拯救各式各样人们的心情。干得漂亮。漫画就应如此。觉得有些感动！
+虽然是jump，但也是op的舞台，来谈op吧。op马上就要1000话了！
+你们读到这封信的时候，我应该已经上交了1000话的原稿，去见了声优们才对的……
+但没能去成，十分遗憾……
+舞台上的大叔大妈们
+……不对
+舞台上的大叔，姐姐们还好吗？
+虽然我不在那里，但1000话的原稿在。
+画得还好吗？
+1000话竟然会刊登在新年第一本jump上！
+多么巧的时机！配合1000话的祭典，还会有各式各样的企划进行中，明年正月会十分热闹！
+即将到来的2021年还有100卷，接下来会是十分不得了的一年了。
+漫画的内容，新情报，是否让你激动无比？
+那个红发男…！
+一如往常的，故事朝着最终话前进中
+
+虽然两年后漫画本身不好看了，但幽默感没降太多
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 53912#       发表于 2020-12-20 16:40
+
+
+
+
+1000话四海面子王要出场了？
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 53913#       发表于 2020-12-20 16:41
+
+
+
+
+和之国篇已经没救了，那泥潭潭友心中WT的巅峰是在哪篇？
+
+空岛？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yunxyz  
+##### 53914#       发表于 2020-12-20 16:44
+
+
+
+
+巅峰就是阿拉巴斯坦，后面每段故事都总是有很明显的缺点
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53915#       发表于 2020-12-20 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783302&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-20 12:40</a>
+
+登场还直接当下赤犬的攻击
+
+
+在加一点~</blockquote>
+可惜和御田不熟
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53916#       发表于 2020-12-20 16:50
+
+
+
+
+阿拉巴斯坦
+
+
+空岛其实神官的1v1很无趣
+
+
+
+
+
+
+
+-----
+
+####  tornadoDA  
+##### 53917#       发表于 2020-12-20 16:54
+
+
+
+<blockquote>cdfjg 发表于 2020-12-19 23:55
+我最气的是说说和之国武士强，都在哪呢？顶尖高手全是御田旧部。一个反派强力武士都没，连中boss小头目都没 ...</blockquote>
+我之前还以为大蛇这霸气的名头是个皇副级的牛逼剑客给索隆打呢，结果，唉，wt真的以为时髦度颜值不重要吗？
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 53918#       发表于 2020-12-20 17:18
+
+
+
+
+神官的设计确实不如工作室干部，不过我觉得响雷果实比沙沙果实帅
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 53919#       发表于 2020-12-20 17:27
+
+
+
+
+巅峰显然是阿拉巴斯坦咯，胜在各方面均衡没有短板
+
+空岛虽然点子很神，但是输在干部无趣
+
+水都-司法岛其实就有点混乱的苗头了
+
+
+
+
+
+
+
+-----
+
+####  Snaky  
+##### 53920#       发表于 2020-12-20 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785778&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-20 16:41</a>
+和之国篇已经没救了，那泥潭潭友心中WT的巅峰是在哪篇？
+
+空岛？</blockquote>
+阿拉巴斯坦和空岛争第一吧，个人更喜欢沙国，但空岛敲钟实在太浪漫了
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53921#       发表于 2020-12-20 17:44
+
+
+
+
+阿拉巴斯坦麾下对战好看，但是论打boss时的演出，情绪调动，空岛更好。打老沙基本就是锁血锁血锁血。打艾尼路的时候是穿插着古老的约定和一族人的悔恨与感情的，那一拳下去就很爽。
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 53922#       发表于 2020-12-20 17:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/174657fy7b44biuphudhqq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20201220_174502.jpg</strong> (315.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 17:46 上传
+
+
+
+
+
+贴吧看到的一个回帖，我觉得对于两年后的弊病分析的还是比较到位的
+
+
+
+
+
+
+
+-----
+
+####  csd  
+##### 53923#       发表于 2020-12-20 17:51
+
+
+
+
+洗地党的论调翻来覆去不就是那句恶心的“死都死了”吗？真TM2020海贼第一金句。 
+
+
+顶上战前
+
+海军：我有一计，可不费吹灰之力，管叫那白胡子乖乖退兵！ 
+
+战国：哦？说来听听！ 
+
+
+来日两军对垒，只见战国阵前立斩艾斯，白胡子见状不由长叹：“死都死了，何必徒增伤亡？”于是一声令下，带领帐下十三大队、附属船团，顷刻走个尽绝。旁人见状莫不称赞，皆道白胡子识大局、知进退，端的是睿智无比。 
+
+
+
+
+
+  

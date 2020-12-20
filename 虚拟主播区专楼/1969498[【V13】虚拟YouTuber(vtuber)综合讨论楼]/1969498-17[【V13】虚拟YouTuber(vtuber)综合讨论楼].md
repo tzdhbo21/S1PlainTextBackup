@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-20 16:04** 
+> ## **本文件最后更新于2020-12-20 18:05** 
 
 
 
@@ -4060,10 +4060,11 @@ S1杏奴真的是最跳抱团最紧的了<img src="https://static.saraba1st.com/
 
 
 
- 参与人数 5战斗力 +4
+ 参与人数 6战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 曜不能停| + 1|杏奴差不多得了|
 | Rosefinch| + 1|杏奴差不多得了|
 | Ronso| + 1|杏奴差不多得了|
 | nowaki| + 2|杏奴差不多得了|
@@ -7088,9 +7089,12 @@ NGA那个贴一进去就是某天音彼方，简单搜了下某天音彼方最�
 
 
 
+ 本帖最后由 奥尔斯蒂德 于 2020-12-20 16:04 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785256&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-20 16:00</a>
 别你妈杏了，都去给我去B综看京观。</blockquote>
 在看了，哈人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+"维啊今天爆炸了吗？"
+"没有，B综要炸了。"
 
 
 
@@ -7138,10 +7142,1054 @@ NGA那个贴一进去就是某天音彼方，简单搜了下某天音彼方最�
 
 
 
-成功就是成功，什么歌力整活买数据都是马后炮，给既定结果找的理由
+成功就是成功，什么歌力整活买数据都是马后炮，给既定结果找的理由<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 
 
 
-                                      
+
+
+-----
+
+####  free  
+##### 24361#       发表于 2020-12-20 16:07
+
+
+
+
+你杏不说歌力咋样，天天练歌练舞的牛逼都吹出去了，请不要播片可以吗
+
+[https://www.youtube.com/watch?v=-5TMTyV4JZA](https://www.youtube.com/watch?v=-5TMTyV4JZA)
+
+就日清的这个live，还要迫真喘一下，是不是太搞笑了
+
+[https://www.bilibili.com/video/BV1Tv411b7Jj](https://www.bilibili.com/video/BV1Tv411b7Jj)
+
+还有星街这个，这唱歌和MC阶段都不是一个麦吧，播片能不能有点诚意啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24362#       发表于 2020-12-20 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785260&amp;ptid=1969498" target="_blank">奥尔斯蒂德 发表于 2020-12-20 16:00</a>
+
+在看了，哈人
+
+"维啊今天爆炸了吗？"
+
+"没有，B综要炸了。"</blockquote>
+B20会是最后一栋维阿综吗？
+
+不，B20是最后一栋B综。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 24363#       发表于 2020-12-20 16:10
+
+
+
+ 本帖最后由 ひびき 于 2020-12-20 16:15 编辑 
+
+真的是不懂，你日这种373discord随便抽一个都小JAM的遍地宝藏的环境，怎么大企业抽歌势v还那么多臭鱼烂虾<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24364#       发表于 2020-12-20 16:13
+
+
+
+
+说明企业势抽歌势v不仅要唱歌唱得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 24365#       发表于 2020-12-20 16:15
+
+
+
+
+要是唱歌好就有人看那还用得着祭丝整天逼逼赖赖要佐藤希练“气息”？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24366#       发表于 2020-12-20 16:17
+
+
+
+
+SC第一的蝗：唱歌是什么
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 24367#       发表于 2020-12-20 16:20
+
+
+
+
+观隔壁2nd免费转播有感。
+其实觉得国内现在这环境对还看木口的人也没啥不好的，要不是被扣了个fh帽子一直有人提，我甚至觉得对hololive本身的国内粉丝扩张都不能算差的环境，至少不会让想看但上不了油管的人真的没得看。
+
+想看的人还能看也有地方交流，想喷的人也有地方云有地方喷，字幕组大多数还在干活，海盗更是比以前兴盛，付费资源一样有人买甚至更多人分享造福白嫖党，而且只要愿意分享甚至不会被喷子喷还给cover送钱（这点最搞笑）
+
+可以说大家都有美好的未来。
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 24368#       发表于 2020-12-20 16:23
+
+
+
+
+谁给总结一下隔壁b综什么乐子
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 24369#       发表于 2020-12-20 16:24
+
+
+
+
+护维阿会被塞，护木口还能活，fh论坛石锤
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24370#       发表于 2020-12-20 16:25
+
+
+
+
+hololive罪大恶极怎么做都是错不提，2434上个月SC前排也没一个唱歌好的，774一个人抗半边天的兔姨也是。至于点生活，会唱歌的被排挤走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 24371#       发表于 2020-12-20 16:28
+
+
+
+
+以前联名跪请太君出中文的那几万任豚能不能再跪一次感动太君把工商撤了啊
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 24372#       发表于 2020-12-20 16:29
+
+
+
+
+有人在s1q群给狗叔打小报告才被塞的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">s1真正的底线是啥要懂啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24373#       发表于 2020-12-20 16:29
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-20 16:32 编辑 
+
+liver凹歌姬人设别人喷喷也就算了，圆脸粉头真的有这个资格吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+圆脸在当年可就是凹人设电信诈骗第一人，可以说领先业界小半年。你杏高收入之路下面最底层的尸骨就是空友。
+
+
+
+
+
+
+
+-----
+
+####  wety  
+##### 24374#       发表于 2020-12-20 16:33
+
+
+
+
+真有海盗在b站播吗，没见过
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24375#       发表于 2020-12-20 16:38
+
+
+
+
+鬼才信兔子同接3w5啊。。聊天室刷屏连跟都跟不上。。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24376#       发表于 2020-12-20 16:38
+
+
+
+
+阿批那些杏海盗组，现在切片大部分也就1000左右观看，都没啥弹幕，评论区还乌烟瘴气的，实在不能理解这些人为什么还要自己给自己找罪受<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24377#       发表于 2020-12-20 16:39
+
+
+
+
+你综不管是杏奴还是独醒哥能不能有B综楼友1%武德
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24378#       发表于 2020-12-20 16:39
+
+
+
+<blockquote>目力干员leison 发表于 2020-12-20 16:38
+阿批那些杏海盗组，现在切片大部分也就1000左右观看，都没啥弹幕，评论区还乌烟瘴气的，实在不能理解这些人 ...</blockquote>
+还想看的都跑yt上面去了吧
+
+
+
+
+
+
+
+-----
+
+####  雪空  
+##### 24379#       发表于 2020-12-20 16:45
+
+
+
+ 本帖最后由 雪空 于 2020-12-20 17:03 编辑 
+
+-
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 24380#       发表于 2020-12-20 16:46
+
+
+
+
+免费真心闲得慌……，难道我还得复读那句，修没修听不出来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 24381#       发表于 2020-12-20 16:54
+
+
+
+
+B综楼友那是自杀冲锋，V综又不忌讳中之人的搞这个没意义。
+
+
+
+
+
+
+
+-----
+
+####  爱闭嘴  
+##### 24382#       发表于 2020-12-20 16:59
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  forzen  
+##### 24383#       发表于 2020-12-20 17:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49785730&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-20 16:38</a>
+
+阿批那些杏海盗组，现在切片大部分也就1000左右观看，都没啥弹幕，评论区还乌烟瘴气的，实在不能理解这些人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一个真正的杏奴是经得住考验的杏奴
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24384#       发表于 2020-12-20 17:11
+
+
+
+
+所以有无hxd详细讲讲B综咋了，瞅了一眼好惨烈
+
+
+
+
+
+
+
+-----
+
+####  蜜瓜包  
+##### 24385#       发表于 2020-12-20 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49786172&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-20 17:11</a>
+
+所以有无hxd详细讲讲B综咋了，瞅了一眼好惨烈</blockquote>
+简单来说s1官博开团七海，维阿综的人愤愤不平，然后狗叔展现了一波权限
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|原来如此|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 24386#       发表于 2020-12-20 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁看尿了 
+
+这得多少个5块啊
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 24387#       发表于 2020-12-20 17:23
+
+
+
+
+就这？管人区新移民少见多怪了，杀头比这狠的多了去了
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 24388#       发表于 2020-12-20 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783540&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-20 12:59</a>
+因为这个语句本身有问题，应该是
+将台湾列为国家的页面展示出来</blockquote>
+他的意思是，404的页面，错的是404，所以木口没有错，木口不应该道歉
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 24389#       发表于 2020-12-20 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783953&amp;ptid=1969498" target="_blank">Abyssmarionette 发表于 2020-12-20 13:40</a>
+
+谁管那个页面是不是猴楼做的啊，放到国内随便来个人把类似台湾列为国家的页面放上节目，还不直接把 ...</blockquote>
+之前华为手机改成繁体中文后，把tw单独列为国家了。事发之后积极删帖公关，怎么没见人把华为扬了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24390#       发表于 2020-12-20 17:34
+
+
+
+
+打住打住，要不然真得V14见了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24391#       发表于 2020-12-20 17:35
+
+
+
+
+V综要给B综陪葬吗？贴贴捏。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 24392#       发表于 2020-12-20 17:35
+
+
+
+<blockquote>百合大法好 发表于 2020-12-20 17:30
+之前华为手机改成繁体中文后，把tw单独列为国家了。事发之后积极删帖公关，怎么没见人把华为扬了 ...</blockquote>
+因为谷乡元昭既不姓任，也不姓马
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 24393#       发表于 2020-12-20 17:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">杏的问题不单是油管那个吧，后续各种骚操作才变成这样
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24394#       发表于 2020-12-20 17:39
+
+
+
+
+“他上课也说话了你为什么不批评他？！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 24395#       发表于 2020-12-20 17:42
+
+
+
+
+狗叔屠了B综还行，这乐子有点多啊
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24396#       发表于 2020-12-20 17:47
+
+
+
+<[img src="https://i.loli.net/2020/12/20/pfT67AUgByxGMaO.png" referrerpolicy="no-referrer">
+[https://twitter.com/0tome0to/status/1340571876494458880](https://twitter.com/0tome0to/status/1340571876494458880)
+
+
+来点新时代浓度，黑泽姐贵120w买了一把二胡
+
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 24397#       发表于 2020-12-20 17:47
+
+
+
+
+B21猝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 24398#       发表于 2020-12-20 17:49
+
+
+
+
+可能b综要重返v综了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24399#       发表于 2020-12-20 17:49
+
+
+
+
+B综竟然真的走在V综前面了……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 24400#       发表于 2020-12-20 17:49
+
+
+
+
+话说我又没冲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么把我给塞了
+狗叔杀急眼了？s1有啥申诉渠道吗
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24401#       发表于 2020-12-20 17:50
+
+
+
+
+发生甚么事啦？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24402#       发表于 2020-12-20 17:52
+
+
+
+
+二狗就是最大的你申诉给谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，在V综避难也好，用维阿降低杏浓度。
+
+非常时期应该没人有意见吧。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|维阿算虹，同意|
+| JoelBirch| + 1|支持|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24403#       发表于 2020-12-20 17:53
+
+
+
+
+草我还以为我bug了原来是B21直接没了
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 24404#       发表于 2020-12-20 17:53
+
+
+
+ 本帖最后由 pllllum 于 2020-12-20 17:54 编辑 
+
+论坛塞人他妈还带流弹，我真是草了
+不降低木口浓度了，没申诉渠道那只能q综见了
+
+
+
+
+
+
+
+-----
+
+####  儒雅随和李田所  
+##### 24405#       发表于 2020-12-20 17:53
+
+
+
+
+什么 木口还在聊v综吗？<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 24406#       发表于 2020-12-20 17:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">维阿干啥了
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 24407#       发表于 2020-12-20 17:56
+
+
+
+
+吓人，连B综都不能存在了，b21的楼主被塞了，楼没了。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 24408#       发表于 2020-12-20 17:56
+
+
+
+ 本帖最后由 Mafise 于 2020-12-20 17:58 编辑 
+
+华为要也是搞网络乞讨的你看它被不被扬了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+syl，看了眼被塞的全是19 20年注册的，这就是新时代人吗？哈人
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24409#       发表于 2020-12-20 17:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">在私人坛还能看到这样的乐子，维阿了不得啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24410#       发表于 2020-12-20 17:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> b综如此武德大瓜的同时v综车轱辘了一整天要知耻
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24411#       发表于 2020-12-20 18:00
+
+
+
+
+那么格列兹曼终止跟华为合作那事咋没闹起来？
+
+格子身价不几十倍杀你虫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24412#       发表于 2020-12-20 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49786754&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-20 18:00</a>
+那么格列兹曼终止跟华为合作那事咋没闹起来？
+
+格子身价不几十倍杀你虫？ ...</blockquote>
+差不多得了，想把V综也爆破咯？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 24413#       发表于 2020-12-20 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49786754&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-20 18:00</a>
+
+那么格列兹曼终止跟华为合作那事咋没闹起来？
+
+格子身价不几十倍杀你虫？ ...</blockquote>
+你的意思是tskk有100w欧身价？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 24414#       发表于 2020-12-20 18:01
+
+
+
+
+我再也不说外野危险了
+
+z老爷果然还是没真老爷强<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 24415#       发表于 2020-12-20 18:02
+
+
+
+
+千夜开播了，歌回[https://www.youtube.com/watch?v=JtiL4j8bi5Y](https://www.youtube.com/watch?v=JtiL4j8bi5Y)
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24416#       发表于 2020-12-20 18:02
+
+
+
+
+看小黑屋的，封禁理由为“冲”的都是B综楼友么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 24417#       发表于 2020-12-20 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">旁边什么情况，看了几页，全是口球，太劲了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24418#       发表于 2020-12-20 18:03
+
+
+
+
+杏人起码今天真差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24419#       发表于 2020-12-20 18:04
+
+
+
+
+理芽 STREAMING COVER LIVE「CHOCOLATE LIVE」
+[https://www.youtube.com/watch?v=2k9sLL**Iw](https://www.youtube.com/watch?v=2k9sLL**Iw)
+
+
+
+来看世界上最可爱最好的Vsinger，还有30分钟开始，或者7点直接来看唱歌也行。
+
+
+
+
+
+                                    
