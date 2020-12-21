@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-21 14:04** 
+> ## **本文件最后更新于2020-12-21 18:02** 
 
 
 
@@ -11348,4 +11348,1152 @@ lag<img src="https://p.sda1.dev/0/fed8a3c14317bae796ababda6c661cfc/IMG_CMP_93620
 
 
 
-                              
+
+
+-----
+
+####  hulaoda007  
+##### 24578#       发表于 2020-12-21 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49795566&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-21 13:46</a>
+
+lag</blockquote>
+  嘶...是不是ROA不好说...我也没看...但怎么有种是金鱼妹的感觉
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 24579#       发表于 2020-12-21 15:27
+
+
+
+
+Amelia念SC七个小时整<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24580#       发表于 2020-12-21 15:31
+
+
+
+
+今天的v综真是安静呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 24581#       发表于 2020-12-21 15:34
+
+
+
+<blockquote>反杏和反龙是矛盾的。
+
+
+真正的杏anti可不会追着桐生可可一个人去黑，要黑肯定黑全社
+
+
+而反龙的大多数是仍旧在看holo的粉丝。一方面”龙害的他们没转播和b限看“，另一方面如果看杏的同时不反龙的话容易被人打成狗罕见，所以要拿冲蝗当自己的盾</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 24582#       发表于 2020-12-21 15:51
+
+
+
+
+别的不说，等下2nd的白嫖地址楼友记得贴一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 24583#       发表于 2020-12-21 15:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/155909ij40mt08je2ebn8d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Epq1HTtVQAEToL5.jpg</strong> (683.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 15:59 上传
+
+
+
+
+
+[https://twitter.com/sooon_TD/status/1340582982747303936](https://twitter.com/sooon_TD/status/1340582982747303936)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 24584#       发表于 2020-12-21 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49794241&amp;ptid=1969498" target="_blank">Kojimaru 发表于 2020-12-21 11:39</a>
+
+是下架了吗？我现在去官店看好像找不到了</blockquote>
+本来也是失误操作，今天搜了一下twi发现fans把相关截图都删掉了，只有アラサーmdr的伏字还能搜到一点残留信息，真是可怕的默契...
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24585#       发表于 2020-12-21 16:22
+
+
+
+
+别问，问就是“批判性鉴赏”和“刺探敌情”<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24586#       发表于 2020-12-21 16:25
+
+
+
+
+我还特意请了今晚的假，就等着深入敌营呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24587#       发表于 2020-12-21 16:33
+
+
+
+ 本帖最后由 目力干员leison 于 2020-12-21 16:35 编辑 
+
+话说隔壁纯粹呆anti比例还是很高的吧，如果冲虫主力都是墙头草杏奴的假说成立的话，那么糊坦被炎泥小将落井下石没问题，但我一直不能理解之前他们为啥使劲开miko和ppt
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24588#       发表于 2020-12-21 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797512&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2020-12-21 16:33</a>
+
+话说隔壁纯粹呆anti比例还是很高的吧，如果冲虫主力都是墙头草杏奴的假说成立的话，那么糊坦被炎泥小将落井 ...</blockquote>
+按照最开始政委的说法是冲miko让其他人害怕，然后其他人就都不会和蝗联动了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24589#       发表于 2020-12-21 16:39
+
+
+
+
+至少今天还有大福柴卡皇女德龙联动
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24590#       发表于 2020-12-21 16:41
+
+
+
+
+听说白上船长代言的那个樱战手游大暴死？
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 24591#       发表于 2020-12-21 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797613&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-21 16:41</a>
+听说白上船长代言的那个樱战手游大暴死？</blockquote>
+开服第二天就掉到100名以下了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24592#       发表于 2020-12-21 16:45
+
+
+
+
+利用规约里明写了你30天不上游戏运营可以删你的档的手游我还真是第一次见，暴死的不冤
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24593#       发表于 2020-12-21 16:46
+
+
+
+
+樱战手游说屎都是抬举了，都快2021年了还有这种垃圾我也是服气<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+又抠又无聊，sega什么时候死啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 24594#       发表于 2020-12-21 16:46
+
+
+
+
+今天v棕这么安静，我以为去征战nga了，然后一看今日热榜，好家伙还是第一名<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 24595#       发表于 2020-12-21 16:47
+
+
+
+
+挺奇怪樱战手游到底垃圾成什么样，能开服2.7的分数……国内也就解神者和原神能比
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 24596#       发表于 2020-12-21 16:48
+
+
+
+
+初音那个倒还正常的活着
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24597#       发表于 2020-12-21 16:49
+
+
+
+
+时值杏生活年度汇报演出之日，日推趋势第一也很给面子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：
+
+
+
+1·Trending
+
+性的欲求不満
+
+8,470 Tweets
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 24598#       发表于 2020-12-21 16:50
+
+
+
+
+同，今晚有海盗转播的话请务必带出来分享
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24599#       发表于 2020-12-21 16:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/165145hw0zh3awxg121aew.jpg" referrerpolicy="no-referrer">
+
+
+<strong>017f8829862000499796b22ebca96bd.jpg</strong> (600.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 16:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 24600#       发表于 2020-12-21 16:53
+
+
+
+
+角色丑，以及fgo一样的混合池子和dw的拉胯技术力，这不爆死谁爆死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24601#       发表于 2020-12-21 16:53
+
+
+
+
+我擦  mrr推特这意思四期没偶像服啊  木口3d班都死光了么???
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 24602#       发表于 2020-12-21 16:56
+
+
+
+
+当年三期生出道没半年火速赶制常规3d和特别演出服
+
+结果四期就没了 四期你们做错了什么惹恼了yagoo
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 24603#       发表于 2020-12-21 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797757&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-21 16:53</a>
+
+我擦  mrr推特这意思四期没偶像服啊  木口3d班都死光了么???
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1N ...</blockquote>
+虚空黑皮无端猜测，年末半年赶出全社偶像服的技术团队业界应该不是很多吧，看向隔壁，774年末汇演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 24604#       发表于 2020-12-21 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797613&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-21 16:41</a>
+
+听说白上船长代言的那个樱战手游大暴死？</blockquote>
+[https://youtu.be/H3Km5XCgZc8](https://youtu.be/H3Km5XCgZc8)
+
+
+ナカイド案件.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 24605#       发表于 2020-12-21 16:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四期战犯呼之欲出
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 24606#       发表于 2020-12-21 16:58
+
+
+
+
+去年是要艹虹，现在都躺赢了当然连动都不用动了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 24607#       发表于 2020-12-21 16:58
+
+
+
+
+没错，就是mrr
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24608#       发表于 2020-12-21 16:58
+
+
+
+
+我年头还吹过进杏=2套L2D+3套3D，结果从四期开始2D节庆服和3D泳装/打歌服都没有了。
+
+
+不过这种脸欢迎yagoo狠狠打我，cover死就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 24609#       发表于 2020-12-21 17:00
+
+
+
+
+这么一说yagoo还真像是要跑路商人的样子
+
+live票还卖得死贵
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 24610#       发表于 2020-12-21 17:04
+
+
+
+
+3套3D，总之就是非常羡慕
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 24611#       发表于 2020-12-21 17:05
+
+
+
+
+看来木口的3d班组跑的差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 24612#       发表于 2020-12-21 17:05
+
+
+
+ 本帖最后由 死体残留 于 2020-12-21 17:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">holo的泳装3d… 今年有展示过么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24613#       发表于 2020-12-21 17:09
+
+
+
+
+可能又有杏奴说啦，我们3D2.0渲染那么棒怎么不见你说？
+
+
+光天皇2.0到35就隔了一个月，你杏40来号人一人一个月升级完，holo那些姨里怕是都有人更年期了。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 24614#       发表于 2020-12-21 17:11
+
+
+
+
+别尬黑，可能都出差去美国给鲨皇做3d了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 24615#       发表于 2020-12-21 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797679&amp;ptid=1969498" target="_blank">真田源次郎信繁 发表于 2020-12-21 16:47</a>
+
+挺奇怪樱战手游到底垃圾成什么样，能开服2.7的分数……国内也就解神者和原神能比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">只能说素质过硬...
+
+我真的是第一次见到一个我每天清一管体力玩了近1周，主线剧情boss都打不过的游戏（剧情战友召给的都是等级甚至比我还低的npc）...每天上线只能清狗粮，然后让1个角色升个1级左右
+
+虽然说把送的体力药全扔进去，是能硬把练度拉上来的，但是至于么...
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24616#       发表于 2020-12-21 17:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/171216ufptftpfzbirnbbb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpwAlibVoAAbmOP.jpg</strong> (800.98 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 17:12 上传
+
+
+
+
+
+https://twitter.com/yagiumaaai/status/1340947683956019202?s=20
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 24617#       发表于 2020-12-21 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holo3d组全华班可能性大增？fh之后就全跑了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 24618#       发表于 2020-12-21 17:14
+
+
+
+
+牛姨的3D证明油管审核应该是正常起来了，
+明年夏天应该就会有三期泳装了吧，现在我也偶尔偶尔会去看摸余泳装回，很可爱，期待惹
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24619#       发表于 2020-12-21 17:14
+
+
+
+
+就你兔田是king？
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/171415akwsk3e70kuuuxkg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>e9facd.jpg</strong> (244.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 17:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 24620#       发表于 2020-12-21 17:18
+
+
+
+
+哇..
+
+<img src="https://img.saraba1st.com/forum/202012/21/171414pmst4qmyc8e4jzs6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ホロライブプロダクション」がコラボ！第1弾としてオリジナルラベル酒＆VTuberが選ん.jpg</strong> (244.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 17:14 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/171808huv69ddbkuamg6r4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>＜ホロのみ ホロスターズ Ver. -律可- 厳選4本セット＞　10,000円（税別） .jpg.jpg</strong> (226.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 17:18 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/171809n8acbysbh115dzos.jpg" referrerpolicy="no-referrer">
+
+
+<strong>＜ホロのみ ホロスターズ Ver. -夕刻ロベル- 厳選4本セット＞　10,000円（税別） .jpg.jpg</strong> (239.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 17:18 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/171809yt9jn9d797t7gmof.jpg" referrerpolicy="no-referrer">
+
+
+<strong>＜ホロのみ ホロスターズ Ver. -アルランディス- 厳選4本セット＞　10,000円（税別） .jpg</strong> (218.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 17:18 上传
+
+
+
+
+
+
+「KURAND」とVTuber事務所「ホロライブプロダクション」がコラボ！第1弾としてオリジナルラベル酒＆VTuberが選んだお酒の厳選セットを12/22（火）17:00より数量限定で予約販売スタート
+[https://www.dreamnews.jp/press/0000228500/](https://www.dreamnews.jp/press/0000228500/)
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 24621#       发表于 2020-12-21 17:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 喷子们别尬黑，隔壁彩虹第二套3D，一件做一年，比烂的话，彩虹绝不会输
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24622#       发表于 2020-12-21 17:20
+
+
+
+
+wtm这就开始集金了，是谁把你变成这样的，桐生可可吗？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24623#       发表于 2020-12-21 17:23
+
+
+
+
+不是 尼玛的cover你到底在做什么啊啊啊啊啊啊啊啊
+不行能否速倒闭不要在这里拖着我了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 24624#       发表于 2020-12-21 17:27
+
+
+
+ 本帖最后由 tglals 于 2020-12-21 17:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797720&amp;ptid=1969498" target="_blank">Vneet 发表于 2020-12-21 16:50</a>
+
+同，今晚有海盗转播的话请务必带出来分享</blockquote>
+[https://bbs.nga.cn/read.php?tid=24744879](https://bbs.nga.cn/read.php?tid=24744879) [livechatfc2.com/83062882/](https://t.co/2JYiZb3nin?amp=1) 
+[https://mildom.com/11664781](https://t.co/dZtxA9938U?amp=1)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24625#       发表于 2020-12-21 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49798008&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-21 17:14</a>
+牛姨的3D证明油管审核应该是正常起来了，
+明年夏天应该就会有三期泳装了吧，现在我也偶尔偶尔会去看摸余泳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">疫情期都看过小白，阿银还有iliheart的泳装了，早可以弄了。
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 24626#       发表于 2020-12-21 17:30
+
+
+
+
+歌姬都开过3d泳装回了 就cover sb而已
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 24627#       发表于 2020-12-21 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈，cover!
+
+syl
+
+月灵开始被r音难倒了，1小时前的推，过时repo
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 24628#       发表于 2020-12-21 17:49
+
+
+
+
+4期没有偶像服不是看封面就能知道的吗，有了早就上全员偶像服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24629#       发表于 2020-12-21 17:50
+
+
+
+
+月灵姐是不学好不来播了吗<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24630#       发表于 2020-12-21 17:50
+
+
+
+
+这味觉糖什么弱智广告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24631#       发表于 2020-12-21 17:56
+
+
+
+
+第一次听味觉糖这奇葩歌.. id也都来了啊。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24632#       发表于 2020-12-21 17:57
+
+
+
+
+太认真了也，反而让人很慌<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+其实茉莉花仔细听的话，她一直在压制把“h”发成“f”，前面还好，后面其实还是没压住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24633#       发表于 2020-12-21 17:59
+
+
+
+
+这盗播怎么只有240p啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 24634#       发表于 2020-12-21 18:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/21/180031qffmm55f8eexmm1i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Epm3XjwUYAMi3ac.jpg</strong> (355.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 18:00 上传
+
+
+
+
+
+[https://twitter.com/7747yuz/status/1340304016593448961](https://twitter.com/7747yuz/status/1340304016593448961)
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 24635#       发表于 2020-12-21 18:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木口角色卡上wtm的专属logo都还没有呢
+
+
+
+
+
+                            
