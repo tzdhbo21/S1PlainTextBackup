@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-21 18:07** 
+> ## **本文件最后更新于2020-12-22 02:09** 
 
 
 
@@ -6111,7 +6111,9 @@ enako作为曾经的小肥婆回复一下现任小肥婆是很合理的
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">中国人真的是竖子不足与谋
+ 本帖最后由 春风女神狄璐卡 于 2020-12-21 21:12 编辑 
+
+1
 
 
 
@@ -6154,4 +6156,635 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 
 
 
-                                     
+
+
+-----
+
+####  上坂蓮華  
+##### 6363#       发表于 2020-12-21 18:08
+
+
+
+
+春风说话不过脑子又不是第一次了，屏蔽就好
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 6364#       发表于 2020-12-21 19:11
+
+
+
+
+惊了，彩虹周报里竟然有mea，就是尼哥主持的那场联动
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 6365#       发表于 2020-12-21 19:12
+
+
+
+
+春风发什么神经呢？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6366#       发表于 2020-12-21 19:14
+
+
+
+
+春风nt也不是一天两天的了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 6367#       发表于 2020-12-21 20:37
+
+
+
+
+录播。。录播有了吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 6368#       发表于 2020-12-21 20:43
+
+
+
+
+同求，可以提供门票截图<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6369#       发表于 2020-12-21 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49799302&amp;ptid=1973472" target="_blank">jhouo8989 发表于 2020-12-21 19:11</a>
+
+惊了，彩虹周报里竟然有mea，就是尼哥主持的那场联动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好 时 代
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6370#       发表于 2020-12-21 21:01
+
+
+
+
+其实以前就上过一次的，和爱丽丝双人还是多人哪次记不得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 6371#       发表于 2020-12-21 21:12
+
+
+
+
+下午喝醉了 我家养的mea跑来挠键盘 请当无事发生
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6372#       发表于 2020-12-21 21:13
+
+
+
+
+楼里有mea的的昨天的录播吗？私信一下。
+
+我这边8点吃晚饭，领导都在没法明目张胆的，漏了一部分没看全。
+
+有的请私信个链接谢谢。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6373#       发表于 2020-12-21 21:37
+
+
+
+ 本帖最后由 时雨rain 于 2020-12-21 21:38 编辑 
+
+小绿现在在杂谈mealive的观感www
+
+一直都在说好话呜呜呜呜，别吹力
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6374#       发表于 2020-12-21 21:46
+
+
+
+
+看到有人说mea跑去小绿评论区了 说好的睡觉呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6375#       发表于 2020-12-21 21:47
+
+
+
+
+说好不播，我信她<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6376#       发表于 2020-12-21 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49801116&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2020-12-21 21:46</a>
+
+看到有人说mea跑去小绿评论区了 说好的睡觉呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一说到咩宝立刻就出现了 
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 6377#       发表于 2020-12-21 21:55
+
+
+
+
+主播起夜时发的弹幕
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6378#       发表于 2020-12-21 21:58
+
+
+
+
+小绿草，我还以为去tc了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6379#       发表于 2020-12-21 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49801174&amp;ptid=1973472" target="_blank">muldrotha 发表于 2020-12-21 21:52</a>
+
+一说到咩宝立刻就出现了</blockquote>
+咩宝不会也用通知机吧 监控有没有liver提到自己<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6380#       发表于 2020-12-21 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49801506&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2020-12-21 22:20</a>
+
+咩宝不会也用通知机吧 监控有没有liver提到自己</blockquote>
+fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如月前面在聊anmr的live
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6381#       发表于 2020-12-21 22:41
+
+
+
+
+又复盘了一遍，最后世界第一幸福的咩咩还是没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6382#       发表于 2020-12-21 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">再也不在s1码字了 不小心点了下退格字全没了 
+
+如月聊live的部分稍微记了下
+
+
+开场的时候很激动的和**说要来了要来了结果出现的是自己 就很 咋是你啊 的感觉 当然还有noe 自己录的部分重录了35次 因为咬到舌头啥的 自己觉得最有趣的部分是说没有棒子就用签字笔代替的部分 当然暴露是台本那里是自己加的 毕竟还有空而且蛮有趣的 
+
+然后开场就是fans 超棒 总感觉是结束部分了 还以为自己错过了啥 然后是那些企划 自己来说的话 完全是因为是mea才能做到的企划 能做的那么有趣的完全找不到第二个人了 换谁都会这么觉得的 短短的时间就能想出那些点子 啥桐人亚丝娜水车的  还有自己从fmt的时候就觉得咩在等翻译的时间的时候的乱动真的很有趣 很喜欢 **也这么觉得 什么螃蟹步啊大开腿啊露胖次啊不良蹲的 赛高 完全就是the mea的感觉 胖次有露吗 只看到别人截图失败的图就是了 然后到要唱歌的时候又突然一变变成偶像的感觉 完全抓不住 而且最赞的是有原创曲的质量超高 还有六首原创曲来着 每首的风格都不一样 标题也很可爱 而且咩还唱了低音来着 明星银河号好像 唱了低音part  感觉好美 要是在本人面前说的话肯定会“是吧~很棒对吧~”所以绝对不会跟本人说的 （咩秒出现)
+
+然后如月说本来想说一件很有趣的事的 很纠结现在说还是之后在说  本来打算之后再说的观众要求很强烈（？）还是说了 live结束之后给咩发了辛苦了的line  然后咩发了三张照片 星巴克的吃的喝的 还有圣诞节的啥 作为礼物送给了自己 明明很累的是咩自己却收到了三份礼物呢
+
+这几天很开心 和自己联动过的前辈们在自己面前作为偶像在说着动着唱着跳着啊 看到这样的画面下巴都会掉下来的啊 完全无法想象自己和她们一起说过话啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 7战斗力 +8
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 1||
+| 离心| + 1||
+| 鷹書たかしょ| + 2||
+| 国民掷弹兵| + 1||
+| thisisaspider| + 1||
+| fsfs_freeze| + 1|好评加鹅|
+| 兔耳僵尸| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 6383#       发表于 2020-12-21 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49792238&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2020-12-21 07:52</a>
+
+同好会在压了，原来录的有10g</blockquote>
+请问同好会发布在哪儿？
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 6384#       发表于 2020-12-22 00:02
+
+
+
+[https://pan.baidu.com/s/15DNBlOM0ZBru6JodoFmRcQ](https://pan.baidu.com/s/15DNBlOM0ZBru6JodoFmRcQ) 
+
+提取码：MEAA
+
+
+隔壁nga都有几个版本了我以为这边有人发了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鷹書たかしょ| + 2||
+| turezyy| + 2|感谢分享|
+| 离心| + 1|感谢老哥分享|
+| vorastrix| + 2|谢老哥分享|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6385#       发表于 2020-12-22 00:30
+
+
+
+
+截了张图
+
+<img src="https://img.saraba1st.com/forum/202012/22/003006w9u2k4w1cc595jy2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201222002238.png</strong> (449.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 00:30 上传
+
+
+
+
+
+
+还截了个gif
+
+<img src="https://img.saraba1st.com/forum/202012/22/002940hi6vhh8h956u1a65.gif" referrerpolicy="no-referrer">
+
+
+<strong>2.gif</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 00:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 6386#       发表于 2020-12-22 00:32
+
+
+
+
+要是能放几个短片上官号就好了，流量点击粉丝都有的赚。毕竟效果很好，还是希望能有路人看一看的。
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 6387#       发表于 2020-12-22 00:39
+
+
+
+
+虽然,,,但是,,,
+
+算了 事业民不得**<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6388#       发表于 2020-12-22 00:44
+
+
+
+
+事业民赶紧去看看这几个月的数据对比，然后自己把棺材盖合上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 6389#       发表于 2020-12-22 00:47
+
+
+
+<[img src="https://s3.ax1x.com/2020/12/22/rBfgYT.gif" referrerpolicy="no-referrer">
+
+那张GIF没有群里的有灵性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6390#       发表于 2020-12-22 00:57
+
+
+
+
+爱丽丝的小眼神太有意思了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6391#       发表于 2020-12-22 01:00
+
+
+
+
+木口这拉跨LIVE
+
+能切个片涨涨粉就好了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6392#       发表于 2020-12-22 01:07
+
+
+
+
+回味然后对比了一下，bls和bml的mea的模型，没区别。但是感官上还是bls好多了，运镜、特效什么的。
+
+后面两首原创曲真的很棒啊，期待pv。
+
+不知道有没有解禁这么一说。
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6393#       发表于 2020-12-22 01:08
+
+
+
+
+我最喜欢的一个镜头就是mea手划指向天空 镜头也跟着往上  特别帅气 是我心目中的极光公主<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 6394#       发表于 2020-12-22 01:40
+
+
+
+
+看完木口live之后你咩的BLS已经不是不错而是惊为天人了。没有对比没有伤害。
+
+
+
+
+
+                                    

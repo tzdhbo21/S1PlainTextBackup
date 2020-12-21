@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 00:05** 
+> ## **本文件最后更新于2020-12-22 02:04** 
 
 
 
@@ -13068,7 +13068,7 @@ mrr这喘的 难不成刚才是真跳?
 
 
 QQ图片20201221182421.png
-(423.06 KB, 下载次数: 1)
+(423.06 KB, 下载次数: 2)
 
 
 
@@ -13603,7 +13603,7 @@ V圈高水准live看多了，这种翻唱拼盘看着真是尬到爆炸，还好
 
 
 QQ截图20201221184415.png
-(72.2 KB, 下载次数: 0)
+(72.2 KB, 下载次数: 2)
 
 
 
@@ -15994,7 +15994,7 @@ Syl，这粽的皮太好看了，粽夸兔船四个皮高水平..
 <img src="https://img.saraba1st.com/forum/202012/21/201914uok5o546yyd69g6w.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20201221201833.png</strong> (648.49 KB, 下载次数: 0)
+<strong>QQ截图20201221201833.png</strong> (648.49 KB, 下载次数: 1)
 
 下载附件
 
@@ -18541,4 +18541,334 @@ towa那首error谁上都是拼老命唱法，顾不得跳舞的，选曲问题�
 
 
 
-                  
+
+
+-----
+
+####  NBXX  
+##### 24960#       发表于 2020-12-22 00:12
+
+
+
+ 本帖最后由 NBXX 于 2020-12-22 00:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802151&amp;ptid=1969498" target="_blank">vorastrix 发表于 2020-12-21 23:26</a>
+
+有无mea的live录播？md工作太忙没顾上</blockquote>
+以下内容需要积分高于 10 才可浏览
+
+[9.3G]神楽めあ1stLiveStart
+
+链接: [https://pan.baidu.com/s/1SGq2z6F2cs39gVJ0XPZu-A](https://pan.baidu.com/s/1SGq2z6F2cs39gVJ0XPZu-A) 
+
+提取码: izs3
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| turezyy| + 2|好评加鹅|
+| vorastrix| + 2|多谢多谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 24961#       发表于 2020-12-22 00:23
+
+
+
+
+杏粉的动员能力的确强，nico的timesheet约12k、和虹两国差不多，但推文数量大概有两倍，两国不过30万推文，田角什么时候才会学会预热和动员
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24962#       发表于 2020-12-22 00:27
+
+
+
+
+杏的狗皮膏药贴满了整个东京地铁和JR站，下个月看看田角舍不舍得出点广告费吧。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 24963#       发表于 2020-12-22 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802591&amp;ptid=1969498" target="_blank">TRW 发表于 2020-12-22 00:23</a>
+杏粉的动员能力的确强，nico的timesheet约12k、和虹两国差不多，但推文数量大概有两倍，两国不过30万推文， ...</blockquote>
+两国你要考虑到坐在场内的人没法发推
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 24964#       发表于 2020-12-22 00:34
+
+
+
+ 本帖最后由 pansherry 于 2020-12-22 00:37 编辑 
+
+啊确实有段时间了都快忘了这茬了，兔子喜欢女孩子的眼泪的啊，怪不得要找火鸡哭的片段
+
+<img src="https://img.saraba1st.com/forum/202012/22/003703hamazr2mmoyyaa1c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Epxl4JeVQAg5lH5.jpg</strong> (632.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 00:37 上传
+
+
+
+
+
+
+[https://twitter.com/NLO28636331/ ... 27135852545/photo/1](https://twitter.com/NLO28636331/status/1341058827135852545/photo/1)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24965#       发表于 2020-12-22 00:45
+
+
+
+
+你楼前面车的母女组也开播了，在老妈频道。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 24966#       发表于 2020-12-22 00:52
+
+
+
+
+冲国野兔子可以在S1和ぺこアン相谈甚欢，不得不说也是一种奇景
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 24967#       发表于 2020-12-22 00:56
+
+
+
+
+试着做了一下侧翻失败的
+<img src="https://p.sda1.dev/0/d7551ca0d1074294aaf35abe1fc7165e/2333.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 24968#       发表于 2020-12-22 01:09
+
+
+
+
+水友们，今晚hololive什么评价？
+
+云了一下，跳的跟lize五五开？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 24969#       发表于 2020-12-22 01:12
+
+
+
+
+明天一首合唱两首solo，四期的年末汇报就结束了。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 24970#       发表于 2020-12-22 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802376&amp;ptid=1969498" target="_blank">dooy_booo 发表于 2020-12-21 23:52</a>
+
+上面这盘看不太清，但下面这盘（炒素？）感觉就是去了滤镜也挺能吊人胃口的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">因为没肉，所以其实两盘都是全素的
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24971#       发表于 2020-12-22 01:26
+
+
+
+<[img src="https://i.loli.net/2020/12/22/X6AYQwSEHZiPRys.png" referrerpolicy="no-referrer">
+
+
+说吧，几根烟头
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 24972#       发表于 2020-12-22 01:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/013014jay870y3iac38cbb.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 019 - ホロライブプロダクション【公式】 on Twitter_ _#こえていく.png</strong> (356.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 01:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 24973#       发表于 2020-12-22 01:34
+
+
+
+
+听说hololive演唱会拉跨我就去看了一下，还好吧，有说的那么夸张吗？？？
+
+这不是编舞全责吗？？hololive的也不是不能跳啊，之前日清工商的时候不是又蹦又跳的吗？？
+
+怎么这活动一首歌都不怎么转个圈？动作也没差分。这种演唱会又没法每个人分别运镜度过那些简单的动作就很离谱。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 24974#       发表于 2020-12-22 01:42
+
+
+
+
+看了今天的，我突然非常期待明天下半场狐皇还能不能像去年那样扭了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 24975#       发表于 2020-12-22 01:53
+
+
+
+
+感觉开局这个千本樱编舞就还行，动作挺多的，也有配合感，转圈差分啥的
+
+原来a酱截图只有偶像服的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                 
