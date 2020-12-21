@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-21 02:02** 
+> ## **本文件最后更新于2020-12-21 14:04** 
 
 
 
@@ -10497,7 +10497,7 @@ Calli : But it does not mean you are not going to be <img src="https://static.sa
 <img src="https://img.saraba1st.com/forum/202012/21/001134qmv0uqungagvu0x2.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EpMAgbbUwAEBMsf.jpg</strong> (469.74 KB, 下载次数: 0)
+<strong>EpMAgbbUwAEBMsf.jpg</strong> (469.74 KB, 下载次数: 1)
 
 下载附件
 
@@ -10525,7 +10525,7 @@ Calli : But it does not mean you are not going to be <img src="https://static.sa
 <img src="https://img.saraba1st.com/forum/202012/21/001155g34tcq1nnnz0yqc0.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EpTh_5kU8AAwz27.jpg</strong> (927.97 KB, 下载次数: 0)
+<strong>EpTh_5kU8AAwz27.jpg</strong> (927.97 KB, 下载次数: 1)
 
 下载附件
 
@@ -10539,7 +10539,7 @@ Calli : But it does not mean you are not going to be <img src="https://static.sa
 <img src="https://img.saraba1st.com/forum/202012/21/001207pzrw38j2j8jjwwea.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EpTvjSxU0AE6cON.jpg</strong> (750.63 KB, 下载次数: 0)
+<strong>EpTvjSxU0AE6cON.jpg</strong> (750.63 KB, 下载次数: 1)
 
 下载附件
 
@@ -10561,10 +10561,11 @@ Calli : But it does not mean you are not going to be <img src="https://static.sa
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 絵生voice| + 1|好评加鹅|
 | asdhai| + 1||
 | 空集| + 1|好评加鹅|
 
@@ -10860,4 +10861,491 @@ https://twitter.com/A_maze3/status/1340561335000551425?s=19<img src="https://p.s
 
 
 
-                               
+
+
+-----
+
+####  Hemis  
+##### 24550#       发表于 2020-12-21 07:45
+
+
+
+
+免费从圆脸的小学生喜欢就缠着你进化到月灵的中学生女神敬而远之了？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 24551#       发表于 2020-12-21 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49790651&amp;ptid=1969498" target="_blank">Porsche 发表于 2020-12-20 23:14</a>
+**转卖厨不得好死，某个hnst的五人挂画4444拍完转手挂15000</blockquote>
+15000会有nt买吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 24552#       发表于 2020-12-21 08:45
+
+
+
+
+15000这种一般是挂着展示的吧
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 24553#       发表于 2020-12-21 08:50
+
+
+
+
+展示再加个0，这就是倒爷<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 24554#       发表于 2020-12-21 10:13
+
+
+
+
+才发现51分钟前粉猫播了，真的可爱啊，圣诞歌回<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 24555#       发表于 2020-12-21 11:16
+
+
+
+
+v综凉了，一小时没人说话<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24556#       发表于 2020-12-21 11:21
+
+
+
+
+凉了也比前几天车轱辘一堆没营养的玩意要好啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 24557#       发表于 2020-12-21 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49791381&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-21 00:38</a>
+虹拉垮官网上了一批周边，社筑柴卡社长梦追绿仙，还有个迷之名字マーダーミステリー 『消えた緑仙の謎』、 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是下架了吗？我现在去官店看好像找不到了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24558#       发表于 2020-12-21 11:40
+
+
+
+
+蜘蛛缺货了23333
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 24559#       发表于 2020-12-21 12:04
+
+
+
+<blockquote>sonyjam 发表于 2020-12-21 11:16
+v综凉了，一小时没人说话</blockquote>
+大家都等着看2nd呢，等晚上就热闹了
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 24560#       发表于 2020-12-21 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49792481&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2020-12-21 08:44</a>
+15000会有nt买吗</blockquote>
+进去一看主页就知道了，全是谷子，标准倒爷
+
+
+
+
+
+
+
+-----
+
+####  夜玄言  
+##### 24561#       发表于 2020-12-21 12:24
+
+
+
+
+有无大佬科普一下，木口这个2nd分两场是什么意思
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24562#       发表于 2020-12-21 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49791435&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-21 00:49</a>
+
+火彩人怎么又来车小免的榜了</blockquote>
+二车日V歌力（其实没车几个）更新到歌力楼了
+
+[https://bbs.saraba1st.com/2b/thread-1914361-7-1.html](https://bbs.saraba1st.com/2b/thread-1914361-7-1.html)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 24563#       发表于 2020-12-21 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49794770&amp;ptid=1969498" target="_blank">夜玄言 发表于 2020-12-21 12:24</a>
+
+有无大佬科普一下，木口这个2nd分两场是什么意思</blockquote>
+人太多了呗
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 24564#       发表于 2020-12-21 12:38
+
+
+
+[https://www.youtube.com/watch?v=weeM1JLm8ms](https://www.youtube.com/watch?v=weeM1JLm8ms)
+
+e-maのど飴 新プロジェクト発表会　2020年12月21日
+<[img src="https://i.loli.net/2020/12/21/FLXREvcj5OPp8wB.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 24565#       发表于 2020-12-21 12:41
+
+
+
+
+听4厕说鲨皇今天全程没过3w，是油管亡了还是鲨朝亡了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 24566#       发表于 2020-12-21 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MC罢了，等一个单人歌回平A
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24567#       发表于 2020-12-21 12:46
+
+
+
+
+白皮都准备过年去了呗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/21/124555fl3qpfmigqmfpqoq.png" referrerpolicy="no-referrer">
+
+
+<strong>twitter.com_Ririsya_music_status_1340856171029176320.png</strong> (422.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-21 12:45 上传
+
+
+
+
+
+
+不要当舔狗好吗，求你了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 24568#       发表于 2020-12-21 12:48
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-21 12:51 编辑 
+
+
+<img src="https://p.sda1.dev/0/c6c1ab94b769be3fbef9933ba398ff74/IMG_CMP_112071421.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 24569#       发表于 2020-12-21 12:48
+
+
+
+[https://www.bilibili.com/video/BV1Ky4y1i7LD](https://www.bilibili.com/video/BV1Ky4y1i7LD)
+
+夜雾毕业回录像
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 24570#       发表于 2020-12-21 12:49
+
+
+
+
+是4chan大意了，没观测到
+<[img src="https://i.loli.net/2020/12/21/nQdzCqS6VFeMrkW.png" referrerpolicy="no-referrer">
+
+一会儿去查下这场直播和之前MC的チャット速度对比
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 24571#       发表于 2020-12-21 12:49
+
+
+
+
+https://e-mae-ma.com/
+<img src="https://p.sda1.dev/0/2a6b1c54ae524460110de5de9ea910f6/IMG_CMP_244223288.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 24572#       发表于 2020-12-21 12:51
+
+
+
+
+根据我看夜见的体感同接的问题应该已经没有了
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 24573#       发表于 2020-12-21 13:07
+
+
+
+
+猫魔しろあ说是roa转生是钓鱼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 24574#       发表于 2020-12-21 13:08
+
+
+
+[https://twitter.com/kasu1923/status/1340678841040191489](https://twitter.com/kasu1923/status/1340678841040191489)
+<img src="https://p.sda1.dev/0/5aa18e98e22fc430f33143a4093d984d/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 24575#       发表于 2020-12-21 13:35
+
+
+
+
+roa都还没正式毕业  说谁是roa大概和六期生差不多级别的随便说说吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24576#       发表于 2020-12-21 13:46
+
+
+
+
+lag<img src="https://p.sda1.dev/0/fed8a3c14317bae796ababda6c661cfc/IMG_CMP_93620080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 24577#       发表于 2020-12-21 13:56
+
+
+
+<[img src="https://i.loli.net/2020/12/21/ZiWHTv7V52gmDFp.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
