@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 12:06** 
+> ## **本文件最后更新于2020-12-22 14:05** 
 
 
 
@@ -19456,4 +19456,366 @@ V最协有cod吗
 
 
 
-                
+
+
+-----
+
+####  空集  
+##### 25008#       发表于 2020-12-22 12:09
+
+
+
+
+这人选太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   说起来小肥妹是不是也来一组啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25009#       发表于 2020-12-22 12:11
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-22 12:26 编辑 
+
+holo应该还能凑出至少一队吧（女liver中） 很期待人选都有谁
+
+希望至少别变成像上次一样尴尬的气氛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25010#       发表于 2020-12-22 12:13
+
+
+
+
+最协是招待制，估计是收到邀请的稻荷去联系的绫总太紫，话说稻荷现在都当颜出女主播去打职业了还算vtb么……没去找西西夜见是因为这俩终于不参加了嘛，感觉夜见放的黑魂的卫星应该有希望明年能落地了啊
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 25011#       发表于 2020-12-22 12:18
+
+
+
+<blockquote>獅白ぼたん 发表于 2020-12-22 12:04
+V最协有cod吗</blockquote>
+有cod原班人马打造的ttf改编的apex
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25012#       发表于 2020-12-22 12:21
+
+
+
+
+小肥妹和杏星一个组吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说，我记得杏星里那个海带头挺强的
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25013#       发表于 2020-12-22 12:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿希应该是跟pakael一组吧
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 25014#       发表于 2020-12-22 12:37
+
+
+
+
+稻荷和狗狗熟我知道和诗音也熟吗？为什么不叫阿夸？
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 25015#       发表于 2020-12-22 12:38
+
+
+
+
+虽然日本疫情拉垮成这样，大使馆愿意给我出签我还是想去看明年东京复仇组现地的，大不了对自己负责来回隔离1个月
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">不过就算有签我也抽不到票吧，之前东京场我10个号每轮抽满（包括nico两次提前轮）都没抽中，现场要查身份也不可能有黄牛..还是看nico生放吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25016#       发表于 2020-12-22 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次总分要压到18p<img src="https://p.sda1.dev/0/cb80e360cb0aefbfc12b67cdd52333e9/IMG_20201222_123925.jpg" referrerpolicy="no-referrer">
+
+姓夏的好歹是个钻三，分不低的
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 25017#       发表于 2020-12-22 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49805898&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2020-12-22 12:04</a>
+
+V最协有cod吗</blockquote>
+没有
+
+v玩cod玩得好的几乎没有
+
+估计以后也没有
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25018#       发表于 2020-12-22 13:10
+
+
+
+[https://twitter.com/SPWN_Virtual/status/1341246922787450880](https://twitter.com/SPWN_Virtual/status/1341246922787450880) <blockquote>SPWN_Virtual
+
+@SPWN_Virtual
+
+【状況のご説明及びお客様へのお願い】
+
+
+SPWNの決済及び視聴ページへのアクセスが困難な状況となり、ご迷惑をおかけしてしまい誠に申し訳ございません。
+
+現在SPWNで起きている障害について、ご説明させていただきます。
+[https://balus.co/news/2470/](https://balus.co/news/2470/)
+
+※添付画像と上記URLの内容は同一です。
+
+
+#SPWN</blockquote>
+<[img src="https://i.loli.net/2020/12/22/EracHutziSIDxoy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25019#       发表于 2020-12-22 13:12
+
+
+
+
+我滴超人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8d047393f198d6b32df71516d53c9448/IMG_CMP_185219699.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 25020#       发表于 2020-12-22 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49806562&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-22 13:12</a>
+
+我滴超人</blockquote>
+然后原推删了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 25021#       发表于 2020-12-22 13:42
+
+
+
+
+肥希这个转推...,暗示不想离开中国希瓜吗
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 25022#       发表于 2020-12-22 13:42
+
+
+
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 25023#       发表于 2020-12-22 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802515&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-22 00:12</a>
+**** 本内容被作者隐藏 ****</blockquote>
+纯线上啊
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25024#       发表于 2020-12-22 13:46
+
+
+
+
+希这个在提醒大伙我其实现在还搞不清发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 25025#       发表于 2020-12-22 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49806552&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-22 13:10</a>
+https://twitter.com/SPWN_Virtual/status/1341246922787450880</blockquote>
+spwn不是线上分发平台么<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">类似国内目睹微赞这类的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 25026#       发表于 2020-12-22 13:47
+
+
+
+
+阿希<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 25027#       发表于 2020-12-22 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802953&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2020-12-22 01:34</a>
+
+听说hololive演唱会拉跨我就去看了一下，还好吧，有说的那么夸张吗？？？
+
+这不是编舞全责吗？？hololive的 ...</blockquote>
+日清那个是本人跳的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               
