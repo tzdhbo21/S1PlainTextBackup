@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 20:05** 
+> ## **本文件最后更新于2020-12-22 22:04** 
 
 
 
@@ -23861,7 +23861,7 @@ thank you ame
 
  本帖最后由 tglals 于 2020-12-22 20:05 编辑 
 
-[https://livechatfc2.com/38456944/](https://www.twitch.tv/projekt_2078)
+[https://livechatfc2.com/38456944/](https://www.twitch.tv/projekt_2078)       [https://www.twitch.tv/jinijisan](https://www.twitch.tv/jinijisan)
 
 
 
@@ -23899,4 +23899,2701 @@ aki辛苦了！
 
 
 
-        
+
+
+-----
+
+####  qq845629713  
+##### 25246#       发表于 2020-12-22 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你们阳光虹人还是继续在apex、马车、宝可梦剑盾的无限月读里做梦吧，什么都有
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25247#       发表于 2020-12-22 20:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/200811v9ia4oos5p18a4qq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201222200725.png</strong> (467.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 20:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 25248#       发表于 2020-12-22 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹抄的综艺还少了吗 有啥大惊小怪的
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25249#       发表于 2020-12-22 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推特趋势已经过50w了，人气是没话说了。扯什么箱感，不就卖偶像那套吗。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25250#       发表于 2020-12-22 20:08
+
+
+
+
+从抬腿细节上，狐皇是要会一点
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25251#       发表于 2020-12-22 20:11
+
+
+
+
+小天使的位置阿火顶上
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25252#       发表于 2020-12-22 20:11
+
+
+
+
+你们要的《跳舞》来了
+
+
+
+
+
+
+
+-----
+
+####  没有爱就看不见  
+##### 25253#       发表于 2020-12-22 20:11
+
+
+
+
+若干年后，彩虹化为了一片黄土，而高楼大厦上间的显示屏上正播放着白上吹雪一百岁诞辰将举行第五十二次世界巡演的消息。
+
+一位阳光虹人看着这一切，心里有万般不甘，拳头握紧了又放下，最终还是只能轻叹一口气。
+
+时代变了。
+
+现在的人哪知道什么无敌整活大导演月之美免，佐佐木咲，静冈皇女lulu，他们只知道hololive的二十期生出道同接破百万，在全世界引发了惊人热议。
+
+【凑佩可拉是否德不配位？】【夏色露娜我觉得没那么有意思，你们为什么看得津津有味？】【成神古拉斩下三百万同接，白上吹雪是不是老了？】
+
+每一天，阳光虹人的群里都在讨论着这些。
+
+那之中早已没有了他过去热爱过的虹浓度。
+
+他点开了一个小群，那是阳光虹人们在虹楼倒闭的那一天创的群。
+
+起初大家还在里面互相阳光，说holo肯定活不长，等未来月之回来了就让新时代人们见识下什么才是会整活的有趣vtb。
+
+月之没有回来，可能是在哪里当着小导演，又或许是结婚养孩子了吧。
+
+逐渐的，群冷了，也没人说话了。
+
+虹早就死了，大家都知道，只是不想承认。
+
+寂静的群里没有阳光，只有一片阴湿。
+
+阳光虹人凝视着这个群的窗口，手按在键盘上，迟迟没有按下一个键。
+
+突然的，群里那停留在若干年前的消息记录刷出了一条新的消息。
+
+【hololive初期元老凑阿库娅炎上事件始末，知情人士神乐魅娅小姐透露】
+
+发消息的那人他认识，是过去一起阳光过，一起嘲讽过holo的一个朋友。
+
+第二个人冒了出来，说他早知道凑阿库娅会引退，还说凑阿库娅没什么意思，不如来看最潮最in的凑佩可拉，比阿库娅会整活多了。
+
+第三个人冒了出来，像个懂哥似的对上一个人说的凑佩可拉指指点点，什么吸血，什么抄袭，什么版权，张口就来。
+
+紧接着，第四人，第五人，第六人......
+
+群一下子活了，仿佛回到了从前。
+
+阳光虹人这才明白，大家原来没有离去，只不过是改推hololive了。
+
+群里热烈的讨论着hololive，阳光虹人看着这一切，颤抖着按下了键盘，打出了一行字，
+
+【请问现在该怎么入坑hololive？】
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25254#       发表于 2020-12-22 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810786&amp;ptid=1969498" target="_blank">乌鸦绅士 发表于 2020-12-22 19:46</a>
+想知道虹为什么人气比不过holo的建议去看溝口ケージ今天在nico的生放送
+
+里面说了他为什么不看彩虹以及沉迷h ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲这些之前说了句：
+“和男人联动太多了对于我这种コン来说有点难接受”
+后面会有现充感这种感想在这种前提下太正常了
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 25255#       发表于 2020-12-22 20:13
+
+
+
+
+这不干碎昨天的？
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 25256#       发表于 2020-12-22 20:14
+
+
+
+
+所以昨天是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25257#       发表于 2020-12-22 20:14
+
+
+
+
+加了走位好看很多，前面为什么不加走位，也不复杂
+
+3d捕捉不用在台前贴荧光定点...直接标名字都行
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25258#       发表于 2020-12-22 20:15
+
+
+
+
+两天里最强的一台是阿希C位，响老哥不出来拿个大鼎什么的吗？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25259#       发表于 2020-12-22 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 喷子们别拿推特趋势尬黑我虹，fes可是线下聚会，参会的人都忙着游玩，哪有闲情逸致发推阿，
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25260#       发表于 2020-12-22 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">祭丝翻身啦！
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25261#       发表于 2020-12-22 20:16
+
+
+
+
+虽然站位是c位
+可是一半多的镜头都是星街的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25262#       发表于 2020-12-22 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  虽然三期输得啥都没了  但是今天这场挺好看的我也满足了 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25263#       发表于 2020-12-22 20:16
+
+
+
+
+这个视觉效果和dustcell完全反过来诶，一个是闪爆，一个是ppt...
+省一楼，2000是不是真的很气葵宝不开ark<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+省一楼，从郡道转推看推的成员：船长星街夏色祭
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25264#       发表于 2020-12-22 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25265#       发表于 2020-12-22 20:17
+
+
+
+
+行吧，她说练了不全是吹<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25266#       发表于 2020-12-22 20:18
+
+
+
+
+只有stage2的练了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25267#       发表于 2020-12-22 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我银火就不是三期了吗？
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25268#       发表于 2020-12-22 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">所以stage1买票的真是心疼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25269#       发表于 2020-12-22 20:19
+
+bianji
+
+
+ 本帖最后由 fangjun96 于 2020-12-22 20:20 编辑 
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 25270#       发表于 2020-12-22 20:21
+
+
+
+
+一定是糊皇下令陷害圣皇和天皇
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25271#       发表于 2020-12-22 20:21
+
+
+
+
+美女叠叠乐
+<img src="https://s3.ax1x.com/2020/12/22/rsFijS.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 25272#       发表于 2020-12-22 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811029&amp;ptid=1969498" target="_blank">没有爱就看不见 发表于 2020-12-22 20:11</a>
+
+若干年后，彩虹化为了一片黄土，而高楼大厦上间的显示屏上正播放着白上吹雪一百岁诞辰将举行第五十二次世界 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">放心，对我来说虹只是免费娱乐，虹倒了我就不看V。不像杏奴.....
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25273#       发表于 2020-12-22 20:22
+
+
+
+ 本帖最后由 ひびき 于 2020-12-22 20:28 编辑 
+
+艹，这首快乐节拍器的编舞为团长削到太狠了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+给阿希19年ver能给一人把今天这干碎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25274#       发表于 2020-12-22 20:23
+
+
+
+
+模仿HOLO加的特效小小修改一张
+
+<img src="https://img.saraba1st.com/forum/202012/22/202310bk3skq3vssf33xsu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>権力!!!!!!.jpg</strong> (405.54 KB, 下载次数: 1)
+
+下载附件
+
+2020-12-22 20:23 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|互相选择|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 25275#       发表于 2020-12-22 20:25
+
+
+
+[https://www.twitch.tv/far_beyond_the_stage](https://www.twitch.tv/far_beyond_the_stage)
+
+
+
+
+
+
+
+-----
+
+####  倒影_  
+##### 25276#       发表于 2020-12-22 20:26
+
+
+
+
+就不能是为阿火削的?
+我不信，她发了这么多上课的推，她一定不会骗我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kiraru  
+##### 25277#       发表于 2020-12-22 20:27
+
+
+
+
+心疼只买了stage1的mmr
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25278#       发表于 2020-12-22 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">咋还找运营要案件的 阿希你神经病啊
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25279#       发表于 2020-12-22 20:28
+
+
+
+
+小粥有活力点好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25280#       发表于 2020-12-22 20:30
+
+
+
+
+不得不说这套打歌服的加成是真的狠，跟他妈黄金圣衣一样，我是mrr我也掀桌
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 25281#       发表于 2020-12-22 20:33
+
+
+
+
+怎么感觉这个AR似乎比第一天的要好那么一点点，是我被狐狸脑控了吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25282#       发表于 2020-12-22 20:34
+
+
+
+
+等等，老鼠台那哥们是不是在拿水印打call阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25283#       发表于 2020-12-22 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 25284#       发表于 2020-12-22 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老mmr了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25285#       发表于 2020-12-22 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 25286#       发表于 2020-12-22 20:35
+
+
+
+
+以后别怪编舞了，虽然有没有都另说，明显认真跳的可是要被社内80的，呜呜
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25287#       发表于 2020-12-22 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">免费的live看的还是舒服的，纪念我成为杏仁的第一个小时
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 25288#       发表于 2020-12-22 20:35
+
+
+
+
+stage1高人气的皇那么多 菜点也能理解了 能骗到一个mmr是一个<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  midearth  
+##### 25289#       发表于 2020-12-22 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811164&amp;ptid=1969498" target="_blank">tglals 发表于 2020-12-22 20:25</a>
+
+https://www.twitch.tv/far_beyond_the_stage</blockquote>
+水印打call笑尿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25290#       发表于 2020-12-22 20:37
+
+
+
+ 本帖最后由 えびふらいおん 于 2020-12-22 20:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚说完就打我脸 草
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25291#       发表于 2020-12-22 20:37
+
+
+
+
+别尬黑，stage1的皇们都要直播转钱，没空练舞，stage2能跳的人跟stage1比都算底边<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25292#       发表于 2020-12-22 20:39
+
+
+
+
+卧槽！
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25293#       发表于 2020-12-22 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811034&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 20:12</a>
+
+讲这些之前说了句：
+
+“和男人联动太多了对于我这种コン来说有点难接受”
+
+后面会有现充感这种感想 ...</blockquote>
+只能说在日本一些有时间刷推特追直播为推消费的阴暗宅男眼中
+
+hololive那种看可爱动漫女孩卖萌不必消耗大脑，箱内表面和谐安宁且成员互相引流的环境确实比现在彩虹更吸引人一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25294#       发表于 2020-12-22 20:40
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-22 20:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/22/203951ilkkzdffnfe9wn4w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>最高の二日間ありがとう！ こえていくホロライブ！.jpg</strong> (105.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 20:39 上传
+
+
+
+
+
+[https://twitter.com/kakage0904/status/1341362506556567552/photo/1](https://twitter.com/kakage0904/status/1341362506556567552/photo/1)
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/204209xjms6d956d6mgu66.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#こえていくホロライブSTAGE2bloom.jpg</strong> (68.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 20:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25295#       发表于 2020-12-22 20:41
+
+
+
+
+BD发售
+
+连续9周原创曲发售
+
+2021.2.17 LIVE
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25296#       发表于 2020-12-22 20:41
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-22 20:46 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/204608w1ole951e050l1y8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EfTIR_3VoAEg66o.jpg</strong> (758.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 20:46 上传
+
+
+
+
+
+[https://twitter.com/KUSHINAKA/status/1293879207424978945](https://twitter.com/KUSHINAKA/status/1293879207424978945)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25297#       发表于 2020-12-22 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> mrr在你虹现在还没3D呢，别想太多
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 25298#       发表于 2020-12-22 20:42
+
+
+
+
+所以说安排的巧妙啊 用名气来弥补实力不足的吸引力 
+
+不过我感觉还是stage2的阵容放第一天更骗钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25299#       发表于 2020-12-22 20:42
+
+
+
+
+这是holoEN的在翻译吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有ID？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25300#       发表于 2020-12-22 20:43
+
+
+
+
+看了下这个tokyo garden theater塞满是8000人，两国和丰州是多少？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25301#       发表于 2020-12-22 20:43
+
+
+
+
+boom~<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  midearth  
+##### 25302#       发表于 2020-12-22 20:44
+
+
+
+
+怎么又是1st live？idol project 是包括哪些？
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25303#       发表于 2020-12-22 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">巧可都能上 几个意思？
+
+
+
+
+
+
+QQ图片20201222204421.jpg
+(45.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-22 20:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/204445mz2qemaztoi4o2ga.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25304#       发表于 2020-12-22 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811329&amp;ptid=1969498" target="_blank">星尘的杨桃精 发表于 2020-12-22 20:42</a>
+
+所以说安排的巧妙啊 用名气来弥补实力不足的吸引力 
+
+不过我感觉还是stage2的阵容放第一天更骗钱 ...</blockquote>
+是的，把stage2放第一天然后把星夏火的切片往404一放，第二天跑去看润兔船夸的不爆棚<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 25305#       发表于 2020-12-22 20:46
+
+
+
+
+这么看来1，2月五期3d要来了啊
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25306#       发表于 2020-12-22 20:46
+
+
+
+
+直接boom吧
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25307#       发表于 2020-12-22 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811345&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-22 20:43</a>
+看了下这个tokyo garden theater塞满是8000人，两国和丰州是多少？</blockquote>
+两国6-7k吧，半个场给了舞台。丰州记得是4-5k？
+
+另外同个场地一个月后要开rd 1st live雨天决行
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25308#       发表于 2020-12-22 20:47
+
+
+
+
+没有烂货圆脸和azki，看来是要双双毕业了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25309#       发表于 2020-12-22 20:47
+
+
+
+ 本帖最后由 FCCHua 于 2020-12-22 20:49 编辑 
+
+火星的我刚看到千草有队伍参加最协了啊，叶山也有队伍了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25310#       发表于 2020-12-22 20:47
+
+
+
+
+现在就是大家一起手牵手面对疫情啦<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，
+日本人在想什么啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25311#       发表于 2020-12-22 20:47
+
+
+
+
+这阵容明显就是有第二场的，黑屁角度不对。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25312#       发表于 2020-12-22 20:48
+
+
+
+
+勝ち卍✌
+
+<img src="https://img.saraba1st.com/forum/202012/22/204428s4viirri6g1kszf6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25313#       发表于 2020-12-22 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">cover！你妈活啦！
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25314#       发表于 2020-12-22 20:50
+
+
+
+
+idol—&gt;生主—&gt;idol
+yagoo又找回初心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25315#       发表于 2020-12-22 20:51
+
+
+
+
+24fes和holobloom的新冠大逃杀开始啦！
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 25316#       发表于 2020-12-22 20:51
+
+
+
+
+为什么没有星姐？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25317#       发表于 2020-12-22 20:55
+
+
+
+
+2.17yagoo是在做哪门子春梦哟，你日能控制住？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 25318#       发表于 2020-12-22 20:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/205537aypywp8jwqqd6ada.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201222205519.png</strong> (146.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 20:55 上传
+
+
+
+
+
+[https://twitter.com/RindouMikoto/status/1341365210892754944](https://twitter.com/RindouMikoto/status/1341365210892754944)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25319#       发表于 2020-12-22 20:55
+
+
+
+
+缺烂货圆脸，azki，猫，狗，心，星街，nene，蝗
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 25320#       发表于 2020-12-22 20:56
+
+
+
+
+这不隔壁也都开始疯狂线下了吗 yagoo也要更上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 25321#       发表于 2020-12-22 20:57
+
+
+
+
+其他五期都有，ne皇这个前偶像居然没有?<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 25322#       发表于 2020-12-22 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811432&amp;ptid=1969498" target="_blank">百合大法好 发表于 2020-12-22 20:51</a>
+
+为什么没有星姐？</blockquote>
+[Bloom,]后面有个逗号，所以还有下一场？
+
+虽说有下一场也没说一定有星街。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25323#       发表于 2020-12-22 20:58
+
+
+
+
+ne皇刚换了新衣服正在为了把口癖去掉闭关中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25324#       发表于 2020-12-22 20:59
+
+
+
+
+抛弃cn市场练衣服都要改吗，虽然说丸子头这种东西一点都不cn啦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25325#       发表于 2020-12-22 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">杏赢麻了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25326#       发表于 2020-12-22 20:59
+
+
+
+
+下个月五期3D连打，那么四期的偶像服呢？看了live的都知道有没有这套衣服简直两个阶级。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25327#       发表于 2020-12-22 21:00
+
+
+
+[https://www.youtube.com/watch?v=vl1CIGrR38o](https://www.youtube.com/watch?v=vl1CIGrR38o)
+
+Mela! /緑黄色社会 -奏みみ × かしこまり
+
+
+
+
+
+
+
+-----
+
+####  eksPeg  
+##### 25328#       发表于 2020-12-22 21:00
+
+
+
+
+日本年末所有音乐节都取消了 21年初Live估计危了
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25329#       发表于 2020-12-22 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20201222210001.jpg
+(61.56 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-22 21:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/210035spkq4b9489qob844.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25330#       发表于 2020-12-22 21:00
+
+
+
+
+空妈和星街有可能去参加业界的其他活动？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25331#       发表于 2020-12-22 21:00
+
+
+
+
+紫色小矮子新衣服终于有了！！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25332#       发表于 2020-12-22 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811517&amp;ptid=1969498" target="_blank">えびふらいおん 发表于 2020-12-22 21:00</a></blockquote>
+《core》
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 25333#       发表于 2020-12-22 21:03
+
+
+
+
+尊上次衣服是啥时候了？
+
+
+syl，24-27都有预定，留给叶师发布新衣装的时间不多了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25334#       发表于 2020-12-22 21:03
+
+
+
+
+震惊，jp分社金盾大物居然不是core
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25335#       发表于 2020-12-22 21:05
+
+
+
+
+今天星街参与的三首基本都算最好的一批，yagoo🐎死者苏生改判高位截瘫吧。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 25336#       发表于 2020-12-22 21:06
+
+
+
+
+下个月杏六3D？这形势我看悬。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25337#       发表于 2020-12-22 21:06
+
+
+
+[https://www.youtube.com/watch?v=fYEzgHsOO4c](https://www.youtube.com/watch?v=fYEzgHsOO4c)
+
+大葵清唱歌回
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 25338#       发表于 2020-12-22 21:07
+
+
+
+
+也就是说白天上课深夜直播的日子还有至少两个月。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25339#       发表于 2020-12-22 21:07
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-22 21:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811539&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-22 21:03</a>
+
+尊上次衣服是啥时候了？
+
+
+syl，24-27都有预定，留给叶师发布新衣装的时间不多了 ...</blockquote>
+2018年11月冬服吧，没记错的话
+
+
+叶师怕不是要压线发布
+
+Syl，谁说她混来着
+
+<img src="https://img.saraba1st.com/forum/202012/22/211308bfy3zbi4a7bfnjy4.png" referrerpolicy="no-referrer">
+
+
+<strong>LimitedEditionONSALEcoming soon....png</strong> (280.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 21:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25340#       发表于 2020-12-22 21:07
+
+
+
+
+BSYL：
+
+
+杏明年也要和虹今年一样到处跑直播间看不到人了，不知道杏奴有没有虹人那么能忍。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 25341#       发表于 2020-12-22 21:07
+
+
+
+
+有谁统计一下2月有多少场live？我感觉有好多个了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25342#       发表于 2020-12-22 21:09
+
+
+
+
+29号新衣服
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/210931sm26iqyf7nrm6y1f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (97.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 21:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25343#       发表于 2020-12-22 21:11
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-22 21:07
+BSYL：
+
+
+杏明年也要和虹今年一样到处跑直播间看不到人了，不知道杏奴有没有虹人那么能忍。 ...</blockquote>
+看不到人的就那几个主流出道的，其他人都还是正常频率，你杏又不玩这一套的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 25344#       发表于 2020-12-22 21:11
+
+
+
+
+？这不是一起死？
+
+之前嘲讽虹fes的楼友呢，一起上路吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25345#       发表于 2020-12-22 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然兴奋归兴奋，但是我还是不看好线下live，只能希望搞线下活动的都能做好随时转线上的准备。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25346#       发表于 2020-12-22 21:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811582&amp;ptid=1969498" target="_blank">北山玖公 发表于 2020-12-22 21:07</a>
+有谁统计一下2月有多少场live？我感觉有好多个了。</blockquote>
+虹：前夜祭+Fes+复仇公演+德龙2nd single
+杏：bloom, 
+拼盘：V-Clan主办的Fes.UNDERLINE
+
+勉强算2月:
+VtuberFes 1月30-31
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北山玖公| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  eksPeg  
+##### 25347#       发表于 2020-12-22 21:13
+
+
+
+
+奏みみ和かしこまり 这编曲谁搞的 全锅啊 把乐句中的lalala去掉断的不成样子
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25348#       发表于 2020-12-22 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811598&amp;ptid=1969498" target="_blank">free 发表于 2020-12-22 21:09</a>
+
+29号新衣服</blockquote>
+谁？
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25349#       发表于 2020-12-22 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">杏自己上路就好，虹fes一定要给我开
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|嘻嘻 但是bloom开的更早|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25350#       发表于 2020-12-22 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811630&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-22 21:13</a>
+
+谁？</blockquote>
+当然是穿什么衣服都好看的我们家大葵<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+同时还有一个发表，应该是新原创曲
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25351#       发表于 2020-12-22 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811630&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-22 21:13</a>
+
+谁？</blockquote>
+免费发的，没有圆脸 嘻嘻，还能是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  护之灵  
+##### 25352#       发表于 2020-12-22 21:16
+
+
+
+<blockquote>AloissiolA 发表于 2020-12-22 21:12
+虹：前夜祭+Fes+复仇公演+德龙2nd single
+
+杏：bloom, 
+
+拼盘：V-Clan主办的Fes.UNDERLINE</blockquote>
+HH2月7蓝之华
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25353#       发表于 2020-12-22 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811614&amp;ptid=1969498" target="_blank">poipanchao 发表于 2020-12-22 21:11</a>
+？这不是一起死？
+
+之前嘲讽虹fes的楼友呢，一起上路吧</blockquote>
+虽然但是，论（zuosi）规模不一样啊<img src="https://p.sda1.dev/0/853a46fcb9c29b43abddbf9a2ac2e255/IMG_CMP_61095478.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25354#       发表于 2020-12-22 21:17
+
+
+
+
+那希望大葵的脸也顺便修一下。设定那么魅的眉眼妆设计，3D就一傻大姐。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25355#       发表于 2020-12-22 21:18
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-22 21:19 编辑 
+
+🎹[半3D Piano] NIJISANJI KR クリスマス 音楽会🎄
+
+[https://youtu.be/GvQvxC19j4s](https://youtu.be/GvQvxC19j4s)
+
+
+
+还蛮多放送事故的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25356#       发表于 2020-12-22 21:18
+
+
+
+
+bsyl，鲨鱼直播员线下是几月阿
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25357#       发表于 2020-12-22 21:23
+
+
+
+<img src="https://s3.ax1x.com/2020/12/22/rsmISA.gif" referrerpolicy="no-referrer">
+
+国外某站看到的 这就是你们说的打call吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|太神秘了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25358#       发表于 2020-12-22 21:23
+
+
+
+
+不要说什么规模不一样，死一个也是死
+
+线下杏奴 lives matter
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25359#       发表于 2020-12-22 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803087&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-22 02:04</a>
+
+不知道en的人看到四期没有3D偶像服什么感觉，我是鲨皇的话就要旁侧敲击一下了。 ...</blockquote>
+Gawr GuraTrident emblemholoEN
+
+@gawrgura
+
+·
+
+46m
+
+Clapping hands signClapping hands signClapping hands signClapping hands signClapping hands signLoudly crying faceMicrophone Thank you for your incredible performances, Senpai.<strong> I hope one day I can join you on stage !</strong> ありがとうございます !Blue heart #こえていくホロライブSTAGE2
+
+[https://twitter.com/gawrgura/status/1341362324385480705](https://twitter.com/gawrgura/status/1341362324385480705)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25360#       发表于 2020-12-22 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811729&amp;ptid=1969498" target="_blank">乌鸦绅士 发表于 2020-12-22 21:23</a>
+
+国外某站看到的 这就是你们说的打call吗</blockquote>
+不是，是今天最后一首SSS，拿那个水印打的call
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 25361#       发表于 2020-12-22 21:26
+
+
+
+
+hh24号要发新歌了，两首独唱曲，居然还是各自作词的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25362#       发表于 2020-12-22 21:27
+
+
+
+
+都线下转线上，误了炒热皇国奥运大事，ichikaracover你们担得起吗？必须线下！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 25363#       发表于 2020-12-22 21:28
+
+
+
+
+酒姬民提前过年（
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25364#       发表于 2020-12-22 21:28
+
+
+
+ 本帖最后由 winda 于 2020-12-22 21:32 编辑 
+
+<img src="https://p.sda1.dev/0/8a73d498e2d5107df7c142f02e4deefc/IMG_CMP_86924951.jpeg" referrerpolicy="no-referrer">
+https://twitter.com/SSVTrNpYWHvf8Hu/status/1341362921046122496?s=19
+
+bora uge 叶山一队啊，实力不错的
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25365#       发表于 2020-12-22 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看错吧，狐坦你又来了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25366#       发表于 2020-12-22 21:35
+
+
+
+
+刚下班没看live，有好哥哥repo吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25367#       发表于 2020-12-22 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811579&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-22 21:07</a>
+
+2018年11月冬服吧，没记错的话
+
+
+叶师怕不是要压线发布</blockquote>
+想要这种的：<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=w8qzdjaEGVc](https://www.youtube.com/watch?v=w8qzdjaEGVc&amp;list=PLVXRPIsD3orZMUagmcAAmlXRAj50NE_72&amp;index=85)
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25368#       发表于 2020-12-22 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811831&amp;ptid=1969498" target="_blank">fangjun96 发表于 2020-12-22 21:33</a>
+没看错吧，狐坦你又来了</blockquote>
+胡桃大师10pt，萝卜钻石6pt，剩下只能找个黄金以下的了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25369#       发表于 2020-12-22 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811872&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 21:36</a>
+胡桃大师10pt，萝卜钻石6pt，剩下只能找个黄金以下的了</blockquote>
+萝卜是白金
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25370#       发表于 2020-12-22 21:38
+
+
+
+
+Bora吹笛子还挺可爱，比我楼家上的退休大妈吹得好。
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/213845allsqwggylyllryo.png" referrerpolicy="no-referrer">
+
+
+<strong>201222213826.png</strong> (670.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 21:38 上传
+
+
+
+
+
+
+
+。。刚夸两句就吹劈了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25371#       发表于 2020-12-22 21:39
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-22 21:41 编辑 
+
+hololive 2nd fes. Beyond the Stage - STAGE2.mkv
+[https://nyaa.si/view/1318512](https://nyaa.si/view/1318512)
+
+
+5d080c189d43e01bbea8f150a9cb056fb00bc2c5
+
+
+
+
+另一个源：
+
+20201221 hololive 2nd fes. Beyond the Stage [STAGE2] 1080p MP4 (liveholo)
+[https://nyaa.si/view/1318513](https://nyaa.si/view/1318513)
+
+
+2600be1a1dd6526a9331ef665d8db2aedb196285
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25372#       发表于 2020-12-22 21:42
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-22 21:49 编辑 
+
+来点懂哥
+这样的话nico又有几个人呢
+You can feed the stream ID through to the video service provider to see the viewer count on SPWN.
+12900 on the EN stream ID, 76000 on the JP stream ID during when Suisei/Matsuri were talking.
+The steam video naturally won't load since there's no auth ticket but the all of the metrics that aren't displayed on SPWN's page normally will load.
+
+A lot of Japanese on twitter are posting NND screencaps, wonder what % is on each.
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25373#       发表于 2020-12-22 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811890&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-22 21:38</a>
+萝卜是白金</blockquote>
+算得是S4～S7的最高排名
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25374#       发表于 2020-12-22 21:48
+
+
+
+
+太监害搁那做梦一起死呢
+
+
+一边是随便都能转无观客，有白皮线上票以及粉丝线上谷子购买力兜底的普通LIVE。
+
+另一边是透露过<strong>“准备了一年以上”</strong>、租了整个青海展示栋两天以上打算搞不可能转无观客的<strong>展会</strong>。
+
+
+凉了到底谁死我暂且蒙鼓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25375#       发表于 2020-12-22 21:49
+
+
+
+ 本帖最后由 NBXX 于 2020-12-22 21:56 编辑 
+
+[https://nyaa.si/view/1318513](https://nyaa.si/view/1318513)
+
+[5.4 GiB]20201221 hololive 2nd fes. Beyond the Stage [STAGE2] 1080p MP4 (liveholo)
+
+2600be1a1dd6526a9331ef665d8db2aedb196285
+
+_________________________________________________________________________
+
+原来上面坛友IDIDIDID发过了，那我就发张图缓解下尴尬。
+[https://twitter.com/nab0i/status/1341143624591949826](https://twitter.com/nab0i/status/1341143624591949826) <blockquote>遅くなったけど天使うと（@amatsukauto）デビュー＆10万人おめでとうございます！！☁</blockquote>
+<[img src="https://i.loli.net/2020/12/22/fuecK9rXj4A1mUP.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25376#       发表于 2020-12-22 21:52
+
+
+
+[https://www.tokyo-np.co.jp/article/75948](https://www.tokyo-np.co.jp/article/75948)
+
+
+日本抗击新冠”勝負の三週間”失败后，东京都医师协会提出了新的“真剣勝負の三週間”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+皇国永远在通往胜利的路上！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25377#       发表于 2020-12-22 21:53
+
+
+
+
+那么到时候24fes和bloom感染者数要斗虫吗？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25378#       发表于 2020-12-22 21:54
+
+
+
+
+就你杏这两天看下来，真的就是公司联欢会水平，能称得上“跳舞”而不是“跟着节奏挥手摇摆左右走”的，也就烂货圆脸，aki，鸭，夏，星这么几个，唱就不说了，能不修出电音就算好的
+
+
+反正就这个水平，还是有人花钱买票看嘛，看看colo楼就知道杏奴有多忠诚了，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25379#       发表于 2020-12-22 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811949&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 21:45</a>
+
+算得是S4～S7的最高排名</blockquote>
+[https://twitter.com/robocosan/status/1295600604639723520?s=20](https://twitter.com/robocosan/status/1295600604639723520?s=20)
+
+好吧，想起来了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25380#       发表于 2020-12-22 21:59
+
+
+
+
+等等，有谁给我科普一下no变态老哥是怎么回事嘛，我怎么感觉他的人设发生了很大的变化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
