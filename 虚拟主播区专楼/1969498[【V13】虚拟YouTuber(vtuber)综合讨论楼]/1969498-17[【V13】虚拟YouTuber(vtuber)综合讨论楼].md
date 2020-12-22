@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 18:04** 
+> ## **本文件最后更新于2020-12-22 20:05** 
 
 
 
@@ -21158,11 +21158,2745 @@ zepp是二周年纪念，而三周年纪念是nijiFes
 
 
 
+ 本帖最后由 IDIDIDID 于 2020-12-22 18:06 编辑 
 
 mrr这是完全没有修吧，你杏这80可太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+天哥：学一个のぞむ代表歌曲
 
 
 
 
-             
+
+
+
+-----
+
+####  stedckk  
+##### 25094#       发表于 2020-12-22 18:04
+
+
+
+
+马居然在复活直播
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25095#       发表于 2020-12-22 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809203&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 17:23</a>
+
+说得好像当初阴阳两国和zepp只让上位去还说zepp减少上位直播频率的不是你一样。
+
+噢，补充一句，Fes ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就不对了，who i am是sololive才能让星街上的，那不是5是“0”吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25096#       发表于 2020-12-22 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809203&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 17:23</a>
+
+说得好像当初阴阳两国和zepp只让上位去还说zepp减少上位直播频率的不是你一样。
+
+噢，补充一句，Fes ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 能正大光明的把小团体聚会和各路人马齐全的两国相提并论，我是佩服的，
+
+fes里面阶级待遇相差多大还用我说么？
+
+
+有的人算上前夜祭两次3D出演，有的人只有纸片人录播
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25097#       发表于 2020-12-22 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 25098#       发表于 2020-12-22 18:20
+
+
+
+ 本帖最后由 tglals 于 2020-12-22 18:23 编辑 
+
+[https://www.twitch.tv/live_holo_fansub](https://www.twitch.tv/live_holo_fansub)    [https://www.twitch.tv/undergroundneneproduction](https://www.twitch.tv/undergroundneneproduction)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25099#       发表于 2020-12-22 18:22
+
+
+
+
+螃蟹步来了
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 25100#       发表于 2020-12-22 18:25
+
+
+
+
+啊，隔壁信息有点乱，就过来问下现在木口数据咋样了啊？闭关的时候隐约看到虫皇停播了？刚爬楼看见什么油管bug修了木口数据涨了？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25101#       发表于 2020-12-22 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809604&amp;ptid=1969498" target="_blank">mr.dragon 发表于 2020-12-22 18:00</a>
+
+草，又变回去了还行。
+
+那对了免指导最近有啥live推荐啊，看了点呆live切片被吓到了，给点正常的洗洗审美 ...</blockquote>
+当然是28号的拼盘，重点是有我们家大葵
+[http://vma2020.jp/](http://vma2020.jp/)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25102#       发表于 2020-12-22 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏哥这不是挺好的嘛
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 25103#       发表于 2020-12-22 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809886&amp;ptid=1969498" target="_blank">free 发表于 2020-12-22 18:25</a>
+
+当然是28号的拼盘，重点是有我们家大葵
+
+http://vma2020.jp/</blockquote>
+草你给我个还没开始的我怎么洗审美啊。刚爬楼看到最近的好像是bml，inui的sololive，还有啥？给个推荐我好去找找有没有资源。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25104#       发表于 2020-12-22 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809933&amp;ptid=1969498" target="_blank">mr.dragon 发表于 2020-12-22 18:30</a>
+
+草你给我个还没开始的我怎么洗审美啊。刚爬楼看到最近的好像是bml，inui的sololive，还有啥？给个推荐我 ...</blockquote>
+[https://www.bilibili.com/video/BV1Gg4y167Hh](https://www.bilibili.com/video/BV1Gg4y167Hh)
+
+看我们家大葵的现场全集
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 25105#       发表于 2020-12-22 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809428&amp;ptid=1969498" target="_blank">free 发表于 2020-12-22 17:45</a>
+
+前天克指导二车歌力，已经又变回免指导了，嘻嘻</blockquote>
+克指导都说了两次了，
+
+免指导你还是给373加个等级吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25106#       发表于 2020-12-22 18:32
+
+
+
+
+响老哥你的小祭回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25107#       发表于 2020-12-22 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809734&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-22 18:11</a>
+这就不对了，who i am是sololive才能让星街上的，那不是5是“0”吧</blockquote>
+......嘉宾还有德龙、lize和安洁好吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+syl，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">阴阳了zepp和两国是“只上上位”大半年的人都能自打脸说那是“各路人马齐会聚”而上了更多人的fes反而成了小团体聚会，那你开心就好。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25108#       发表于 2020-12-22 18:32
+
+
+
+
+阿希可爱
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25109#       发表于 2020-12-22 18:33
+
+
+
+ 本帖最后由 -rm7- 于 2020-12-22 18:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">3d的啊祭确实可爱
+
+不过这是跳不动了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 25110#       发表于 2020-12-22 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809946&amp;ptid=1969498" target="_blank">free 发表于 2020-12-22 18:31</a>
+
+https://www.bilibili.com/video/BV1Gg4y167Hh
+
+看我们家大葵的现场全集</blockquote>
+okok
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25111#       发表于 2020-12-22 18:34
+
+
+
+
+阿希真是挺契合舞台的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25112#       发表于 2020-12-22 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">动起来就是可爱
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25113#       发表于 2020-12-22 18:35
+
+
+
+
+不得不说皆村虽然全面拉跨，但是阿希这个眼睛的配色真的神了。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25114#       发表于 2020-12-22 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809960&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 18:32</a>
+
+......嘉宾还有德龙、lize和安洁好吧
+
+
+syl，阴阳了zepp和两国是“只上上位”大半年的人都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为性质不一样啊，两国和zepp上个社外的试试
+
+
+
+
+
+
+
+-----
+
+####  夜玄言  
+##### 25115#       发表于 2020-12-22 18:35
+
+
+
+
+阿希怎么选了一首卖萌歌啊，自己的优势一点都没发挥，唱的还拉胯
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25116#       发表于 2020-12-22 18:39
+
+
+
+
+这首是水7的？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25117#       发表于 2020-12-22 18:39
+
+
+
+
+……萝卜这个舞蹈只有一个动作吗
+
+那之前每天在排练什么
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25118#       发表于 2020-12-22 18:40
+
+
+
+
+mio妈是真练了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25119#       发表于 2020-12-22 18:42
+
+
+
+
+全程一两个动作的虚拟霍金没人说，反倒是虽然没底子，但起码认真练了点舞被人截gif尬黑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25120#       发表于 2020-12-22 18:43
+
+
+
+
+#VTuber最協決定戦 のメンバーが決まりました！
+
+
+胡桃のあ ( @n0ah_kurumi)
+
+ロボ子さん ( @robocosan)
+
+白上フブキ ( @shirakamifubuki)
+
+可以看笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25121#       发表于 2020-12-22 18:43
+
+
+
+
+是不是两天到现在就白上上了表情控制？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25122#       发表于 2020-12-22 18:44
+
+
+
+
+喷了，白上出来之后老鼠台表情都不刷了集体发情还行，白皮太乐了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25123#       发表于 2020-12-22 18:45
+
+
+
+
+江花的时候就这么想了，唱不了就假唱好了，舞跳好了才有爱豆露感啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25124#       发表于 2020-12-22 18:45
+
+
+
+<blockquote>CAserlumos 发表于 2020-12-22 18:43
+#VTuber最協決定戦 のメンバーが決まりました！
+
+
+胡桃のあ ( @n0ah_kurumi)
+</blockquote>
+Noa 是大师没办法啊，只能找菜鸟组队的，那为什么不找有流量的菜鸟呢
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25125#       发表于 2020-12-22 18:46
+
+
+
+
+那就差阿希公布这次最协队伍了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25126#       发表于 2020-12-22 18:46
+
+
+
+
+那是白皮的唯一指定waifu时间
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25127#       发表于 2020-12-22 18:47
+
+
+
+ 本帖最后由 OldGlory 于 2020-12-22 18:50 编辑 
+
+风怒，白上又去最协逛街吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25128#       发表于 2020-12-22 18:47
+
+
+
+
+又开始假喘，吐了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25129#       发表于 2020-12-22 18:47
+
+
+
+
+你虹最近几个3D披露有live环节的不都是真跳搭假唱吗，都3D了肯定是跳更重要吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25130#       发表于 2020-12-22 18:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白上这一首歌个人live 1st唱这么多次了 
+
+表情控制有经验了吧 其他人都是新的选曲 来不及做吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25131#       发表于 2020-12-22 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810037&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-22 18:39</a>
+
+这首是水7的？</blockquote>
+水7的魔炮op啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25132#       发表于 2020-12-22 18:49
+
+
+
+
+狐皇还是王牌机师的。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25133#       发表于 2020-12-22 18:49
+
+
+
+
+差不多得了快下去
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25134#       发表于 2020-12-22 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810077&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2020-12-22 18:43</a>
+#VTuber最協決定戦 のメンバーが決まりました！
+
+
+胡桃のあ ( @n0ah_kurumi)</blockquote>
+草 狐皇你来凑这个热闹搞毛....
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25135#       发表于 2020-12-22 18:50
+
+
+
+
+nenep这台目前老鼠台同接第12，差不多该被橄榄了。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25136#       发表于 2020-12-22 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇这又是垂耳又有表情切换，太社霸了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25137#       发表于 2020-12-22 18:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，狐狸一出场，老鼠台同接冲上了7k
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 25138#       发表于 2020-12-22 18:52
+
+
+
+
+记得发下狐狸切片啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25139#       发表于 2020-12-22 18:53
+
+
+
+
+真正的白皮waifu来了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25140#       发表于 2020-12-22 18:54
+
+
+
+
+还是王牌机师吗？太忙了没时间看<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25141#       发表于 2020-12-22 18:55
+
+
+
+
+真正专业的来了，杏奴对兔子被做成gif不服的可以切这段怼回去。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25142#       发表于 2020-12-22 18:56
+
+
+
+
+白上输了最协之后会哭吗？
+
+阿夸也赶紧报名吧，一梭子怼死白上。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25143#       发表于 2020-12-22 18:57
+
+
+
+
+但是歌垃了
+跳得好就不配调音吗，是80的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25144#       发表于 2020-12-22 18:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该不会吧，以前又不是没参加过。
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25145#       发表于 2020-12-22 18:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团长这个就是真幼师了 
+
+杏奴洗不干净了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25146#       发表于 2020-12-22 18:58
+
+
+
+
+以前和阿夸组队打PUBG那次也是最协吧，没哭
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25147#       发表于 2020-12-22 18:59
+
+
+
+
+aki还是靠谱。。。。今天能跳的感觉不少，486也来了
+夸现在哪里去找两个人参赛我是想不出来的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25148#       发表于 2020-12-22 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇在欧美那么大人气，为什么直播数据那么拉啊，不知道周边卖的咋样。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25149#       发表于 2020-12-22 19:00
+
+
+
+
+真正的元气
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25150#       发表于 2020-12-22 19:00
+
+
+
+
+486不错啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25151#       发表于 2020-12-22 19:00
+
+
+
+
+这么能跳被偷了live，cover我草泥马
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 25152#       发表于 2020-12-22 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810249&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-22 18:59</a>
+
+狐皇在欧美那么大人气，为什么直播数据那么拉啊，不知道周边卖的咋样。 ...</blockquote>
+时差啊朋友
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25153#       发表于 2020-12-22 19:01
+
+
+
+
+太有活力了，想看486个人live<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25154#       发表于 2020-12-22 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49809991&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-22 18:35</a>
+因为性质不一样啊，两国和zepp上个社外的试试</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">性质哪里不一样了，fes也能找flow来啊，没找又不代表不能找
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25155#       发表于 2020-12-22 19:02
+
+
+
+
+PUBG那次就是幼儿园队出去郊游
+
+我印象最深的还是阿夸开车自爆送全队上路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25156#       发表于 2020-12-22 19:03
+
+
+
+
+姨就要唱姨时代的歌曲
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 25157#       发表于 2020-12-22 19:04
+
+
+
+ 本帖最后由 奥尔斯蒂德 于 2020-12-22 19:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">啊火居然唱sr的OP
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25158#       发表于 2020-12-22 19:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/190428w0n0uajkk0a8mx3k.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201222190344.png</strong> (509.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 19:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25159#       发表于 2020-12-22 19:05
+
+
+
+
+全程看阿火屁股后面的布<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25160#       发表于 2020-12-22 19:07
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-22 19:09 编辑 
+
+阿希运气不好，放在昨天也就输一个天皇，今天狠人太多了。
+
+
+
+SYL：
+
+老鼠台也不知道图什么还不动手
+
+<img src="https://img.saraba1st.com/forum/202012/22/190930l3io34kew5g0rkrp.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 022 - Top Channels - Twitch - www.twitch.tv.png</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 19:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25161#       发表于 2020-12-22 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810290&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 19:02</a>
+
+性质哪里不一样了，fes也能找flow来啊，没找又不代表不能找</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">到有了再说吧，fes自体现在公布的主舞台活动都没社外呢
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25162#       发表于 2020-12-22 19:09
+
+
+
+
+草，柴卡跳马，熊猫人当马
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25163#       发表于 2020-12-22 19:09
+
+
+
+
+今天平均水平明显比昨天高……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25164#       发表于 2020-12-22 19:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/191320vwttmikft7s2ztfs.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201222191254.png</strong> (650.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 19:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25165#       发表于 2020-12-22 19:14
+
+
+
+
+你杏最终兵器来了
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 25166#       发表于 2020-12-22 19:15
+
+
+
+
+懒狗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 25167#       发表于 2020-12-22 19:15
+
+
+
+
+狗狗的baka我直接界限化了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 25168#       发表于 2020-12-22 19:15
+
+
+
+
+摸余好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25169#       发表于 2020-12-22 19:16
+
+
+
+
+这就是PUA之力的化身吗？好强……
+
+
+SYL：
+
+白皮唯一指定waifu二号
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 25170#       发表于 2020-12-22 19:19
+
+
+
+
+563的背景的竹轮是有什么说法吗？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25171#       发表于 2020-12-22 19:20
+
+
+
+
+虽然真的很可爱没错啦，但为什么只是在晃
+
+稍微跳一下啊？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25172#       发表于 2020-12-22 19:20
+
+
+
+
+熊猫人的屁股被看光了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25173#       发表于 2020-12-22 19:21
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-22 19:23 编辑 
+
+虚拟霍金3号来了
+
+
+喷了，9K的地下neneP没被橄榄，3K不到的holofs被橄榄了。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25174#       发表于 2020-12-22 19:21
+
+
+
+
+电车台现在才被鲨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过要看的已经看了，告辞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25175#       发表于 2020-12-22 19:22
+
+
+
+
+这企划绝了，都看光了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25176#       发表于 2020-12-22 19:23
+
+
+
+
+德龙能露的这么完美还行
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25177#       发表于 2020-12-22 19:25
+
+
+
+
+这NCP怎么每次上台舞蹈都不一样的，你好闲。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25178#       发表于 2020-12-22 19:25
+
+
+
+
+怎么感觉小粥是现场唱跳的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25179#       发表于 2020-12-22 19:25
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-22 19:30 编辑 
+
+星街让这个舞台暂时充满了活力<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+为什么狗有竹轮、星街有钻石，小粥就只有黑背景？
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 25180#       发表于 2020-12-22 19:26
+
+
+
+
+ミニスカート運動会真的不是抄くりぃむナンチャラ的ミニスカート陸上吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25181#       发表于 2020-12-22 19:26
+
+
+
+
+”我是真唱相信我“<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 25182#       发表于 2020-12-22 19:27
+
+
+
+
+​失格！这个梗都是上田的
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25183#       发表于 2020-12-22 19:27
+
+
+
+
+虹抄的企划还少么，好看不就好了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 25184#       发表于 2020-12-22 19:28
+
+
+
+
+原来能转圈啊
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25185#       发表于 2020-12-22 19:28
+
+
+
+
+星街这胸摇的过分了啊，这种衣服哪能这样摇的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 25186#       发表于 2020-12-22 19:28
+
+
+
+
+lalala少了应援棒呀……
+
+衣服里是马达在摇
+
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25187#       发表于 2020-12-22 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这穿模跟露**分得清吗？
+syl熊猫人素质还是这么高啊
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25188#       发表于 2020-12-22 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810594&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-22 19:28</a>
+星街这胸摇的过分了啊，这种衣服哪能这样摇的</blockquote>
+星姐好像是A吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25189#       发表于 2020-12-22 19:30
+
+
+
+
+这个企划本来就不是原创
+咲唯又解散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25190#       发表于 2020-12-22 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810607&amp;ptid=1969498" target="_blank">Kojimaru 发表于 2020-12-22 19:29</a>
+
+这穿模跟露**分得清吗？
+
+syl熊猫人素质还是这么高啊</blockquote>
+やられたらやり返す、倍返しだ！
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 25191#       发表于 2020-12-22 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810570&amp;ptid=1969498" target="_blank">11512 发表于 2020-12-22 19:26</a>
+
+ミニスカート運動会真的不是抄くりぃむナンチャラ的ミニスカート陸上吗？ ...</blockquote>
+[https://www.bilibili.com/video/B ... 1346726811902916206](https://www.bilibili.com/video/BV1gz4y1Q7no?from=search&amp;seid=1346726811902916206) 这种企划基本上都是抄的
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 25192#       发表于 2020-12-22 19:30
+
+
+
+[https://www.twitch.tv/undergroundneneproduction](https://www.twitch.tv/undergroundneneproduction)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">助力1w同接，快来加入
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25193#       发表于 2020-12-22 19:31
+
+
+
+
+橄榄了，不过该看的而都看了。
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 25194#       发表于 2020-12-22 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810624&amp;ptid=1969498" target="_blank">a37356205 发表于 2020-12-22 19:30</a>
+
+https://www.twitch.tv/undergroundneneproduction助力1w同接，快来加入</blockquote>
+一发就橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 25195#       发表于 2020-12-22 19:31
+
+
+
+ 本帖最后由 tglals 于 2020-12-22 19:34 编辑 
+
+[https://www.twitch.tv/koksal__baba](https://www.twitch.tv/koksal__baba)      [https://www.twitch.tv/liveholofansub2](https://www.twitch.tv/liveholofansub2)
+
+
+
+
+
+
+
+-----
+
+####  夜玄言  
+##### 25196#       发表于 2020-12-22 19:31
+
+
+
+
+狐皇二度上场？不是，这六个人，就阿希没资格唠嗑吗，太惨了吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25197#       发表于 2020-12-22 19:32
+
+
+
+
+好羡慕杏的人气，江花的时候完全没有讨论度<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25198#       发表于 2020-12-22 19:34
+
+
+
+
+懒狗你妈对你那么好你能不能多孝敬下你妈啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/193351nrcjhb3zhcffffn8.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 026 - ななかぐら／カグラナナ🌶 on Twitter_ _beyond the stage #.png</strong> (508.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 19:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 25199#       发表于 2020-12-22 19:34
+
+
+
+
+票不是都卖出去了 这盗播是实质团建？
+
+
+
+
+
+
+
+-----
+
+####  midearth  
+##### 25200#       发表于 2020-12-22 19:34
+
+
+
+
+看到近万人就感觉不秒，还好是中场时间。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25201#       发表于 2020-12-22 19:36
+
+
+
+
+买票的不去nnd发弹幕来跟独轮车团建吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25202#       发表于 2020-12-22 19:36
+
+
+
+
+小剧场看到了马自立骑在狐狸头上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看到了珍奇的场面啊
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 25203#       发表于 2020-12-22 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810664&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-22 19:34</a>
+懒狗你妈对你那么好你能不能多孝敬下你妈啊</blockquote>
+眼泪不争气地在嘴角流了下来<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25204#       发表于 2020-12-22 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天是“数”，今天是“质”。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25205#       发表于 2020-12-22 19:38
+
+
+
+
+现在进入人上人时间，四期在看吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25206#       发表于 2020-12-22 19:39
+
+
+
+
+懒狗，可怕！
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25207#       发表于 2020-12-22 19:39
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-22 19:32
+好羡慕杏的人气，江花的时候完全没有讨论度</blockquote>
+真的很羡慕……想起京mafu结束后现在大家讨论的最多的也是博士的solo……明明也是夜见的第一次live……为什么……
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25208#       发表于 2020-12-22 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810684&amp;ptid=1969498" target="_blank">乌鸦绅士 发表于 2020-12-22 19:36</a>
+
+小剧场看到了马自立骑在狐狸头上
+
+看到了珍奇的场面啊</blockquote>
+给你补个图
+
+
+
+
+
+
+QQ图片20201222193923.png
+(26.19 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-22 19:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/193940wkxihyiiifvyiwr3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -rm7-| + 1|好评加鹅|
+| 乌鸦绅士| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25209#       发表于 2020-12-22 19:40
+
+
+
+
+不是...糊糊这个3d也太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+耳朵做的也太好了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25210#       发表于 2020-12-22 19:40
+
+
+
+
+就这个僵硬的左右摇摆还真有人能看下去......
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 25211#       发表于 2020-12-22 19:41
+
+
+
+
+镜头怎么还能对不准的
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 25212#       发表于 2020-12-22 19:42
+
+
+
+
+这楼里不是一堆人在看吗 这盗播的思路太神秘了
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 25213#       发表于 2020-12-22 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以任任女孩的吨位做这个还是太难了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25214#       发表于 2020-12-22 19:43
+
+
+
+
+镜头全给余，导播起码还是懂谁卖得动的。
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 25215#       发表于 2020-12-22 19:44
+
+
+
+[https://www.twitch.tv/sanjiniji](https://www.twitch.tv/sanjiniji)
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25216#       发表于 2020-12-22 19:44
+
+
+
+
+这个直播间账号<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25217#       发表于 2020-12-22 19:45
+
+
+
+
+喷了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25218#       发表于 2020-12-22 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特趋势已经43.6w了，比昨天快了近半小时突破40w，今天肯定能超过60w了吧。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25219#       发表于 2020-12-22 19:45
+
+
+
+
+还挺少女？
+
+<img src="https://img.saraba1st.com/forum/202012/22/194529l8wuq2dwd223h8c3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep1mmuFVQAM72Uy.jpg</strong> (249.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 19:45 上传
+
+
+
+
+
+[https://twitter.com/isoiso_gingin/status/1341341082039173124](https://twitter.com/isoiso_gingin/status/1341341082039173124)
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25220#       发表于 2020-12-22 19:46
+
+
+
+
+想知道虹为什么人气比不过holo的建议去看溝口ケージ今天在nico的生放送
+
+里面说了他为什么不看彩虹以及沉迷holo的原因
+
+简单来说就是虹在他眼里现在完全是现充集团以及没有箱感了
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 25221#       发表于 2020-12-22 19:46
+
+
+
+
+3424<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25222#       发表于 2020-12-22 19:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/194704s5jvi9iot6voot6t.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201222194643.png</strong> (350.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 19:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 25223#       发表于 2020-12-22 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810620&amp;ptid=1969498" target="_blank">2black 发表于 2020-12-22 19:30</a>
+
+https://www.bilibili.com/video/BV1gz4y1Q7no?from=search&amp;seid=1346726811902916206 这种企划基本上都 ...</blockquote>
+是抄的 我也告诉你这企划别人11年开始年年玩的现在 不然不会被抄
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25224#       发表于 2020-12-22 19:48
+
+
+
+
+要是不冲塔就好了，我如果不知道大福是kmm这张可以嗯
+
+U1S1，彩虹本里大福本质量都挺高的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25225#       发表于 2020-12-22 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49800988&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-21 21:34</a>
+
+明天天星定番，就是不知道是不是月阳。希望夏哥和星街也复刻一下believe again。</blockquote>
+中了50%
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 25226#       发表于 2020-12-22 19:52
+
+
+
+
+本来就是主播团体，箱感那么重要嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25227#       发表于 2020-12-22 19:52
+
+
+
+ 本帖最后由 ひびき 于 2020-12-22 19:53 编辑 
+
+这跳唱太假了
+
+
+就算是巅峰期的你再强一倍也不可能蹦蹦跳跳的时候这么稳<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25228#       发表于 2020-12-22 19:52
+
+
+
+
+可以，这首结束了可以ban了。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25229#       发表于 2020-12-22 19:52
+
+
+
+
+关掉声音，就是高质量live
+
+夏色祭星街好有活力<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25230#       发表于 2020-12-22 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 不是还有人让你去看是虹人就支持的横滨小团体三部曲么？，这还不够箱阿
+
+
+比博人传还要箱了！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25231#       发表于 2020-12-22 19:53
+
+
+
+
+才发现这两人偏马尾都是对称的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25232#       发表于 2020-12-22 19:54
+
+
+
+
+这多活泼啊
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25233#       发表于 2020-12-22 19:55
+
+
+
+
+可爱动漫女孩不比现充好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 25234#       发表于 2020-12-22 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是柴卡的建模真的特别粗壮了一块还是我看花眼了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25235#       发表于 2020-12-22 19:56
+
+
+
+
+草，不要跳完就鬼叫啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25236#       发表于 2020-12-22 19:58
+
+
+
+
+现充不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25237#       发表于 2020-12-22 19:59
+
+
+
+
+ssk的短裙就是我看郡道音游的降压药，气得头疼了
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 25238#       发表于 2020-12-22 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你虹随便抓几个人的宅度不比T台太妹纯太多
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25239#       发表于 2020-12-22 20:00
+
+
+
+
+我宣布live还是okfams  星街阿希这些老将行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25240#       发表于 2020-12-22 20:00
+
+
+
+
+thank you ame
+
+<img src="https://img.saraba1st.com/forum/202012/22/200039cnm6nmzxwoiaa45a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep1wIgBVoAAwqD3.jpg</strong> (75.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 20:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25241#       发表于 2020-12-22 20:00
+
+
+
+<blockquote>cqkxywj 发表于 2020-12-22 20:00
+你虹随便抓几个人的宅度不比T台太妹纯太多</blockquote>
+可是你虹女身边天天有虹男陪啊
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25242#       发表于 2020-12-22 20:01
+
+
+
+
+4id不行啊这才发现侧马尾对称吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 25243#       发表于 2020-12-22 20:02
+
+
+
+ 本帖最后由 tglals 于 2020-12-22 20:05 编辑 
+
+[https://livechatfc2.com/38456944/](https://www.twitch.tv/projekt_2078)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25244#       发表于 2020-12-22 20:02
+
+
+
+
+aki辛苦了！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25245#       发表于 2020-12-22 20:03
+
+
+
+
+又80 aki
+
+
+
+
+
+        
