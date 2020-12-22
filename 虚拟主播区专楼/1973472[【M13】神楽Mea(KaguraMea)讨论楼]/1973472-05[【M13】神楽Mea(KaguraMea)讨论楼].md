@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 02:09** 
+> ## **本文件最后更新于2020-12-22 16:09** 
 
 
 
@@ -6507,10 +6507,12 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 
- 参与人数 7战斗力 +8
+ 参与人数 9战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
 | jhouo8989| + 1||
 | 离心| + 1||
 | 鷹書たかしょ| + 2||
@@ -6617,7 +6619,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 <img src="https://img.saraba1st.com/forum/202012/22/002940hi6vhh8h956u1a65.gif" referrerpolicy="no-referrer">
 
 
-<strong>2.gif</strong> (1.96 MB, 下载次数: 0)
+<strong>2.gif</strong> (1.96 MB, 下载次数: 2)
 
 下载附件
 
@@ -6699,6 +6701,26 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|欢乐多|
+| JustW| + 1|xswl|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -6764,8 +6786,24 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 
+ 本帖最后由 Mikumiku831 于 2020-12-22 03:07 编辑 
 
-我最喜欢的一个镜头就是mea手划指向天空 镜头也跟着往上  特别帅气 是我心目中的极光公主<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+我最喜欢的一个镜头就是mea手划向天空 镜头也跟着往上  特别帅气 是我心目中的极光公主<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/22/030649fe92mtiyebt5gn7k.gif" referrerpolicy="no-referrer">
+
+
+<strong>388.gif</strong> (867.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 03:06 上传
+
+
+
+
+
+
 
 
 
@@ -6787,4 +6825,514 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 
-                                    
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 6395#       发表于 2020-12-22 02:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">关键最有意思的是你咩的模型明显在叔叔手里好了一截
+
+
+这波一眼看去猴楼只配住地下室
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6396#       发表于 2020-12-22 08:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么楼友都看猴楼辣舞的，我还没看
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6397#       发表于 2020-12-22 08:50
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-12-22 09:46 编辑 
+
+这次编舞都挺好的，一骑当千那段我最喜欢的还是四连伸手，很有狂气的感觉
+准确来说是狂气色气兼具
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6398#       发表于 2020-12-22 09:25
+
+
+
+
+我喜欢太妹蹲
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 6399#       发表于 2020-12-22 09:27
+
+
+
+
+我喜欢螃蟹
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 6400#       发表于 2020-12-22 09:43
+
+
+
+
+还是那段变身最有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 6401#       发表于 2020-12-22 10:07
+
+
+
+
+能别提木口不，bls这场的流程我看的还是挺舒服的
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 6402#       发表于 2020-12-22 10:07
+
+
+
+
+能别提木口不，bls这场的流程我看的还是挺舒服的
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6403#       发表于 2020-12-22 10:25
+
+
+
+
+另外一骑当千里这段也挺色气的
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_pJMIb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+6.gif
+(1.94 MB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-12-22 10:25 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/102506kosippsocfd0sdde.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6404#       发表于 2020-12-22 10:37
+
+
+
+
+我喜欢空气椅子
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lll447  
+##### 6405#       发表于 2020-12-22 10:46
+
+
+
+
+有没有有能man录个nico弹幕版的，想看看太君的反应
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 6406#       发表于 2020-12-22 11:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">还想看她多多的3d演唱会
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6407#       发表于 2020-12-22 11:51
+
+
+
+
+不要木口不要木口，一想到到某人跟其它女人在一起的场面就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6408#       发表于 2020-12-22 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想更多3d演唱会只能多打点钱了
+
+但是又少不了叔叔
+
+就很气
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 6409#       发表于 2020-12-22 12:42
+
+
+
+
+只开线上效果较同类来说已经很好了，只怪p站作，承诺线下结果又是延期又是日方技术拉胯，嘉宾和观众当猴耍，当初只有线上也好
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6410#       发表于 2020-12-22 12:50
+
+
+
+
+下好录像又看了一遍 
+
+沉醉了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 6411#       发表于 2020-12-22 12:51
+
+
+
+
+25号中午黄兔子四人组经典桃铁
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6412#       发表于 2020-12-22 13:24
+
+
+
+
+25号咩宝好忙啊
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6413#       发表于 2020-12-22 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49806686&amp;ptid=1973472" target="_blank">elect 发表于 2020-12-22 13:24</a>
+
+25号咩宝好忙啊</blockquote>
+要被咩宝塞满了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6414#       发表于 2020-12-22 13:53
+
+
+
+
+所以现在25号有哪些预订来着？中午桃铁，下午苔苔（播片），晚上圭利？还是有单人播的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6415#       发表于 2020-12-22 14:03
+
+
+
+
+这预定不就是和野男人玩一天吗，算上播片刚好是三播，圣诞还是好好上班吧，不过洋节了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6416#       发表于 2020-12-22 14:52
+
+
+
+
+北京时间10点播
+
+<img src="https://img.saraba1st.com/forum/202012/22/145152eeer0wozvw555qqq.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20201222145101.png</strong> (26.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 14:51 上传
+
+
+
+
+
+
+另外转了下推
+
+<img src="https://img.saraba1st.com/forum/202012/22/145211w30t886qtaqbq0oz.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20201222145134.png</strong> (422.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 14:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 6417#       发表于 2020-12-22 15:54
+
+
+
+
+好好珍惜最近的多播，后面要6天看不到她了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6418#       发表于 2020-12-22 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">能别提这种痛苦的事情
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6419#       发表于 2020-12-22 16:01
+
+
+
+ 本帖最后由 草牛 于 2020-12-22 16:09 编辑 
+
+<img src="https://wx2.sinaimg.cn/mw690/0075zBXrly1glwoyecx12g30dc07ib2c.gif" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/mw690/0075zBXrly1glwp5xlvnug30dc07i7wh.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 6420#       发表于 2020-12-22 16:05
+
+
+
+
+今天404 明天B限
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6421#       发表于 2020-12-22 16:05
+
+
+
+
+tc，就算六天不播，tc总是有的吧！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   
