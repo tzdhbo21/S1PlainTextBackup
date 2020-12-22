@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-21 00:00** 
+> ## **本文件最后更新于2020-12-23 00:00** 
 
 
 
@@ -3871,4 +3871,524 @@ https://www.youtube.com/watch?v=O_tsztl9eBg
 
 
 
-                                          
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10713#       发表于 2020-12-21 12:45
+
+
+
+
+这么兴奋吗 表现的不是播片一样<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10714#       发表于 2020-12-22 11:56
+
+
+
+
+和黄泉傻紫一起apex战队了
+
+皆切大失败<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10715#       发表于 2020-12-22 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也太怪了 这组队
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10716#       发表于 2020-12-22 12:09
+
+
+
+
+挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10717#       发表于 2020-12-22 12:33
+
+
+
+
+这夸宝画的这么像黄泉阿姨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10718#       发表于 2020-12-22 13:01
+
+
+
+
+再哭一次罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10719#       发表于 2020-12-22 13:06
+
+
+
+
+那西西呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那个三人联动不打算补了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10720#       发表于 2020-12-22 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这组队有傻紫我是没想到的，这次有黄泉指挥带队应该会好点吧。
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10721#       发表于 2020-12-22 16:22
+
+
+
+
+一般人还真的带不动绫总，等输了比赛之后高强度直播apex赎罪就完事了，老套路了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10722#       发表于 2020-12-22 18:00
+
+
+
+
+为什么一个人玩一个游戏坚持这么久还变不强，这也是一种强大吧！小肥绫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10723#       发表于 2020-12-22 18:10
+
+
+
+
+绫总经典玩游戏不带脑子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10724#       发表于 2020-12-22 18:24
+
+
+
+
+绫这动作出力还挺足的 不懒狗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10725#       发表于 2020-12-22 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整天说练舞很努力，不动两下怎么行
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10726#       发表于 2020-12-22 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10727#       发表于 2020-12-22 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10728#       发表于 2020-12-22 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10729#       发表于 2020-12-22 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">还有吗 来晚了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10730#       发表于 2020-12-22 19:23
+
+
+
+
+应该还有组合曲  估计是aya48或者fams
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 10731#       发表于 2020-12-22 19:26
+
+
+
+
+いいね<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10732#       发表于 2020-12-22 19:40
+
+
+
+
+卧槽刚才那句好棒<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10733#       发表于 2020-12-22 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 10734#       发表于 2020-12-22 19:49
+
+
+
+
+应该还有一首吧应该还有一首吧应该还有一首吧<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10735#       发表于 2020-12-22 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">有的吧有的吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10736#       发表于 2020-12-22 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10737#       发表于 2020-12-22 20:20
+
+
+
+
+重复度这么高的动作能记下来某种程度来说也是不容易<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10738#       发表于 2020-12-22 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">银火都有，这不给aya48整上吗
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10739#       发表于 2020-12-22 20:46
+
+
+
+
+原创曲大锅饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10740#       发表于 2020-12-22 21:22
+
+
+
+【发病预警】
+
+
+
+我服了，子种成大河
+
+
+今天的她怎么会这么好
+
+
+这小腰扭得，这小胳膊摆得，这小屁股撅得<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+她486mio妈那首歌真是清洁心灵，感觉到了跟好人在一起特有的安心感
+
+
+哈哈！好啊！.jpg
+
+
+就懒狗部分今天live就不亏了，呜呜呜，bloom要多给点啊垃圾cover
+
+
+PS：最近我也有点开始希望自己是那几个甜蜜双排的人了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10741#       发表于 2020-12-22 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">感谢上帝让我在漫长人生中遇见这么可爱的女孩
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10742#       发表于 2020-12-22 23:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/230614q61a61lrnrsn0zs2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep0grBQUUAAFUUp.jpg</strong> (232.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 23:06 上传
+
+
+
+
+
+[https://twitter.com/namaonpa/status/1341264998111141888](https://twitter.com/namaonpa/status/1341264998111141888)
+
+
+
+
+
+                                         

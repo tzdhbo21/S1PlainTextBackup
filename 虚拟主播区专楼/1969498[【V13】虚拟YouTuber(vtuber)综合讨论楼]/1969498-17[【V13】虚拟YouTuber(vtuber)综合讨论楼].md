@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 22:04** 
+> ## **本文件最后更新于2020-12-23 00:04** 
 
 
 
@@ -25854,10 +25854,11 @@ VtuberFes 1月30-31
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| zerouuz| + 1|好评加鹅|
 | 北山玖公| + 1|好评加鹅|
 
 
@@ -26475,6 +26476,26 @@ A lot of Japanese on twitter are posting NND screencaps, wonder what % is on eac
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|急了|
+| zerouuz|-1|白皮还掏钱？欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -26596,4 +26617,731 @@ _________________________________________________________________________
 
 
 
-    
+
+
+-----
+
+####  wiig  
+##### 25381#       发表于 2020-12-22 22:05
+
+
+
+
+破音姬胸很会摇<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">https://www.youtube.com/watch?v=cQuGR9z0MRA&amp;ab_channel=MikadoCh.%E5%B8%9D
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25382#       发表于 2020-12-22 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811855&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-22 21:35</a>
+刚下班没看live，有好哥哥repo吗</blockquote>
+总结下来就是。。乱杀昨天的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 25383#       发表于 2020-12-22 22:11
+
+
+
+
+狐狸这都要蹭一蹭吗
+那这队胡桃当队长了，不过胡桃一指挥就蒙，这队早点送走吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 25384#       发表于 2020-12-22 22:13
+
+
+
+
+niru，我的超人...
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25385#       发表于 2020-12-22 22:15
+
+
+
+
+熊猫人也要播原神了啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25386#       发表于 2020-12-22 22:19
+
+
+
+
+Niru,wokka赶紧走吧，在cr这种队待着没冠军还只能永远当板凳，真的浪费才华，我还想看wokka打r6
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25387#       发表于 2020-12-22 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">sasaki竟然播原神，难道是工商？
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 25388#       发表于 2020-12-22 22:25
+
+
+
+
+原神明天开1.2，应该是工商
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25389#       发表于 2020-12-22 22:26
+
+
+
+
+虽然免费日常嘴里开河但是忍不住想吐槽这什么公司啊，我只能说参加过的中院和三位数人以上的世界连锁所分所的年会的文艺节目都是离阿希星街圆脸这唱条差远了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25390#       发表于 2020-12-22 22:29
+
+
+
+<blockquote>あした12/23の20時に
+
+原神の動画が投稿されるやよ</blockquote>
+
+是视频投稿不是直播，应该是跟老农那几个差不多的工商
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25391#       发表于 2020-12-22 22:36
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-22 22:47 编辑 
+
+Iroha的钢琴好像还不错，第一次听。
+
+
+这钢琴按键是怎么弄的啊
+
+<img src="https://img.saraba1st.com/forum/202012/22/223548izcw3t25wnt3ct2e.png" referrerpolicy="no-referrer">
+
+
+<strong>201222223521.png</strong> (392.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 22:35 上传
+
+
+
+
+
+
+
+
+省，
+
+
+不知道火星没有啊，
+
+之前的弹幕插件"Flow Youtube Chat"更新过一次之后就爆炸不能用了。
+
+
+现在用的是这个：
+
+
+DanMage
+[https://chrome.google.com/websto ... jdgkglifmijgkeclalm](https://chrome.google.com/webstore/detail/danmage/elhaopojedichjdgkglifmijgkeclalm)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25392#       发表于 2020-12-22 22:39
+
+
+
+
+虹在油管的原神工商好像都是视频投稿？是根据点击量确定工商费用的吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25393#       发表于 2020-12-22 22:40
+
+
+
+[https://www.youtube.com/watch?v=_nTFqlaooOc](https://www.youtube.com/watch?v=_nTFqlaooOc)
+
+華生:你們超噁 【Amelia Watson】【Hololive EN】【Vtuber中文】
+<img src="https://i.loli.net/2020/12/22/VC398KBnu7ghdzL.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 25394#       发表于 2020-12-22 22:50
+
+
+
+
+惊了，时雨妈上海个展
+[https://www.pixiv.net/info.php?id=6498](https://www.pixiv.net/info.php?id=6498)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25395#       发表于 2020-12-22 22:52
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-22 22:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49812599&amp;ptid=1969498" target="_blank">tiro_finale 发表于 2020-12-22 22:50</a>
+
+惊了，时雨妈上海个展
+[https://www.pixiv.net/info.php?id=6498](https://www.pixiv.net/info.php?id=6498)</blockquote>
+【開催概要】
+
+「雨天決行│しぐれうい中国初個展」supported by pixiv WAEN GALLERY &amp; アニメイト上海
+
+開催期間 ：2021年1月15日（金）～1月27日（水）
+
+開催場所 ：中外艺嘉文化空間
+
+主催：アニメイト上海
+
+協力：pixiv WAEN GALLERY
+
+所在地：上海市黄浦区福州路390号外文書店3階
+
+営業時間：10:00～18:00
+
+定休日：なし
+
+入場料：無料
+
+公式サイト（簡体字）：[https://www.bilibili.com/read/cv8931258](https://www.bilibili.com/read/cv8931258)
+
+
+
+
+
+SYL：
+
+<img src="https://img.saraba1st.com/forum/202012/22/225755qhhl8l9llw882bwl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep185drVEAAwbSz.jpg</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 22:57 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  倒影_  
+##### 25396#       发表于 2020-12-22 23:04
+
+
+
+ 本帖最后由 倒影_ 于 2020-12-22 23:05 编辑 
+
+看到说雪女吃的罐头一个能顶一天门票，搜了一下估计是这个<img src="https://p.sda1.dev/0/b448d471698f9ecb727f77947a292e3f/IMG_CMP_249071016.jpeg" referrerpolicy="no-referrer">
+有这钓凯子的功力看不起清洁工也是合情合理，只能说雪女当vtb太屈才了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25397#       发表于 2020-12-22 23:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/230945nj7j77wtfa6owge4.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201222230911.png</strong> (789.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 23:09 上传
+
+
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25398#       发表于 2020-12-22 23:15
+
+
+
+
+
+[Original song] "BLUE CLAPPER" short MV [Yukihana Lamy, Momosuzu Nene, Shishiro Botan, Omaru Polka]
+[https://www.youtube.com/watch?v=3qkXc6zheig](https://www.youtube.com/watch?v=3qkXc6zheig)
+
+
+
+性皇，我的性皇<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25399#       发表于 2020-12-22 23:17
+
+
+
+
+这带货的闹钟也太迷惑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25400#       发表于 2020-12-22 23:18
+
+
+
+
+这b级综艺节目也太草，顺便旁白是尊妈真的惊到我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25401#       发表于 2020-12-22 23:19
+
+
+
+
+没怎么看过b级片，只能说拍出来的录像有十几年前看的奥特曼的味道
+
+
+
+
+
+
+
+-----
+
+####  a38688090  
+##### 25402#       发表于 2020-12-22 23:21
+
+
+
+
+泥潭看到的
+
+据说是现场拍的
+<img src="https://img.nga.178.com/attachments/mon_202012/22/-zue37Q5-hzbgZbT3cSsg-iz.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.nga.178.com/attachments/mon_202012/22/-zue37Q5-4wiuK2dT3cSsg-fz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25403#       发表于 2020-12-22 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个B级片企划是用来救slee的吧
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25404#       发表于 2020-12-22 23:27
+
+
+
+
+松阪牛做罐头真够暴殄天物的
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25405#       发表于 2020-12-22 23:29
+
+
+
+ 本帖最后由 NBXX 于 2020-12-22 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49812880&amp;ptid=1969498" target="_blank">a38688090 发表于 2020-12-22 23:21</a>
+
+泥潭看到的
+
+据说是现场拍的</blockquote>
+HOLOLIVE推特官号发的
+[https://twitter.com/hololivetv/status/1341357370878771203](https://twitter.com/hololivetv/status/1341357370878771203)
+
+第二张是RISU截的
+[https://twitter.com/ayunda_risu/status/1341362036651876354](https://twitter.com/ayunda_risu/status/1341362036651876354)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 25406#       发表于 2020-12-22 23:29
+
+
+
+
+图都要偷nga的 还批判nga<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 25407#       发表于 2020-12-22 23:37
+
+
+
+
+2k关注点不对啊，虹已经沦落到做上世纪的电视广告了
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 25408#       发表于 2020-12-22 23:38
+
+
+
+
+你楼这用语，不愧是一堆lga叛忍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25409#       发表于 2020-12-22 23:41
+
+
+
+
+想看“现场拍的”可以直接翻翻Achan的推
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25410#       发表于 2020-12-22 23:43
+
+
+
+
+这个B级节目还是不够粗糙啊，mc选油男走姐、嘉宾反抗军挺有意思的，捧哏好逗
+
+全程在找尊都没找到，神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25411#       发表于 2020-12-22 23:45
+
+
+
+
+插播一条新时代相关，P家新人出道3天收获总督
+<[img src="https://i.loli.net/2020/12/22/eCrhWT1jpBzyUdx.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a38688090  
+##### 25412#       发表于 2020-12-22 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813029&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-22 23:41</a>
+
+想看“现场拍的”可以直接翻翻Achan的推</blockquote>
+反正2月线下那天就会见真章
+
+现在杏人在国内谁都可以踩一脚,自然不会有可信的评价
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25413#       发表于 2020-12-22 23:47
+
+
+
+
+这皮太那个了，帕里缺不缺德啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25414#       发表于 2020-12-22 23:48
+
+
+
+
+虽然节目不知道在干嘛，但是尊的旁白很色<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25415#       发表于 2020-12-22 23:49
+
+
+
+
+miku抄＃皇人设罢了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25416#       发表于 2020-12-22 23:49
+
+
+
+
+虽然paryi在你楼风评从来都是“不行”，但不可否认的是“田口家的女儿”在新时代就是很行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  

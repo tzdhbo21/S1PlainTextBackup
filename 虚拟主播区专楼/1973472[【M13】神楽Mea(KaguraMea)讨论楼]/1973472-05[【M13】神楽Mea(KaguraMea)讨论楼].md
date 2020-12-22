@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 16:09** 
+> ## **本文件最后更新于2020-12-23 00:09** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_pJMIb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_AURrR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7335,4 +7335,796 @@ tc，就算六天不播，tc总是有的吧！<img src="https://static.saraba1st
 
 
 
-                                   
+
+
+-----
+
+####  planetcd  
+##### 6422#       发表于 2020-12-22 16:18
+
+
+
+
+为什么平安夜不播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6423#       发表于 2020-12-22 16:23
+
+
+
+
+miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6424#       发表于 2020-12-22 17:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 6425#       发表于 2020-12-22 17:17
+
+
+
+
+可能是要补偿fanbox（
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6426#       发表于 2020-12-22 17:35
+
+
+
+
+小麻平安夜别搞太晚<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6427#       发表于 2020-12-22 17:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6428#       发表于 2020-12-22 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">能不能25号凌晨听到疲惫的TC手机播
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 6429#       发表于 2020-12-22 18:18
+
+
+
+
+这次卖不卖BD
+
+
+有没有消息
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6430#       发表于 2020-12-22 18:39
+
+
+
+
+明天六点B限
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6431#       发表于 2020-12-22 19:04
+
+
+
+ 本帖最后由 KL25001 于 2020-12-22 19:05 编辑 
+
+惊了，还有会员限定留档这种操作么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+油管会员社区留一周，这样就不会被油管AIgank了么
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6432#       发表于 2020-12-22 19:19
+
+
+
+
+才发现 25号是周五啊 一场直播都看不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+咩啊，自己的財布圣诞节没看直播的话，干什么去了这种事，要自己察觉啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6433#       发表于 2020-12-22 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810491&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2020-12-22 19:19</a>
+才发现 25号是周五啊 一场直播都看不了了
+
+咩啊，自己的財布圣诞节没看直播的话，干什么去了这种事， ...</blockquote>
+不是在挣钱吗
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 6434#       发表于 2020-12-22 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">可不要喘着气播tc啊
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6435#       发表于 2020-12-22 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810536&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2020-12-22 19:23</a>
+
+不是在挣钱吗</blockquote>
+当然是出去玩了 谁要上班啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6436#       发表于 2020-12-22 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810612&amp;ptid=1973472" target="_blank">菊花战士 发表于 2020-12-22 19:29</a>
+
+可不要喘着气播tc啊</blockquote>
+喘气hso 小麻的娇喘asmr<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6437#       发表于 2020-12-22 19:33
+
+
+
+
+啊啊啊啊娇喘asmr啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  htgz111  
+##### 6438#       发表于 2020-12-22 20:13
+
+
+
+
+自己喜欢的Vtuber圣诞节没播的话，去干什么了这种事要自己察觉啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6439#       发表于 2020-12-22 20:18
+
+
+
+
+唉，沉迷live录播无法自拔
+
+
+
+
+
+
+
+-----
+
+####  gzhao01  
+##### 6440#       发表于 2020-12-22 21:10
+
+
+
+
+live有人有弹幕文件吗
+
+
+
+
+
+
+
+-----
+
+####  依旧ing  
+##### 6441#       发表于 2020-12-22 21:21
+
+
+
+
+确实，有弹幕版录播的希望能也发一份
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6442#       发表于 2020-12-22 22:07
+
+
+
+
+开了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6443#       发表于 2020-12-22 22:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+她可以治愈坏心情
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6444#       发表于 2020-12-22 22:21
+
+
+
+
+“但是唱歌的话就算断气了也有窍门让大家听不出来”
+
+您还有这技能呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6445#       发表于 2020-12-22 22:33
+
+
+
+
+感觉今天她好兴奋
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6446#       发表于 2020-12-22 22:35
+
+
+
+ 本帖最后由 KL25001 于 2020-12-22 22:36 编辑 
+
+说出租车上没钱那段语速都起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+孩子很兴奋
+
+看来和圭力的企划有活啊，期待一下
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6447#       发表于 2020-12-22 22:37
+
+
+
+
+尼哥联动我急了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6448#       发表于 2020-12-22 22:37
+
+
+
+
+又要和圭利整大活了啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6449#       发表于 2020-12-22 22:41
+
+
+
+
+别整烂活就行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6450#       发表于 2020-12-22 22:43
+
+
+
+
+圆脸，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6451#       发表于 2020-12-22 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">坦起来了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6452#       发表于 2020-12-22 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6453#       发表于 2020-12-22 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">坦克民又赢了
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6454#       发表于 2020-12-22 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6455#       发表于 2020-12-22 23:01
+
+
+
+
+极光色的螃蟹？？
+
+<img src="https://img.saraba1st.com/forum/202012/22/230044haan5sodis4ii5a2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20201222230026466.jpg</strong> (33.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 23:00 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Eutopia| + 1|欢乐多|
+| 依旧ing| + 1|麻图加鹅|
+| sw11133| + 1|思路广|
+| 专业划水人员| + 1|新麻图 好评|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6456#       发表于 2020-12-22 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">刚才我一瞬间以为听错频道
+
+听到吊人故意的搞怪才发现没听错
+
+mea怎么回事，怎么一瞬间变强了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6457#       发表于 2020-12-22 23:09
+
+
+
+
+玩起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6458#       发表于 2020-12-22 23:17
+
+
+
+
+啊，怪物那边还是拉跨了
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6459#       发表于 2020-12-22 23:22
+
+
+
+
+听歌时间长就是好 有空打字还有空发）<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+昨天肌肉疼各种各样的难受 不过非常感谢大家的观看 自己在台上没法截图来着 然后拿到了录像之后想着再来截截图 虽然推特上有很多截图 但是阿宅截图的点和自己的不完全一样 还是想自己截图的啊 “完全看不到胖次” 想去看胖次才更糟糕吧 还好这是网上 要是在现实就被抓走了啊  和爱丽丝酱 那里最棒了啊 那里超紧张的 live里最紧张的部分 很惊讶人居然能紧张到这种程度  
+
+说起来今天直播前去煮方便味噌汤想拿来当晚饭来着 但是不知道咋了忘记把东西放进去了 最后变成只有味道的水了 可能今天运气不太好吧
+
+会员已经有第二年了 24号会更新乐一画的新的第二年的徽章 这次是草莓果酱的 
+
+新的衣服也有在考虑 给这个l2d翻新下这样的感觉 迎来新的第三年这样的感觉 还在检讨 还是不要想将来的事好！自己是尼特想不到那么远的事！
+
+自己live前三天还在给镜头啥的提意见来着 这样子好一点吧 虽然说尽量吧live的时候还是好好的实现了 不过自己没有期望那个变身的动画的哦！像Q娃一样好羞耻的感觉 还有跳舞的时候倒还好 开场前摆pose更累 要一直保持那个动作 特别是极光衣服变身完的那个动作要一直摆着等在那里 超累的 还有唱完之后的pose 也是得要摆好停住的 但是跳着舞一下停住腿都在抖  最后一首歌最后的时候差点没站稳 
+
+live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努努力最短也得是两年吧 live很累呀
+
+自己的人生目标是悠悠闲闲的直播 过着被阿宅宠着这样的生活 而且live的准备期间超级累的 自己不知道技术面 在彩排之前也还有很多事要忙的 被叫去这样那样的 就觉得好辛苦啊 “和fmt不同的感觉”确实 fmt是说一会唱一会说一会唱一会的感觉 live是歌歌歌 企划企划企划 歌歌歌这种感觉 自己来说唱歌比较轻松 企划的时候比较累 得一直说话反而更累 毕竟唱的时候不是一直在唱 还有点喘息的机会 气不够的时候也可以控制下不出那么大力没那么累 感觉就像是四年一次的大运动会 比自己学生时代的体育祭文化祭动的还要多 像是一个人搞了个运动会的感觉 本来是想多说说话的 不过还是不可能一直说话 自己的感想比较小学生 说了太多反而更没啥感觉（？）live结束之后完全就是燃尽的状态 本来还想着live前live后都来唱歌的来着 完全不行啊 
+
+对还有回家的时候坐的士 想着用linepay来付款 结果正好那时候维护了充不了钱 一开始还以为是line维护了还去附近的便利店取钱的 结果去ATM一看发现是银行维护了 要15到20分钟 然后急得不行的士的钱还越来越贵 虽然自己有个小金库 但是不想拿出来用在这种地方 是想用在更重要的地方的（？） 就去line上找人借钱 不知道要多少感觉会很贵了就说谁能借一万円啊！一个个问 搞得很可疑 如月也问了 如月还很疑惑的问mea桑你是怎么了么 变成可疑人士了 然后急着急着就到了可以充钱的时间了 自己卡这时间进去但是还是充不到钱 更急了 然后过了五分钟左右又可以了但是自己太急了没认真看 在+上面点了太多一下子充了6w円进linepay 自己除了点外卖也用不到linepay啊 还有上次去牙医那次也是那边只收现金结果自己不得不跑到很远的地方的ATM取钱的事那次之后想着要带现金来着但是就不是怎么想带钱包 感觉是病啊（？） 
+
+然后是预定 明天6点b限 后天平安夜想自己一个人待着来着 圣诞节这天3（4？）个预定 然后26号bw 圣诞节大家都是一个人呢..嘛今年疫情还是应该在家里和男友女友约会呢 啊 
+
+圣诞节预定很多 会和很多人见面 今天脑袋放空空的 是感冒了吗 原创曲的pv？阿巴阿巴我们唱歌吧 今天大概是一小时吧 和gueru的直播 是在gueru的频道 和他在网络上贴一起（？）打15分钟马里奥赛车 就有一种看到live的时候要做的那些地狱般的企划一样的心情 因为大家都说”和gueru一起过圣诞节 笑” 觉得真的和gueru一起联动感觉很有趣来着 并没有什么特别的想法的啊 有个人直播 可能是圣诞节或者圣诞夜 不过圣诞节这么多预定 可能还会是圣诞夜 和gueru的直播有趣吗？阿这，，，先不剧透吧 你想想是我们两个哦？大概就能懂了吧 和他的两人直播呢 虽然有过和他两个人直播过来着 虽然不知道算不算两个人直播（假炎上那次） 然后最近的联动也就那个人狼了 说起那个人狼 大家都轮着当了一遍狼 结果就自己没有当上！搞得自己不得不编真正的故事了 然后绞尽脑汁想了一个月 一直在想学校里的事 但是一直想不到 越离开学校反而越想不到 最后还是灵光一闪一样地想到了补习班里面的事 就感觉和妈妈聊小学的事的时候完全想不到 完全没有学校里的故事 不少都在直播里说过了 想真的故事真的太难了 比学校的考试还难 那个老师是叫那个名字吗？印象中应该是吧 不过当时更多的是开心 诶他也看AO啊！还有羡慕  大人真好啊 可以带着AO回家 我也想成为大人啊 其他的事没怎么记住 和他说过话吗？很kimo的老师 不想和他说话ww 唱歌吧 长啥样？如果菅田将晖不是演员的话感觉就这是个样子的吧的感觉 
+
+
+（学不知道哪个帅哥音live主说话w）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|好评加鹅|
+| BigLittle1999| + 1||
+| Mr.shelter| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6460#       发表于 2020-12-22 23:23
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/232301xwcm64aztual7mwk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>az.jpg</strong> (32.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 23:23 上传
+
+
+
+
+
+
+来了来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6461#       发表于 2020-12-22 23:26
+
+
+
+
+没滤镜，不挡脸，不对不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6462#       发表于 2020-12-22 23:51
+
+
+
+
+うえ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6463#       发表于 2020-12-22 23:52
+
+
+
+
+从前就觉得这个拟声词真的洗 脑而且很莫名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
