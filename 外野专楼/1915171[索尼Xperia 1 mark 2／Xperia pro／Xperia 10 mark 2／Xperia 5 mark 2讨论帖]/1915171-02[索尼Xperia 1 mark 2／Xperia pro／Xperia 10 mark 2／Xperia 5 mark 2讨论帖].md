@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-02 20:03** 
+> ## **本文件最后更新于2020-12-22 12:03** 
 
 
 
@@ -10216,4 +10216,551 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 
 
 
-                                
+
+
+-----
+
+####  我很费纸  
+##### 2013#       发表于 2020-12-3 07:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587635&amp;ptid=1915171" target="_blank">Tochika 发表于 2020-12-2 16:37</a>
+5ii刚到手，插了tf卡顶上一直有这个显示可以关吗，1都没有的</blockquote>
+选静音啊
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  义亦死吾亦死  
+##### 2014#       发表于 2020-12-3 08:08
+
+
+
+
+问问看，5400的港版是只有8G内存的嘛？
+
+
+
+
+
+
+
+-----
+
+####  9-11-2001  
+##### 2015#       发表于 2020-12-3 09:19
+
+
+
+
+发现一个长期关注的闲鱼卖家有大量国行拆封X1 II，四千九值得买吗...
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2016#       发表于 2020-12-3 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593658&amp;ptid=1915171" target="_blank">9-11-2001 发表于 2020-12-3 09:19</a>
+
+发现一个长期关注的闲鱼卖家有大量国行拆封X1 II，四千九值得买吗...</blockquote>
+咨询确认下，是国行12g的那应该是做慈善吧
+
+
+
+
+
+
+
+-----
+
+####  飞翔的兔子  
+##### 2017#       发表于 2020-12-3 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588774&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-12-2 18:21</a>
+
+淘宝能搜到一个号称全屏全透明的
+
+
+https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ...</blockquote>
+这家之前有搜到过，看评价不太敢买
+
+
+
+
+
+
+
+-----
+
+####  黑爪爪  
+##### 2018#       发表于 2020-12-3 11:57
+
+
+
+
+国行五兔入手后，发现短信没了多选后标为已读的功能，只能删，好烦
+有啥解决方案吗
+
+
+
+
+
+
+
+-----
+
+####  Tochika  
+##### 2019#       发表于 2020-12-3 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49592985&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-12-3 07:48</a>
+
+选静音啊
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+我一直都是静音的，那个图标是提示插入了SD卡，应该没有关联的吧
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2020#       发表于 2020-12-3 14:05
+
+
+
+ 本帖最后由 我很费纸 于 2020-12-3 14:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49595986&amp;ptid=1915171" target="_blank">Tochika 发表于 2020-12-3 12:50</a>
+我一直都是静音的，那个图标是提示插入了SD卡，应该没有关联的吧</blockquote>
+不想弹提示的消息，选通知静音啊，不是手机静音。你这截图都有答案了……那俩字“静音”，你点中以后在点“最小化”，就没有通知图标了啊。
+
+<img src="https://p.sda1.dev/0/decaa3f7e00c4895bd98e20f0ff774db/IMG_CMP_261358457.png" referrerpolicy="no-referrer">
+
+或者直接关掉这一类通知的消息提示就行了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Tochika  
+##### 2021#       发表于 2020-12-3 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596722&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-12-3 14:05</a>
+
+不想弹提示的消息，选通知静音啊，不是手机静音。你这截图都有答案了……那俩字“静音”，你点中以后在点 ...</blockquote>
+我点了静音后显示从左边跳到了右边，然后发现下面有个最小化，点了就没了，谢了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onemoment  
+##### 2022#       发表于 2020-12-5 04:44
+
+
+
+
+双十一提前购活动买的马克兔，说是保价，结果双十一降价我申请保价成功，然后拖了一个月没给退差价，今天问了说是不给保价，10月30-11月11日期间才可以<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2023#       发表于 2020-12-5 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49615416&amp;ptid=1915171" target="_blank">onemoment 发表于 2020-12-5 04:44</a>
+双十一提前购活动买的马克兔，说是保价，结果双十一降价我申请保价成功，然后拖了一个月没给退差价，今天问 ...</blockquote>
+🐶东吗？🐶东留好证据要求客服电话联系你……当年刚朋友买红米K30pro，也是遇上反手一个618降价，电脑客服扯皮两天不解决不价保，要求电话客服处理，一天解决退我300。
+
+只要证据充分就不要怕。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  onemoment  
+##### 2024#       发表于 2020-12-5 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49617378&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-12-5 12:23</a>
+
+🐶东吗？🐶东留好证据要求客服电话联系你……当年刚朋友买红米K30pro，也是遇上反手一个618降价，电脑客 ...</blockquote>
+索尼自己的商城，准备收集证据找一波了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2025#       发表于 2020-12-10 08:56
+
+
+
+
+5.2双十二官网优惠200外送充电宝
+
+
+
+
+
+
+
+-----
+
+####  Milkyway  
+##### 2026#       发表于 2020-12-14 18:39
+
+
+
+
+5ii的港版刷国行rom是不是就和国行没区别了
+
+
+
+
+
+
+
+-----
+
+####  renhono  
+##### 2027#       发表于 2020-12-14 20:15
+
+
+
+
+镜头膜有必要贴吗？贴上会不会影响拍照呀,好怕一不小心就把镜头划了
+
+
+
+
+
+
+
+-----
+
+####  87式老虎机  
+##### 2028#       发表于 2020-12-15 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">求助大佬们 XZP要怎么刷小米系统 顺便问下刷了小米系统能装谷歌套件吗
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2029#       发表于 2020-12-15 00:12
+
+
+
+<blockquote>引用第2025楼Milkyway于2020-12-14 18:39发表的  :
+
+5ii的港版刷国行rom是不是就和国行没区别了</blockquote>
+用起来没区别
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  红茶提督  
+##### 2030#       发表于 2020-12-15 15:52
+
+
+
+
+island多开搞不起了 还有啥软件能用啊
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 2031#       发表于 2020-12-15 17:46
+
+
+
+
+话说X51代有没有可能装摄影大师？
+
+
+----发送自 [Sony J9210,Android 10](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  アーチェ  
+##### 2032#       发表于 2020-12-16 20:44
+
+
+
+
+大佬预计一下，下次降价什么时候？
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2033#       发表于 2020-12-21 17:38
+
+
+
+
+Xperia 1 Ⅱ (XQ-AT72) 国行固件 58.0.A.4.520 链接：[https://pan.baidu.com/s/1oOYm-HJVr7GXVf54nro03A](https://pan.baidu.com/s/1oOYm-HJVr7GXVf54nro03A) 提取码：qt3y
+
+
+Xperia 1 (J9110) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1ElQGiN0msO_gkUS4tz_PJA](https://pan.baidu.com/s/1ElQGiN0msO_gkUS4tz_PJA) 提取码：5vre
+
+
+Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1GpK8A7Y9sjVvjk_wVOIw](https://pan.baidu.com/s/1B1GpK8A7Y9sjVvjk_wVOIw) 提取码：t9kn
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2034#       发表于 2020-12-21 21:21
+
+
+
+
+可以  把app提取出来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  Heero_Z  
+##### 2035#       发表于 2020-12-22 02:21
+
+
+
+
+马克兔更新了安卓11后动画似乎更流畅了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  13街的居住民  
+##### 2036#       发表于 2020-12-22 08:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">悬浮球求个推荐 谷歌搜的几个不好用
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2037#       发表于 2020-12-22 08:50
+
+
+
+ 本帖最后由 wizardasd 于 2020-12-22 09:39 编辑 
+
+5兔的安卓11，国行啥时候会更新啊？
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 2038#       发表于 2020-12-22 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803159&amp;ptid=1915171" target="_blank">Heero_Z 发表于 2020-12-22 02:21</a>
+ 马克兔更新了安卓11后动画似乎更流畅了  —— 来自 Sony XQ-AT51, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
+更新了11后有高刷么
+
+
+
+
+
+
+
+-----
+
+####  利物浦  
+##### 2039#       发表于 2020-12-22 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803796&amp;ptid=1915171" target="_blank">13街的居住民 发表于 2020-12-22 08:33</a>
+悬浮球求个推荐 谷歌搜的几个不好用</blockquote>
+悬浮菜单
+
+
+
+
+
+
+
+-----
+
+####  damacy  
+##### 2040#       发表于 2020-12-22 11:10
+
+
+
+
+想问下买5m2的机友们，你们的机子发热严重不，我这台看b站要不了多久就开始烫手
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2041#       发表于 2020-12-22 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803796&amp;ptid=1915171" target="_blank">13街的居住民 发表于 2020-12-22 08:33</a>
+
+悬浮球求个推荐 谷歌搜的几个不好用</blockquote>
+大部分功能用手势+侧感完美取代了，我用的fv悬浮球主要用它的截图文字提取功能
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2042#       发表于 2020-12-22 11:30
+
+
+
+<blockquote>damacy 发表于 2020-12-22 11:10
+想问下买5m2的机友们，你们的机子发热严重不，我这台看b站要不了多久就开始烫手 ...</blockquote>
+发热一般四大原因：
+
+后台过多
+
+信号过差
+
+屏幕过亮
+
+室温过高
+
+
+试试看排查一下？
+
+
+
+
+
+                               

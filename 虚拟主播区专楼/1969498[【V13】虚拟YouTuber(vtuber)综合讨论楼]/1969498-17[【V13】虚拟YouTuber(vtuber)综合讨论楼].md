@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 02:04** 
+> ## **本文件最后更新于2020-12-22 12:06** 
 
 
 
@@ -18572,10 +18572,11 @@ towa那首error谁上都是拼老命唱法，顾不得跳舞的，选曲问题�
 
 
 
- 参与人数 2战斗力 +4
+ 参与人数 3战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 鳳凰院クレア| + 1|好评加鹅|
 | turezyy| + 2|好评加鹅|
 | vorastrix| + 2|多谢多谢|
 
@@ -18871,4 +18872,588 @@ towa那首error谁上都是拼老命唱法，顾不得跳舞的，选曲问题�
 
 
 
-                 
+
+
+-----
+
+####  OldGlory  
+##### 24976#       发表于 2020-12-22 02:04
+
+
+
+
+不知道en的人看到四期没有3D偶像服什么感觉，我是鲨皇的话就要旁侧敲击一下了。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24977#       发表于 2020-12-22 04:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803087&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-22 02:04</a>
+
+不知道en的人看到四期没有3D偶像服什么感觉，我是鲨皇的话就要旁侧敲击一下了。 ...</blockquote>
+EN按照这个订阅早就该上3D了。。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 24978#       发表于 2020-12-22 04:27
+
+
+
+
+阿梅妹妹一天涨了2w5的订阅= =
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 24979#       发表于 2020-12-22 07:39
+
+
+
+
+杏这次2nd除了nico还有spwn，日本本土部分和海外大概都买的那边。动员力也没那么强吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 24980#       发表于 2020-12-22 08:00
+
+
+
+
+看了一下泥哥谭木口2nd的讨论度真的高啊……起了几十个帖子又是各种高楼，你虹的fes到时候我感觉可能单独的讨论贴都不会有
+
+
+
+
+
+
+
+-----
+
+####  a38688090  
+##### 24981#       发表于 2020-12-22 08:32
+
+
+
+<blockquote>TRW 发表于 2020-12-22 00:23
+杏粉的动员能力的确强，nico的timesheet约12k、和虹两国差不多，但推文数量大概有两倍，两国不过30万推文， ...</blockquote>
+两国那次有开N站以外的网站吗？
+
+有经验的人都知道只要有别的选择就不会选N站,那码率根本不能看
+
+这次应该被S站分流了一半以上
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24982#       发表于 2020-12-22 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803639&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-22 08:00</a>
+
+看了一下泥哥谭木口2nd的讨论度真的高啊……起了几十个帖子又是各种高楼，你虹的fes到时候我感觉可能单独的 ...</blockquote>
+毕竟杏奴春晚，好多人连装都不装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+lga阳光虹人不是挺活跃的吗，到时候多开几个楼顺劈一下这次木口live，热度不就起来了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 24983#       发表于 2020-12-22 09:14
+
+
+
+
+你虹的fes没人大张旗鼓的盗播当然没人讨论了，阴湿虹人的藏私心态没救了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 24984#       发表于 2020-12-22 09:24
+
+
+
+
+虹在中国的唯一优势就是够凉，想开都没人理，只能靠日本虹粉了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 24985#       发表于 2020-12-22 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802647&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-22 00:30</a>
+两国你要考虑到坐在场内的人没法发推</blockquote>
+两国万人想拉平差距有点难，而且木口那边2nd stage还是分开的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 24986#       发表于 2020-12-22 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 为什么还有阳光虹人在做fes能顺利举办的梦阿，先看看JP疫情扩散的速度再说吧
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 24987#       发表于 2020-12-22 10:13
+
+
+
+
+英国病毒变异出精英品种了，不知道会不会传到别的地方
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 24988#       发表于 2020-12-22 10:23
+
+
+
+
+日本这情况能在奥运前控制住就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 24989#       发表于 2020-12-22 10:24
+
+
+
+<[img src="https://i.loli.net/2020/12/22/w3ABzRGdsybrix9.gif" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/22/wYTW6ZMxkePAlfH.jpg" referrerpolicy="no-referrer">
+
+
+Beyond the Stage STAGE1　最速アフタートーク！　【# こえていくホロライブSTAGE1】
+[https://live2.nicovideo.jp/watch/lv329581687](https://live2.nicovideo.jp/watch/lv329581687)
+
+51:50起
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|如此怀念的bug|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 24990#       发表于 2020-12-22 10:26
+
+
+
+
+虹fes后有c99，c99后就是奥运(规定不能晚于夏天)，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一句话，我相信jp
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 24991#       发表于 2020-12-22 10:28
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-22 10:35 编辑 
+
+经典设备故障
+
+
+syl
+
+
+区区新冠，一年后，整个世界一定会惊诧日本○○的速度和勇气，立帖为证！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 24992#       发表于 2020-12-22 10:30
+
+
+
+
+尼哥谭，杏奴是压不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 24993#       发表于 2020-12-22 10:31
+
+
+
+
+jp政府早就已经不想管了，能不能开就看田角有多大胆。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 24994#       发表于 2020-12-22 10:41
+
+
+
+
+希望vtb要保护好自己，不要被资本家压榨
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 24995#       发表于 2020-12-22 10:55
+
+
+
+
+红楚蟹，すき<img src="https://p.sda1.dev/0/25743da7fdb56e4d1d96b573d2bac9ca/IMG_CMP_95013507.jpeg" referrerpolicy="no-referrer">
+[https://twitter.com/mi0w0im/status/1341031043306909697](https://twitter.com/mi0w0im/status/1341031043306909697)
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 24996#       发表于 2020-12-22 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49802777&amp;ptid=1969498" target="_blank">Kanchiki 发表于 2020-12-22 00:52:13</a>
+冲国野兔子可以在S1和ぺこアン相谈甚欢，不得不说也是一种奇景</blockquote>只不过是在走别人走过的路罢了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 24997#       发表于 2020-12-22 11:25
+
+
+
+ 本帖最后由 真田源次郎信繁 于 2020-12-22 12:02 编辑 
+
+昨天半夜nga有人开修女连续请假的
+
+只不过被喷了，然后删了
+
+
+开爱丽丝之外的虹人，就和nga有人在鹰宫的贴里说“转播虽然人气高，但挺好的，没有虚空打钱的”一样搞笑
+
+是谁让你以为谁都配被虚空打钱的，h____e吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这大概就是锤味吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+虹人基本都是b站互动人数远不如404的，404高的b站也就那样，404底边，去b站更底边
+
+这田角的任务也太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 24998#       发表于 2020-12-22 11:26
+
+
+
+
+希望管人观众保护好自己，不要再被资本家顶着廉价演者盾就给压榨了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 24999#       发表于 2020-12-22 11:49
+
+
+
+
+说红人b限  今天静凛不是b限
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25000#       发表于 2020-12-22 11:55
+
+
+
+
+在推上V最協決定戦看到诗音和百鬼一队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 25001#       发表于 2020-12-22 11:55
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-22 12:02 编辑 
+
+风怒？跟她们一队的是转生的红狐狸吧 实力应该是这队最强的？
+
+holo现在和外人联动参加比赛真少见
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 25002#       发表于 2020-12-22 11:57
+
+
+
+
+V最協有446吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 25003#       发表于 2020-12-22 11:58
+
+
+
+
+和現よみ一队啊，可以
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25004#       发表于 2020-12-22 12:00
+
+
+
+<[img src="https://i.loli.net/2020/12/22/Kt9DA6evqd8nmcO.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 25005#       发表于 2020-12-22 12:03
+
+
+
+
+卍组！
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 25006#       发表于 2020-12-22 12:04
+
+
+
+<blockquote>AKili 发表于 2020-12-22 11:57
+V最協有446吗</blockquote>
+V最协有cod吗
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 25007#       发表于 2020-12-22 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49805717&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-22 11:49</a>
+
+说红人b限  今天静凛不是b限</blockquote>
+不是B限雀魂么
+
+
+
+
+
+                
