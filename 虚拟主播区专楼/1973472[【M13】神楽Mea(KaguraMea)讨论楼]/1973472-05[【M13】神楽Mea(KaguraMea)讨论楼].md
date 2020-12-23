@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 18:08** 
+> ## **本文件最后更新于2020-12-23 22:09** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_UOM0b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_aUfj1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -8622,4 +8622,764 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 
 
 
-                                 
+
+
+-----
+
+####  Mr.shelter  
+##### 6487#       发表于 2020-12-23 18:10
+
+
+
+
+《烽火戏天狗》
+《牧天狗的孩子》
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6488#       发表于 2020-12-23 18:25
+
+
+
+
+这憨憨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+               
+
+但是她说得新冠喉咙坏掉那段直接给我整破防了，不安开始了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6489#       发表于 2020-12-23 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">别说了，我也开始不安了
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6490#       发表于 2020-12-23 18:39
+
+
+
+
+不去想就不会有事不去想就不会有事不去想就不会有事
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6491#       发表于 2020-12-23 18:39
+
+
+
+
+yhm竟在我身边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 6492#       发表于 2020-12-23 18:51
+
+
+
+
+这新冠真是让人不安
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6493#       发表于 2020-12-23 19:06
+
+
+
+
+我羊呢？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6494#       发表于 2020-12-23 19:10
+
+
+
+
+开了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6495#       发表于 2020-12-23 19:11
+
+
+
+
+鼻音有点重啊
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6496#       发表于 2020-12-23 19:16
+
+
+
+
+草 no1来了
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 6497#       发表于 2020-12-23 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是很会演傲娇嘛
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6498#       发表于 2020-12-23 19:34
+
+
+
+
+哼~~哈~~哼~~~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6499#       发表于 2020-12-23 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">suki
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6500#       发表于 2020-12-23 19:38
+
+
+
+
+猪党被公开处刑了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6501#       发表于 2020-12-23 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙 这是故意的还是巧合
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6502#       发表于 2020-12-23 19:42
+
+
+
+
+巧合吧 歌回唱过好几次了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6503#       发表于 2020-12-23 19:43
+
+
+
+
+一唱这歌就好多人说p家 不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6504#       发表于 2020-12-23 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌单类似都能强行关联吗，我还说这首印象最深的是和狗狗的人工合成版呢，声线简直配一嗓（
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6505#       发表于 2020-12-23 19:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822043&amp;ptid=1973472" target="_blank">笋狐 发表于 2020-12-23 19:48</a>
+
+歌单类似都能强行关联吗，我还说这首印象最深的是和狗狗的人工合成版呢，声线简直配一嗓（ ...</blockquote>
+链接来一个
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6506#       发表于 2020-12-23 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822062&amp;ptid=1973472" target="_blank">鷹書たかしょ 发表于 2020-12-23 19:49</a>
+
+链接来一个</blockquote>
+[https://www.bilibili.com/video/B ... 1494055069017455620](https://www.bilibili.com/video/BV1A4411e7TB?from=search&amp;seid=1494055069017455620)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鷹書たかしょ| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6507#       发表于 2020-12-23 19:59
+
+
+
+
+这包袱抖得好
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6508#       发表于 2020-12-23 20:11
+
+
+
+
+好！<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这一嗓子可以啊
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6509#       发表于 2020-12-23 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">帅不过三秒
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6510#       发表于 2020-12-23 20:35
+
+
+
+
+bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6511#       发表于 2020-12-23 20:37
+
+
+
+
+刚才我是不是听到她讲关西话了？？？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6512#       发表于 2020-12-23 20:39
+
+
+
+
+小巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6513#       发表于 2020-12-23 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6514#       发表于 2020-12-23 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">mua~
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6515#       发表于 2020-12-23 20:40
+
+
+
+
+选曲和互动好顺滑啊。
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 6516#       发表于 2020-12-23 20:40
+
+
+
+
+今天真的神回，好好玩
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6517#       发表于 2020-12-23 20:42
+
+
+
+
+今天神回只有直播能体会到 录播肯定就没内味了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6518#       发表于 2020-12-23 20:52
+
+
+
+
+神tm好耶
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6519#       发表于 2020-12-23 20:53
+
+
+
+
+不许好耶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6520#       发表于 2020-12-23 20:54
+
+
+
+
+bsyl，难受只看了后半部分，月兔！
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6521#       发表于 2020-12-23 20:56
+
+
+
+
+月兔来了，芜完美的月兔，mea好冷静啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6522#       发表于 2020-12-23 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6523#       发表于 2020-12-23 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">她真好
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6524#       发表于 2020-12-23 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6525#       发表于 2020-12-23 21:02
+
+
+
+
+总觉得会有回马枪
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6526#       发表于 2020-12-23 21:03
+
+
+
+
+爽到
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6527#       发表于 2020-12-23 21:03
+
+
+
+
+对线时间也占用歌回时间，能多唱会儿就好了。不过感觉她嗓子状态还差点。
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6528#       发表于 2020-12-23 21:04
+
+
+
+
+舒服了，不够看啊
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6529#       发表于 2020-12-23 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6530#       发表于 2020-12-23 21:12
+
+
+
+
+年会没得看太难受了呜呜呜呜
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6531#       发表于 2020-12-23 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">live上的メランコリック好甜
+
+得想办法骗这麻再唱一遍.jpg
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 6532#       发表于 2020-12-23 21:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                

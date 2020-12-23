@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 20:02** 
+> ## **本文件最后更新于2020-12-23 22:03** 
 
 
 
@@ -1252,7 +1252,7 @@ https://twitter.com/inre_kemomimi/status/1341685546007945218?s=20
 <img src="https://img.saraba1st.com/forum/202012/23/183913w4h1s1sk4f40sssl.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20201223183741.png</strong> (370.91 KB, 下载次数: 0)
+<strong>QQ截图20201223183741.png</strong> (370.91 KB, 下载次数: 1)
 
 下载附件
 
@@ -2182,4 +2182,1004 @@ pikamee我觉得过得不比你杏差啊，没公司抽成的sc到手和你杏�
 
 
 
-                                              
+
+
+-----
+
+####  Ketestrait  
+##### 25595#       发表于 2020-12-23 20:06
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gly1lnnvrwg20bu06ox6x.gif" referrerpolicy="no-referrer">
+
+
+2434这个年终总结真……太一般了，也就这个3D回合集比较好
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25596#       发表于 2020-12-23 20:07
+
+
+
+
+凪原凉菜这几天都在弹唱高达曲，针不戳<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25597#       发表于 2020-12-23 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822160&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-23 19:58</a>
+
+来点cr浓度，原本towa和花芽那队想邀请牡丹的，但是牡丹忙，没空，后来马自立找过来就刚好组队了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 原来是备胎
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25598#       发表于 2020-12-23 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822237&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-23 20:06</a>
+
+2434这个年终总结真……太一般了，也就这个3D回合集比较好</blockquote>
+大哥，教教怎么上传这么大的动图啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25599#       发表于 2020-12-23 20:13
+
+
+
+
+牡丹忙live忙到不打枪，这可太V了。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25600#       发表于 2020-12-23 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822315&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-23 20:12</a>
+
+大哥，教教怎么上传这么大的动图啊</blockquote>
+[https://chrome.google.com/websto ... kibhcangnpmcpdpmehk](https://chrome.google.com/webstore/detail/%E5%BE%AE%E5%8D%9A%E5%9B%BE%E5%BA%8A/pinjkilghdfhnkibhcangnpmcpdpmehk)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 25601#       发表于 2020-12-23 20:15
+
+
+
+
+35的新脑袋垃圾圆脸同款啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 25602#       发表于 2020-12-23 20:15
+
+
+
+
+35新3D少了点35味
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25603#       发表于 2020-12-23 20:16
+
+
+
+ 本帖最后由 Map-2 于 2020-12-23 20:23 编辑 
+
+<[img src="https://i.loli.net/2020/12/23/5J2NYMwBLGiCDro.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/23/xzTmjqHME5kQ6OU.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/23/t4g62zhWRvONE9o.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/23/j6OraP3DdkeqStG.png" referrerpolicy="no-referrer">
+
+<[img src="https://i.loli.net/2020/12/23/GsPmy2rTdXeiLQC.png" referrerpolicy="no-referrer">
+
+气质变了
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 25604#       发表于 2020-12-23 20:17
+
+
+
+
+446根本就不想打apex，然后就推给阿希了，转生到现在一次apex都没播过
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25605#       发表于 2020-12-23 20:18
+
+
+
+
+兔子安定的摄像头役
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 25606#       发表于 2020-12-23 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822319&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-23 20:13</a>
+
+牡丹忙live忙到不打枪，这可太V了。</blockquote>
+不要尬黑今天还工商cod呢，nene和同社前辈都请不动446打apex，你个脸都不熟的凭什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25607#       发表于 2020-12-23 20:19
+
+
+
+
+想问问芙宝新脸如何，不憨了是好事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25608#       发表于 2020-12-23 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">加了安全裤 cover你妈没了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25609#       发表于 2020-12-23 20:20
+
+
+
+
+纽パン被换成了安全裤还行
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 25610#       发表于 2020-12-23 20:20
+
+
+
+
+不够憨了，没内味
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25611#       发表于 2020-12-23 20:23
+
+
+
+
+O▲O没了，cover你🐎也没了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25612#       发表于 2020-12-23 20:23
+
+
+
+
+但是胖次还是能看到！好文明！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25613#       发表于 2020-12-23 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 25614#       发表于 2020-12-23 20:26
+
+
+
+
+安全裤不是胖次，不过侧乳还是可以的。35新的认真脸倒还不错，不过要是三角嘴直接删了的确不太好。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 25615#       发表于 2020-12-23 20:27
+
+
+
+
+面部捕捉似乎即时精确了些，手捕也是，看起来3D设备是升级了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25616#       发表于 2020-12-23 20:30
+
+
+
+
+凉菜是这么硬核的种厨吗，提一下流星装备都能界限化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25617#       发表于 2020-12-23 20:33
+
+
+
+
+szd<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25618#       发表于 2020-12-23 20:34
+
+
+
+
+啊兔子窗PEKOMIKO合宿回，MIKO家
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25619#       发表于 2020-12-23 20:35
+
+
+
+
+你楼要有人发疯了，我先提桶跑路
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 25620#       发表于 2020-12-23 20:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/203535kkad6rk2i6mutp6u.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201223213453.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 20:35 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/203529w02c03qc3xr3230a.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201223213347.png</strong> (71.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 20:35 上传
+
+
+
+
+
+
+雪山新地图太棒了，顺便预定一个30分钟后金憨憨被冰盔王吊打
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25621#       发表于 2020-12-23 20:37
+
+
+
+
+旧模型也换脸了啊，好欸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25622#       发表于 2020-12-23 20:38
+
+
+
+ 本帖最后由 Map-2 于 2020-12-23 20:40 编辑 
+
+<[img src="https://i.loli.net/2020/12/23/sFEjRWLDNcvAr2Z.png" referrerpolicy="no-referrer">
+
+<[img src="https://i.loli.net/2020/12/23/QiJx6cmesV1RnfX.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25623#       发表于 2020-12-23 20:39
+
+
+
+
+？
+
+
+天皇之前演出服也升级了吗？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25624#       发表于 2020-12-23 20:41
+
+
+
+
+这环节太爱马仕手游了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25625#       发表于 2020-12-23 20:42
+
+
+
+
+三套2.0+新曲，怪不得敢把天皇流放到印尼，35你就是新天皇
+
+这首是不算在那个《9周连续公布》里的吧？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25626#       发表于 2020-12-23 20:44
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-23 20:47 编辑 
+
+试试看能不能传个前三姐，真的很爱抖露
+
+<img src="http://ww1.sinaimg.cn/large/0065vZi6ly1gly2q6r3v5g30w80lqqvu.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25627#       发表于 2020-12-23 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822588&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-23 20:39</a>
+
+？
+
+
+天皇之前演出服也升级了吗？</blockquote>
+没有，live的时候演出服还是旧脸。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25628#       发表于 2020-12-23 20:49
+
+
+
+[https://hololive.booth.pm/items/2610969](https://hololive.booth.pm/items/2610969)
+
+<img src="https://img.saraba1st.com/forum/202012/23/204906mdddxbpcbqvvbcxb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>e26d2580-e220-471c-8b98-807737130e35_base_resized.jpg</strong> (353.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 20:49 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/204905xnswf9sbab9jlsd9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a20e0ed0-5cf5-45d1-bf69-b7bc34a93879_base_resized.jpg</strong> (193.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 20:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25629#       发表于 2020-12-23 20:49
+
+
+
+
+片雾烈火？！<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 25630#       发表于 2020-12-23 20:49
+
+
+
+
+不是r18，差评<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25631#       发表于 2020-12-23 20:51
+
+
+
+
+喷了，怎么可以一口气藏那么多牛
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25632#       发表于 2020-12-23 20:51
+
+
+
+ 本帖最后由 pansherry 于 2020-12-23 20:58 编辑 
+
+片雾烈火的烈写错了还行，其实片雾烈火本人在油管也有频道，人气嘛。。。
+
+走过路过可以点个订阅
+[https://www.youtube.com/user/WALTWORX](https://www.youtube.com/user/WALTWORX)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 25633#       发表于 2020-12-23 20:55
+
+
+
+
+猴楼就是日本管人界的“新时代”，杏奴指不定背后被人怎么骂呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 25634#       发表于 2020-12-23 20:56
+
+
+
+
+不是黄油差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25635#       发表于 2020-12-23 20:57
+
+
+
+
+一口气端了个满汉全席出来我要是35P我也爽死了其他人骂又怎么样
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25636#       发表于 2020-12-23 21:01
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/210147v4l3ctf14p5jm30n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep7IVEhVEAMfLuf.jpg</strong> (601.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 21:01 上传
+
+
+
+
+
+[https://twitter.com/suimya/status/1341730146022088706](https://twitter.com/suimya/status/1341730146022088706)
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25637#       发表于 2020-12-23 21:07
+
+
+
+ 本帖最后由 pansherry 于 2020-12-23 21:09 编辑 
+
+看486大转盘了
+
+最低保证10连草 看猜拳了
+
+赢了 20连 没二连猜拳差评
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25638#       发表于 2020-12-23 21:08
+
+
+
+
+月之，圣诞月之，穿得像圣诞树一样的圣诞月之<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/210806ofvq8ec8gz6f8qfw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 640 - 推文 _ Twitter - twitter.com.jpg</strong> (32.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 21:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25639#       发表于 2020-12-23 21:08
+
+
+
+
+阿喵喵，你给我多唱<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+sh真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25640#       发表于 2020-12-23 21:34
+
+
+
+
+V圈头部几个公司都开始大操大办event之后，V圈慢慢的也会出现大赛粉了，就像足球只看世界杯的，NBA只看总决赛的那种。到时候《老害》又要发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 25641#       发表于 2020-12-23 21:38
+
+
+
+ 本帖最后由 黑之和 于 2020-12-23 21:40 编辑 
+
+did吃鸡！好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+刚刚又紧张又燃
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 25642#       发表于 2020-12-23 21:49
+
+
+
+
+有可莉可不怕冰盔王。。。不过憨憨刮痧还是肯定的
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25643#       发表于 2020-12-23 21:54
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gly4rnf3vtj20yk0lojw0.jpg" referrerpolicy="no-referrer">
+[https://youtu.be/PfjCptcMf7E](https://youtu.be/PfjCptcMf7E)
+
+
+蓝狗这本来一个人瞎聊结果人越聊越多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25644#       发表于 2020-12-23 21:56
+
+
+
+
+片雾烈火、相良心，感觉好多年没看到过了，真怀念啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25645#       发表于 2020-12-23 22:00
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/215839slt59lttttg59l39.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|好耶~~~~|
+
+
+
+查看全部评分
+
+
+
+
+                                             
