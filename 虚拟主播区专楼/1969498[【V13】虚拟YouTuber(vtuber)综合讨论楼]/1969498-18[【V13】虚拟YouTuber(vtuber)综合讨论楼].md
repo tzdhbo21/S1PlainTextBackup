@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 00:03** 
+> ## **本文件最后更新于2020-12-24 02:04** 
 
 
 
@@ -3685,10 +3685,11 @@ syl泥潭没有诚哥的麻将吗？还是说我没找到
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 黑之和| + 1|草|
 | Kojimaru| + 1|这也太像了吧|
 
 
@@ -3743,10 +3744,16 @@ syl泥潭没有诚哥的麻将吗？还是说我没找到
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 7战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| aptx318| + 2|欢乐多|
+| 猫島かおる| + 1|至于|
+| admentus| + 1|过了过了，别别别|
+| nowaki| + 1|思路广|
+| pansherry| + 2|这|
+| asdhai| + 2|不至于不至于|
 | zerouuz| + 1|草草草|
 
 
@@ -3806,4 +3813,316 @@ syl泥潭没有诚哥的麻将吗？还是说我没找到
 
 
 
-                                            
+
+
+-----
+
+####  rzrbtk  
+##### 25675#       发表于 2020-12-24 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824360&amp;ptid=1969498" target="_blank">katern 发表于 2020-12-23 23:58</a>
+
+郡道这也太卑微了
+
+去贴小肥妹有机会届到吗</blockquote>
+看你怎么定义届到了，私下聊天那是有的，联动就、、、
+
+郡道完全把pkr当异世界生物啊，跟对葛叶似的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25676#       发表于 2020-12-24 00:12
+
+
+
+
+郡道这个半夜apex的封面图真是阴间到家了<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">，吓一大跳
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25677#       发表于 2020-12-24 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兽王记这小兵强度也太高了，是旧时代的魂
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25678#       发表于 2020-12-24 00:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/002009uz97ij9glj5eabhm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep718gwVgAAgDBU.jpg</strong> (693.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 00:20 上传
+
+
+
+
+
+
+https://twitter.com/NLO28636331/status/1341780182651133953?s=20
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 25679#       发表于 2020-12-24 00:22
+
+
+
+
+一直很少听也不关心管人翻唱，最近补年末音番突然想听听管人翻唱热门主流歌手比如三浦大知星野源aimer世终之类的歌(不要acg)是什么感觉，有什么好的推荐吗<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+J家民工的歌好像没见过正式翻唱，是会有版权炮？
+
+绿仙和翔哥翻唱的胡子男听过了，感觉还是差原曲一点……
+
+梅丽莎翻唱的那个夜驱？倒是意外地感觉比原曲更喜欢
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 25680#       发表于 2020-12-24 00:25
+
+
+
+
+小熊猫被敲打了，也该被敲打了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25681#       发表于 2020-12-24 00:25
+
+
+
+ 本帖最后由 katern 于 2020-12-24 00:29 编辑 
+
+All I Want For Christmas Is You/高峰伊織×江戸レナ×イトイ(Cover)
+[https://www.youtube.com/watch?v=jPTx6vT8TLU&amp;feature=youtu.be](https://www.youtube.com/watch?v=jPTx6vT8TLU&amp;feature=youtu.be)
+
+
+牛姨还行，选曲品味真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+【COVER】All I Want for Christmas Is You covered by te’resa
+[https://www.youtube.com/watch?v=OafdLnv9xYk](https://www.youtube.com/watch?v=OafdLnv9xYk)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25682#       发表于 2020-12-24 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824546&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-24 00:22</a>
+
+一直很少听也不关心管人翻唱，最近补年末音番突然想听听管人翻唱热门主流歌手比如三浦大知星野源aimer世终 ...</blockquote>
+[https://www.youtube.com/watch?v=Frgcg3ZROWg](https://www.youtube.com/watch?v=Frgcg3ZROWg)
+
+再会 (produced by Ayase) /LiSA×Uru -奏みみ × HACHI
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 25683#       发表于 2020-12-24 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824565&amp;ptid=1969498" target="_blank">free 发表于 2020-12-24 00:25</a>
+
+https://www.youtube.com/watch?v=Frgcg3ZROWg
+
+再会 (produced by Ayase) /LiSA×Uru -奏みみ × HACHI ...</blockquote>
+好！不愧是免指导！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25684#       发表于 2020-12-24 00:43
+
+
+
+
+sega这街机真不错啊，什么时候倒闭了把街机业务卖了上主机pc啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 25685#       发表于 2020-12-24 00:47
+
+
+
+
+discord官号之前在时雨妈频道留言：your art is great
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25686#       发表于 2020-12-24 00:53
+
+
+
+
+日村老巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/24/005258amvgqqqc7n7dp1ze.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじがやってる中居正広のブラックバラエティみたいなやつ伸びすぎじゃないか？.png</strong> (40.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 00:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25687#       发表于 2020-12-24 00:56
+
+
+
+
+discord这个官号有华硕DD那个感觉了
+[https://vtdata.info/youmitoru?a=UCZ5XnGb-3t7jCkXdawN2tkA](https://vtdata.info/youmitoru?a=UCZ5XnGb-3t7jCkXdawN2tkA)
+<[img src="https://i.loli.net/2020/12/24/7qzHtPBCLEjD2KJ.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25688#       发表于 2020-12-24 01:24
+
+
+
+
+discord什么时候解决多人爆音的问题
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25689#       发表于 2020-12-24 01:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">露露今晚玩好长时间，大满足
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25690#       发表于 2020-12-24 01:40
+
+
+
+
+是不是该看看哪些人今晚不播了😌
+
+
+
+
+
+                                           

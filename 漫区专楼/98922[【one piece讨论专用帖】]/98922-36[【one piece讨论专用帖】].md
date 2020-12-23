@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 14:01** 
+> ## **本文件最后更新于2020-12-24 02:01** 
 
 
 
@@ -23153,7 +23153,7 @@ ACE战力又拉垮了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_g2iT8" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
+<img src="https://i4.hoopchina.com.cn/hupuapp/bbs/35148872052606/thread_35148872052606_20201215225547_s_157780_w_592_h_1281_93144.jpg?x-oss-process=image/resize,w_800" height="1281" id="aimg_k2XgC" onclick="zoom(this, this.src, 0, 0, 0)" width="592"/)
 
 
 
@@ -27720,11 +27720,692 @@ wt一直在避免三刀流跟厨子分出明确的高下，真要一个打四皇
 
 
 
+ 本帖最后由 先手必胜 于 2020-12-23 17:00 编辑 
 <blockquote>cdfjg 发表于 2020-12-23 13:34
 这几年我经常看到很多双标，也许是读者长大，也许是别的什么原因
 
 比如很多人说罗西南迪为什么对罗这么好 ...</blockquote>
-因为分镜细节处理这些也在退化啊
+因为分镜细节处理这些也在退化啊，同样的剧情，但是感染力可差多了
+
+不会真有人觉得罗的回忆比乔巴的回忆强吧？
+
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 53972#       发表于 2020-12-23 14:22
+
+
+
+ 本帖最后由 evangelina 于 2020-12-23 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813366&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-23 00:20</a>
+
+罗杰说和路飞说的是同样的话，考虑到白胡子听了后笑到：你也老大不小了
+
+应该是句比较空想到有点可笑的话， ...</blockquote>
+
+
+你们已经默认one piece是个预言性质的东西了么......那别是连罗杰处刑台上那番话也是一定程度按预言走的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53973#       发表于 2020-12-23 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818089&amp;ptid=98922" target="_blank">先手必胜 发表于 2020-12-23 13:57</a>
+
+因为分镜细节处理这些也在退化啊，同样的剧情，但是感染力可差多了
+
+不会真有人觉得罗的回忆比乔巴的回忆强 ...</blockquote>
+跟回忆强不强没关系，争的是合理不合理
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53974#       发表于 2020-12-23 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49815703&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-23 10:31</a>
+
+再看吧，5打2还不知道怎么分呢
+
+wt一直在避免三刀流跟厨子分出明确的高下，真要一个打四皇一个打三灾，粉 ...</blockquote>
+尾田：懂了，山治开头就吃个瘪一直躺倒最后，索隆一个人打四皇和三灾。这样就不会有明确的高下了。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 53975#       发表于 2020-12-23 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818089&amp;ptid=98922" target="_blank">先手必胜 发表于 2020-12-23 13:57</a>
+
+因为分镜细节处理这些也在退化啊，同样的剧情，但是感染力可差多了
+
+不会真有人觉得罗的回忆比乔巴的回忆强 ...</blockquote>
+冬岛樱花的感染力是炸裂级别的，纵观目前为止整部OP也没几个回忆能比得上
+
+庸医这人没什么背景，或者说也没有特意去描述他的过去，就是一个纯粹的想拯救病人和国家的好人，与之相对的瓦波尔就是纯粹的暴君和昏君，一无是处的那种，形成了强烈的对比，能让读者恨得牙痒痒，我看OP最不爽的就是这垃圾怎么还没死
+
+罗的回忆感染力最强的是克拉松最后用果实能力掩护他逃走，从无声的痛哭过渡到被炮火掩盖的痛哭那里太强了，但回头仔细想想很多地方说不通，克拉松本身作为海军的卧底为了救一个小孩暴露自己，我虽然讨厌火鸡但他最后杀弟弟还有一个阵营不同的理由可以说得过去，感觉留了一线，就有点不舒服
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53976#       发表于 2020-12-23 14:42
+
+
+
+ 本帖最后由 DGIL 于 2020-12-23 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818342&amp;ptid=98922" target="_blank">evangelina 发表于 2020-12-23 14:22</a>
+
+你们已经默认one piece是个预言性质的东西了么......那别是连罗杰处刑台上那番话也是一定程度按预言走的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">肯定有这种效果，不然他们不会说 我们来得太早了
+
+然后硬等20年，不但能预言还记载了过去，所以知道了世界的真相，
+
+再结合伊姆看的那顶草帽
+
+（或许是800年前的Joy Boy的？另外路飞八成是这一代的Joy Boy了，就不知道是转世还是二代目）
+
+然后现在路飞现在带的草帽是罗杰传红发再传路飞的
+
+草帽已经是个有着传承意义的东西了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">罗杰在等一个命中注定的人，白胡子对黑胡子说，罗杰在等的一定不是你
+
+说明白胡子也从罗杰那儿知道了真相，就像前面有朋友说的，不一定是某一个人，但一定是预告了某些事情
+
+这件事，黑胡子和路飞都有可能做，或者说D之一族中最厉害人的会有机会。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">所以一定是个能知道世界真相，能揭露丑恶的世界政府的真正嘴脸的东西（对了。。还要是一个笑话且有点感人），然后在合适的时间由某个人揭露，全世界的人民在知道这个消息后，会很愤慨，会不耻这种丑恶行径，会憎恨讨厌世界政府，然后在这个人的带领下，大家团结起来揭竿而起对抗推翻世界政府
+
+，但是罗杰团去的时候要素没达成，所以来得太早了，只能干等
+
+他们等的是20年后一个合适的时机（海王白星没出生，合适的Joy Boy没到位），不是能看到未来的东西是不能那么精确的。。吧
+
+
+前面有朋友说到  拉普拉斯之箱  <img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+其实。。想来是类似的东西也不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+或者是个很牛逼的装置，有显示屏，古代超王国D一族黑科技，能看到过去和未来发生的事，<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">最后还能给全世界的人民看，大家一起知道世界的真相。（时夫人不是从800年前来的么，到时候没准还可以补一点戏
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53977#       发表于 2020-12-23 14:52
+
+
+
+
+为什么要等20年，最明显的地方是海王白星还没出生
+
+为什么黑胡子不是罗杰等的人，因为他不是罗杰喜欢的那种Joy Boy
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 53978#       发表于 2020-12-23 14:55
+
+
+
+
+分析到这份上我越看越觉得不是味道。以前一直觉得路飞如果能拿到OP，一定是因为他的伙伴，他的性格，现在搞成这副样子，就觉得就是钦定，到底为什么非路飞不可，你tm要是单纯就是预言，就真的恶心死了。你说路飞的特质，把其他人全都卷进自己周围发生的事之类的，罗杰肯定也有。这就钦定，就离谱。
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 53979#       发表于 2020-12-23 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818553&amp;ptid=98922" target="_blank">angelooo 发表于 2020-12-23 14:40</a>
+
+冬岛樱花的感染力是炸裂级别的，纵观目前为止整部OP也没几个回忆能比得上
+
+庸医这人没什么背景，或者说也 ...</blockquote>
+爹也能杀，弟弟更没关系
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 53980#       发表于 2020-12-23 15:25
+
+
+
+
+如果OP真是预言类相关
+
+个人觉得，路飞弄不好会不按照预言来走（脑中场景：路飞打开OP的一瞬间，表情普通带微笑：“原来是这个啊…” 随手就给了其他人）
+
+就像他对海贼王的理解一样，大多数人理解为称霸海域的人，他的理解为大海上最自由的人
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53981#       发表于 2020-12-23 15:36
+
+
+
+ 本帖最后由 DGIL 于 2020-12-23 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49819048&amp;ptid=98922" target="_blank">hagane 发表于 2020-12-23 15:25</a>
+
+如果OP真是预言类相关
+
+个人觉得，路飞弄不好会不按照预言来走（脑中场景：路飞打开OP的一瞬间，表情普通带 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">倒也不错，反正已经有个对OP毫无兴趣的白胡子在前了，雷利还说过，你们看到后未必会做出和我们一样的选择
+
+就是。。感觉可以直接大结局了。。
+
+路飞对推翻世界政府兴趣不大，把OP给了他爹龙，然后继续自己的冒险
+
+那么大海走遍了，海贼王也当上了，OP也拿到了，如何更自由呢？征途就是星尘的大海！
+
+最后直接略过战斗，要不画一点龙在带领革命军和世界人民与世界政府作战的几页，要不直接
+
+就是已经推翻了。
+
+而路飞最后喊出我们的冒险还没有终结！<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+结合D古国的黑科技阳光号走向星空<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 53982#       发表于 2020-12-23 15:36
+
+
+
+
+是时光机，某个d族人能坐着三王穿越回800年前改变历史，大陆会变回原来的样子。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53983#       发表于 2020-12-23 15:47
+
+
+
+ 本帖最后由 DGIL 于 2020-12-23 15:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818709&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-23 14:55</a>
+
+分析到这份上我越看越觉得不是味道。以前一直觉得路飞如果能拿到OP，一定是因为他的伙伴，他的性格，现在搞 ...</blockquote>
+其实还有一个改变，以前大家以为大结局是拿到OP，现在其实拿到OP才能让后面的剧情继续
+
+
+
+
+
+
+
+-----
+
+####  ceruleancard  
+##### 53984#       发表于 2020-12-23 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818553&amp;ptid=98922" target="_blank">angelooo 发表于 2020-12-23 14:40</a>
+
+冬岛樱花的感染力是炸裂级别的，纵观目前为止整部OP也没几个回忆能比得上
+
+庸医这人没什么背景，或者说也 ...</blockquote>
+罗可以说是被迫害的，克拉松对他心中有愧，克拉松拿果实救他实际上已经背叛了zf和海军，所以暴露什么的就无所谓了
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53985#       发表于 2020-12-23 18:20
+
+
+
+
+时空穿越也就罢了，我现在只希望wt在整个op本篇不要再去碰两个元素：
+
+
+1.平行世界
+
+
+2.死后世界/死人复生
+
+
+（望向隔壁山口山
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 53986#       发表于 2020-12-23 19:14
+
+
+
+ 本帖最后由 扭头就走 于 2020-12-23 19:15 编辑 
+
+预言说是最能逻辑融洽的吧
+
+
+我还是觉得，路飞和罗杰是命中注定的，D字必出预言中人
+
+
+预言这事就像霸气，都是慢慢铺垫起来的
+
+霸气最早是从路飞吓牛那逐渐开始铺开
+
+预言从大蛇这其实就开始有点铺了
+
+大蛇这对预言的恐惧和预言的真实都得到了验证。
+
+
+罗杰和路飞都是预言中人，但罗杰和路飞的选择不同，所以罗杰输了，但他在最后把信息传递出去，等待下一个D
+
+路飞就是那个D（黑胡子也是那个D）但路飞最终做了自己的决定，而这就是他和黑胡子和罗杰的区别
+
+所以最后他才是那个人
+
+
+但999这人人都认定都觉得要钦定，让我有点恶心了…他是预言之子，但他也靠着自己不是靠预言打出来的
+
+现在这tm人人都爱他，快成火影第二了
+
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53987#       发表于 2020-12-23 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813366&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-23 00:20</a>
+
+罗杰说和路飞说的是同样的话，考虑到白胡子听了后笑到：你也老大不小了
+
+应该是句比较空想到有点可笑的话， ...</blockquote>
+应该是比较孩子气的梦想，比如
+
+
+“我是要把海盗旗插在世界尽头的男人”
+
+
+
+
+
+
+
+-----
+
+####  暗杀翻看是  
+##### 53988#       发表于 2020-12-23 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821859&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-12-23 19:32</a>
+
+应该是比较孩子气的梦想，比如
+
+
+“我是要把海盗旗插在世界尽头的男人” ...</blockquote>
+要是这么简单就没必要藏那么久
+
+
+
+
+
+
+
+-----
+
+####  波隆  
+##### 53989#       发表于 2020-12-23 21:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818709&amp;ptid=98922" target="_blank">moeful 发表于 2020-12-23 14:55</a>
+
+分析到这份上我越看越觉得不是味道。以前一直觉得路飞如果能拿到OP，一定是因为他的伙伴，他的性格，现在搞 ...</blockquote>
+所以安排一个黑胡子啊
+
+最后是预言的话肯定也是预言类故事的经典套路：结果是固定的，但是路径和表现方式是未定的。路飞打爆世界政府，那些真正关心民众的人接管世界是一种结果，黑胡子打爆世界政府自己建立统治也是一种结果。从结果来看是一样的：世界政府垮了，世界改变了。
+
+至于为啥现在这帮人都紧密团结在路船长旗下，因为这帮人信念都比较一致啊，你像狱卒长和lv5囚犯这种信念的不就去认定黑胡子是天选之子了吗
+
+
+
+
+
+
+
+-----
+
+####  lqchina  
+##### 53990#       发表于 2020-12-23 22:08
+
+
+
+
+我觉得“连成一片的大秘宝”已经差不多算是剧透了，当然也可能是我自以为是。
+
+
+所谓连成一片，可能就是说的全世界岛屿将会连成一片，不再有海的分隔。
+
+
+当然不会是地壳变动导致岛屿真的连成一片，而可能是靠白星和其他类似级别的装置来建成的“桥路”，蛛网一般。到时候世界经济文化大融合，人类人鱼甚至鱼人和巨人都将再无物理隔阂。
+
+
+届时，世界政府赖以维生的海上霸权主义将会彻底崩塌。
+
+
+希望别让我猜中。
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 53991#       发表于 2020-12-23 22:52
+
+
+
+
+如果预言的话不就是打路飞的脸吗？而且是打整个ONE PIECE的脸，一切都按部就班，都照着剧本走，哪还有什么最自由？这一切就是个笑话，真这样的话，怪不得罗杰会边笑边哭。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 53992#       发表于 2020-12-23 22:57
+
+
+
+
+讲真如果真的是钦定的天选之子太恶心了，我比较喜欢那种歪打正着走了前人同一条路的，现在你跟我说有剧本？
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53993#       发表于 2020-12-23 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823399&amp;ptid=98922" target="_blank">lqchina 发表于 2020-12-23 22:08</a>
+
+我觉得“连成一片的大秘宝”已经差不多算是剧透了，当然也可能是我自以为是。
+
+
+所谓连成一片，可能就是说的 ...</blockquote>
+连成一片肯定是炸掉红土大陆
+
+
+现在就是红土大陆隔绝四海，尤其是红土大陆中心还是世界政府天龙人的权力象征玛丽乔亚
+
+
+五皇炸掉玛丽乔亚连累毁掉鱼人岛应该没跑了
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53994#       发表于 2020-12-23 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818553&amp;ptid=98922" target="_blank">angelooo 发表于 2020-12-23 14:40</a>
+
+冬岛樱花的感染力是炸裂级别的，纵观目前为止整部OP也没几个回忆能比得上
+
+庸医这人没什么背景，或者说也 ...</blockquote>
+空岛黄金钟+七水之都梅丽的剧情差不多可以并列海贼三峰
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53995#       发表于 2020-12-23 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821104&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-12-23 18:20</a>
+
+时空穿越也就罢了，我现在只希望wt在整个op本篇不要再去碰两个元素：
+
+
+1.平行世界</blockquote>
+死人复生被玩坏的不是隔壁眼睛忍者嘛
+
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 53996#       发表于 2020-12-23 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49819048&amp;ptid=98922" target="_blank">hagane 发表于 2020-12-23 15:25</a>
+
+如果OP真是预言类相关
+
+个人觉得，路飞弄不好会不按照预言来走（脑中场景：路飞打开OP的一瞬间，表情普通带 ...</blockquote>
+五皇两年后越来越傻缺了
+
+
+原来的大智若愚不知道跑哪里去了
+
+
+两年后五皇让人看得下去的操作大概是给卡二戴帽子？
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 53997#       发表于 2020-12-23 23:23
+
+
+
+
+一个想法，以前大智若愚的五皇是契合他认为拿到op成为海贼王=大海上最自由的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这些年不断智商下限的五皇是预言钦定的海贼王？不断下调智商是为了暗示靠预言而不是主人公魅力，以配合新版本<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53998#       发表于 2020-12-24 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823399&amp;ptid=98922" target="_blank">lqchina 发表于 2020-12-23 22:08</a>
+
+我觉得“连成一片的大秘宝”已经差不多算是剧透了，当然也可能是我自以为是。
+
+
+所谓连成一片，可能就是说的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53999#       发表于 2020-12-24 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821859&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-12-23 19:32</a>
+
+应该是比较孩子气的梦想，比如
+
+
+“我是要把海盗旗插在世界尽头的男人” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">那样的话，其实感觉不如说插在月亮上更好
+
+但是有个人已经先去了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54000#       发表于 2020-12-24 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823786&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-12-23 22:52</a>
+
+如果预言的话不就是打路飞的脸吗？而且是打整个ONE PIECE的脸，一切都按部就班，都照着剧本走，哪还有什么 ...</blockquote>
+如果是这种的话。。我感觉反而升华了。。
+
+倒是挺不错的
 
 
 
