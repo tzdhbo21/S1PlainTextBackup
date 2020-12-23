@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 22:03** 
+> ## **本文件最后更新于2020-12-24 00:03** 
 
 
 
@@ -3182,4 +3182,628 @@ did吃鸡！好帅啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                             
+
+
+-----
+
+####  黑之和  
+##### 25646#       发表于 2020-12-23 22:10
+
+
+
+
+看到阿葵的推惊觉那个要来了吗！圣诞葵<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25647#       发表于 2020-12-23 22:13
+
+
+
+
+所以486的二周年哪去了，是80的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25648#       发表于 2020-12-23 22:16
+
+
+
+
+你船搞个木口原创曲歌回挺弱智的，你搁这虚空团建呢？真以为你们那原创曲多少人爱听，人喜欢的是唱的人。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25649#       发表于 2020-12-23 22:17
+
+
+
+
+唱dustcell曲的ema真是毫无魅力可言
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25650#       发表于 2020-12-23 22:24
+
+
+
+
+试试嘛，虽然有些是不适合她唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25651#       发表于 2020-12-23 22:28
+
+
+
+
+为什么星街和马自立关于lamb的部分都要劈一下阿火，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|没关系，反正她也说了紧张|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25652#       发表于 2020-12-23 22:32
+
+
+
+
+错过船长的天球了，谁告诉我唱的好吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|nyanyanya|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25653#       发表于 2020-12-23 22:34
+
+
+
+
+回顾了一遍stage2，鸭鸭真的很难不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25654#       发表于 2020-12-23 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823609&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-23 22:32</a>
+错过船长的天球了，谁告诉我唱的好吗？</blockquote>
+很难不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少比阿夸色唱的好
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25655#       发表于 2020-12-23 22:40
+
+
+
+
+叶师今天打得还挺好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">有所长进啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25656#       发表于 2020-12-23 22:40
+
+
+
+
+听到这首又绷不住了，小林尽我真心实意一🔪杀了你的🐎<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25657#       发表于 2020-12-23 22:53
+
+
+
+
+啊祭圣诞重大发表
+会是什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25658#       发表于 2020-12-23 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823796&amp;ptid=1969498" target="_blank">-rm7- 发表于 2020-12-23 22:53</a>
+
+啊祭圣诞重大发表
+
+会是什么呢</blockquote>
+“给你们准备了礼物 虽然是要钱的”
+
+别看了 谷子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 25659#       发表于 2020-12-23 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">486到底是什么情况啊。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25660#       发表于 2020-12-23 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823803&amp;ptid=1969498" target="_blank">えびふらいおん 发表于 2020-12-23 22:53</a>
+“给你们准备了礼物 虽然是要钱的”
+
+别看了 谷子</blockquote>
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我这有点卡可能漏过去了
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25661#       发表于 2020-12-23 22:58
+
+
+
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25662#       发表于 2020-12-23 23:02
+
+
+
+
+乐元素能不能把这两个女人的账号ban了阿
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/230222k441y6it66zq78q2.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 035 - とこまちラジオ(仮) ＃3【戌亥とこ×星街すいせい】 - YouTub.png</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 23:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25663#       发表于 2020-12-23 23:08
+
+
+
+
+ban号也得有个正经理由的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25664#       发表于 2020-12-23 23:20
+
+
+
+
+唱完SSS说“死也不唱第二次了”“难过头了”  所以 你唱了干嘛  <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">   不会真有人喜欢团歌吧
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25665#       发表于 2020-12-23 23:31
+
+
+
+
+能出歌就随便你们es了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25666#       发表于 2020-12-23 23:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看你们一直骂又一直听下去也是挺了不起的。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25667#       发表于 2020-12-23 23:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/233557j2cbnonwnp2c7fl2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>342ac65c1038534397f66d648413b07eca8088be.jpg</strong> (187.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 23:35 上传
+
+
+
+
+
+
+记得明天来看哦<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+syl泥潭没有诚哥的麻将吗？还是说我没找到
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25668#       发表于 2020-12-23 23:48
+
+
+
+
+郡：“喜欢pekora的人不可能喜欢郡道吧.....pekora最喜欢了...”
+
+
+郡道<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25669#       发表于 2020-12-23 23:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/235003byndjgn64wxvbj4j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>天祥院英智を｢天使｣に例えて展開されてきた夢ノ咲時代からESになりThe Tempest Nigh.jpg</strong> (249.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 23:50 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/235049yn6vkdnnuvu6gwc6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>「Holy Angel's Carol : fine」.jpg</strong> (247.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 23:50 上传
+
+
+
+
+
+
+这图片...应该没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kojimaru| + 1|这也太像了吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25670#       发表于 2020-12-23 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824265&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-23 23:48</a>
+
+郡：“喜欢pekora的人不可能喜欢郡道吧.....pekora最喜欢了...”
+
+
+郡道，以后跟夏色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那你喜欢pekora吗？（小声
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25671#       发表于 2020-12-23 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824300&amp;ptid=1969498" target="_blank">zerouuz 发表于 2020-12-23 23:51</a>
+
+那你喜欢pekora吗？（小声</blockquote>
+我打算以后在评论栏发言都加peko后缀来给郡道一点信心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zerouuz| + 1|草草草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25672#       发表于 2020-12-23 23:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 别嗦了，天下能舔动兔皇的一只手都能数的过来
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25673#       发表于 2020-12-23 23:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">MD兽王记原来这么喜感的，看露露玩了才知道
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25674#       发表于 2020-12-23 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824308&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-23 23:52</a>
+
+我打算以后在评论栏发言都加peko后缀来给郡道一点信心</blockquote>
+郡道这也太卑微了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+去贴小肥妹有机会届到吗
+
+
+
+
+
+                                            
