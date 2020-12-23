@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-14 14:13** 
+> ## **本文件最后更新于2020-12-23 16:15** 
 
 
 
@@ -3177,4 +3177,589 @@ https://www.netsea.jp/shop/349007/shb-201218-yoyaku8?cx_search=new#&amp;g ...</b
 
 
 
-                                           
+
+
+-----
+
+####  HGCG  
+##### 182#         楼主| 发表于 2020-12-14 18:44
+
+
+
+
+去年的女人 空
+
+今年的女人 陆
+
+明年的女人 海
+
+她们还差一对巨大的翅膀
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 183#       发表于 2020-12-14 19:59
+
+
+
+
+人鱼和紫毛第三阶段了，等声优，其他的观望
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 184#         楼主| 发表于 2020-12-14 23:09
+
+
+
+<img src="http://wx3.sinaimg.cn/mw1024/e7cbae74gy1glns7oljyuj21hb0ss45t.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/mw1024/e7cbae74gy1glns7s5fraj21h90sx45q.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/mw1024/e7cbae74gy1glns7vn2svj21hc0sx102.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/mw1024/e7cbae74gy1glns81690fj21hb0sraem.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/mw1024/e7cbae74gy1glns84zylij21hc0su42j.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 185#       发表于 2020-12-15 16:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/15/161802d3ib9o9gzn36zn36.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201215161743.jpg</strong> (52.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-15 16:18 上传
+
+
+
+
+
+
+未确认情报
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 186#       发表于 2020-12-15 16:20
+
+
+
+<blockquote>三合一出现 发表于 2020-12-14 12:44
+今年的女人到底受了什么刺激了。
+
+
+海螺黄的眼影太吓人了。</blockquote>
+那个是彩色睫毛吧
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 187#       发表于 2020-12-15 16:21
+
+
+
+
+这啥？玩具？
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 188#       发表于 2020-12-15 16:22
+
+
+
+<blockquote>吹雪桑大胜利 发表于 2020-12-15 16:18
+未确认情报</blockquote>
+草，不是flamenco（弗拉明戈舞）而是flamingo（火烈鸟）啊，之前情报弄错了呢
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 189#       发表于 2020-12-15 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个居然是眼睫毛来的吗。
+
+但是今年的色情元素真多啊……
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 190#       发表于 2020-12-15 17:55
+
+
+
+
+staff什么时候公开？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 191#         楼主| 发表于 2020-12-15 18:57
+
+
+
+<img src="http://wx3.sinaimg.cn/mw1024/e7cbae74gy1glopg4nsyuj20m80et1fw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 192#       发表于 2020-12-15 20:04
+
+
+
+
+我特么现在严重怀疑**叫pururun,冒泡泡的拟声词哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 193#       发表于 2020-12-15 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49732065&amp;ptid=1963832" target="_blank">浅悠梦Jasmine 发表于 2020-12-15 20:04</a>
+
+我特么现在严重怀疑**叫pururun,冒泡泡的拟声词哈哈哈哈哈</blockquote>
+海豹
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 194#         楼主| 发表于 2020-12-15 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49729217&amp;ptid=1963832" target="_blank">吹雪桑大胜利 发表于 2020-12-15 16:18</a>
+
+未确认情报</blockquote>
+这英文是鬼佬自己写的吧
+
+未必准
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 195#       发表于 2020-12-16 06:03
+
+
+
+<blockquote>HGCG 发表于 2020-12-15 18:57
+</blockquote>
+有去马赛克工具吗
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 196#         楼主| 发表于 2020-12-23 07:40
+
+
+
+
+剧场版秋季
+
+也不知道是不是单独剧场版
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 197#       发表于 2020-12-23 12:27
+
+
+
+
+夏海まなつ
+一之賴みのり
+滝沢あすか
+涼村さんが
+ローラ
+くるるん
+
+
+
+
+
+
+
+-----
+
+####  spadepie  
+##### 198#       发表于 2020-12-23 12:36
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1glxo3tw3ozj21560u0twf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 199#       发表于 2020-12-23 12:43
+
+
+
+
+新品种 虹主
+
+
+
+
+
+
+
+-----
+
+####  坂上あゆみ  
+##### 200#       发表于 2020-12-23 12:47
+
+
+
+
+珊瑚的人间体好可爱~
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 201#       发表于 2020-12-23 12:55
+
+
+
+
+看起来就很能打的样子，希望能多点作画回<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 202#       发表于 2020-12-23 13:06
+
+
+
+
+这力量感徒手能锤爆坦克吧
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 203#       发表于 2020-12-23 13:17
+
+
+
+
+大姐姐我喜欢，好帅好美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 204#       发表于 2020-12-23 13:32
+
+
+
+
+会有点担心黄色的人气，感觉不是亲女儿了（x
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 205#       发表于 2020-12-23 13:47
+
+
+
+
+看着好“系构：村山功”啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 206#       发表于 2020-12-23 13:51
+
+
+
+<blockquote>天邪鬼 发表于 2020-12-23 13:47
+看着好“系构：村山功”啊</blockquote>
+这位大人物有什么黑历史
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 207#       发表于 2020-12-23 14:07
+
+
+
+
+明年女人的人间体真香
+
+
+
+
+
+
+
+-----
+
+####  本间日阳  
+##### 208#       发表于 2020-12-23 14:10
+
+
+
+
+人鱼这是个非q娃主角？以后会不会丧失人权
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 209#       发表于 2020-12-23 14:19
+
+
+
+
+有点小辣妹的感觉，香<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 210#       发表于 2020-12-23 14:45
+
+
+
+
+其他人都在摆舞蹈姿势，只有虹主在大喊“我要打十个！”
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 211#       发表于 2020-12-23 15:24
+
+
+
+
+红毛正中好球区<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+粉主的姿势是ZZ吗？<img src="https://static.saraba1st.com/image/smiley/bundam2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 212#       发表于 2020-12-23 15:34
+
+
+
+
+突然反应过来一个问题，这人设看着像中谷亲妈的，公主粉主姓春野，这次虹色主角姓夏海，以后是不是要把秋冬都凑齐hhhhh
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 213#       发表于 2020-12-23 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818033&amp;ptid=1963832" target="_blank">csolfans 发表于 2020-12-23 13:51</a>
+这位大人物有什么黑历史</blockquote>
+黑历史？什么黑历史？
+这位写的可都是q娃名作
+我已经等不及最后一集长大的主角跟人鱼久别重逢，几十集的白开水一下子变成糖水流出来，上面和下面一起流<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+不过要是真的来个寿命论结局，几十年后已经成为海洋环境保护大使以及海洋环境研究专家的夏海看到了容颜如旧的人鱼朝她走来，那我愿称你热q为最强
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 214#       发表于 2020-12-23 15:59
+
+
+
+
+虹主海报这个姿势不错啊，有种武术高手的感觉。看来不用担心泥潭经典回复“今年会不会没打斗”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          

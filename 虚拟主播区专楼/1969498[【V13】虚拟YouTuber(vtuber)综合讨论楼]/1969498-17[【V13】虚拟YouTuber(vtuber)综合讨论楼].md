@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 12:03** 
+> ## **本文件最后更新于2020-12-23 16:05** 
 
 
 
@@ -27151,6 +27151,25 @@ SYL：
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| podball| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -27886,10 +27905,11 @@ C组叶师出现感觉挺稳，B组葛皇危了。
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| GToojer| + 1|好评加鹅|
 | admentus| + 1|肋兵器是神|
 
 
@@ -28353,10 +28373,11 @@ mana附上的链接就是画师的微博嘛
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| podball| + 1|好评加鹅|
 | ylssb10438| + 1|好评加鹅|
 
 
@@ -28517,6 +28538,579 @@ en自己同接都腰斩了 意思hen又在干扩圈给别人发展的事，hen�
 
 郡道又摊上啥事？
 
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25474#       发表于 2020-12-23 12:14
+
+
+
+
+不是很懂炎郡道的人<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+三天两头就来整一次真的有空
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25475#       发表于 2020-12-23 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49815128&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-23 09:43</a>
+看不懂日文。。多谢了</blockquote>
+删动态了？今天看不到了
+昨晚上有人截的
+<img src="https://p.sda1.dev/0/ce2865578c8eafeba4af40917ee52fda/IMG_CMP_163208396.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 25476#       发表于 2020-12-23 12:15
+
+
+
+<blockquote>ShuTk4O 发表于 2020-12-23 09:51
+油管给我推荐的。靠学英语出道一个月14w粉，而且sc真的是usd不是php。
+
+这就是新时代白皮mmr的力量吗？ ...</blockquote>
+数据泄露真可怕，之前完全不知道这v的存在，这楼看了一眼后，现在点开油管第一个视频就是她的...
+
+
+
+
+
+
+
+-----
+
+####  Veloma  
+##### 25477#       发表于 2020-12-23 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49816975&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-23 12:15</a>
+
+数据泄露真可怕，之前完全不知道这v的存在，这楼看了一眼后，现在点开油管第一个视频就是她的... ...</blockquote>
+试了下居然真的是<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25478#       发表于 2020-12-23 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49816973&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-23 12:15</a>
+
+删动态了？今天看不到了
+
+昨晚上有人截的</blockquote>
+我也是找了一圈没找到。。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25479#       发表于 2020-12-23 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49817061&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-23 12:20</a>
+我也是找了一圈没找到。。</blockquote>
+昨天我发的那个是我亲自截的，半夜还在的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25480#       发表于 2020-12-23 12:22
+
+
+
+
+不快女王又不是说着玩的，只要活着就能让郡an不快。
+
+不过我看郡道是无关心啦，昨天晚上说要搞观众参加型麻将，进雀魂画面之后展示了一下新场景新音乐，觉得和斎藤很搭，于是把自己的live2D和斎藤立绘放在一起一句话不说摆了三分钟，
+
+又突发奇想搞斎藤郡道联动，对着斎藤立绘单方面讲了近20分钟的话，和空气装作好像在亲密对话的样子笑得很开心，
+
+让我想起了以前郡道刚出道就和兔子老师（郡道幻想出来的空气朋友）联动玩游戏的时候，从以前到现在都脑子有点、、、
+
+郡道如果在中国能上社会新闻吧。
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/122201vttqf4zw0d348hrh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 634 - 微博搜索 - s.weibo.com.jpg</strong> (171.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 12:22 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 25481#       发表于 2020-12-23 12:23
+
+
+
+
+草，数据泄露真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+十四万订阅十万再生，这粉丝活跃度...... 
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25482#       发表于 2020-12-23 12:31
+
+
+
+
+#VTuber最協決定戦 にこのメンバーで出場します！
+
+チーム名｢とーますGO☆GO｣
+
+リーダー
+
+常闇トワ(@tokoyamitowa )
+
+メンバー
+
+夏色まつり
+
+花芽すみれ(@sumire_kaga)
+
+
+優勝目指して頑張るぞ(๑•̀д•́ฅ✧
+
+阿希洗洗睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25483#       发表于 2020-12-23 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49817203&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2020-12-23 12:31</a>
+#VTuber最協決定戦 にこのメンバーで出場します！
+
+チーム名｢とーますGO☆GO｣
+
+リーダー</blockquote>
+没看过花芽
+大概是个什么段位的
+
+不过这队伍，大概率。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25484#       发表于 2020-12-23 12:35
+
+
+
+ 本帖最后由 Map-2 于 2020-12-23 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49817237&amp;ptid=1969498" target="_blank">-rm7- 发表于 2020-12-23 12:34</a>
+没看过花芽
+大概是个什么段位的</blockquote>
+钻石，女V里面算强的了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 25485#       发表于 2020-12-23 12:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花芽姐也带不动这两个cylx吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 25486#       发表于 2020-12-23 12:40
+
+
+
+
+数据泄露是什么意思。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25487#       发表于 2020-12-23 12:46
+
+
+
+
+要论带的话。。我印象里只有大猩猩是真的能带动cylx
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25488#       发表于 2020-12-23 12:53
+
+
+
+ 本帖最后由 FCCHua 于 2020-12-23 12:58 编辑 
+
+花芽姐挺强的，这么看上次参加的一之濑队都分开了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25489#       发表于 2020-12-23 12:57
+
+
+
+
+うるは嬢誕生日おめでとう<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/125722bg64gaoak9aiob0g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 637 - (1) 一ノ瀬うるは🌠LVG (@uruha_ichinose) _ Twitter - twitt.jpg</strong> (62.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 12:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25490#       发表于 2020-12-23 13:02
+
+
+
+
+丽姐可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+晚上还有新衣服记得来看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25491#       发表于 2020-12-23 13:03
+
+
+
+
+看，都可以看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25492#       发表于 2020-12-23 13:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花芽姐妹打枪挺强的，以前跟aya48一起参加过pubg的最协，还拿了第三还是第四来着（486是完全不会玩的）
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25493#       发表于 2020-12-23 13:42
+
+
+
+
+v综是真不看打枪的啊……花芽姐上届cr杯的冠军，这届不出意外也是前五的水平，和胡桃，bora一个级别的超级大腿
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25494#       发表于 2020-12-23 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上届是ras桑大腿吧
+花芽姐已经是两届cr冠军了，不过和一之濑一样有点退化，原gg队最强是胡桃
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25495#       发表于 2020-12-23 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813526&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-23 00:43</a>
+唯独不想让叶师和长尾景撞上
+
+
+长尾景好可怕的</blockquote>
+<img src="https://p.sda1.dev/0/9825c25cf4115a6d1a0b01b601954cd7/IMG_CMP_112346262.jpeg" referrerpolicy="no-referrer">
+b组有意思，阴湿决战，谁是这回马车杯的主人公就从这里决定吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25496#       发表于 2020-12-23 14:24
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-23 14:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出道不久个人势也有钱买赞吗？
+<img src="https://p.sda1.dev/0/00903a8f41d86351d86544c492e1ddac/-50fc1369c908a853.png" referrerpolicy="no-referrer">
+最高同接5439。
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 25497#       发表于 2020-12-23 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818367&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-23 14:24</a>
+
+出道不久个人势也有钱买赞吗？
+
+
+最高同接5439。</blockquote>
+洋人真多，不过感觉不是很好舔，最低要求要会一点英语
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25498#       发表于 2020-12-23 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818367&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-23 14:24</a>
+
+出道不久个人势也有钱买赞吗？
+
+
+最高同接5439。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播用多邻国学语言，b站学中文活在油管复刻我靠
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 25499#       发表于 2020-12-23 15:02
+
+
+
+
+人家十几万点击有一万赞不是很正常？
+点赞是为了表彰她舔白皮的态度，不同接是受不了丈育yhm的虚无直播，很合理
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 25500#       发表于 2020-12-23 15:21
+
+
+
+
+cnm 狗屁杏找花芽姐干嘛 能不能爬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai|-2|爬|
+
+
+
+查看全部评分
 
 
 
