@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 10:03** 
+> ## **本文件最后更新于2020-12-23 12:03** 
 
 
 
@@ -26484,10 +26484,11 @@ A lot of Japanese on twitter are posting NND screencaps, wonder what % is on eac
 
 
 
- 参与人数 3战斗力 +1
+ 参与人数 4战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 间隙白垢|-1|说的对|
 | winda| + 1|在此一役|
 | 空集| + 1|急了|
 | zerouuz|-1|白皮还掏钱？欢乐多|
@@ -28176,4 +28177,347 @@ mana附上的链接就是画师的微博嘛
 
 
 
- 
+
+
+-----
+
+####  yla  
+##### 25455#       发表于 2020-12-23 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">你们说小福的新衣服是哪件啊，最近又有新衣？还是说上次的那身魔法少女
+
+魔法少女那身就颜色素了点，看久了眼睛疼，其他也没什么问题吧
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 25456#       发表于 2020-12-23 10:08
+
+
+
+
+昨晚kr的钢琴串烧居然是现场弹的？
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 25457#       发表于 2020-12-23 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49812084&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2020-12-22 21:59</a>
+
+等等，有谁给我科普一下no变态老哥是怎么回事嘛，我怎么感觉他的人设发生了很大的变化 ...</blockquote>
+还能怎么回事，不就是嗷一声疯了呗。楼里突然疯的，间歇疯的，一直疯的多了去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25458#       发表于 2020-12-23 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49815227&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-23 09:51</a>
+
+油管给我推荐的。靠学英语出道一个月14w粉，而且sc真的是usd不是php。
+
+这就是新时代白皮mmr的力量吗？ ...</blockquote>
+清楚版本的ame，而且不是一个月14w粉丝，是一周10万，目前每天2-3w的速度增加中
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25459#       发表于 2020-12-23 10:34
+
+
+
+
+我周一看她才8w粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，yhm就应该在b站学中文在404学英语
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 25460#       发表于 2020-12-23 10:35
+
+
+
+<blockquote>Kojimaru 发表于 2020-12-23 10:34
+我周一看她才8w粉，yhm就应该在b站学中文在404学英语</blockquote>
+正确的学习使人快乐
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25461#       发表于 2020-12-23 10:38
+
+
+
+
+光是学英语怎么也做不到一天23w吧，有谁引流了还是买推荐了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 25462#       发表于 2020-12-23 10:42
+
+
+
+
+应该是有推荐的，这人这几天经常出现在我油管首页，当然也可能是看holoen的白皮有太多一并看她
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25463#       发表于 2020-12-23 10:44
+
+
+
+
+基本上是看ame的dd狂看ame妹妹，然后yt的算法就觉得所有看v的都应喜欢看ame妹妹，然后疯狂推荐
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25464#       发表于 2020-12-23 10:45
+
+
+
+
+红白果然追加了YOASOBI<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25465#       发表于 2020-12-23 10:46
+
+
+
+
+ame的画师推特也在给ame妹妹也引流啊，几万赞呢
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 25466#       发表于 2020-12-23 10:48
+
+
+
+
+...... 舔白皮真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">真是财富密码啊唉
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25467#       发表于 2020-12-23 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813497&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-23 00:38</a>
+
+太军为什么不去774？被梅小姐拦着了？</blockquote>
+<img src="https://p.sda1.dev/0/cab6d3b4e42e09d7eb2f96171b9bbb57/HNNOBPII_4YLO%5D@Z04W%7DY26.png" referrerpolicy="no-referrer">
+
+怎么不去hololive<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25468#       发表于 2020-12-23 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49815942&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-23 10:50</a>
+
+怎么不去hololive</blockquote>
+大亏会给人内推？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鹦与鹉  
+##### 25469#       发表于 2020-12-23 10:51
+
+
+
+
+鲸落前有一段时间没看v了，774评价好起来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25470#       发表于 2020-12-23 10:53
+
+
+
+
+油管白皮最多，不舔白皮舔谁<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25471#       发表于 2020-12-23 11:18
+
+
+
+
+只要能蹭上杏en那你就是最新最in的仔，这就是真正的人上人吧，人均自带保底50w的订阅，蹭上就有
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 25472#       发表于 2020-12-23 11:22
+
+
+
+
+en自己同接都腰斩了 意思hen又在干扩圈给别人发展的事，hen二期呢，好急。
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 25473#       发表于 2020-12-23 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">没搞懂
+
+郡道又摊上啥事？
+
+
+
+
+
