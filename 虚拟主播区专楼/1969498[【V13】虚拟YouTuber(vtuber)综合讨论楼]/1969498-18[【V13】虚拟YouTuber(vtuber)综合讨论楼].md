@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 18:03** 
+> ## **本文件最后更新于2020-12-23 20:02** 
 
 
 
@@ -643,10 +643,11 @@ syl，哈哈哈哈，杏奴差不多得了
 
 
 
- 参与人数 8战斗力 +4
+ 参与人数 9战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 巨尻压面饼| + 1||
 | OldGlory| + 1|这为啥扣|
 | caupollen| + 1|为啥要扣分，不挺乐的吗|
 | 奥尔斯蒂德| + 1|欢乐多|
@@ -850,9 +851,29 @@ syl，哈哈哈哈，杏奴差不多得了
 
 
 
+ 本帖最后由 colodes 于 2020-12-23 18:32 编辑 
 
-应该截萝卜子振袖舞那段，对比比较真实强烈，nb姐姐也不会生气
+是前crew吗，那没事了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|前crew屁股的id|
+
+
+
+查看全部评分
 
 
 
@@ -866,11 +887,1299 @@ syl，哈哈哈哈，杏奴差不多得了
 
 
 
+ 本帖最后由 pansherry 于 2020-12-23 18:07 编辑 
 
 该看大福的地狱联谊联动了
 
+前情提要好长
+
+
+草还是3D
 
 
 
 
-                                                
+
+
+
+-----
+
+####  rzrbtk  
+##### 25539#       发表于 2020-12-23 18:07
+
+
+
+
+还好大家没怎么看虹live，摆手都被批也太狠啦<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25540#       发表于 2020-12-23 18:11
+
+
+
+ 本帖最后由 pansherry 于 2020-12-23 18:15 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/181100vmq12bqwd2iwii20.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201223181022.png</strong> (668.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/181522w6m8kcct8c6b6l6b.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201223181358.png</strong> (656.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:15 上传
+
+
+
+
+
+
+
+联谊对象3人 舞元 舞元 舞元
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25541#       发表于 2020-12-23 18:13
+
+
+
+
+今天我听到的一句话是虹都是pro，歌力巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后扔给我两场live做证明……
+
+嗯……我觉得ichk这方面真的很厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25542#       发表于 2020-12-23 18:17
+
+
+
+
+没有圆脸和一二期的话，对比GIF上的就是day2的画面了，圆脸罪不至此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  hitman1217  
+##### 25543#       发表于 2020-12-23 18:20
+
+
+
+
+拉倒吧，不就是抄着彩虹这刀来劈。我寻思但凡第一页那个大宝库里面多看过几场的都说不出这话
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25544#       发表于 2020-12-23 18:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/181802hz20g9jgz2oxt9g9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep6StcHVgAAhFVo.jpg</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:18 上传
+
+
+
+
+
+
+https://twitter.com/ga673899/status/1341672983719362560?s=20
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/181905gelldjxyazil0iex.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep6f4-cUcAEZDTs.jpg</strong> (287.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:19 上传
+
+
+
+
+
+
+https://twitter.com/inre_kemomimi/status/1341685546007945218?s=20
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25545#       发表于 2020-12-23 18:21
+
+
+
+
+都是粉丝滤镜，反正这些人不造一个神吹捧就不行，以前吹杏现在吹虹，虹最能打的放到“pro歌手”这个圈里一样是臭鱼烂虾级的，就不用比烂了
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 25546#       发表于 2020-12-23 18:21
+
+
+
+
+你杏能不能速速回去播游戏，唱歌仅比asmr好那么一丁点，倒数第二垃圾的节目
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25547#       发表于 2020-12-23 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49820772&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-23 17:55</a>
+倒不如担心她箱企划和会社排的事情太多占用solo时间，这个倒是进行时，你看这段日子有几次solo，然后后果就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明杏也是实现梦想的地方啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25548#       发表于 2020-12-23 18:26
+
+
+
+
+不过你虹今年年头一帮人线下重拳出击的代价可是被杏偷了珍珠港（直播间）的，现在杏也要线下出击了，不知道兔姨能不能带着774也偷一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25549#       发表于 2020-12-23 18:28
+
+
+
+
+虹最pro的明明已经毕业了，有想法的谁来当管人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25550#       发表于 2020-12-23 18:29
+
+
+
+
+拉倒吧，那个毕业的线下live走音断气吃螺丝一气呵成，被阿床吊着打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 25551#       发表于 2020-12-23 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49820772&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-23 17:55</a>
+
+倒不如担心她箱企划和会社排的事情太多占用solo时间，这个倒是进行时，你看这段日子有几次solo，然后后果就 ...</blockquote>
+有意见打SC说
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+
+
+
+
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 25552#       发表于 2020-12-23 18:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/183518drrd9i6dy90f759e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>GRMX_hololive_CP_04.jpg</strong> (824.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:35 上传
+
+
+
+
+
+
+武士道这么给木口灌饭啊
+[https://d4dj.bushimo.jp/news/post-92](https://d4dj.bushimo.jp/news/post-92)
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25553#       发表于 2020-12-23 18:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/183913w4h1s1sk4f40sssl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201223183741.png</strong> (370.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:39 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 25554#       发表于 2020-12-23 18:39
+
+
+
+
+垃圾间相互利用罢了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25555#       发表于 2020-12-23 18:40
+
+
+
+
+仅就D4DJ这个企划而言，是反向灌饭。
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 25556#       发表于 2020-12-23 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821337&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-23 18:40</a>
+
+仅就D4DJ这个企划而言，是反向灌饭。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你这是看不起d4dj这破企划吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25557#       发表于 2020-12-23 18:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> live带货的这个和卡牌都属于今年一大堆和武士道合作的一部分呗，毕竟2nd都冠名武士道赞助了，至于这种新企划联动我是看不出什么灌饭的，没看出d4dj火到能叫灌饭
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25558#       发表于 2020-12-23 18:46
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-23 18:47 编辑 
+
+单拿杏出来说看起来很杏奴，那我再拉上虹好了。虹杏这两家现在在二刺螈的影响力真的很大，哦也许要再加一个谱皇。不许摸那堆玩意里够得上给杏灌饭的只有一个邦邦。
+
+不过D4DJ既然能找fh监督出动画，也能找fh主播社团搞宣传，贴贴捏。
+
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25559#       发表于 2020-12-23 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">已经在等毕业的七点新歌了，听了30秒片段我木耳感觉还行
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25560#       发表于 2020-12-23 18:47
+
+
+
+
+(ﾟﾛﾟ)/(ﾟﾛﾟ)/(ﾟﾛﾟ)/(ﾟﾛﾟ)/(ﾟﾛﾟ)/ｵｫｰ这什么这什么？
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/184652qw30yuozoiguig29.png" referrerpolicy="no-referrer">
+
+
+<strong>DJ Genki 5th ALBUM『ULTIMATE HAPPY CARNIVAL』.png</strong> (391.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:46 上传
+
+
+
+
+
+https://twitter.com/honmahimawari/status/1341693631980163072
+
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 25561#       发表于 2020-12-23 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">反正d4dj这破企划是引进不了了 动画监督fh 游戏也fh
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25562#       发表于 2020-12-23 18:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/184917d7exjdko4jgkgcna.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep6nZ4uUYEcxQBq.jpg</strong> (416.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:49 上传
+
+
+
+
+
+[https://twitter.com/zuhonyanko/status/1341693807352455168](https://twitter.com/zuhonyanko/status/1341693807352455168)
+
+<img src="https://img.saraba1st.com/forum/202012/23/184916do11b79uyy1yuwys.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep6lA_kU0AAKFXh.jpg</strong> (193.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 18:49 上传
+
+
+
+
+
+[https://twitter.com/higeneko_tail/status/1341691179792941057](https://twitter.com/higeneko_tail/status/1341691179792941057)
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25563#       发表于 2020-12-23 18:50
+
+
+
+<blockquote>幽ヶ崎海愛**きクジラ
+
+@Yuugasakiumi
+
+クリスマスツリークリスマスはうみと過ごそうクリスマスツリー
+
+
+12/24 歌ってみた公開
+
+12/25 新衣装お披露目配信 20:00〜
+
+
+ついについに、
+
+
+25日に新衣装お披露目配信決定したよ〜！！！！
+
+みにきてね〜(∂v∂)ノ鼓動するハート鼓動するハート鼓動するハート</blockquote><img src="https://i.loli.net/2020/12/23/CDX53Y41qVI8adA.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25564#       发表于 2020-12-23 18:52
+
+
+
+
+联动都这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">wixoss不也是拼了命的出彩虹联动卡组
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25565#       发表于 2020-12-23 18:53
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-23 18:55 编辑 
+
+不过怎么说D4DJ也不会死在樱战那玩意前面，差不多得了。
+
+SYL：
+
+夏星这个组合可能会有后续
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25566#       发表于 2020-12-23 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空集有点太悲观，你杏目前一年也就这几个live，哪来的因为live流失观众，你船明明是solo太少，直播时间也短，当然，直播时间短是老问题了。另外数据你船也就这个月低了，上个月以前不都是上涨，本月数据船也还是稳定第三。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25567#       发表于 2020-12-23 19:02
+
+
+
+
+为什么DC新歌直播间里那么多棒子，棒子滚阿。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25568#       发表于 2020-12-23 19:03
+
+
+
+
+三姐为live失踪已经在虹看腻了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，杏不要再来了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25569#       发表于 2020-12-23 19:05
+
+
+
+
+这首疯帽子除了莫名其妙的rap之外还挺好听的，可是msm你什么时候死阿
+
+
+星街：
+
+谢谢blibili
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25570#       发表于 2020-12-23 19:07
+
+
+
+
+年终总结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/23/190703cf1s2dhs1umfj29h.png" referrerpolicy="no-referrer">
+
+
+<strong>【2020総まとめ】クリスマス直前！みんなで振り返る今年のにじさんじ！【ツキイチ！に.png</strong> (355.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 19:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25571#       发表于 2020-12-23 19:12
+
+
+
+
+月之，如果被ickr逼去吹业绩拉投资了你就学兔子叫偷偷告诉我好吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25572#       发表于 2020-12-23 19:22
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gly0dvxpdkj20xq0ivgos.jpg" referrerpolicy="no-referrer">
+
+
+工具人奖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25573#       发表于 2020-12-23 19:23
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-23 19:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821758&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-23 19:22</a>
+
+工具人奖</blockquote>
+做了40多首曲子，铁工具人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Syl，axf待遇真好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+Zsyl，易位
+
+<img src="https://img.saraba1st.com/forum/202012/23/192646ouxwst9lfizbufwj.png" referrerpolicy="no-referrer">
+
+
+<strong>登録者.png</strong> (160.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 19:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25574#       发表于 2020-12-23 19:24
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-23 19:03
+三姐为live失踪已经在虹看腻了，杏不要再来了。</blockquote>
+其实上次我就想说了，三姐其实已经换人了……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25575#       发表于 2020-12-23 19:27
+
+
+
+
+猴应该这两天就被换下去了，以后你虹前5就是4个gamers+孤独的天皇了。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25576#       发表于 2020-12-23 19:28
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-23 19:34 编辑 
+
+所以兔子是怎么叫啊（
+
+她真的学兔子叫的话我很感兴趣的（
+
+
+省
+
+<img src="https://img.saraba1st.com/forum/202012/23/193413d4bcezbgg6ozkgf3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EpmkkFnVgAA9d13.jpg</strong> (289.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 19:34 上传
+
+
+
+
+
+[https://twitter.com/natanakane/status/1340283314813292546](https://twitter.com/natanakane/status/1340283314813292546)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25577#       发表于 2020-12-23 19:28
+
+
+
+
+丽姐猫耳真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25578#       发表于 2020-12-23 19:30
+
+
+
+
+三姐倒了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+以后就是えらちゃん了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+为live易位了真的很拼很爱豆露
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25579#       发表于 2020-12-23 19:32
+
+
+
+
+你虹这堆奖一点斗虫要素都没有，还🐺不🐺性了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25580#       发表于 2020-12-23 19:34
+
+
+
+
+今年杏的最努力奖不知道发给谁呢，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25581#       发表于 2020-12-23 19:34
+
+
+
+ 本帖最后由 NBXX 于 2020-12-23 19:35 编辑 
+
+[https://www.youtube.com/watch?v=64kI2BWRd2g&amp;feature=youtu.be](https://www.youtube.com/watch?v=64kI2BWRd2g&amp;feature=youtu.be)
+
+ボッカデラベリタ/常闇トワ(cover)
+<[img src="https://i.loli.net/2020/12/23/C42oQaJVG8L65rg.png" referrerpolicy="no-referrer">
+
+
+
+喊得有点用力过猛
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25582#       发表于 2020-12-23 19:42
+
+
+
+
+pikamee我们不要硬挺了去和EN联动好不好<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/194215xy53pytz65ir2079.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 032 - ファン数急上昇ランキング(1ページ) - VTuber ランキング - .png</strong> (387.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 19:42 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 25583#       发表于 2020-12-23 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821809&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2020-12-23 19:28</a>
+
+所以兔子是怎么叫啊（
+
+她真的学兔子叫的话我很感兴趣的（</blockquote>
+兔子没有声带，所以其实是不会叫的。
+
+当然可以发出呼噜声这种。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|🐇|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25584#       发表于 2020-12-23 19:45
+
+
+
+
+pikamee我觉得过得不比你杏差啊，没公司抽成的sc到手和你杏中层差不多，没版权限制想播啥播啥，还不用被逼着去上live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25585#       发表于 2020-12-23 19:45
+
+
+
+
+三姐难道不该换吗？各位虹人凭良心问问自己，江猴今年下半年表现如何啊。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 25586#       发表于 2020-12-23 19:45
+
+
+
+
+丽姐这新衣服还挺可爱 挺适合她的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25587#       发表于 2020-12-23 19:46
+
+
+
+
+自信点，pikamee直播效果完爆你杏，我就想让她去蹭点流量而已
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25588#       发表于 2020-12-23 19:47
+
+
+
+
+差不多得了，三姐不放立绘直播舔男人3W+同接，怕是一哥都做不到。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25589#       发表于 2020-12-23 19:49
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-23 19:55 编辑 
+
+猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+今年最后的jk组风纪委员，挺好！
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 25590#       发表于 2020-12-23 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821809&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2020-12-23 19:28</a>
+ 所以兔子是怎么叫啊（ 她真的学兔子叫的话我很感兴趣的（  </blockquote>
+是种很恐怖的声音，一点也不可爱，以前做实验解剖兔子的时候天天听。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25591#       发表于 2020-12-23 19:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/195510rog0d53obh2vowa3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep60EUyVQAACL23.jpg</strong> (304.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 19:55 上传
+
+
+
+
+
+
+
+【이시우 생일 보이스 2020 판매 예정 공지!】
+
+
+라이버 이시우의 12월 26일 생일을 맞아 26일(토)부터 이시우의 생일 보이스가 판매될 예정입니다.
+
+
+많은 기대 부탁드립니다! 
+
+
+※ 한국어 버전 한정 판매입니다.
+
+
+▽판매 페이지 링크!▽
+[https://nijisanji-kr.booth.pm](https://nijisanji-kr.booth.pm)
+
+
+
+（韩语Only）
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25592#       发表于 2020-12-23 19:58
+
+
+
+
+来点cr浓度，原本towa和花芽那队想邀请牡丹的，但是牡丹忙，没空，后来马自立找过来就刚好组队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25593#       发表于 2020-12-23 20:00
+
+
+
+
+缪了
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/195928ejv4vm3048vnx58x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Snow halation (Cover).jpg</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 19:59 上传
+
+
+
+
+
+
+[https://www.youtube.com/watch?v=jc7T8ce5-vQ&amp;feature=youtu.be](https://www.youtube.com/watch?v=jc7T8ce5-vQ&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25594#       发表于 2020-12-23 20:00
+
+
+
+
+丽姐新衣服的兽耳是噗建议的，谢谢你色狸猫<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
