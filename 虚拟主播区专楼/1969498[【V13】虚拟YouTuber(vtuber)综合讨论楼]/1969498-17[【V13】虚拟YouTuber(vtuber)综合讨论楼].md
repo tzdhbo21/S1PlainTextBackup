@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 00:04** 
+> ## **本文件最后更新于2020-12-23 10:03** 
 
 
 
@@ -24987,7 +24987,7 @@ boom~<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" refer
 
 
 QQ图片20201222204421.jpg
-(45.26 KB, 下载次数: 0)
+(45.26 KB, 下载次数: 1)
 
 
 
@@ -26484,10 +26484,11 @@ A lot of Japanese on twitter are posting NND screencaps, wonder what % is on eac
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| winda| + 1|在此一役|
 | 空集| + 1|急了|
 | zerouuz|-1|白皮还掏钱？欢乐多|
 
@@ -26997,7 +26998,7 @@ SYL：
 <img src="https://img.saraba1st.com/forum/202012/22/230945nj7j77wtfa6owge4.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20201222230911.png</strong> (789.86 KB, 下载次数: 0)
+<strong>QQ截图20201222230911.png</strong> (789.86 KB, 下载次数: 1)
 
 下载附件
 
@@ -27129,8 +27130,23 @@ SYL：
 
 
 
+ 本帖最后由 SuntoryNomu 于 2020-12-23 00:14 编辑 
 
-松阪牛做罐头真够暴殄天物的
+
+<img src="https://img.saraba1st.com/forum/202012/23/001417f0bwspmmn411h0h4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eic9ipjU8A48SmG.jpg</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 00:14 上传
+
+
+
+
+
+[https://twitter.com/KUSHINAKA/status/1308081967204769793](https://twitter.com/KUSHINAKA/status/1308081967204769793)
 
 
 
@@ -27344,4 +27360,820 @@ miku抄＃皇人设罢了
 
 
 
-  
+
+
+-----
+
+####  SuntoryNomu  
+##### 25417#       发表于 2020-12-23 00:10
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-23 00:30 编辑 
+
+[https://youtu.be/GvQvxC19j4s](https://youtu.be/GvQvxC19j4s)
+
+
+KR圣诞音乐会，虽然听不懂韩语日语说的是什么也算是听完了。
+
+虽然穿插了点放送事故（主要是discord造成的），但总体还好。
+
+
+说是音乐会，不如说是KR成员的各种“才艺展示”吧，
+
+
+有做现场DJ的，也有用电音蝌蚪整活的，也有演唱歌曲的，等等...
+
+Bora的话是笛子演奏，不过也就比我家楼上的退休大妈强那么一点吧（。
+
+Iroha的《Merry Christmas Mr.Lawrence》还挺好听的。
+
+<img src="https://img.saraba1st.com/forum/202012/23/002659dwp9kg2pp2li7y7m.gif" referrerpolicy="no-referrer">
+
+
+<strong>G2012230025.gif</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 00:26 上传
+
+
+
+
+
+
+不知道这钢琴按键怎么做到的
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/002659m20bg80v84bssvg3.gif" referrerpolicy="no-referrer">
+
+
+<strong>G2012230021.gif</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 00:26 上传
+
+
+
+
+
+
+成员立绘切换还有很有趣的特效
+
+
+
+每个人都很努力的在表演，挺温馨的感觉。
+
+最后是以参与者全员合唱《We Wish You A Merry Christmas》结束。
+
+
+不知道有没有当年本社吃寿司的那种感觉呢...
+
+<img src="https://img.saraba1st.com/forum/202012/23/000828iwzdwoeojeoiqedw.png" referrerpolicy="no-referrer">
+
+
+<strong>201223000632.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 00:08 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 25418#       发表于 2020-12-23 00:19
+
+
+
+ 本帖最后由 huanshen 于 2020-12-23 00:27 编辑 
+
+暗妃的魂可是梅莉小姐的多年好友みぃ太軍，跟P家不少人熟悉，皮再拉胯也阻止不了新时代的人对魂的喜爱和对P家大家庭的拥护啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 25419#       发表于 2020-12-23 00:24
+
+
+
+
+新时代的人还是喜欢旧时代的魂
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 25420#       发表于 2020-12-23 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813352&amp;ptid=1969498" target="_blank">huanshen 发表于 2020-12-23 00:19</a>
+
+暗妃的魂可是梅莉小姐的多年好友みぃ太軍，跟P家不少人熟悉，皮再拉胯也搁不住新时代的人对魂的喜爱啊[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">皮在拉胯，也是新时代最喜欢的P家
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 25421#       发表于 2020-12-23 00:24
+
+
+
+
+对于杏2ndlive这个3D和编舞，不能为黑而黑，要实事求是地看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 25422#       发表于 2020-12-23 00:31
+
+
+
+
+之前看了眼nijisanji IN的Noor的直播，她是把“我非常希望太君看我”给写脸上了啊，评论没日文的时候她都半英半日，评论有日文评论就必读，而且经常问有日本观众在吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+面对非日本人观众，其实也就hana表现还可以，不过虽然订阅多但是同接和播放数都被bora吊打<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+还是像bora这样在日本观众里和本社一起卷更有前途<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25423#       发表于 2020-12-23 00:38
+
+
+
+
+太军为什么不去774？被梅小姐拦着了？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25424#       发表于 2020-12-23 00:43
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-23 00:56 编辑 
+
+唯独不想让叶师和长尾景撞上<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+长尾景好可怕的
+
+灾难BC
+
+<img src="https://img.saraba1st.com/forum/202012/23/005627ndkmtkmts3cfdtyz.png" referrerpolicy="no-referrer">
+
+
+<strong>【第３回マリカにじさんじ杯】本選リーグ抽選会.png</strong> (562.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 00:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  扶桑洛槿  
+##### 25425#       发表于 2020-12-23 00:46
+
+
+
+
+#皇这皮做得不用心啊，怎么看都不顺眼。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+估计是为了成为b最新最in的p家而买的门票，反正两代p家里借#皮的外貌找人重新做的人也不少。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 25426#       发表于 2020-12-23 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813497&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-23 00:38</a>
+
+太军为什么不去774？被梅小姐拦着了？</blockquote>
+为啥要去774，P家比774赚钱多了，现在的774也没有认识的人拉一把啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25427#       发表于 2020-12-23 00:48
+
+
+
+
+说到演出服，其实虹那帮老人的大正风军装L2D真的很帅，拿来做3D还不麻烦，复制到新人身上也方便，就是真让一排人这么穿出现在舞台，多少有丶敏感。
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 25428#       发表于 2020-12-23 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">新时代p家，目前正常播下限都是比黄兔子ptr低一点的这个sc量，以后衰减到什么样再说吧，去774难道是专门潜伏进去给梅丽报仇吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25429#       发表于 2020-12-23 01:01
+
+
+
+
+B组太恐怖，准决赛预演<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25430#       发表于 2020-12-23 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813557&amp;ptid=1969498" target="_blank">huanshen 发表于 2020-12-23 00:48</a>
+为啥要去774，P家比774赚钱多了，现在的774也没有认识的人拉一把啊</blockquote>
+太军明显和774的人更熟吧
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25431#       发表于 2020-12-23 01:04
+
+
+
+ 本帖最后由 Map-2 于 2020-12-23 01:14 编辑 
+
+皮拉跨没人拦着你换，最孝的那个不也换了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<[img src="https://i.loli.net/2020/12/23/KezoakmfsR4JpLO.png" referrerpolicy="no-referrer">
+
+
+新画师与holoEN的华生是同一画师
+[https://twitter.com/nab0i](https://twitter.com/nab0i)
+<[img src="https://i.loli.net/2020/12/23/FBLxTHXRt2ljevU.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 25432#       发表于 2020-12-23 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813526&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-23 00:43</a>
+
+唯独不想让叶师和长尾景撞上
+
+
+长尾景好可怕的</blockquote>
+C组叶师出现感觉挺稳，B组葛皇危了。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 25433#       发表于 2020-12-23 01:08
+
+
+
+ 本帖最后由 深渊萃取 于 2020-12-23 01:10 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/23/010829vttkgi1gq17i6k77.png" referrerpolicy="no-referrer">
+
+
+<strong>yui.png</strong> (18.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-23 01:08 上传
+
+
+
+
+
+
+
+原创曲这么牌面的吗.......这得多少钱
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 25434#       发表于 2020-12-23 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">showroom有钱整这种活动，为什么不把用户体验弄好点
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 25435#       发表于 2020-12-23 01:12
+
+
+
+ 本帖最后由 aptx318 于 2020-12-23 01:13 编辑 
+
+说实话感觉把精力放在CR这种v注定当绿叶的比赛，不如多投入进马车争取当主角。不过黑黑这种社内订阅顶层就算社内活动夺冠可能也吃不到多少加成，cr倒是有机会吸路人粉。中下层的话可能靠马车起飞。不知道去年葛皇夺冠涨了多少粉<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 25436#       发表于 2020-12-23 01:14
+
+
+
+
+剑持刀也被（自己的转盘）孤立说
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25437#       发表于 2020-12-23 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813668&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-23 01:12</a>
+
+说实话感觉把精力放在CR这种v注定当绿叶的比赛，不如多投入进马车争取当主角。不过黑黑这种社内订阅顶层就 ...</blockquote>
+第一届马车的冠军是成濑鸣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+葛皇第二届冠军那个主人公剪辑播放量我记得倒是挺高的，还是看人...
+
+黑黑24、25线下不知道干什么，感觉cr和马车都没时间练
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25438#       发表于 2020-12-23 01:20
+
+
+
+
+这个手绘我好爱
+<[img src="https://i.loli.net/2020/12/23/zTvXPBQ6UlI5Wje.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/abara/status/1341417560693121025](https://twitter.com/abara/status/1341417560693121025)
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|肋兵器是神|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 25439#       发表于 2020-12-23 01:34
+
+
+
+
+我觉得观众还是比较喜欢那种带故事性的夺冠，阿叶以前mc团体比赛有点着急把剩下好几个对手快速杀掉了，被炎说没有给别人游戏体验，还是得拿个好剧本才能有效涨粉
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25440#       发表于 2020-12-23 07:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813634&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-23 01:04</a>
+
+皮拉跨没人拦着你换，最孝的那个不也换了嘛最重要的是血统啊，血统</blockquote>
+? 有确认么
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25441#       发表于 2020-12-23 08:34
+
+
+
+
+郡郡又小规模炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，明明那次直播我看得很开心完全没找出炎上的点，
+炎上的理由是，“郡道劝成绩不好的中学生把直播关掉好好学习一定要上高中”，郡an离谱诶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+好在看了之后好评的人也不少，订阅也普通地涨了，至少比之前好惹......
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 25442#       发表于 2020-12-23 08:48
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-23 08:34
+郡郡又小规模炎上了，明明那次直播我看得很开心完全没找出炎上的点，
+
+炎上的理由是，“郡道劝成绩不 ...</blockquote>
+正能量主播
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25443#       发表于 2020-12-23 08:51
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-23 08:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49814504&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-23 08:34</a>
+
+郡郡又小规模炎上了，明明那次直播我看得很开心完全没找出炎上的点，
+
+炎上的理由是，“郡道劝成绩不 ...</blockquote>
+是劝诫那个成绩表ALL1想要辍学的初中生吗，为什么要炎上这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">⬇️
+[https://www.youtube.com/watch?v=0yoIij82nv0](https://www.youtube.com/watch?v=0yoIij82nv0)  ？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25444#       发表于 2020-12-23 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49814628&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-23 08:51</a>
+是劝诫那个成绩表ALL1想要辍学的初中生吗，为什么要炎上这个啊⬇️
+
+https://www.youtube.com/watch ...</blockquote>
+大概有两种吧，“你对小孩这么凶干嘛！？”和“你又不懂人家的家庭状况，凭什么说三道四，他说不定有精神疾病啊！？”，
+可是这不就是棉花糖的机制吗，怎么可能知道嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25445#       发表于 2020-12-23 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49814299&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-23 07:49</a>
+? 有确认么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">mana附上的链接就是画师的微博嘛
+虽然她是在问“换新衣服会怎么样”“有第二个妈妈的话大家能不能接受”啥的，这么看来已经谈好了吧？
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 25446#       发表于 2020-12-23 09:17
+
+
+
+
+可是帕里是真菜，不是假菜，找帕里换皮结果比现在的还拉跨，那不是本末倒置了
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 25447#       发表于 2020-12-23 09:22
+
+
+
+
+菜就菜，但新时代观众就认这个。来B站当然是拿帕里当踏板是最快的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 25448#       发表于 2020-12-23 09:26
+
+
+
+
+看看虹的那个大头，帕里换衣服的结果是啥样还不清楚吗
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 25449#       发表于 2020-12-23 09:27
+
+
+
+
+帕里是不是很喜欢头发垂在一个东西上的设计，很久以前看他直播画画就发现了
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 25450#       发表于 2020-12-23 09:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">阿露丝那个是真的拉跨
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 25451#       发表于 2020-12-23 09:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">既然梅莉的好友都来了，梅小姐什么时候来阿逼进出呢
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25452#       发表于 2020-12-23 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49814840&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-23 09:13</a>
+
+mana附上的链接就是画师的微博嘛
+
+虽然她是在问“换新衣服会怎么样”“有第二个妈妈的话大家能不能 ...</blockquote>
+看不懂日文。。多谢了
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 25453#       发表于 2020-12-23 09:51
+
+
+
+<img src="https://p.sda1.dev/0/8faeadbaf9a8ec5b9c2218970f0d201f/IMG_CMP_42380588.jpeg" referrerpolicy="no-referrer">
+油管给我推荐的。靠学英语出道一个月14w粉，而且sc真的是usd不是php。
+这就是新时代白皮mmr的力量吗？
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25454#       发表于 2020-12-23 09:52
+
+
+
+
+小福那个新衣服我是真的麻了，考虑换个画师不<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
