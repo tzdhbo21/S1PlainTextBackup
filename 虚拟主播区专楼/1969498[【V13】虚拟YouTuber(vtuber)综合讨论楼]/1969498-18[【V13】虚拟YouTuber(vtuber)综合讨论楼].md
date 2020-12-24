@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 14:02** 
+> ## **本文件最后更新于2020-12-24 16:03** 
 
 
 
@@ -4951,8 +4951,9 @@ Syl，重走AKB，只爱底边这心态我也+1弦月藤士郎银盾了，感觉
 
 
 
+ 本帖最后由 絵生voice 于 2020-12-24 14:11 编辑 
 
-看着像异性<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看着像异性型<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 
@@ -5358,4 +5359,474 @@ imas現在還是底邊啊！雖然是老女人()
 
 
 
-                                         
+
+
+-----
+
+####  poipanchao  
+##### 25752#       发表于 2020-12-24 14:02
+
+
+
+
+为什么来s1的不是叶队就是黑客粉呢（不论男女），都见不到火畜的
+有楼友分析一下吗
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 25753#       发表于 2020-12-24 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829404&amp;ptid=1969498" target="_blank">netwof2008 发表于 2020-12-24 14:00</a>
+
+下场就是过个嘴瘾，嘲讽就嘲讽呗，对着嘲谁怕谁，我有理有据地说还要塞我那我也没办法，我可不像虹楼里的某 ...</blockquote>
+至少我几次进叶师傅转播间都感觉没啥，所以也没看懂隔壁在车啥，咱也不敢说<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 25754#       发表于 2020-12-24 14:05
+
+
+
+
+但是我之前在叶师那看过几次 确实很容易被出警，之后要看也去油管了，希望楼里叶队不要撕我<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25755#       发表于 2020-12-24 14:17
+
+
+
+
+可能是叶师直播间人数刚刚好吧，大小姐直播间人多得像被独轮车看不见出警，郡道直播间人少得牌佬吵架没人劝<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 25756#       发表于 2020-12-24 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829345&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-24 13:54</a>
+
+看样子Bilibili的还没送出去?</blockquote>
+送过去不也丢一边，白姨：什么不可燃的垃圾
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25757#       发表于 2020-12-24 14:26
+
+
+
+<blockquote>poipanchao 发表于 2020-12-24 14:02
+为什么来s1的不是叶队就是黑客粉呢（不论男女），都见不到火畜的
+
+有楼友分析一下吗 ...</blockquote>
+火畜天天被你们安排葛尊葛夸的，难道会来吗？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25758#       发表于 2020-12-24 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829345&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-24 13:54</a>
+
+看样子Bilibili的还没送出去?</blockquote>
+收到了的
+[https://t.bilibili.com/80160547](https://t.bilibili.com/80160547) <blockquote>白上吹雪Official
+
+07-04
+
+✨✨bilibiliから金盾がきました✨✨
+
+ありがとうございますー！！！！！！
+
+絶賛新衣装も準備中ですよ(^・ω・^§)ﾉ🌽
+
+bの皆さんお楽しみに！
+
+１００万人の中国すこん部達～～～
+
+これからもよろしくおねがいしますよーっ✨</blockquote>
+<[img src="https://i.loli.net/2020/12/24/1ACoSP5cUQ3b6nM.png" referrerpolicy="no-referrer">
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 絵生voice| + 1|这样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 25759#       发表于 2020-12-24 14:26
+
+
+
+<blockquote>触手姬 发表于 2020-12-24 14:17
+送过去不也丢一边，白姨：什么不可燃的垃圾</blockquote>
+狐坦不配，因为她现在不是。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25760#       发表于 2020-12-24 14:29
+
+
+
+ 本帖最后由 Map-2 于 2020-12-24 14:36 编辑 
+
+—
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25761#       发表于 2020-12-24 14:35
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 25762#       发表于 2020-12-24 14:45
+
+
+
+[https://twitter.com/wawon_wwn/status/1341976746032209921](https://twitter.com/wawon_wwn/status/1341976746032209921)
+海夜叉<img src="https://p.sda1.dev/0/6ef54f413fbd3b8f8bfb9af25fc4e186/IMG_CMP_81563927.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25763#       发表于 2020-12-24 14:48
+
+
+
+
+10点月之歌回
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 25764#       发表于 2020-12-24 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829923&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-24 14:48</a>
+10点月之歌回</blockquote>
+恐怖的圣诞树
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25765#       发表于 2020-12-24 14:49
+
+
+
+<img src="https://p.sda1.dev/0/139493e3fe5e960a17ca60c14053088d/T4rwJnO.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 25766#       发表于 2020-12-24 14:50
+
+
+
+ 本帖最后由 holoan 于 2020-12-24 14:55 编辑 
+
+一句话小说
+
+「ぺこみこの朝は遅い」
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25767#       发表于 2020-12-24 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25768#       发表于 2020-12-24 15:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 25769#       发表于 2020-12-24 15:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25770#       发表于 2020-12-24 15:27
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1glyz709ssej20gp0nugo9.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1glyz752vhej20zk0k0dkz.jpg" referrerpolicy="no-referrer">
+
+
+这就是虹没有杏受欢迎的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25771#       发表于 2020-12-24 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49830316&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-24 15:27</a>
+这就是虹没有杏受欢迎的原因吗</blockquote>
+左上角混了一个超美丽3D<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25772#       发表于 2020-12-24 15:30
+
+
+
+
+还开在苔姨窗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“寄生”
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 25773#       发表于 2020-12-24 15:34
+
+
+
+
+草
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glyzf5bf15j20h20rj7c6.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1glyzf58l8kj20g904874j.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25774#       发表于 2020-12-24 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔苔是真的不行
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 25775#       发表于 2020-12-24 15:47
+
+
+
+
+PRO呢，不出来批判苔宝黔驴技穷吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 25776#       发表于 2020-12-24 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829471&amp;ptid=1969498" target="_blank">ygysh0505 发表于 2020-12-24 14:05</a>
+
+但是我之前在叶师那看过几次 确实很容易被出警，之后要看也去油管了，希望楼里叶队不要撕我
+
+
+  --  ...</blockquote>
+哈哈哈我也不是逮谁撕谁的啦，而且我不觉得这叫撕，就正常讨论，觉得不对随时可以反驳，就是不能在nga回帖很气，可能我已经是旧时代的人，以前混三国贴吧的时候，只要你有理有据，随便讨论随便说
+
+
+转播间出警这个得分情况的，阿叶每天都播，每次直播情况不能一概而论的，我有时候也不爽转播间，但是这个跟虹楼车的点完全不同，就没必要展开讲了
+
+
+
+
+
+                                        
