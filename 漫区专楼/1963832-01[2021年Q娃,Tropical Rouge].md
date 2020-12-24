@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 16:15** 
+> ## **本文件最后更新于2020-12-24 12:14** 
 
 
 
@@ -9,11 +9,11 @@
 
 
 
- 本帖最后由 HGCG 于 2020-12-13 15:59 编辑 
+ 本帖最后由 HGCG 于 2020-12-23 17:52 编辑 
 
 化妆变身！无敌的干劲！
 
-<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1glmaaxi77ej21rw0euqv6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1glxo3tw3ozj21560u0twf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -3762,4 +3762,591 @@ staff什么时候公开？
 
 
 
-                                          
+
+
+-----
+
+####  HGCG  
+##### 215#         楼主| 发表于 2020-12-23 17:56
+
+
+
+
+猜声优：
+
+粉 黑泽TOMOYO
+
+红 石原夏织
+
+黄 华哥
+
+紫 佐藤聪美
+
+人鱼 诸星堇
+
+** 传说大人
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 216#       发表于 2020-12-23 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49819435&amp;ptid=1963832" target="_blank">banglian 发表于 2020-12-23 15:59</a>
+
+虹主海报这个姿势不错啊，有种武术高手的感觉。看来不用担心泥潭经典回复“今年会不会没打斗” ...</blockquote>
+你来晚了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/ed84c5981791008639fe4eafd2e5c9ce/msedge_2020-12-23_18-29-12.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 217#       发表于 2020-12-23 18:32
+
+
+
+<blockquote>天邪鬼 发表于 2020-12-23 15:48
+黑历史？什么黑历史？
+
+这位写的可都是q娃名作
+
+我已经等不及最后一集长大的主角跟人鱼久别重逢，几十集的 ...</blockquote>
+原来是法Q，星Q的系列构成。百合石锤了
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 218#       发表于 2020-12-23 18:54
+
+
+
+
+女主是白q娃 还是彩虹q娃 从海报上的样子来看回归汉女女主
+红q娃 一股把cv 日笠阳子 贴在脸上了 她最近配了太多这类型的角色
+紫q娃 没有眼镜七赖唯
+黄q娃 尴尬 棕蘑菇头加眼镜
+人鱼 99%追加 但前期怎么处理妖精还是队友定位
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 219#       发表于 2020-12-23 19:25
+
+
+
+
+真是女汉子还好，最纠结的就是表面阳光内心受过伤的孩子
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 220#       发表于 2020-12-23 19:54
+
+
+
+ 本帖最后由 天邪鬼 于 2020-12-23 20:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821246&amp;ptid=1963832" target="_blank">csolfans 发表于 2020-12-23 18:32</a>
+原来是法Q，星Q的系列构成。百合石锤了</blockquote>
+还真就他系构……
+不过也有乐子看了，挺好的。今年没啥意思，戏里戏外都是
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 221#       发表于 2020-12-23 20:25
+
+
+
+
+草我也觉得红是日笠阳子，紫是佐藤聪美
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 222#       发表于 2020-12-23 20:38
+
+
+
+<blockquote>天邪鬼 发表于 2020-12-23 19:54
+还真就他系构……
+
+不过也有乐子看了，挺好的。今年没啥意思，戏里戏外都是 ...</blockquote>
+今年挺可惜的，主要是疫情停了两个月有多。愈Q我很喜欢人设，而且也难得是umb配的粉主，现在剧情的确太平淡，就这么结束确实有点不甘心。
+
+
+
+
+
+
+
+-----
+
+####  adsfffdsa  
+##### 223#       发表于 2020-12-23 20:43
+
+
+
+
+红毛猛一看还以为是宇多田巴呢，真是把“日笠阳子”贴脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 224#       发表于 2020-12-23 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822577&amp;ptid=1963832" target="_blank">csolfans 发表于 2020-12-23 20:38</a>
+今年挺可惜的，主要是疫情停了两个月有多。愈Q我很喜欢人设，而且也难得是umb配的粉主，现在剧情的确太平 ...</blockquote>
+今年就45集来着？该卖的玩具卖一卖，结尾了说不定来个病原是消灭不完的，我们要和他们共存，跟达鲁伊森相互理解一波可能就喜迎结局了
+不知道这次part c会有啥
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 225#       发表于 2020-12-23 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821788&amp;ptid=1963832" target="_blank">待宵 发表于 2020-12-23 19:25</a>
+真是女汉子还好，最纠结的就是表面阳光内心受过伤的孩子</blockquote>
+你又想让大友发病吗？居心何在？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  chentry  
+##### 226#       发表于 2020-12-23 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822123&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2020-12-23 19:54</a>
+
+还真就他系构……
+
+不过也有乐子看了，挺好的。今年没啥意思，戏里戏外都是 ...</blockquote>
+哪儿看到的？
+
+
+
+
+
+
+
+-----
+
+####  chentry  
+##### 227#       发表于 2020-12-23 21:10
+
+
+
+
+看祥太转了一堆土田丰的老推，估计监督就是他了，以及明天是不是可以看到官网开放
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 228#         楼主| 发表于 2020-12-23 21:16
+
+
+
+<img src="http://wx3.sinaimg.cn/large/005FWYnGgy1gly3laxtz4j31080u0thz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirimori  
+##### 229#       发表于 2020-12-23 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822646&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2020-12-23 20:46</a>
+
+今年就45集来着？该卖的玩具卖一卖，结尾了说不定来个病原是消灭不完的，我们要和他们共存，跟达鲁伊森相 ...</blockquote>
+这不能共存吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我猜是公主那种击退一波但以后病原还会再来的结局
+
+
+
+
+
+
+
+-----
+
+####  kirimori  
+##### 230#       发表于 2020-12-23 21:25
+
+
+
+
+看人间体瞎猜环节：黄毛紫毛土妹子，女主假小子，红毛高中生不良，被人鱼连蒙带骗走上化妆的深渊
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 231#       发表于 2020-12-23 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822758&amp;ptid=1963832" target="_blank">Sliurus 发表于 2020-12-23 20:58</a>
+
+你又想让大友发病吗？居心何在？</blockquote>
+病的是我
+
+
+连着两年觉得故事平淡了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirimori  
+##### 232#       发表于 2020-12-23 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49821788&amp;ptid=1963832" target="_blank">待宵 发表于 2020-12-23 19:25</a>
+
+真是女汉子还好，最纠结的就是表面阳光内心受过伤的孩子</blockquote>
+连着3年了，快住手吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 233#       发表于 2020-12-23 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823032&amp;ptid=1963832" target="_blank">待宵 发表于 2020-12-23 21:27</a>
+
+病的是我
+
+
+连着两年觉得故事平淡了</blockquote>
+的确，这两年的确平淡了。<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">最近的爆点还要追溯到几个月前的和佳“妊娠”
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 234#       发表于 2020-12-23 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49823153&amp;ptid=1963832" target="_blank">csolfans 发表于 2020-12-23 21:40</a>
+
+的确，这两年的确平淡了。最近的爆点还要追溯到几个月前的和佳“妊娠” ...</blockquote>
+我个人觉得爆点都是绕着粉主来做的。
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 235#         楼主| 发表于 2020-12-23 23:24
+
+
+
+
+每年Q娃我都要押石原夏织就是因为第一中队就差她了 ​​​​
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gly4jp9ingj20fs0m84qp.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 236#       发表于 2020-12-24 00:17
+
+
+
+
+看这健硕的大腿肌肉线条，会不会是作画片，田中再来拍一次q娃呀<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 237#         楼主| 发表于 2020-12-24 07:36
+
+
+
+
+声优快的话后天就能公布了吧
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 238#       发表于 2020-12-24 07:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824505&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2020-12-24 00:17</a>
+
+看这健硕的大腿肌肉线条，会不会是作画片，田中再来拍一次q娃呀</blockquote>
+截至目前，还没人能拍两次Q娃吧？
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 239#       发表于 2020-12-24 09:12
+
+
+
+
+还好口红玩具只能用作笔（蜡笔/铅笔）
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 240#       发表于 2020-12-24 09:58
+
+
+
+
+今年真的很无聊吗？我觉得比星q好看不少，还有达鲁伊森和和佳这对的宿敌刻画，各个角色的刻画整体也比去年强不少。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 241#       发表于 2020-12-24 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826515&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2020-12-24 09:58</a>
+今年真的很无聊吗？我觉得比星q好看不少，还有达鲁伊森和和佳这对的宿敌刻画，各个角色的刻画整体也比去年 ...</blockquote>
+今年比星q好看多了，只不过让jc生崽这有点不妥，头皮屑必须死<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 242#       发表于 2020-12-24 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826515&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2020-12-24 09:58</a>
+今年真的很无聊吗？我觉得比星q好看不少，还有达鲁伊森和和佳这对的宿敌刻画，各个角色的刻画整体也比去年 ...</blockquote>
+今年好看一点，好像从39话开始闯反派基地。然而主笔香村纯子下一年要回到超级战队被白仓制作人折腾了。
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 243#       发表于 2020-12-24 11:12
+
+
+
+
+今年断太多了，前面看着就断了后面没接上去。。。直接跳过看明年的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 244#       发表于 2020-12-24 11:15
+
+
+
+
+等出完了就找个时间一次性补完，已经不太适应每周都追的日子了。
+
+
+
+
+
+
+
+-----
+
+####  wind4rap  
+##### 245#       发表于 2020-12-24 11:19
+
+
+
+
+为什么要跳过今年。今年那么可爱。每个人都可爱。
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 246#       发表于 2020-12-24 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826034&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2020-12-24 09:12</a>
+
+还好口红玩具只能用作笔（蜡笔/铅笔）</blockquote>
+真的吗？那可以接受不少了……（掩面
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 247#       发表于 2020-12-24 12:08
+
+
+
+
+快进到pta投诉小女孩用口红笔当唇膏引发安全问题
+
+
+
+
+
+                                         

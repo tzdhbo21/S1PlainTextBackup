@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 22:09** 
+> ## **本文件最后更新于2020-12-24 12:08** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_aUfj1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_TbCNF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9382,4 +9382,196 @@ bsyl，难受只看了后半部分，月兔！
 
 
 
-                                
+
+
+-----
+
+####  makourisu-2  
+##### 6533#       发表于 2020-12-23 22:25
+
+
+
+
+什么？又唱月兔了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6534#       发表于 2020-12-24 00:51
+
+
+
+
+回顾了一下，b限这场质量真高啊，各种玩梗互动+高质量歌，而且选曲和杂谈内容有机结合，真难想象没有台本的直播能做到这个水平
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6535#       发表于 2020-12-24 01:19
+
+
+
+
+你咩姐跟你开玩笑的，这次直播这么有趣，aut剪辑的片段熟肉都出俩了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6536#       发表于 2020-12-24 07:36
+
+
+
+
+收益化两周年
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6537#       发表于 2020-12-24 10:17
+
+
+
+
+今天咩宝要去做那些事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 6538#       发表于 2020-12-24 10:33
+
+
+
+
+那些事（指在别人快快乐乐的时候要痛苦的缴税）
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6539#       发表于 2020-12-24 10:37
+
+
+
+
+要做大人的事了（指交税）
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6540#       发表于 2020-12-24 10:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6541#       发表于 2020-12-24 11:38
+
+
+
+
+🌳
+😄
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6542#       发表于 2020-12-24 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  feyir  
+##### 6543#       发表于 2020-12-24 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6544#       发表于 2020-12-24 12:06
+
+
+
+
+弱智gachi来管管弱智绿帽啊.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               

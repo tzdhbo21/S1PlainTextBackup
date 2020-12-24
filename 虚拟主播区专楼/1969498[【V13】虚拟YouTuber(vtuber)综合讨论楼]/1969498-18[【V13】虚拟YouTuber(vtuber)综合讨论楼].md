@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 02:04** 
+> ## **本文件最后更新于2020-12-24 12:03** 
 
 
 
@@ -643,10 +643,11 @@ syl，哈哈哈哈，杏奴差不多得了
 
 
 
- 参与人数 9战斗力 +5
+ 参与人数 10战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| sd873148| + 1|好评加鹅|
 | 巨尻压面饼| + 1||
 | OldGlory| + 1|这为啥扣|
 | caupollen| + 1|为啥要扣分，不挺乐的吗|
@@ -3976,6 +3977,25 @@ All I Want For Christmas Is You/高峰伊織×江戸レナ×イトイ(Cover)
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|hachi唱的还真有uru内味|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4125,4 +4145,714 @@ discord什么时候解决多人爆音的问题
 
 
 
-                                           
+
+
+-----
+
+####  noHentai  
+##### 25691#       发表于 2020-12-24 03:09
+
+
+
+
+管人无关水<blockquote>要想赚大钱，只能想办法扩张。从2015年到2020年，蛋壳公寓经营的公寓房间，从2434间增加到了41.9万间。
+
+——《长租公寓是如何暴雷的》</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25692#       发表于 2020-12-24 07:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49825168&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-24 03:09</a>
+
+管人无关水</blockquote>
+关键是vt没有上杠杆= =爆了换另一家D不就好了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 25693#       发表于 2020-12-24 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824546&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-24 00:22</a>
+
+一直很少听也不关心管人翻唱，最近补年末音番突然想听听管人翻唱热门主流歌手比如三浦大知星野源aimer世终 ...</blockquote>
+推荐一哈小狮子的猫BV1Dy4y1k7bS
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25694#       发表于 2020-12-24 08:58
+
+
+
+
+えらちゃん健身环
+
+１０時
+
+朝だからリングフィットやる
+
+能把她逼出来的除了抽卡和联动，还有会限bug
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 25695#       发表于 2020-12-24 09:13
+
+
+
+<blockquote>Map-2 发表于 2020-12-23 23:40
+记得明天来看哦
+
+syl泥潭没有诚哥的麻将吗？还是说我没找到</blockquote>
+今天不看不是人
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25696#       发表于 2020-12-24 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824546&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-24 00:22</a>
+一直很少听也不关心管人翻唱，最近补年末音番突然想听听管人翻唱热门主流歌手比如三浦大知星野源aimer世终 ...</blockquote>
+roha lee的美術館で会った人だろ
+https://b23.tv/o0c1uM
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25697#       发表于 2020-12-24 10:37
+
+
+
+
+太红了，太红了
+<img src="https://p.sda1.dev/0/dc4b04bf8122c0e40ed1c3d7bfb95312/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/34939feca0c8dcd4abfd9f0f30cf33c9/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/fbddd152380e1dfbe527ab0f872ca509/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/16658e8ad2149b9c7413d1f412dff17f/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 25698#       发表于 2020-12-24 10:42
+
+
+
+
+令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25699#       发表于 2020-12-24 10:46
+
+
+
+
+Yoasobi和Lisa都上红白了，holo应该也快了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25700#       发表于 2020-12-24 10:50
+
+
+
+
+可能是VTB首次iTunes实时综合TOP1
+<img src="https://p.sda1.dev/0/e71a3ec8be83c169232806950a758f74/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/e85062eeefd9b73b9ef62adba9d5ca1d/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25701#       发表于 2020-12-24 10:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 切勿斗虫上脑，数据楼请发隔壁colo综
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 25702#       发表于 2020-12-24 10:55
+
+
+
+
+2000你该不会酸了吧
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 25703#       发表于 2020-12-24 10:57
+
+
+
+
+hololive只剩下(买的)数字了.jpg
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25704#       发表于 2020-12-24 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">告诉我，怎么样才能算现象级
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25705#       发表于 2020-12-24 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827181&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2020-12-24 10:55</a>
+
+2000你该不会酸了吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/24/105645c7n5tixyt8ni5rit.jpg" referrerpolicy="no-referrer">
+
+
+<strong>qq12347256713.jpg</strong> (12.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 10:56 上传
+
+
+
+
+
+
+
+我太酸了，一想到我最喜欢的彩虹、最喜欢的RD、德龙、月之，这辈子碟都卖不过holo，我就气不打一处来，烦闷之情无处发泄，
+
+
+恨不能自己能买10000张碟让彩虹碟卖的比隔壁多
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 25706#       发表于 2020-12-24 11:05
+
+
+
+
+期待木口登顶红白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+武道馆不是梦！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25707#       发表于 2020-12-24 11:06
+
+
+
+
+真心期待holo上红白<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25708#       发表于 2020-12-24 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">期待2K买碟帮助彩虹蒸蒸日上嚯~
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 25709#       发表于 2020-12-24 11:10
+
+
+
+
+武道馆已经是旧时代的小池塘了，目标先定个东京巨蛋吧
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 25710#       发表于 2020-12-24 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">木口上红白好啊，可以看车祸笑话，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25711#       发表于 2020-12-24 11:11
+
+
+
+
+烈火烹油，钟鸣鼎沸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25712#       发表于 2020-12-24 11:12
+
+
+
+
+买的，买的，不要大惊小怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+不过holo要是真上红白那还挺有乐子的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25713#       发表于 2020-12-24 11:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 某些阳光人看不惯我木口取得成绩就在那酸是吧，连东蛋都说出来了，红白——东蛋——国立，步子要一步步来好吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zerouuz|-1|思路广|
+| winda| + 1|与有荣焉|
+| nowaki|-2|你虹我杏|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 25714#       发表于 2020-12-24 11:18
+
+
+
+
+东蛋不是可以开半场吗，虹杏随便上啊
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 25715#       发表于 2020-12-24 11:21
+
+
+
+
+2nd的stage2就有70万推文、倍杀两国，已经足够填半个巨蛋了，再加上一年的发展或梅花桩票，真的能满场巨蛋，不开玩笑。我是真的羡慕。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 25716#       发表于 2020-12-24 11:33
+
+
+
+
+感觉自己又要重走AKB，ll，imas的路
+老害犯病，红了就失去热情了
+想找新的底边看了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25717#       发表于 2020-12-24 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827097&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-24 10:50</a>
+
+可能是VTB首次iTunes实时综合TOP1</blockquote>
+死神那个不是？
+
+
+
+
+
+
+
+-----
+
+####  鹦与鹉  
+##### 25718#       发表于 2020-12-24 11:38
+
+
+
+
+能见到圆脸在红白直播玩糖豆人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 25719#       发表于 2020-12-24 11:42
+
+
+
+
+要上红白有问过老爱么∠( ᐛ 」∠)_，上也是老爱先上。
+
+不知今年还会不会有nhk虚拟红白
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 25720#       发表于 2020-12-24 11:43
+
+
+
+
+nga虹楼车阿叶转播间给我气笑了，刚注册个账号要说一说，结果48个小时才能发言，无语了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25721#       发表于 2020-12-24 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827722&amp;ptid=1969498" target="_blank">poipanchao 发表于 2020-12-24 11:33</a>
+感觉自己又要重走AKB，ll，imas的路
+老害犯病，红了就失去热情了
+想找新的底边看了 ...</blockquote>
+可以去看sc啊，绝对永远红不了。
+
+省一楼，要是疫情早点好就好了，各种live压了一年也该开了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+再省一楼，郡道深夜开失恋棉花糖烦恼湘潭，平安夜搞这个郡道什么人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25722#       发表于 2020-12-24 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827871&amp;ptid=1969498" target="_blank">netwof2008 发表于 2020-12-24 11:43</a>
+
+nga虹楼车阿叶转播间给我气笑了，刚注册个账号要说一说，结果48个小时才能发言，无语了 ...</blockquote>
+没必要下场，你开个新号过去也是被嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25723#       发表于 2020-12-24 11:48
+
+
+
+
+管人真上红白，理论来说可能性最大的依次是老爱，HH，裸春，虹杏往后稍稍吧
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 25724#       发表于 2020-12-24 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827893&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-24 11:45</a>
+可以去看sc啊，绝对永远红不了。
+
+省一楼，要是疫情早点好就好了，各种live压了一年也该开了，</blockquote>
+sc我有看啊，瑟图
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25725#       发表于 2020-12-24 11:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">信号过去要被当成2000小号口球的
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 25726#       发表于 2020-12-24 11:49
+
+
+
+
+holo上红白播片吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25727#       发表于 2020-12-24 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两页在讨论杏竟然没几个是杏仁，这到底是什么精神。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25728#       发表于 2020-12-24 11:54
+
+
+
+
+nhk的虚拟红白已经配不上杏了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是时候要更进一步了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25729#       发表于 2020-12-24 12:02
+
+
+
+
+支持叶队下场嗷，NGA火畜太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          

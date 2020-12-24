@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 18:16** 
+> ## **本文件最后更新于2020-12-24 12:18** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_CCRUN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_IpspY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -2177,10 +2177,16 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
+ 本帖最后由 SuperCK 于 2020-12-24 00:09 编辑 
 
-录播存档（持续更新）
+A-SOUL录播存档（持续更新中）
 [https://pan.baidu.com/s/1ANeGXT7QCSOFpFJW85ZAgw](https://pan.baidu.com/s/1ANeGXT7QCSOFpFJW85ZAgw)
 提取码：idid
+
+
+文件命名格式为 开播时间+直播间标题
+flv文件为录播视频（抓取b站直播流）
+xml文件为弹幕记录（请阅读[B站录播姬使用文档-弹幕录制](https://rec.danmuji.org/docs/desktop/danmaku/)以了解打开方式）
 
 
 
@@ -2308,4 +2314,594 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
-                                             
+
+
+-----
+
+####  SuperCK  
+##### 124#       发表于 2020-12-22 22:31
+
+
+
+
+【12.22本周直播预告】
+预告来啦！这周除了向晚和嘉然，贝拉和珈乐也会开始直播啦，还有我们的A-SOUL小剧场第2期~小伙伴们注意查看时间和平台哦！ღ( ´･ᴗ･` )
+
+12月23日周三晚8点，@向晚大魔王 首次(划掉)直播，抖&amp;B都在晚晚的直播间~
+12月24日周四晚8点，@贝拉kira 首次直播，抖&amp;B都在贝拉的直播间~
+12月25日周五晚8点，A-SOUL全员直播，抖&amp;B都在@A-SOUL_Official 直播间哟~
+12月26日周六晚8点，还是@向晚大魔王 直播，抖&amp;B都能看~
+12月27日周日晚8点，@珈乐Carol 首次【抖限】直播！只有一边有哦，注意别走错啦~
+
+————————————————————
+
+亲爱的小伙伴们：
+非常抱歉这周的QA发晚了，运营桑整理了私信里问得比较多的问题，具体的回复看下面噢！谢谢大家给我们建议和意见，比心！
+
+Q 什么时候能有直播日程表？
+A 小伙伴你好！近期会在这个账号发布一周内的直播预告，后续会有更详细和稳定的规划的！
+
+Q 你们会撕皮嘛？
+A 小伙伴你好！撕皮什么的，不用想啦，是不可能、绝不会的。
+
+Q 会考虑分平台直播吗？不要抖音B站同时播
+A 小伙伴你好！技术部门已经在采购新的设备啦，明年会有更多B限直播的计划哦！
+
+Q 我中的奖什么时候发？
+A 小伙伴你好！不好意思久等啦，我们现在还在收集获奖者的信息，截止领奖后，会统一购买奖品并进行发放哦！
+
+Q 角色号是运营桑代发吗？
+A 小伙伴你好！角色号是A-SOUL五位小姐姐们平时自己在用的，运营桑代发会写明（运营代发）之类的说明的。
+
+Q 二创需要授权吗？
+A 小伙伴你好！在遵守法律法规、非商业使用性质的前提下，都可以放心二创哟！后续我们也会公开A-SOUL模型配布，欢迎大家进行创作！
+
+Q 向晚能不打2077、打点更欢乐、跟观众互动更多的游戏吗？
+A 小伙伴你好！好的，我们在改了嗷，对于向晚首播不够精彩的问题我们也进行讨论分析，也在选新游戏了，有什么希望向晚打的游戏也可以告诉我们哦！
+
+Q 向晚的脸会修吗？
+A 小伙伴你好！目前优化进度60%，敬请期待~
+
+Q 贝拉的脸会修嘛？嘴太难看了
+A 小伙伴你好！已经优化完成啦，请务必来看12月24日周四的贝拉首播哦！
+
+Q 直播剪辑可以关心下字幕文化吗？
+A 小伙伴你好！字幕的样式设计我们在进行中了，会优化的嗷。
+
+Q A-SOUL的粉丝团叫什么？
+A 小伙伴你好！这个名字我们也没想好，有机会大家一起想想吧！
+
+Q 五个小姐姐会开个人微博吗？
+A 小伙伴你好！目前暂无计划哦。 
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 125#       发表于 2020-12-22 22:32
+
+
+
+
+好时代，来临叻
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 126#       发表于 2020-12-22 22:39
+
+
+
+
+嘉然表情包收集
+<img src="https://p.sda1.dev/0/0ef4d7df346fad2fedac18b623a19e90/IMG_CMP_39346719.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/155fb9cf8278d693b843e93a2c3c9835/IMG_CMP_47405298.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/bad21d238d316382e4f60ed19c2d4d0c/IMG_CMP_86072819.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/a8d632f47a62775d11bf24aff15daf50/IMG_CMP_162126166.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/356090ba54a1e9455bb197607ce1bc4d/IMG_CMP_62120767.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| honeybrain| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 127#       发表于 2020-12-23 22:22
+
+
+
+
+今天向晚的直播也不错，4倍速极乐净土直接直播事故<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 128#       发表于 2020-12-23 23:14
+
+
+
+
+四倍速极乐净土➡️跳到脚崴➡️耻辱下播➡️光速石膏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 129#       发表于 2020-12-23 23:23
+
+
+
+
+正经的说，NGA那边不给讨论，V8开始黑转路黑转粉，S1有专楼，不知道以后能不能热闹起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以现在这个技术力，这样的运营能力，尤其是中之人的专业度：舞力，歌力，接梗，抗压等等还有许多。对比现有日V国V市场完全是碾压性的。只要母公司肯投资源，甚至用不到饭圈的操作手法，单靠常规运营就足以碾压所有的同业。
+
+到目前，从现有的表现来看，对现有B站的V，尤其是日V是降维打击。
+
+NGA不给讨论也就是鸵鸟，明眼人一看高下立判了。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 130#       发表于 2020-12-23 23:27
+
+
+
+
+a soul 这边的日常舞蹈干翻很多live了，就是每次直播唱歌太少了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 131#       发表于 2020-12-23 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824064&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-23 23:23</a>
+正经的说，NGA那边不给讨论，V8开始黑转路黑转粉，S1有专楼，不知道以后能不能热闹起来
+
+以现在这个 ...</blockquote>
+抗压是真的够，嘉然能反手置顶定型文，向晚直接套娃黑历史，效果就直接拉满了。很期待然然来一期读评论，现场变成新概念作文大赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 132#       发表于 2020-12-23 23:42
+
+
+
+
+唯二的缺点：游戏力，目前看起来是短板，但如果剪辑MAN有能，那么不是问题，我也相信剪辑的能力。二次元浓度不高，不过这些属于背景知识，这个年纪的妹子需要花点时间看片。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 133#       发表于 2020-12-23 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824224&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-23 23:42</a>
+唯二的缺点：游戏力，目前看起来是短板，但如果剪辑MAN有能，那么不是问题，我也相信剪辑的能力。二次元浓 ...</blockquote>
+游戏还是以综艺为主吧，本身也不是走一般直播的路子，顶着顶级3D皮打游戏也太浪费了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 134#       发表于 2020-12-24 00:07
+
+
+
+
+由今天的直播情况看，届到的难度很高，没有节目效果的弹幕哪怕是打SC也很难得有响应。直播节目效果非常好，但是对于打钱的影响心情很不爽。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 135#       发表于 2020-12-24 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824431&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-24 00:07</a>
+由今天的直播情况看，届到的难度很高，没有节目效果的弹幕哪怕是打SC也很难得有响应。直播节目效果非常好， ...</blockquote>
+首先要保障演出效果，打sc会看一下提一嘴，过于ky的不读也罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 136#       发表于 2020-12-24 00:35
+
+
+
+
+以后a团统治v圈，楼里的大家都是功臣<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 137#       发表于 2020-12-24 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824224&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-23 23:42</a>
+
+唯二的缺点：游戏力，目前看起来是短板，但如果剪辑MAN有能，那么不是问题，我也相信剪辑的能力。二次元浓 ...</blockquote>
+除非一定要主打游戏这个人设，要不游戏强不强根本无所谓  至于二次元嘛   国V里面很多也不高
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 138#       发表于 2020-12-24 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824099&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2020-12-23 23:27</a>
+
+a soul 这边的日常舞蹈干翻很多live了，就是每次直播唱歌太少了</blockquote>
+歌力到底怎么样  有没有切片？
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 139#       发表于 2020-12-24 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824656&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-24 00:42</a>
+歌力到底怎么样  有没有切片？</blockquote>
+等切片man吧，这次清唱k-on的一首曲子，也不能说好听，但感觉就像平时很嗨皮的女生课间休息的时候看窗外发呆，突然来了个清唱，你感觉，哦！真是想不到她居然会唱，还挺好听的（普通人范围）
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 140#       发表于 2020-12-24 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824680&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2020-12-24 00:47</a>
+
+等切片man吧，这次清唱k-on的一首曲子，也不能说好听，但感觉就像平时很嗨皮的女生课间休息的时候看窗外 ...</blockquote>
+主楼这位才是主打唱歌的吧  能到什么水平？还是没唱过得等首播?
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 141#       发表于 2020-12-24 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824706&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-24 00:52</a>
+主楼这位才是主打唱歌的吧  能到什么水平？还是没唱过得等首播?</blockquote>
+王加乐确实是歌担，唱歌好像仅在asoul团体首播有过，只能说外表看上去是帅气大姐姐但声线莫名有点反差。具体还得看首播。
+#低二次元浓度预警
+
+
+
+
+
+
+
+-----
+
+####  濡鸦之羽_  
+##### 142#       发表于 2020-12-24 01:49
+
+
+
+
+向晚这个gamer太难了，基本上是最难开局了。我看她签名感觉是个氪金手游玩家，悲观一点是王者荣耀，pubg玩家，这基本就是死路。要是真的铁了心走gamer路线，大锤耐久回走起。
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 143#       发表于 2020-12-24 04:04
+
+
+
+
+感觉没怎么投入宣发？
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 144#       发表于 2020-12-24 05:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49825242&amp;ptid=1974517" target="_blank">freeze_Jack 发表于 2020-12-24 04:04</a>
+感觉没怎么投入宣发？</blockquote>
+宣发在抖音吧，B站又不可能捧得太过，NGA又去不了，看起来可不就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 145#       发表于 2020-12-24 05:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824656&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-24 00:42</a>
+歌力到底怎么样  有没有切片？</blockquote>
+唱歌的话，反正嘉然是明确很一般的
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 146#       发表于 2020-12-24 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49824998&amp;ptid=1974517" target="_blank">濡鸦之羽_ 发表于 2020-12-24 01:49</a>
+
+向晚这个gamer太难了，基本上是最难开局了。我看她签名感觉是个氪金手游玩家，悲观一点是王者荣耀，pubg玩 ...</blockquote>
+从她这两次的反应看，怀疑晚晚是不玩游戏的现充
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 147#       发表于 2020-12-24 09:26
+
+
+
+
+A-SOUL一路看下来，与其说是大资本下场干烂V圈，不如说是大资本玩票性质的试验女团，运营让人觉得不专业，没有方向乱使力
+
+对比千鸟那种高密度直播，这边想看个嘉然不知道还要等多久。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 148#       发表于 2020-12-24 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826168&amp;ptid=1974517" target="_blank">deadpoem 发表于 2020-12-24 09:26</a>
+A-SOUL一路看下来，与其说是大资本下场干烂V圈，不如说是大资本玩票性质的试验女团，运营让人觉得不专业， ...</blockquote>
+别尬黑，现在开始a团每晚八点都有直播。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+2d每次直播成本太低了，3d还得布置道具和工具人，背后又是一帮团队时刻待命。
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 149#       发表于 2020-12-24 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826194&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2020-12-24 09:29</a>
+
+别尬黑，现在开始a团每晚八点都有直播。
+
+2d每次直播成本太低了，3d还得布置道具和工具人，背后又 ...</blockquote>
+但播的频率还是太低了，按现在密度来算，单推人可能一星期才看到一次自己推在播，而且珈乐还是抖音首播 ，抖音还有一堆限定小视频，B友真是输的什么都不剩<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 150#       发表于 2020-12-24 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826276&amp;ptid=1974517" target="_blank">deadpoem 发表于 2020-12-24 09:38</a>
+但播的频率还是太低了，按现在密度来算，单推人可能一星期才看到一次自己推在播，而且珈乐还是抖音首播  ...</blockquote>
+往好处想，磨刀不误砍柴工，机师也得有时间锻炼下操作水平，和机修团队增加默契。毕竟本质是传统女团，新歌新舞杂谈力表现力也得有时间去锻炼不是<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 151#       发表于 2020-12-24 10:50
+
+
+
+ 本帖最后由 临界点 于 2020-12-24 10:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49826276&amp;ptid=1974517" target="_blank">deadpoem 发表于 2020-12-24 09:38</a>
+
+但播的频率还是太低了，按现在密度来算，单推人可能一星期才看到一次自己推在播，而且珈乐还是抖音首播  ...</blockquote>
+想想歌姬的直播密度  这种3d女团不能跟普通V去比   抖音又不是油管  要看还是很方便的 看的是人又不是平台   A_soul肯定是试水  很多东西都要试错磨合  这个圈子才多大而已   不可能一下就把全部资源都怼进来  运营是不专业 但国内V圈有专业的？  现在看起来起码运营的态度还是不错的  各种意见都能有及时反馈
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 152#       发表于 2020-12-24 11:17
+
+
+
+
+最开始播的时候弹幕都是乐子人在找乐子，想看笑话，但是v抗压优秀。看完嘉然连跳20多分钟，我就明白了，这个企划是真的有东西，而且是很有东西。现在的v圈，90%还是封建割据向资本主义萌芽转型，突然来一个能打海陆空立体作战，跨越几个世代。如果现行饭圈作为目前战斗力巅峰，沙漠风暴时的美帝，那么a soul至少能有二战诺曼底登陆时美帝的水准。 接下去真是平a，就真是平a就可以了，只要自己不做妖，这个水准打穿v圈没悬念的。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 153#       发表于 2020-12-24 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827533&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-24 11:17</a>
+
+最开始播的时候弹幕都是乐子人在找乐子，想看笑话，但是v抗压优秀。看完嘉然连跳20多分钟，我就明白了，这 ...</blockquote>
+学会哥的运营,接下来只要A上去就好了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            
