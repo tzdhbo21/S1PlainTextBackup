@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 22:06** 
+> ## **本文件最后更新于2020-12-25 00:06** 
 
 
 
@@ -8329,11 +8329,14 @@ QQ截图20201224214104.png
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-24 22:04 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-24 22:09 编辑 
 
 黑黑有计划发歌chocolate box，印象中天羊唱过，歌词很..<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
-马车随手摇人，拉皇女，评论区「人家在直播啊！」
+马车随手摇人，看到了皇女，评论区「人家在直播啊！」
+
+
+狙击卵用了
 
 
 
@@ -8364,8 +8367,40 @@ QQ截图20201224214104.png
 
 
 
+ 本帖最后由 caupollen 于 2020-12-24 22:12 编辑 
 
 yagoo的推特号怎么被封了
+
+
+
+
+
+
+EqAQ2gOVQAAdhmh.png
+(8.62 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-24 22:12 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/221225q77rmng1nvtzz1wn.png" referrerpolicy="no-referrer">
+
+
+
+
+
 
 
 
@@ -8458,4 +8493,845 @@ yagoo的推特号怎么被封了
 
 
 
-                                    
+
+
+-----
+
+####  mmbk  
+##### 25900#       发表于 2020-12-24 22:06
+
+
+
+
+niru二连鸡，我的超人...
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25901#       发表于 2020-12-24 22:09
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1glzatgywtjj20gl0r9die.jpg" referrerpolicy="no-referrer">
+
+
+十万日元抽卡的悲剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25902#       发表于 2020-12-24 22:17
+
+
+
+<[img src="https://i.loli.net/2020/12/24/Xwx6DuIbVHBr9tc.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25903#       发表于 2020-12-24 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49834164&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-24 21:58</a>
+
+yagoo的推特号怎么被封了</blockquote>
+没封啊，Bug?
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25904#       发表于 2020-12-24 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49834337&amp;ptid=1969498" target="_blank">kikiwalu 发表于 2020-12-24 22:18</a>
+
+没封啊，Bug?</blockquote>
+刚复活吧
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 25905#       发表于 2020-12-24 22:29
+
+
+
+
+兔头这个歌力进步太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再努力努力可以干爆垃圾圆脸了
+
+
+
+
+
+
+
+-----
+
+####  7200词  
+##### 25906#       发表于 2020-12-24 22:31
+
+
+
+
+日本人不要太过分了，这都啥玩
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25907#       发表于 2020-12-24 22:34
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-24 22:59 编辑 
+
+黑黑这边马车狙卵用，排上了伪·叶师和伪·ras，两个伪物都打得挺好（伪·叶师一直在一二名）
+
+叶师只有在自己最近练习过、特别熟悉的图一直抄近路才能赢过伪物，黑黑马车大赛，怕不是要凉
+
+
+卵用近道挺熟悉的，可惜操作还稍微
+
+
+Syl，圣诞礼物送包也太现充了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25908#       发表于 2020-12-24 22:36
+
+
+
+
+月之全年最有女友感的一天，
+
+谢谢，谢谢（哽咽）
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 25909#       发表于 2020-12-24 22:41
+
+
+
+
+言叶下周还要播。31日晚23点半过年配信是么？没看懂=。=
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 25910#       发表于 2020-12-24 22:58
+
+
+
+
+这……这蛮可爱的嘛！<img src="https://p.sda1.dev/0/c817405ae28c7342d677e77df1ab2411/IMG_CMP_175051047.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 25911#       发表于 2020-12-24 22:59
+
+
+
+
+兔头和一年前相比真的进步明显
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 25912#       发表于 2020-12-24 23:03
+
+
+
+
+ぺこ巫女が同じベットで！？
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25913#       发表于 2020-12-24 23:05
+
+
+
+
+天球！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25914#       发表于 2020-12-24 23:06
+
+
+
+
+彩虹同接也还是有问题阿，葵皇这弹幕速度你跟我说是5K同接？
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 25915#       发表于 2020-12-24 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49834681&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-24 22:58</a>
+这……这蛮可爱的嘛！</blockquote>
+好耶<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25916#       发表于 2020-12-24 23:11
+
+
+
+ 本帖最后由 pansherry 于 2020-12-24 23:15 编辑 
+
+兔子2号左右开始播如龙0，要到了最终章的播放许可
+不过原先准备的纸芝居最终章听起来也不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25917#       发表于 2020-12-24 23:11
+
+
+
+
+1.希望你圈都能和天皇一样pro直播开playback
+
+2.天皇这歌力涨的是真厉害，离圆脸可能就差体力了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25918#       发表于 2020-12-24 23:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/231120wzzv9iepui50v9s6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqAZN64UcAEu9eR.jpg</strong> (755.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 23:11 上传
+
+
+
+
+
+[https://twitter.com/Itumade3/status/1342100631973023750](https://twitter.com/Itumade3/status/1342100631973023750)
+
+<img src="https://img.saraba1st.com/forum/202012/24/231119xpmm7j99b7ffqdf0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqArCWKVgAET3hj-min.jpg</strong> (442.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 23:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/231118vmdmtqmwhql4340w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqAq9RvVQAAp0GD-min.jpg</strong> (442.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 23:11 上传
+
+
+
+
+
+[https://twitter.com/sei1go/status/1342121740219006976](https://twitter.com/sei1go/status/1342121740219006976)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25919#       发表于 2020-12-24 23:15
+
+
+
+
+看到隔壁谭在聊 <blockquote>似乎瓜小姐又被炎上了
+[https://nga.178.com/read.php?tid=24808113](https://nga.178.com/read.php?tid=24808113)</blockquote>
+
+放个前因后果
+<[img src="https://i.loli.net/2020/12/24/hjW6XfGcbvQPZ1O.png" referrerpolicy="no-referrer">
+[https://swallow.5ch.net/test/read.cgi/livejupiter/1608744214/](https://swallow.5ch.net/test/read.cgi/livejupiter/1608744214/)
+
+過疎ユーチューバーになんｊ民で凸して盛り上げようぜ5
+<[img src="https://i.loli.net/2020/12/24/Gx8Nlmz3sCjMacr.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/24/kyt9RXeEZCGipHW.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25920#       发表于 2020-12-24 23:15
+
+
+
+
+委员长这个水平还行啊，下次更新歌力图给放上去
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25921#       发表于 2020-12-24 23:19
+
+
+
+
+下周开始有三次还是四次年末联动，之前说过的兔船应该包括在内吧，不知道还有没有时间开solo
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25922#       发表于 2020-12-24 23:20
+
+
+
+
+唱得挺好的歌，弹得挺好的尤克里里，还偶尔卖个萌，我的心像月之身后的温泉一样温暖<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，
+
+月之圣女<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 25923#       发表于 2020-12-24 23:27
+
+
+
+ 本帖最后由 Hemis 于 2020-12-24 23:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2000这个时候没出现有点不习惯
+
+
+syl 美慧跟父母一起过圣诞节，还蛮符合月灵发的圣诞推的
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25924#       发表于 2020-12-24 23:28
+
+
+
+
+葵皇疯狂展示现充成果，2000大概已经上吊了。
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 25925#       发表于 2020-12-24 23:30
+
+
+
+
+两——千——<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25926#       发表于 2020-12-24 23:31
+
+
+
+
+马上要马车比赛了，黑黑才把版本从「刀也很强」「阿葵很强」更新到「V▶️LZ全员都很强」「长尾景预选每一把都是冠军」
+
+
+凉了啊！快让位吧EX 1位2位
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25927#       发表于 2020-12-24 23:32
+
+
+
+
+bsyl：
+
+葵皇这迟早转型虚拟vlogger第一人，和她的中国粉丝百鸡🐻一样
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25928#       发表于 2020-12-24 23:32
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1glzd8f2uv8j20y40ku41t.jpg" referrerpolicy="no-referrer">
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1glzd9hethqj20xv0j0dj0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25929#       发表于 2020-12-24 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49834879&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-24 23:15</a>
+
+看到隔壁谭在聊</blockquote>
+同样是男人为什么不帮stars引流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 25930#       发表于 2020-12-24 23:39
+
+
+
+ 本帖最后由 黑之和 于 2020-12-24 23:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49835002&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-24 23:31</a>
+
+马上要马车比赛了，黑黑才把版本从「刀也很强」「阿葵很强」更新到「V▶️LZ全员都很强」「长尾景预选每一 ...</blockquote>
+他们现在水平非常不稳定，我现在只希望比赛的时候道具不要太 搞心态就好了，<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">随缘了随缘了
+
+还是cr杯更紧张一点，
+
+syl
+
+葛查教练房，发现在做蛋糕  （可爱
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 25931#       发表于 2020-12-24 23:40
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-24 23:43 编辑 
+
+月灵：如何正确地过圣诞节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，确实，隔壁说得对，月灵姐这张图的肚脐下面有雪花纹，太色了太色了，yin纹也懂的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25932#       发表于 2020-12-24 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 说了我早脱粉了，，你们觉得怎么样就怎么样呗，跟我又没什么关系
+
+
+不过提到我就说一句，什么vlogger，不就是抄袭hikakin的么，但vlog这个形式，不搞颜出，遮遮掩掩一辈子，
+
+
+听我句劝，早点去棒子割胃、整容一条龙，做泳装颜出主播吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25933#       发表于 2020-12-24 23:42
+
+
+
+
+郡道圣诞搞失恋杂谈（[https://www.youtube.com/watch?v=evT8r6gEAn0&amp;feature=youtu.be](https://www.youtube.com/watch?v=evT8r6gEAn0&amp;feature=youtu.be)），
+
+第二个就是男同打手枪内容，真不错啊！
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25934#       发表于 2020-12-24 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了就看了 要是个祭丝开个播发个推她自搜到了说不定也会来
+
+lga第一天看阿希？
+
+
+
+
+
+
+
+-----
+
+####  没有爱就看不见  
+##### 25935#       发表于 2020-12-24 23:51
+
+
+
+
+感觉月之买了尤克里里后就越来越容易让人gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 25936#       发表于 2020-12-24 23:51
+
+
+
+
+12.24.流水账repo（为什么泥潭没折叠<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+很厉害的蛋糕   拍了照  蛋糕的样子  好像推上有人找出来了
+
+像草一样的卷心菜  还有蘑菇（巧克力做的小模型？？
+
+很好吃
+
+一直有葛啪嗒啪嗒摁switch的声音，超用力感觉要坏了
+
+葛把垃圾随便扔地上：反正不是我家（kimo笑
+
+宣传汉堡肉料理音声（是家里来女人的那天在叶家录的一小时立体声麦无cut版
+
+mini live 具体日期未定  大概年初的一到三月（今年元旦联动说过的想开live，终于要实现了
+
+————回顾一年中发过的曲子————
+
+破冰这首歌 叶给葛听了两版不同唱法的，最后是葛选的现在这版（葛：有叶的感觉
+
+let it burn 是黑黑先录，社长再和声
+
+geminids  有圣诞的感觉，和之前的歌风格也不太一样
+
+来年大概情人节左右想翻唱<strong>chocolate box</strong>（葛主动提想唱，19年5月的直播叶提过葛就记住了
+
+叶：想出组合专
+
+——————————
+
+在决定玩什么游戏
+
+马车？大乱斗？
+
+葛：宝可梦吧（铁血宝可梦民
+
+————————
+
+马车ing
+
+葛的五条悟模仿（五条葛
+
+叶马车很久没练，最近就直播过一次吧？变得超菜（大暴死预定？
+
+葛，看到卵用在玩马车，狙击卵用，跑完觉得卵用应该没发现自己也在（因为是笨蛋
+
+看两个人马车，葛比叶熟练多了，结果新开一局立马倒数第一
+
+玩兴奋了甚至忘记卵用还在了
+
+soraru按照约定来打红sc了（实质新年红包
+
+——————————
+
+拆礼物
+
+别人（oda？）送的礼物，是成对的包包（Gucci？），写着马车胜利的人才能打开，葛赢了所以葛开的，另一个包给叶了
+
+u助妈妈也来打钱了
+
+——————————
+
+接着马车
+
+狙击卵用
+
+
+
+流量实在顶不住了，剩下的熬不住了，之后再补录播吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|后面再补吧，现在卡到不能看了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25937#       发表于 2020-12-24 23:57
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-25 00:04 编辑 
+
+黑黑频道这个回线有点问题，也有可能是叶师家拉垮网络的问题，今天晚上一直卡，刚才一瞬间卡没8k同接
+
+Syl，也有人在说出现了评论消失情况，可能就是油管问题了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25938#       发表于 2020-12-25 00:03
+
+
+
+
+月灵姐姐很懂啊
+
+
+
+
+
+                                   

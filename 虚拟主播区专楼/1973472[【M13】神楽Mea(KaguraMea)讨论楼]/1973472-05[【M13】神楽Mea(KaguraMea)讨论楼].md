@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 16:08** 
+> ## **本文件最后更新于2020-12-25 00:11** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_aAg8a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_uf7c0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10132,4 +10132,563 @@ bsyl，难受只看了后半部分，月兔！
 
 
 
-                              
+
+
+-----
+
+####  Joffre✔  
+##### 6579#       发表于 2020-12-24 16:21
+
+
+
+
+今晚直播 小麻：你问为什么我一直在喘气？因为我在玩健身环啊。最近debu了要减肥
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6580#       发表于 2020-12-24 16:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">从10分钟开始 圣诞夜发疯回
+
+
+点外卖 还是吃麦当劳好了 点啥呢 巨无霸啊 巨无霸的酱汁好吃啊 能不能单点酱汁啊 帅哥音？我有帅哥音的哦（变声器 地狱音声） 啊点这个巨无霸套餐吧 要什么小吃呢 薯条？就薯条吧 饮料要啥呢 现在喜欢喝芬达呢 以前都觉得不点雪碧的人不是国民 现在更喜欢芬达 啊不够外送的价钱啊 再点个饮料吧 两个汉堡吃不下 汉堡要是冷了就不好吃了 要到圣诞节了啊 新冠啥的又更麻烦了啊...（？）
+
+前天说让阿宅在live里面截30张左右的图做个相册一样的然后加个めあしがかたん　然后阿宅都没有理解到意思就截了单张的图啊 不过有一个是理解到我的意思 有那种感觉了 对fafaかな酱 截的好可爱啊 不管那张都好可爱啊！ fafaかな？不许叫她名字啊 叫fafaかなさま！我和她比较熟才这么叫的啊 虽然也是第一次叫） 啊不小心传出了推特广告的声音 才不是男友突然出声了哦 
+
+对了能不能在sl那里把某个人禁掉来着 昨天有个人留言说什么想喝生理血 黄牌了啊 该考虑ban掉了 
+
+今天早上醒来有点冷 开了会电热毯（？）定时暖了一会 不太想要喉咙太干啊 
+
+圣诞节很多人会买蛋糕吧 然后做蛋糕的人就很会忙 就不想去买了 虽然只是不想出去的借口 去买了的话就会想做更多圣诞感觉的事情了啊！今年决定了圣诞夜圣诞节都不出去都待在家里！一步也不出门 就等会去电脑面前把第二年的粉丝徽章加进去就完了 然后稍微播一下的样子 感觉今年是最不像圣诞节的圣诞节了 也是最不像圣诞夜的圣诞夜
+
+啊好像去momo酱家过圣诞节啊！看了她的instgram昨天发了说圣诞做和式餐 做的好好吃的样子 那个鱼感觉能吃下五块啊！（momo酱还过来了） 明明汉堡只能吃下一个鱼却能吃下五块 是呢ww 
+
+今天是收益化二周年纪念 别啦 网络社会社会来说哪有人会庆祝收益化二周年的啊 也太那个了 只让乐一老师画了图然后今天把会员徽章更新下  退会员了？这是你人生的一大损失啊！明年就你家顶上下冰雹 （外卖到了）因为今天是圣诞节 和大家一起吃麦当劳❤
+
+吃完去看水曜日downtown了 不许剧透！昨天播完就打游戏去了没看 打到早上4点 不是mmo是影之诗w 而且不是天梯是和别人好友对战 自己是用守护教 对面倒是有在换套牌 大战了五十把 打了4 5个小时 说是打着影之诗迎来圣诞夜也不为过 
+
+（吃麦当劳）聊到吃麦当劳不健康 咩说每天吃才叫不健康 自己平时都是吃的拉面这些的 不算不健康 然后说到感觉像是住在小岛的人 说想去奄美大島 好像也是有住的地方的 好像风景不错 （这边在吃麦当劳 没怎么听清）
+
+和女友打电话就是这种感觉吧 煲78小时电话粥 “女友明天打工到8点” 啊 哈哈 麦当劳真好吃 想去momo酱家啊 要是做了momo酱那样的一桌菜明天就要死掉了啊 主要是洗的东西会很多 自己家里太多东西没洗了 虽然自己是用洗碗机的 但是也不是放进去就好了 
+
+要放进去也很麻烦 所以就堆了一星期的量 有一种拿来吃冰的勺子来着 说是很容易传热量所以挖冰的时候热量会传过去更容易挖 不过冷也会传回来然后冻到自己就是了 然后把这勺子放进去洗碗机之后拿来出上面蒙了层雾一样 本来是很光滑的都可以照出自己 不知道是不是不能随便放进去洗的 
+
+对了最近家附近总是有很大的饭菜味飘过来啊 不知道的还以为周围开了饭馆了 不用打开玄关都能闻到的程度 非常大的印度菜的味道 就那种路过印度餐馆的时候的味道 非常大的香料味 味道**了 太臭了 都快吐了 还以为是不是在做实验啥的
+
+以前去过一家甜品店来着 在原宿那边 叫生cream专门店 去那边吃帕菲啥的甜点 之前和朋友去的时候 大中午的排了一条长队 还很多都是JK 最近 也就去年吧 在工作日去的 没有连休的时候 就很少人在 还有个在那里工作的 店很时髦 是女人会喜欢的感觉
+
+今年圣诞节好无聊啊 明天有很多联动就是了”去年有男友介绍“今年能见到很多人实质也差不多了~ 明天有舞元裁判 诶这个检察官是干嘛的来着？揭发舞元？懂了 明天有和gueru的15分钟马车联动 中午有桃铁 还有舞元裁判 桃铁是最不想做的联动了啊 现在被穷神缠身一点都不好玩 
+
+好无聊 要干啥啊 如月要和白宫联动？真的？那我呢？好闲好闲 今天也没能去成银行 大家在”圣诞快乐！“我也”圣诞快乐(无力）” 明年也要这么过吗。。本来圣诞节想要投稿翻唱 的结果各种各样的事弄着现在反应过来已经是12月了 
+
+PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥影响 诶反过来了？反正都没被删 应该都是有认证的吧 说一下ph的功能？我自己都不太懂 cosplay的AO被删掉了很多？诶真好啊 有小圆的吗？有看过黄漫老师的 不过自己不怎么喜欢看这种 看的肯定都是阿宅吧  在PH上的自己的剪辑？没了？太好了 去PH看那种东西的脑袋肯定有问题啊
+
+“如果活下来了就证明mea被公认了啊”诶好像也对 搜了下好像没有了诶 诶—— 太好了（棒读）“还有五个左右”你咋这么清楚 kimo 不过PH是个很好的视频网站呢 要是要是油管啥的都没了 我就天天看PH
+
+诶我也想带圣诞帽 不是驯鹿吗？是圣诞老人啊 美少女圣诞老人 袋子里装着大家的钱w驯鹿？就让阿宅来当吧 
+
+今天做什么呢~（乱叫）一起看电影？才不要啊 和阿宅一起看看不下去的啦 “很闲的话就唱歌吧”要说请唱歌才对啊！（乱哼）
+
+啊好痛！ （傻笑 然后开始又玩变声器）学兔鞠 neru酱和patora和絆愛です！用萌音学partota的时候念着念着就变成戳死你杀死你了）（然后高强度发疯）
+
+播的差不多了 想去看水曜日downtown了 今天就不播了明天再播 明天自己频道找个时间播 哦对今晚十二点也是圣诞节了 光想着明天白天了 那就深夜播！想唱歌
+
+“醒着的话圣诞老人不会来的哦”你是蠢蛋吗哪有圣诞老人....啊 对不起 啊我睡着了 zzzzzzz圣诞老人来了吗~说起来小的时候有个小朋友他家的大人说是24号圣诞老人过来送礼物然后聊得时候就说我们家圣诞老人已经来了什么的 
+
+下了！今天念下名字吧~xxx桑 XXX桑（并没有念 只是在口胡）下了！(然后下之前又用变声器吓了大家一跳
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 10战斗力 +11
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 缺陷电气杨永信| + 1|好评加鹅|
+| 路人庚| + 1||
+| 鷹書たかしょ| + 2|好评加鹅|
+| 秋游刃| + 1||
+| Dualist彩| + 1|好评加鹅|
+| elect| + 1||
+| Mikumiku831| + 1|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
+| GRMeA104| + 1||
+| Cushaw| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6581#       发表于 2020-12-24 18:17
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-24 18:23 编辑 
+
+夜半咩歌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+玛德刚发现明天还有烂活<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 6582#       发表于 2020-12-24 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">要去的时候就用怪叫掩饰过去吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6583#       发表于 2020-12-24 19:03
+
+
+
+
+今年的圣诞节从苔总开始,到苔总结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6584#       发表于 2020-12-24 20:17
+
+
+
+
+突然想到看今晚直播同接或可推断天狗的现充数量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 6585#       发表于 2020-12-24 20:29
+
+
+
+
+怎么总有童贞天狗以为只有平安夜才能办事？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6586#       发表于 2020-12-24 21:46
+
+
+
+
+Everyday young life JUNES！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6587#       发表于 2020-12-24 21:56
+
+
+
+
+今晚肯定有保守曲目  我成为别人的女朋友了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6588#       发表于 2020-12-24 21:56
+
+
+
+
+好耶，想听<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6589#       发表于 2020-12-24 22:03
+
+
+
+ 本帖最后由 时雨rain 于 2020-12-24 22:18 编辑 
+
+小绿联动好有趣啊wwww
+
+两人人工合唱https://www.bilibili.com/video/BV1Zy4y1m7qu
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6590#       发表于 2020-12-24 23:13
+
+
+
+
+你麻最近老喜欢这首生日歌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6591#       发表于 2020-12-24 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6592#       发表于 2020-12-24 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6593#       发表于 2020-12-24 23:22
+
+
+
+
+这次瞬き的那句没胡我的妹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 6594#       发表于 2020-12-24 23:29
+
+
+
+
+呜呜呜 好有感染力  爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6595#       发表于 2020-12-24 23:33
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-12-24 23:35 编辑 
+
+刚加班时听了ハルジオン现在她又唱了
+
+完成度太高了，爽了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6596#       发表于 2020-12-24 23:38
+
+
+
+
+一直连唱 一定是在努力掩盖自己的气息吧 不然说话就要喘起来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6597#       发表于 2020-12-24 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我和绿帽贴贴
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6598#       发表于 2020-12-24 23:46
+
+
+
+
+都在播着了为什么你们还在戴绿帽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6599#       发表于 2020-12-24 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49835106&amp;ptid=1973472" target="_blank">sw11133 发表于 2020-12-24 23:44</a>
+
+我和绿帽贴贴</blockquote>
+弱智time差不多得了，你还nga、s1两边跑。
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6600#       发表于 2020-12-24 23:51
+
+
+
+
+别两边跑了sw哥<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好好戴着帽子不好吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6601#       发表于 2020-12-24 23:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">大家不都一样
+
+差不多得了
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6602#       发表于 2020-12-24 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49835126&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2020-12-24 23:46</a>
+
+弱智time差不多得了，你还nga、s1两边跑。</blockquote>
+好了
+
+我自肃
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6603#       发表于 2020-12-24 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">不是有圣诞帽吗
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6604#       发表于 2020-12-24 23:56
+
+
+
+
+今晚麻酱好强，无言连唱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">看来是有人狠狠的锻炼了一下她呀
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6605#       发表于 2020-12-25 00:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">别通宵就好
+
+不然我连<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">都带不好
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6606#       发表于 2020-12-25 00:00
+
+什么东西
+
+
+
+草二连了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6607#       发表于 2020-12-25 00:00
+
+
+
+
+开始断气了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
