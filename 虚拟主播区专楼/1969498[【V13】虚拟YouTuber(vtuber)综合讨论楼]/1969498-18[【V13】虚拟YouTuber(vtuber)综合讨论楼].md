@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 12:03** 
+> ## **本文件最后更新于2020-12-24 14:02** 
 
 
 
@@ -643,10 +643,11 @@ syl，哈哈哈哈，杏奴差不多得了
 
 
 
- 参与人数 10战斗力 +6
+ 参与人数 11战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 酒瓶止迁| + 2|必须加回来|
 | sd873148| + 1|好评加鹅|
 | 巨尻压面饼| + 1||
 | OldGlory| + 1|这为啥扣|
@@ -1686,7 +1687,7 @@ Zsyl，易位
 <img src="https://img.saraba1st.com/forum/202012/23/192646ouxwst9lfizbufwj.png" referrerpolicy="no-referrer">
 
 
-<strong>登録者.png</strong> (160.88 KB, 下载次数: 0)
+<strong>登録者.png</strong> (160.88 KB, 下载次数: 1)
 
 下载附件
 
@@ -4855,4 +4856,506 @@ nhk的虚拟红白已经配不上杏了啊<img src="https://static.saraba1st.com
 
 
 
-                                          
+
+
+-----
+
+####  空集  
+##### 25730#       发表于 2020-12-24 12:04
+
+
+
+
+看戏好玩 没啥需要下场的
+不过确实与此同时q综在进行大规模完全无关管人的话题，连这个五期的数据我都是看noh提了我才知道
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 25731#       发表于 2020-12-24 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25732#       发表于 2020-12-24 12:07
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-24 12:09 编辑 
+
+别去NGA了，他们情弱，你车不过的
+
+他们只对数字（和自圆其说）抱有唯一的忠贞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+Syl，重走AKB，只爱底边这心态我也+1弦月藤士郎银盾了，感觉失去热情，会员也不想续了（
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 25733#       发表于 2020-12-24 12:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/122722jltppanxajh66ilp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>天宝兔子.jpg</strong> (346.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 12:27 上传
+
+
+
+
+
+
+家养兔宝（不是）
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25734#       发表于 2020-12-24 12:30
+
+
+
+
+看着像异性<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 25735#       发表于 2020-12-24 12:37
+
+
+
+
+今天女主角n站复活有人录吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25736#       发表于 2020-12-24 12:38
+
+
+
+
+郡道sc乞食（[https://twitter.com/g9v9g_mirei/status/1246860515713748992?s=21](https://twitter.com/g9v9g_mirei/status/1246860515713748992?s=21)）
+
+其实是在模仿她最喜欢的陪酒女小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25737#       发表于 2020-12-24 12:39
+
+
+
+
+兔兔好吃<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25738#       发表于 2020-12-24 12:42
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-24 12:44 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/124218e0woud9dwwwuxo9w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep-ZApRVgAQwgY7.jpg</strong> (40.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 12:42 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/124345u2z4g7772a1g2a7b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep-dJ0gU0AANUfm.jpg</strong> (16 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 12:43 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25739#       发表于 2020-12-24 12:44
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-24 12:45 编辑 
+
+昨天发nga没一个人回，今天又发了一次还是没人，说明木口在nga已经彻底死亡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0b88b5bebafa6bddb179dc59c501a066/IMG_20201224_124221.jpg" referrerpolicy="no-referrer">
+
+https://s.akiba-souken.com/article/48523/
+
+
+最近、TCG'Reバース for you'がホロライブプロダクションでコラボしたり、
+'ブシロードゲーム情報局'が12日連続でホロライブプロダクションのVTuberを実況者として迎えたりといった企画を目にします。
+木谷さん的にVTuberというコンテンツをどう見ていますか？
+
+木谷 正直に言っていいですか？ 僕個人にはVTuberというコンテンツの魅力が正直理解できていないんです(スミマセン！)。
+世代的なこともあって、YouTuber以上に縁遠い感じでした。
+
+本当に言っていいんですか!?
+そのコンテンツと今接近しているように見える理由や経緯についてうかがえるでしょうか。
+
+木谷 ものすごく人気で、とても愛されていることは当然わかるわけですよ。
+だから新しいことを始める時に、自分個人に理解できるかどうかを基準にするのはもうやめようと思ってるんです。
+世の中にウケていて、たくさんの人に愛されているならその感性が正しい。
+時代や世代によって感性も好みも変わるんだから、そこで自己主張をしても仕方がないんです。
+(ホロライブプロダクションを运営する)カバー株式会社の方がホロライブプロダクションをカードゲームにしたいと挨拶に来てくださって、
+その時のタイミングもあって'Reバース for you'でリリースさせてもらうことになりました。
+おかげさまで売れ行きも非常によく注目もしていただけて、今となっては本当に感謝しています。
+このような流れが来ている時は迅速に動くと決めているので、今も密に連絡を取らせてもらっています。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|你发冲蝗那楼说不定还有看得懂的.|
+| 某穆克拉| + 1|师爷，师爷呢？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25740#       发表于 2020-12-24 12:44
+
+
+
+
+郡道转了之前模仿的一个收入差距问题的视频，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">阴阳怪气拉满啊
+
+
+
+
+
+
+QQ截图20201224123556.png
+(233.44 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-24 12:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/123740vmvn229e325e99lj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25741#       发表于 2020-12-24 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49828637&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-24 12:44</a>
+
+昨天发nga没一个人回，今天又发了一次还是没人，说明木口在nga已经彻底死亡了</blockquote>
+你发lga至少也得翻译个大概，不然没人看的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+木谷这说的还挺实在的，不过要是虹先去打招呼是不是就轮不到木口了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25742#       发表于 2020-12-24 13:01
+
+
+
+
+是的，在他眼里只是一个营销手段罢了，总之就是能挣钱这样
+
+Syl
+戴上帽子了草
+<img src="https://p.sda1.dev/0/31ef1b6e8774dbfc17f493c42313160a/IMG_CMP_182860722.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 25743#       发表于 2020-12-24 13:02
+
+
+
+
+1年前要是bushiroad跟holo最初开始接触的那个迷之不人气手游案件给的是2434而不是holo的话就不一定是现在的世界线了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25744#       发表于 2020-12-24 13:04
+
+
+
+
+虹不是早就选了woixess什么的嘛……那个早很多吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 25745#       发表于 2020-12-24 13:13
+
+
+
+<blockquote>poipanchao 发表于 2020-12-24 11:33
+感觉自己又要重走AKB，ll，imas的路
+
+老害犯病，红了就失去热情了
+
+想找新的底边看了 ...</blockquote>
+imas現在還是底邊啊！雖然是老女人()
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 25746#       发表于 2020-12-24 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49828637&amp;ptid=1969498" target="_blank">絵生voice 发表于 2020-12-24 12:44</a>
+昨天发nga没一个人回，今天又发了一次还是没人，说明木口在nga已经彻底死亡了</blockquote>
+总结：虽然我觉得看v的都是傻x，但是钱还是要赚的
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25747#       发表于 2020-12-24 13:34
+
+
+
+
+害nm，这两页好搞笑，木口红白支持
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 25748#       发表于 2020-12-24 13:43
+
+
+
+
+才知道獅白ぼたん这名字捏他うちのごはん
+
+没啥 只是又一次对自己的塑料日语有了新的认识
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25749#       发表于 2020-12-24 13:54
+
+
+
+
+看样子Bilibili的还没送出去?
+<img src="https://p.sda1.dev/0/cdd3f96361c40900b2e2184e9a082103/IMG_CMP_28698069.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 25750#       发表于 2020-12-24 13:54
+
+
+
+[https://anivo.studio/](https://anivo.studio/) <blockquote>声を聞かせるだけで声優の名前と作品が分かる新サービス「ANIVO｜アニボ」の事前登録受付が開始。サービス開始は2021年春頃 </blockquote>那么，什么时候可以出现通过语音识别特定中之人的APP呢
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 25751#       发表于 2020-12-24 14:00
+
+
+
+
+下场就是过个嘴瘾，嘲讽就嘲讽呗，对着嘲谁怕谁，我有理有据地说还要塞我那我也没办法，我可不像虹楼里的某些人，自己看转播间不爽就不爽，还要带什么路人观感，感情路人全被你代表咯。
+
+
+有一个更搞笑，什么赢了就发knkn好强，那不然呢，我在叶直播间看的叶视角，赢了还不能夸是吧，还得所有队友都挨个夸完才能夸是吧。我也就网不好的时候才看转播间，就刚好看到之前葛叶指挥拿第三那把，那时候整个叶转播间都刷小葛靠谱，指挥真棒，这时候咋不出来说等等，还有其他人没夸呢，还输了就怪指挥呢，这把后面有一把刚好表现不咋地，有人说指挥不太好，一溜带叶队牌子的都在解释呢，这怎么就不跳出来说失误就要认，找什么借口。而且本来表现好不好都很主观的，你说阿叶失误了，有人说最近状态不好，还生病了解释一下还不行吗？又没说这不算失误，怎么的，你一个批评弹幕一发转播间所有人都要下跪认错是吧，对主播破口大骂什么cylx，给我检讨一百遍才是正确的咯？还给我扯什么别人也病了，怎么的，不会是觉得整个队伍就阿叶一个人有失误吧？
+
+
+转播间能听懂的本来就不多吧，输了刷GG，赢了GGWP，有高光夸一夸，这才是常态吧，被虹楼车的还以为是什么疯狂出警魔怔转播间，就没待过几次吧。
+
+
+
+
+
+                                         
