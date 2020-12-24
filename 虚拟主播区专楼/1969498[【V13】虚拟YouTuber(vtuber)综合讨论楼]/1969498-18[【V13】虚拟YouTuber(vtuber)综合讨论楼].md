@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 16:03** 
+> ## **本文件最后更新于2020-12-24 20:03** 
 
 
 
@@ -5829,4 +5829,1403 @@ PRO呢，不出来批判苔宝黔驴技穷吗
 
 
 
-                                        
+
+
+-----
+
+####  Ketestrait  
+##### 25777#       发表于 2020-12-24 16:16
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1glz0mo4bc1j20ye0kz41y.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/IrOpqc8USxc](https://youtu.be/IrOpqc8USxc)
+
+
+蕾丝味儿
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 25778#       发表于 2020-12-24 16:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/161743gcc2h4ncqtnjjm59.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>63BDE62F-DF73-45A3-B2D0-513669EADF18.jpeg</strong> (110.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 16:17 上传
+
+
+
+
+
+
+明显就是出来给25号晚直播maimai的人打的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25779#       发表于 2020-12-24 16:19
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-24 16:25 编辑 
+
+京子这直播出门买菜（sound only）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl
+
+
+进超市听到超市放音乐就静音了，特定对策<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25780#       发表于 2020-12-24 16:33
+
+
+
+
+烂货圆脸晚上7点还要和azki联动，唱这个稀烂样还播，脸真的大，吐了，垃圾
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25781#       发表于 2020-12-24 16:45
+
+
+
+
+当年开闭狂暴轰入各类榜单的时候能制裁她们的只有棒子男团，这边要复刻只福冈组扩军了，黑黑社长下巴枝枝枝牛郎油男组一张碟gkd。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25782#       发表于 2020-12-24 16:47
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-24 16:53 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/164633v6xl58foffyo56c8.png" referrerpolicy="no-referrer">
+
+
+<strong>【期間限定】くろのわクッキング第一弾 ハンバーグ.png</strong> (389.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 16:46 上传
+
+
+
+
+
+
+哈？
+
+
+Syl，很久没看过转播了，不太清楚转播出警什么程度，但油管评论区出警（训粉）也挺多的，大部分是英文观众，这点还挺有意思的，比指示厨好看
+
+
+Zsyl，认识的几位火畜在日和yhm玩更多？而且别说来华语第三repo了，葛组黑黑组自己烤肉都卡，说到底还是缺人。
+
+火畜人多、mmr也很多，想看repo可能要去QQ空间
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25783#       发表于 2020-12-24 16:50
+
+
+
+ 本帖最后由 qq845629713 于 2020-12-24 16:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 那少女时代和tara又怎么说呢？当年在JP兴风作浪的棒女团也不少好吧，
+
+不过现在亚洲第一虚拟女团的名号还是___吧
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25784#       发表于 2020-12-24 17:01
+
+
+
+ 本帖最后由 pansherry 于 2020-12-24 17:14 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/170045x890zp4sovxohckp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_Xuj-VQAIzSAG.jpg</strong> (991.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 17:00 上传
+
+
+
+
+
+
+[https://twitter.com/yagiumaaai/status/1342028566112784385?s=20](https://twitter.com/yagiumaaai/status/1342028566112784385?s=20)
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/171244xq7aq3hku70hwhi3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_dExHUUAEqNoh.jpg</strong> (178.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 17:12 上传
+
+
+
+
+
+
+[https://twitter.com/kito_koruta/status/1342035152189358080?s=20](https://twitter.com/kito_koruta/status/1342035152189358080?s=20)
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 25785#       发表于 2020-12-24 17:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">我也想被时雨妈裁决，火 舞元 火
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 25786#       发表于 2020-12-24 17:04
+
+
+
+
+美好的下午就应该看tmsk<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 25787#       发表于 2020-12-24 17:21
+
+
+
+
+tmsk也太好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25788#       发表于 2020-12-24 17:24
+
+
+
+
+去买个饭回来就错过郡道限定音声了，郡道粉丝好急好恶<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25789#       发表于 2020-12-24 17:27
+
+
+
+
+【RAISE A SUILENのRADIO R･I･O･T】
+
+⚡第100回配信中⚡
+
+祝・100回Circled ideograph congratulationPartying face
+
+ゲストには、#Raychell さん(@Lay0113) に加え、
+
+なんとVtuberの #星街すいせい さん(@suisei_hosimati) が遊びに来てくれましたSmiling face with heart-shaped eyesRaising hands
+
+▼視聴はこちら
+[https://bit.ly/2RNrFHx](https://bit.ly/2RNrFHx)
+
+#バンドリ #RAS #ラスラジ #紡木吏佐 #倉知玲鳳
+
+<img src="https://img.saraba1st.com/forum/202012/24/172736xae8v9de9vjjdjww.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep-RGx0VQAIuljH.jpg</strong> (112.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 17:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 25790#       发表于 2020-12-24 17:35
+
+
+
+ 本帖最后由 黑之和 于 2020-12-24 17:40 编辑 
+
+【音MAD】葛葉の奇声でクリスマスソング #KuzuArt https://t.co/ibTWubTvs5
+[https://twitter.com/hontounimoushiw/status/1341574404736618497](https://twitter.com/hontounimoushiw/status/1341574404736618497)
+kzh转推了
+什么怪东西？！太生草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl  今晚六点，卵用直播间，女装配信<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 25791#       发表于 2020-12-24 17:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/173729j8sppkm33p0qcuuu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1224173321.jpg</strong> (236.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 17:37 上传
+
+
+
+
+
+
+封面图
+
+<img src="https://img.saraba1st.com/forum/202012/24/173730iqqiyexrhp5c5ry0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_MHVzU0AE0fRB-min.jpg</strong> (619.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 17:37 上传
+
+
+
+
+
+[https://twitter.com/yoshida_iyo/status/1342016030688694272](https://twitter.com/yoshida_iyo/status/1342016030688694272)
+
+<img src="https://img.saraba1st.com/forum/202012/24/173729nlqrcmb4nmq00ebx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_i0gdUcAAMurG.jpg</strong> (736.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 17:37 上传
+
+
+
+
+
+[https://twitter.com/MaluBall/status/1342040779380850688](https://twitter.com/MaluBall/status/1342040779380850688)
+
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 25792#       发表于 2020-12-24 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">今年月灵的圣诞歌回估计没了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25793#       发表于 2020-12-24 17:46
+
+
+
+
+月灵已经多久没动<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25794#       发表于 2020-12-24 17:50
+
+
+
+[【FF14】メリクリ！聖夜に何してるんだい？【にじさんじ/静凛】](https://youtu.be/tEzAvjjZ4b0)
+
+
+流水的圣诞，铁打的凛姨<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25795#       发表于 2020-12-24 17:51
+
+
+
+
+阿凛该找个男人好好过了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 25796#       发表于 2020-12-24 17:56
+
+
+
+
+静凛平安夜还跟ff过 我破防了
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 25797#       发表于 2020-12-24 17:58
+
+
+
+
+男人哪有游戏好玩
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25798#       发表于 2020-12-24 17:59
+
+
+
+
+【歌ってみた】えんとつ町のプペル covered by 花譜
+
+[https://www.youtube.com/watch?v=wxBiEpVjJR4](https://www.youtube.com/watch?v=wxBiEpVjJR4)
+
+
+
+画师是和理芽那首一起下单的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25799#       发表于 2020-12-24 18:01
+
+
+
+
+谱皇这首好治愈<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 25800#       发表于 2020-12-24 18:11
+
+
+
+ 本帖最后由 水原薰 于 2020-12-24 18:17 编辑 
+
+hh歌今天刚发的都还没听几遍，明天就要发mv了可还行，暂时只看到说有hime的那首，不知hina那首要啥时候发<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+更新：hina也要发，hime7点，hina9点，都是日本时间<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25801#       发表于 2020-12-24 18:16
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-24 18:17 编辑 
+
+名無しのVTuberファンID: 5c1160
+
+ホロライブは<strong>パンドラの箱</strong>開けちゃったね
+
+中華系リスナーに見つかった久遠たましかり今後のV界隈は海外勢の動向次第...
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25802#       发表于 2020-12-24 18:19
+
+
+
+<img src="https://tva2.sinaimg.cn/mw690/771ca9d1ly1glz4411zlcj21xo2qd4qp.jpg" referrerpolicy="no-referrer">
+[twitter](https://twitter.com/agataoekaki/status/1342047369316212738?s=20)
+
+<img src="https://tva1.sinaimg.cn/mw690/771ca9d1ly1glz46atickj20rs15s7wh.jpg" referrerpolicy="no-referrer">
+[twitter](https://twitter.com/Mamima18679521/status/1342048472363515904?s=20)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25803#       发表于 2020-12-24 18:20
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-24 18:23 编辑 
+
+绿仙突然要发三首原创，还是官号发的通知，为什么啊？
+
+我以为会比较注重rd团队那边的
+
+这个发色有点点中之人味了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25804#       发表于 2020-12-24 18:21
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-24 18:26 编辑 
+
+懒狗已经三天没播了，不会今天和明天也不播吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+hero就嗯抄黑客的活是吧
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 25805#       发表于 2020-12-24 18:27
+
+
+
+<blockquote>caupollen 发表于 2020-12-24 17:46
+月灵已经多久没动</blockquote>
+两个号最近的一次点赞是一天半以前
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25806#       发表于 2020-12-24 18:28
+
+
+
+
+凛姨suki<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+去年圣诞和泰坦过的，今年没本打了不知道干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 25807#       发表于 2020-12-24 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49832086&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-24 18:21</a>
+
+懒狗已经三天没播了，不会今天和明天也不播吧</blockquote>
+真就嗯抄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但数字证明观众还是吃这一套的
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 25808#       发表于 2020-12-24 18:35
+
+
+
+ 本帖最后由 えびふらいおん 于 2020-12-24 18:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿希的重大发表
+
+“今天要不要早点结束呢 大家都在圣诞节直播 想看”
+
+狗屎 有男人就直说！
+
+
+
+
+
+
+QQ图片20201224183439.png
+(81.83 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-24 18:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/183525i308vzxc8emwiwx8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20201224183436.png
+(1.04 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-24 18:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/183524ynnzjujjef7zud1d.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20201224183432.png
+(1.1 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-24 18:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/183524cyfpwrfotyumcfoy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 25809#       发表于 2020-12-24 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 呵呵，当时阿希买了那么多虹人烂货周边，现在又有几个虹人知道报恩，买一个阿希玩偶呢？
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 25810#       发表于 2020-12-24 18:42
+
+
+
+
+2000真是无孔不入啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25811#       发表于 2020-12-24 18:43
+
+
+
+
+小琥珀肯定会去的，现在就是在想她是凸完跑去爬梯还是爬梯完跑过来凸啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25812#       发表于 2020-12-24 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 星川3D现场把我感（ki）动（mo）到了，下单了。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25813#       发表于 2020-12-24 18:54
+
+
+
+
+巧可老师证明了唱歌课的作用
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25814#       发表于 2020-12-24 18:54
+
+
+
+[https://www.youtube.com/watch?v=KePoUIpZtGI](https://www.youtube.com/watch?v=KePoUIpZtGI)
+
+
+有空可以支持一下底边耐久歌回冲订阅谢谢大家
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 真飞鸟i|-1|失败的耐久才是好耐久。|
+| 敖轩|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 25815#       发表于 2020-12-24 18:58
+
+
+
+
+2000平时劈虹也就算了
+现在还要借我啊祭来劈<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+不行！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 25816#       发表于 2020-12-24 19:04
+
+
+
+
+阿希用苹果给虹人打红sc，虹人买炸虾狮，问一个循环里傻逼vtb被苹果油管booth虹杏两公司抽了多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 25817#       发表于 2020-12-24 19:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/190748htmt5tem8xfx8mip.jpg" referrerpolicy="no-referrer">
+
+
+<strong>クソライブ.jpg</strong> (183.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 19:07 上传
+
+
+
+
+
+
+致杏奴
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25818#       发表于 2020-12-24 19:10
+
+
+
+
+クリスマスだからみんなと一緒に同時視聴しようと思ってた恋愛映画、アマプラ対象外になっててネトフリにも無かった😭ごめんね、来年みんなでまたリベンジしようね！デビルマン！
+
+
+是我心里有巨魔，才会觉得郡道做什么事都是在阴阳怪气钓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 25819#       发表于 2020-12-24 19:16
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1glz5rv6xnmj20ym0lgtdl.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/xRgAiHMebsk](https://youtu.be/xRgAiHMebsk)
+
+
+希望大家有空给底边歌耐久捧个场<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25820#       发表于 2020-12-24 19:16
+
+
+
+[https://www.youtube.com/watch?v=yk_t1uuY-_w](https://www.youtube.com/watch?v=yk_t1uuY-_w)
+
+This Is Me - MiMi Kanade × Aoi Fuji
+
+【Chorus】
+
+HACHI
+
+江戸レナ/Lena Edo
+
+かしこまり/Mari Kashiko
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 敖轩| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25821#       发表于 2020-12-24 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49832138&amp;ptid=1969498" target="_blank">Hemis 发表于 2020-12-24 18:27</a>
+
+两个号最近的一次点赞是一天半以前</blockquote>
+动了动了 圣诞推<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 25822#       发表于 2020-12-24 19:24
+
+
+
+ 本帖最后由 fghc_h 于 2020-12-24 19:32 编辑 
+
+船皇马车1w3，大亏mc连1w3都无，数字怎么了？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25823#       发表于 2020-12-24 19:31
+
+
+
+<blockquote>rzrbtk 发表于 2020-12-24 18:43
+小琥珀肯定会去的，现在就是在想她是凸完跑去爬梯还是爬梯完跑过来凸啊 ...</blockquote>
+琥珀感觉真是各种意义上像郡道啊，脑死喷喷虚无养gachi同期贴贴，这也是你gachi的原因嘛
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 25824#       发表于 2020-12-24 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49832641&amp;ptid=1969498" target="_blank">fghc_h 发表于 2020-12-24 19:24</a>
+
+船皇马车1w3，大亏mc连1w3都无，数字怎么了？</blockquote>
+今天什么日子不知道？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 25825#       发表于 2020-12-24 19:36
+
+
+
+
+船夸星天四个1.4w，差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 25826#       发表于 2020-12-24 19:37
+
+
+
+
+咋的，JP死宅人人有女友啊？
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25827#       发表于 2020-12-24 19:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/193822hcfjgijxx9xxocx1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_6ExZVoAEjDtj.jpg</strong> (210.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 19:38 上传
+
+
+
+
+
+[https://twitter.com/ui_shig/status/1342066177833459714](https://twitter.com/ui_shig/status/1342066177833459714)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25828#       发表于 2020-12-24 19:40
+
+
+
+
+大亏是真选错活儿了，感觉圆了偶像梦之后堆数字失去欲望了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 25829#       发表于 2020-12-24 19:41
+
+
+
+
+今天这水平四小时，感觉可以拍脸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 25830#       发表于 2020-12-24 19:41
+
+
+
+
+虚无mcrta，这是接你狐坦的班吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">会有数字就有鬼了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 25831#       发表于 2020-12-24 19:43
+
+
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1ly1glz6legyelj20jh0ayan6.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tva4.sinaimg.cn/large/771ca9d1ly1glz6lsc3sdj20fj02u0t2.jpg" referrerpolicy="no-referrer">
+
+
+不是不报，时候未到<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer"> 
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|原来是这意思|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 25832#       发表于 2020-12-24 19:46
+
+
+
+
+星街这歌回点进去看了一眼，64万粉开唱到65万耐久？真是人有多大胆地有多大产了.......第一次见到要耐久冲1万订阅的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 25833#       发表于 2020-12-24 19:46
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/194433kc6kku63h7rhzhsz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201224194005.jpg</strong> (48.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 19:44 上传
+
+
+
+
+
+
+为了不挡屏幕  船长全程就这么倒着海星
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25834#       发表于 2020-12-24 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49832698&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-24 19:31</a>
+琥珀感觉真是各种意义上像郡道啊，脑死喷喷虚无养gachi同期贴贴，这也是你gachi的原因嘛 ...</blockquote>
+人小琥珀声音比郡好听，爱唱歌还搞asmr比郡道高到不知道哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">！
+我倒不是因为养噶吃才喜欢啦，就是喜欢这种感觉很充实的快乐人来着
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 25835#       发表于 2020-12-24 19:53
+
+
+
+
+MC是坏文明，RTA也是坏文明
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25836#       发表于 2020-12-24 19:54
+
+
+
+
+虽然这么说有点狗拿耗子，但是看今晚CCLL那么热闹，三小姐当年和＃掰了还是有损失的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 25837#       发表于 2020-12-24 20:00
+
+
+
+
+这首群青牛逼阿……但是我满脑子都在想要是圆脸来唱有多鬼叫。
+
+
+
+
+
+                                      
