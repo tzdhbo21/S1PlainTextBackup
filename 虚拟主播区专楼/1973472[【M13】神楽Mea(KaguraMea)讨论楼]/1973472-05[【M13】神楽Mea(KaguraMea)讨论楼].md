@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 14:10** 
+> ## **本文件最后更新于2020-12-25 20:11** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_eGgyi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_Jte3I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11280,4 +11280,347 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 
 
 
-                            
+
+
+-----
+
+####  muldrotha  
+##### 6641#       发表于 2020-12-25 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">笑死 舞元连炸两个炸弹
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6642#       发表于 2020-12-25 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">咩宝花了12亿买的皇家EX卡被舞元一张偷卡偷走了 草
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6643#       发表于 2020-12-25 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49841147&amp;ptid=1973472" target="_blank">muldrotha 发表于 2020-12-25 15:07</a>
+
+咩宝花了12亿买的皇家EX卡被舞元一张偷卡偷走了 草</blockquote>
+那卡确实太牛了。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6644#       发表于 2020-12-25 15:39
+
+
+
+
+28号继续,希望别把单人直播挤掉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+但是兔姨想加快结束的心情确实表达出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6645#       发表于 2020-12-25 17:33
+
+
+
+
+想看麻酱打麻将
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6646#       发表于 2020-12-25 19:11
+
+
+
+
+话说和黑叔叔联动是几点？
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 6647#       发表于 2020-12-25 19:16
+
+
+
+
+按照油管上直播预定的时间的话，大概是中国时间19:45？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6648#       发表于 2020-12-25 19:29
+
+
+
+
+(*´∀｀)谢谢
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6649#       发表于 2020-12-25 19:53
+
+
+
+
+玩快闪呢？？？
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 6650#       发表于 2020-12-25 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">持续了一分钟的神秘直播
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6651#       发表于 2020-12-25 19:53
+
+
+
+
+玩快闪呢？？？
+
+
+
+
+
+
+
+-----
+
+####  A-Wie  
+##### 6652#       发表于 2020-12-25 19:54
+
+
+
+
+一分钟结束<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6653#       发表于 2020-12-25 19:55
+
+
+
+
+你把大伙叫出来就为了这个.jpg
+
+太行为艺术了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6654#       发表于 2020-12-25 19:56
+
+
+
+
+烂活
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 6655#       发表于 2020-12-25 19:56
+
+
+
+ 本帖最后由 FCCHua 于 2020-12-25 19:58 编辑 
+
+圭利直播是这样的，不少一分钟就结束的<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 6656#       发表于 2020-12-25 19:57
+
+
+
+
+太神必了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6657#       发表于 2020-12-25 19:58
+
+
+
+
+？？？
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 6658#       发表于 2020-12-25 19:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">想把吊人吊起来打一顿，一定会哭很久吧
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6659#       发表于 2020-12-25 20:02
+
+
+
+
+急着去干嘛呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">看来又是浴血奋战的一天呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 6660#       发表于 2020-12-25 20:07
+
+
+
+
+又整活又整活又整活
+
+妈妈不高兴
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6661#       发表于 2020-12-25 20:10
+
+
+
+
+这活太烂了，不如打雀魂。
+
+
+
+
+
+                           
