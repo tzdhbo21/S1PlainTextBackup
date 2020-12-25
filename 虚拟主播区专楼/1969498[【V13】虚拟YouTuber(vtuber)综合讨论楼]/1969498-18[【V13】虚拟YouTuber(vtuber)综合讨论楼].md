@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 22:05** 
+> ## **本文件最后更新于2020-12-26 02:06** 
 
 
 
@@ -14509,4 +14509,624 @@ SKB部桃铁开了，
 
 
 
-                          
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 26201#       发表于 2020-12-25 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+月灵姐姐:礼物是我哦
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26202#       发表于 2020-12-25 22:15
+
+
+
+[月灵开始唱歌了，楼友有空来听听](https://live2.nicovideo.jp/watch/lv329682346)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 26203#       发表于 2020-12-25 22:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/221735hizl4l2xfjuzuzix.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqEJV8uU0AAfH-N.jpg</strong> (302.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 22:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 26204#       发表于 2020-12-25 22:22
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-25 22:38 编辑 
+
+居然播了，又错过好大一段
+还唱歌了吗？亏惨了亏惨了
+syl，哈哈哈口胡好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+前后鼻音区分得很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+漪月灵三个字也咬得比之前准了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26205#       发表于 2020-12-25 22:24
+
+
+
+ 本帖最后由 Hemis 于 2020-12-25 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49845255&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-25 22:22</a>
+
+居然播了，又错过好大一段
+
+还唱歌了吗？亏惨了亏惨了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">没事，唱了几十秒
+
+等楼友或者隔壁一个剪辑
+
+syl 下得好快，我连再见都没发出去
+
+不过把红念成黄（幻？）还是比较好笑的，学汉语果然任重而道远
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26206#       发表于 2020-12-25 22:42
+
+
+
+<img src="https://p.sda1.dev/0/fc88c6ee8946399be94f5a425bcb2745/IMG_20201225_223341_886.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 26207#       发表于 2020-12-25 22:47
+
+
+
+
+02姐姐这个“圣诞快乐”和“再见”像是三四岁的奶声奶气的小女孩大声冲人打招呼一样，可爱疯了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26208#       发表于 2020-12-25 22:56
+
+
+
+
+草西斯科还会弹吉他，现在在房间等人的时候在给西西弹，简直现充到爆炸啊，昨天他上传的那个vlog 女朋友也超级好看，nmd我好酸啊，自己的推在和有女朋友的男人开黑还用吉他调情
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 26209#       发表于 2020-12-25 22:56
+
+
+
+
+草草草，我又错过灵儿姐直播，我死了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鹦与鹉  
+##### 26210#       发表于 2020-12-25 23:16
+
+
+
+
+我酸了，我也没看到02姐姐直播
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26211#       发表于 2020-12-25 23:17
+
+
+
+
+恋爱裁判，好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26212#       发表于 2020-12-25 23:38
+
+
+
+
+诗子被穷神缠身很悲，其余三人为了安慰她就想让别人学正太给诗子点杀必死，结果全都不愿意自己学互相推脱，最后谁都没学，那就不要说啊！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26213#       发表于 2020-12-25 23:53
+
+
+
+
+
+【生放送】声優 田中理恵が行く不死街！Vol.3.5【姐さんTV】
+[https://www.youtube.com/watch?v=H8SWfkQtJl0](https://www.youtube.com/watch?v=H8SWfkQtJl0)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26214#       发表于 2020-12-25 23:55
+
+
+
+
+月灵直播就看了一会在玩阴间niconico游戏。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26215#       发表于 2020-12-26 00:05
+
+
+
+<img src="https://p.sda1.dev/0/fe1bac901a4ed61afecf5efc92f8a747/2caca561e1f454cc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 26216#       发表于 2020-12-26 00:15
+
+
+
+
+没有味觉丧失就还行
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26217#       发表于 2020-12-26 00:16
+
+
+
+ 本帖最后由 free 于 2020-12-26 00:20 编辑 
+
+你杏这个接力歌回挑着听了几个
+
+烂货圆脸的高音怎么越来越难听，求求你别唱高音了行吗，嚎起来太辣耳朵了
+
+天音这个真是教科书式的发声靠挤嗓子，以后谁不知道啥叫挤嗓子就去听这个，不说难不难听，再这么唱一年半载嗓子就坏了
+
+星街是昨天唱累了还是今天没吃饱啊......
+
+船长这你楼一味都说好，说多了你楼一味又不高兴，反正比我印象里是好了点
+
+azki没来，是不是陪老公去了，不过就live上那表现，来了也不用期待了
+
+
+你说杏现在都要啥有啥，订阅SC数字都有了，还不能满足你们这些杏人？怎么还就非得吹这个努力人设呢？真是一天不提今天练歌练舞偶像梦就难受是吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|本来船就是唱K水准没把她当歌势。.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26218#       发表于 2020-12-26 00:21
+
+
+
+
+🙏
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/002139x4t0oitfm1ou4ob3.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #005 - 'aldyS_1408🔱🦐 on Twitter_ _@Tyler_462 .png</strong> (517.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 00:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26219#       发表于 2020-12-26 00:23
+
+
+
+
+小免点评一下压轴出场那位好吗
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 26220#       发表于 2020-12-26 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人民富豪企业家也要强调“努力”创造未来啊，姓马的也成天**立牌坊骑脸，不奇怪的
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 26221#       发表于 2020-12-26 00:27
+
+
+
+
+破音姬这玩游戏玩着玩着娇喘有点顶不住，还老唱歌，不愧是花椒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 26222#       发表于 2020-12-26 00:28
+
+
+
+
+ORICON 2020年榜发布
+
+
+集計期間：2019/12/23付～2020/12/21付
+
+(2019/12/09～2020/12/13）
+
+
+
+单曲 TOP1000 部分（本年度年榜下限约为1,527枚）：
+
+
+樋口枫1st Single 《MARBLE》单曲年榜第462位，年榜累计销量6,321枚。
+
+月之美兔1st Single 《それゆけ！学級委員長》单曲年榜第513位（500位后不公开销量数据）。
+
+
+YuNi单曲《ココロノック》未上榜。
+
+
+
+专辑 TOP1000部分（本年度年榜下限约为2,369枚）：
+
+
+にじさんじ翻唱专辑《Prismatic Colors》专辑年榜第111位，年榜累计销量33,951枚。
+
+にじさんじ原创专辑《SMASH The PAINT!!》专辑年榜第131位，年榜累计销量28,875枚。
+
+Rain Drops 1st Mini Album《シナスタジア》专辑年榜第164位，年榜累计销量22,665枚。
+
+Rain Drops 2nd Mini Album《オントロジー》专辑年榜第228位，年榜累计销量16,865枚。
+
+ヒメヒナ 1st Album《藍の華》专辑年榜第239位，年榜累计销量15,591枚。
+
+petit fleurs 1st Mini Album 《premiere fleurs》专辑年榜第465位，年榜累计销量7,555枚。
+
+时乃空 1st Album 《My Loving》专辑年榜第722位（500位后不公开销量数据）。
+
+カナメとハルキー Album 《Journey to U》专辑年榜第730位。
+
+时乃空 2nd Album 《ON STAGE!》专辑年榜第732位。
+
+MonsterZ MATE 2nd Album《255》专辑年榜第740位。
+
+輝夜月 1st Album 《×××》专辑年榜第791位。
+
+
+GEMS COMPANY 专辑《precious stones》、AZKi 2nd Album《Re:Creating world》未上榜。
+
+
+
+音乐BD TOP100 部分：
+
+
+にじさんじ《JAPAN TOUR 2020 Shout in the Rainbow!》音乐BD年榜第89位，年榜累计销量9,741枚。
+
+にじさんじ《Virtual to LIVE in 両国国技館 2019/ Blu-ray Disc》音乐BD年榜第96位，年榜累计销量9,150枚。
+
+
+HIMEHINA LIVE Blu-ray「The 1st.」 未上榜。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26223#       发表于 2020-12-26 00:37
+
+
+
+
+准备看着桃铁睡觉的，安洁尊这のだのだ把我吓醒了，
+已经快忘记roa是用怎样的方式说话了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26224#       发表于 2020-12-26 00:39
+
+
+
+
+今年度的管人专辑还有这周的口吃神首单，以及想象力拼盘第三期，下周出了数字hentai哥哥可以记得加上
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26225#       发表于 2020-12-26 00:40
+
+
+
+
+可是我最近最喜欢的歌回是船长那个同事原创曲翻唱，实在太草了。
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 26226#       发表于 2020-12-26 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49846296&amp;ptid=1969498" target="_blank">酒瓶止迁 发表于 2020-12-26 00:27</a>
+
+破音姬这玩游戏玩着玩着娇喘有点顶不住，还老唱歌，不愧是花椒出来的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">她到底是不是真的是破音姬啊，之前泥潭说不是……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26227#       发表于 2020-12-26 00:54
+
+
+
+
+明天SKB部发歌，感觉郡道最近老被拐去唱歌...？
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26228#       发表于 2020-12-26 01:10
+
+
+
+
+博士深夜和自己对唱图灵爱，我哭了
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 26229#       发表于 2020-12-26 01:18
+
+
+
+
+对了，小免曾经还是时乃空gachi是吗？那么有没有他空gachi时期的言论截图呢？想回味一下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 26230#       发表于 2020-12-26 01:23
+
+
+
+[https://www.youtube.com/watch?v=BVC-dRCz-4A](https://www.youtube.com/watch?v=BVC-dRCz-4A)
+
+
+曲子的质量很高，但为什么歌词这么给<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
