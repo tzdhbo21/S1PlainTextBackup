@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 00:00** 
+> ## **本文件最后更新于2020-12-25 22:00** 
 
 
 
@@ -4389,6 +4389,593 @@ PS：最近我也有点开始希望自己是那几个甜蜜双排的人了。。
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                                         
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Fami水| + 1|好评加鹅|
+| UnhappyTails| + 1|她开心就什么都好[f:138]|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10743#       发表于 2020-12-23 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">不知道小肥绫这次能不能捞到一首原创solo
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10744#       发表于 2020-12-23 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">有最好
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10745#       发表于 2020-12-24 00:34
+
+
+
+<img src="https://tva2.sinaimg.cn/large/006xG1LQgy1gly9c38ul8g308c05mqv9.gif" referrerpolicy="no-referrer">
+
+<img src="https://tvax2.sinaimg.cn/large/006xG1LQgy1gly9dm2z2ag30b708we83.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|好评加鹅|
+| Fami水| + 1|好评加鹅|
+| stedckk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10746#       发表于 2020-12-24 14:57
+
+
+
+ 本帖最后由 因为你不会 于 2020-12-24 15:06 编辑 
+
+nmb离谱了，白阿姨跟萝卜子抱了个大腿组队也来打这个比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10747#       发表于 2020-12-24 16:45
+
+
+
+
+还知道今天上号啊坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10748#       发表于 2020-12-24 16:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不播就不播，还发个推
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10749#       发表于 2020-12-24 17:08
+
+
+
+
+这次的大家庭圣诞音声没有绫总<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nitro901  
+##### 10750#       发表于 2020-12-24 17:21
+
+
+
+
+mio妈的大型企划也没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10751#       发表于 2020-12-24 17:33
+
+
+
+
+还有这种好事?
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 10752#       发表于 2020-12-24 17:50
+
+
+
+
+「圣诞节不播干什么去了要自己察觉阿」<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10753#       发表于 2020-12-24 17:51
+
+
+
+ 本帖最后由 stedckk 于 2020-12-24 17:52 编辑 
+
+明天的接力歌回没有余<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10754#       发表于 2020-12-24 18:05
+
+
+
+
+余去温泉旅行了，不要太想我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10755#       发表于 2020-12-24 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">就当是去温泉旅行了吧
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10756#       发表于 2020-12-24 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">已经....无所谓了...
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10757#       发表于 2020-12-24 22:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/24/224233gs6bv65ubvk1f9gb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_rBbAU0AU0Hhv_副本.jpg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 22:42 上传
+
+
+
+
+
+[https://twitter.com/emyaaaaali/status/1342049768231501830](https://twitter.com/emyaaaaali/status/1342049768231501830)
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10758#       发表于 2020-12-24 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不播也有通知，好幸福
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10759#       发表于 2020-12-24 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10760#       发表于 2020-12-24 23:10
+
+
+
+
+平安夜快乐，小肥绫。。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">还有楼里的各位！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10761#       发表于 2020-12-25 09:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/090322rjshxwygs4p8r1zf.png" referrerpolicy="no-referrer">
+
+
+<strong>9E]JM{G%7W`CAIJ(83E$N5P.png</strong> (665.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 09:03 上传
+
+
+
+
+
+https://youtu.be/B46Ea69aCXU
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转一个隔壁colo综的
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10762#       发表于 2020-12-25 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">她醒了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10763#       发表于 2020-12-25 10:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/104130aptoo9edyk5dyyyt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqDCKFHUUAId6wo.jpg</strong> (327.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 10:41 上传
+
+
+
+
+
+[https://twitter.com/namaonpa/status/1342286204151025664](https://twitter.com/namaonpa/status/1342286204151025664)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Fami水| + 1|绿帽子|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10764#       发表于 2020-12-25 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">绫总这是被白姨从温泉旅行中拖回来了吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10765#       发表于 2020-12-25 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">怎么开完live还要发声练习的，哦2月还有啊，那没事了
+
+绫总练习唱歌跳舞的借口又可以继续用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10766#       发表于 2020-12-25 14:06
+
+
+
+
+圣诞节联动打L4D2？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10767#       发表于 2020-12-25 19:21
+
+
+
+
+这会来劲了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vindicator  
+##### 10768#       发表于 2020-12-25 19:43
+
+
+
+
+在某站看到了杏的voice pack 有绫总的 有谁需要么
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10769#       发表于 2020-12-25 21:04
+
+
+
+
+白姨真拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10770#       发表于 2020-12-25 21:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请问这是直播星际直播间吗
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10771#       发表于 2020-12-25 21:23
+
+
+
+
+电锯人草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10772#       发表于 2020-12-25 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是我幻听了吗 为什么偶尔还能听到狗子的声音
+
+
+
+
+
+                                        

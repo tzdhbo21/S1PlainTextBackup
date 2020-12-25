@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 20:06** 
+> ## **本文件最后更新于2020-12-25 22:05** 
 
 
 
@@ -12904,4 +12904,1609 @@ https://twitter.com/kurokago03/status/1342435942619987968?s=19
 
 
 
-                             
+
+
+-----
+
+####  alcoholic1000  
+##### 26118#       发表于 2020-12-25 20:07
+
+
+
+
+吱吱吱ddd开了！！今天不能截图repo，拜托楼里各位老哥了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 26119#       发表于 2020-12-25 20:07
+
+
+
+
+也不急吧，反正过几天选个同接最高的时候宣布杏女正月接力就好了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 26120#       发表于 2020-12-25 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49843962&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-25 19:59</a>
+
+其实我现在才知道影山（不确定是不是这个名字，就是有猫耳朵那个）和白雪巴是同一个画师，羡慕惹，我私心虹 ...</blockquote>
+他俩还联动过
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26121#       发表于 2020-12-25 20:09
+
+
+
+ 本帖最后由 黑之和 于 2020-12-25 20:11 编辑 
+
+akina可爱<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+开始整活了
+神必建模的少年出现了<img src="https://p.sda1.dev/0/54846253a0aa00aeed5d9848caf992ca/IMG_CMP_31673658.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26122#       发表于 2020-12-25 20:10
+
+
+
+
+这个画的比前两天的鸭皇好啊<img src="https://p.sda1.dev/0/7587f34b875b39cd8e5179ea28d19a88/IMG_CMP_161455519.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26123#       发表于 2020-12-25 20:11
+
+
+
+
+sasaki来了～
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26124#       发表于 2020-12-25 20:11
+
+
+
+
+超级露骨的maimai宣传<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">！！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 26125#       发表于 2020-12-25 20:13
+
+
+
+
+啊怪不得影山跟阿巴老是联动（其实也不多）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，原来是一个画师吗..... 
+
+syl草草草草中间那个大的不会真的是阿兰吧.... 好家伙，大的要来了大的要来了（物理）
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26126#       发表于 2020-12-25 20:14
+
+
+
+
+挑染组这是要全上了吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26127#       发表于 2020-12-25 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844025&amp;ptid=1969498" target="_blank">asdhai 发表于 2020-12-25 20:08</a>
+他俩还联动过</blockquote>
+但是除了都好看之外感觉长得都不一样，这画师妈挺有风格的，羡慕力、、、
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26128#       发表于 2020-12-25 20:15
+
+
+
+ 本帖最后由 黑之和 于 2020-12-25 20:17 编辑 
+
+背景是myy的那个，不破化身棒球棍来了
+这波是挑染组贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+草打屁股，太色了吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26129#       发表于 2020-12-25 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 所以为什么一开始要叫笹木阿，你们挑染组玩的开心不就行了么？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26130#       发表于 2020-12-25 20:16
+
+
+
+
+神椿市建設中。#02「始動」
+[https://www.youtube.com/watch?v=ZfP8byyyI3E&amp;feature=youtu.be](https://www.youtube.com/watch?v=ZfP8byyyI3E&amp;feature=youtu.be)
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/201618sub9xhb5zzff0x0y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqFHa4WU0AAVOSR.jpg</strong> (171.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:16 上传
+
+
+
+
+
+
+
+
+有些人不当皮套人之后待遇连皮套人都不如了嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26131#       发表于 2020-12-25 20:19
+
+
+
+
+........也可能是我想多了，不觉得有点男同/抹布味吗<img src="https://static.saraba1st.com/image/smiley/animal2017/005.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|思路广|
+| qq845629713| + 2|这叫正常贴贴^^|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26132#       发表于 2020-12-25 20:23
+
+
+
+
+彩虹3Dstaff<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">过劳死
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26133#       发表于 2020-12-25 20:23
+
+
+
+
+真在玩3Dmaimai，你虹不要的产能可以给隔壁分点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26134#       发表于 2020-12-25 20:25
+
+
+
+
+日常拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26135#       发表于 2020-12-25 20:26
+
+
+
+
+好强
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26136#       发表于 2020-12-25 20:26
+
+
+
+
+晃了下神，刚才模型卡了一下吧
+拿出社那时候的技术力啊<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26137#       发表于 2020-12-25 20:27
+
+
+
+
+猫又小粥，炎上
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26138#       发表于 2020-12-25 20:28
+
+
+
+
+这速度捕捉精度已经很可以了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 26139#       发表于 2020-12-25 20:29
+
+
+
+
+猫又小粥，炎上二度！
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26140#       发表于 2020-12-25 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">动的太激烈了，卡住了还行
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26141#       发表于 2020-12-25 20:30
+
+
+
+
+啊！刚才那个音游机视角拍的三枝笑脸不错！这就是3D比真人好的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26142#       发表于 2020-12-25 20:33
+
+
+
+
+stf这什么宝宝难度？
+正脸角度好棒，四舍五入小辣椒在摸我脸<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26143#       发表于 2020-12-25 20:36
+
+
+
+
+这也太上手了，可恶，是现充
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 26144#       发表于 2020-12-25 20:36
+
+
+
+
+花谱说自己喜欢梅丽莎，阿玲已经退版本了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26145#       发表于 2020-12-25 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49842852&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-25 17:44</a>
+
+很色（指封面），但应该不是R18的音声。普通的舔耳吧</blockquote>
+只有这么短而且一点都不色，根本连舔耳都没有呀<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer"> 
+
+早知道这1000円打给萝卜了
+<[img src="https://i.loli.net/2020/12/25/OfQjkhq6zwWiGpu.png" referrerpolicy="no-referrer">
+以下内容需要积分高于 10000 才可浏览
+
+链接：[https://pan.baidu.com/s/1d-1u9c6P7IkgT0NVooYyaw](https://pan.baidu.com/s/1d-1u9c6P7IkgT0NVooYyaw)
+
+提取码：1225
+
+复制这段内容后打开百度网盘手机App，操作更方便哦--来自百度网盘超级会员V2的分享
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26146#       发表于 2020-12-25 20:38
+
+
+
+
+fc了，太强了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26147#       发表于 2020-12-25 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 问题来了，玩vtl需要给阳光虹人报备一下么？
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26148#       发表于 2020-12-25 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全连经典名曲，很强，我都打了很久都办不到
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26149#       发表于 2020-12-25 20:44
+
+
+
+
+花谱啥意思，上次看中的久远已经被拐去唱难听歌了，连梅丽莎都要啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26150#       发表于 2020-12-25 20:45
+
+
+
+
+谱皇点名要挖人了，你虹留不住了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26151#       发表于 2020-12-25 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844283&amp;ptid=1969498" target="_blank">lhawp 发表于 2020-12-25 20:36</a>
+
+花谱说自己喜欢梅丽莎，阿玲已经退版本了</blockquote>
+笑死了，盯着一只🐏薅
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26152#       发表于 2020-12-25 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 梅丽莎3D的速度能不能在隔壁抢人之前呢？这是个问题
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26153#       发表于 2020-12-25 20:46
+
+
+
+
+裸春不带teresa玩，是不是社内霸凌，我转裸春黑了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26154#       发表于 2020-12-25 20:47
+
+
+
+
+小蜜蜂已经ddd了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">不许抢人！
+
+冥府还有情谊在
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 26155#       发表于 2020-12-25 20:47
+
+
+
+
+maimai环节过长了
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26156#       发表于 2020-12-25 20:49
+
+
+
+
+vtl来了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26157#       发表于 2020-12-25 20:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/204903ue099e8w8zc0jefe.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201225214807.png</strong> (466.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:49 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/204920fa2ac2cf2cbe3eet.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201225214802.png</strong> (314.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:49 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/204954n582ezs2haahhasa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201225214928.jpg</strong> (45.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:49 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/204959d5heug1rz8yughh1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201225214906.jpg</strong> (46.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:49 上传
+
+
+
+
+
+
+兔鞠天下第一
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26158#       发表于 2020-12-25 20:50
+
+
+
+<img src="https://i.loli.net/2020/12/25/K27rXvP8VHWy4MB.png" referrerpolicy="no-referrer">
+来了
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 26159#       发表于 2020-12-25 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844184&amp;ptid=1969498" target="_blank">黑之和 发表于 2020-12-25 06:26</a>
+
+晃了下神，刚才模型卡了一下吧
+
+拿出社那时候的技术力啊</blockquote>
+我觉得比阿社那时候好不少了啊
+
+阿社3D打碟的时候手指疯狂骨折<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26160#       发表于 2020-12-25 20:50
+
+
+
+
+VTL来了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26161#       发表于 2020-12-25 20:50
+
+
+
+
+你们虹liver是不是都是只会那一句？失！格！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26162#       发表于 2020-12-25 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844422&amp;ptid=1969498" target="_blank">白金口袋 发表于 2020-12-25 20:50</a>
+我觉得比阿社那时候好不少了啊
+
+阿社3D打碟的时候手指疯狂骨折</blockquote>
+没细看但是好像有几秒小辣椒模型是卡住的，但是进步肯定是有的啦
+sylmyy！果然是挑染贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26163#       发表于 2020-12-25 20:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/205143u9mv9qvnzcx39v7m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201225214928.jpg</strong> (45.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:51 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/205145gm4x34j6p3qogssz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201225214906.jpg</strong> (46.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:51 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/205207mcoj6dhood7uh0xo.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201225214807.png</strong> (466.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:52 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/205218a864dxkri07qaqlq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201225214802.png</strong> (314.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 20:52 上传
+
+
+
+
+
+
+兔鞠天下第一
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 26164#       发表于 2020-12-25 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844439&amp;ptid=1969498" target="_blank">黑之和 发表于 2020-12-25 06:51</a>
+
+没细看但是好像有几秒小辣椒模型是卡住的，但是进步肯定是有的啦
+
+sylmyy！果然是挑染贴贴 ...</blockquote>
+那么你觉得骨折和卡哪个比较好
+
+我觉得卡还算好点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26165#       发表于 2020-12-25 20:53
+
+
+
+
+这里就是大鸟转转转酒吧？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26166#       发表于 2020-12-25 20:53
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-25 20:58 编辑 
+
+エモ归エモ，这破歌我也只会一句<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+飯屋关系真好啊
+
+笑归笑闹归闹，我们歌势就是不唱歌
+
+
+Syl,这个ddd我觉得没黛灰的好看
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26167#       发表于 2020-12-25 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 玩了50分钟maimai，现在开唱歌了，
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26168#       发表于 2020-12-25 20:56
+
+
+
+ 本帖最后由 黑之和 于 2020-12-25 21:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844455&amp;ptid=1969498" target="_blank">白金口袋 发表于 2020-12-25 20:53</a>
+那么你觉得骨折和卡哪个比较好
+
+我觉得卡还算好点</blockquote>
+捕捉这么简单的手指动作还卡说不过去啦
+syl这个话筒高度是不是暴露小辣椒的真实身高了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">还有之前的喂关东煮的时候也是，myy怼着头顶喂的
+zsyl爱园来了，带着蛋糕
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26169#       发表于 2020-12-25 20:56
+
+
+
+
+虽然是one man live，这运镜和下面摇荧光棒针不戳<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26170#       发表于 2020-12-25 20:57
+
+
+
+
+舞台是不是变大了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26171#       发表于 2020-12-25 21:02
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-25 21:09 编辑 
+
+我嘞个乖乖，是爱园吗？
+
+最后这个live还挺…我去给会员续费<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26172#       发表于 2020-12-25 21:02
+
+
+
+
+惹，红蟹！？这压轴也太<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">？
+郡道流出幸福的眼泪
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26173#       发表于 2020-12-25 21:03
+
+
+
+
+谁说圣诞配信就不能虐狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nocode  
+##### 26174#       发表于 2020-12-25 21:03
+
+
+
+
+最后竟然发狗粮，又冷又孤独的我点踩了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 26175#       发表于 2020-12-25 21:03
+
+
+
+
+一年了，一年了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 26176#       发表于 2020-12-25 21:03
+
+
+
+
+兔鞠...社保了...
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 26177#       发表于 2020-12-25 21:03
+
+
+
+
+踩了，妈的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26178#       发表于 2020-12-25 21:05
+
+
+
+
+fams开播15分钟游戏还没开成
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26179#       发表于 2020-12-25 21:06
+
+
+
+
+你虹的独角兽就是这么没的
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26180#       发表于 2020-12-25 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草，tmd酸死我了，红楚蟹万岁
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26181#       发表于 2020-12-25 21:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 踩居然没有明显变多，，，变得不是liver，是观众被同化了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26182#       发表于 2020-12-25 21:09
+
+
+
+
+真好啊，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26183#       发表于 2020-12-25 21:10
+
+
+
+
+甚至下播还会一起吃蛋糕，欢乐的空气充满了iqkr
+但是阴湿虹人只能一个人在没有暖气的出租屋里看他打几十分钟maimai直播，被喂狗粮
+我破防了
+但是他唱歌好好听<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26184#       发表于 2020-12-25 21:15
+
+
+
+
+刚刚去看了明天的马车待机窗，司会那里是刀也和尊，刀也和熊猫人都是B组，那尊主持的时候就是B组，没记错的话，葛叶就在B组吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26185#       发表于 2020-12-25 21:15
+
+
+
+
+SKB部桃铁开了，
+同时开在哈哥台的一期生t台也开了，月之转了，
+我流出血泪
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 26186#       发表于 2020-12-25 21:16
+
+
+
+
+想起了去年因为红楚蟹第一次买蛋糕过圣诞，今年虽然灰溜溜的回来了但是也不错
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 26187#       发表于 2020-12-25 21:20
+
+
+
+
+三枝3d 750万sc，虹男爆发力可以的
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 26188#       发表于 2020-12-25 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">差点以为以为他还会画画呢
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26189#       发表于 2020-12-25 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844726&amp;ptid=1969498" target="_blank">Kojimaru 发表于 2020-12-25 21:22</a>
+
+妈的在听tmsk的新歌，拉到视频简介看到illust是みすみ，吓我一跳。去查了一下只是跟misumi同名的画 ...</blockquote>
+i‘s每次曲绘都是みすみ画的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26190#       发表于 2020-12-25 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844650&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-25 21:15</a>
+
+SKB部桃铁开了，
+
+同时开在哈哥台的一期生t台也开了，月之转了，
+
+我流出血泪 ...</blockquote>
+好耶！！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26191#       发表于 2020-12-25 21:32
+
+
+
+ 本帖最后由 黑之和 于 2020-12-25 21:39 编辑 
+
+有能火畜找到昨晚黑黑吃的蛋糕了，确实好精致，看着感觉好好吃哦[https://twitter.com/aono_pi/status/1342094746093645824](https://twitter.com/aono_pi/status/1342094746093645824)<img src="https://p.sda1.dev/0/6b4eb61913b86cd2a12298296a6c6ffc/IMG_CMP_144952106.jpeg" referrerpolicy="no-referrer">
+蛋糕是oda带过去的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26192#       发表于 2020-12-25 21:33
+
+
+
+
+灵儿姐，北京时间10点nico直播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 26193#       发表于 2020-12-25 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202012/25/214622zuhtvhbgovsbb44b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201225_214600.JPG</strong> (108.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 21:46 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26194#       发表于 2020-12-25 21:48
+
+
+
+
+前两天还看到“回日本的法国人”上推特趋势呢，日本人是真滴不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26195#       发表于 2020-12-25 21:48
+
+
+
+
+在听盐天使歌回，我记得她歌力不是挺强的吗，怎么感觉有点不对劲。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26196#       发表于 2020-12-25 21:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/215030rvg7v3ami0wxnzth.gif" referrerpolicy="no-referrer">
+
+
+<strong>FireShot-Webpage-Screenshot-#003---'LAM-on-Twitter_-_Vってすごい_-_-Twitter.gif</strong> (21.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 21:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 26197#       发表于 2020-12-25 21:51
+
+
+
+
+精英病毒才出现几天？这就多人确诊了？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26198#       发表于 2020-12-25 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844981&amp;ptid=1969498" target="_blank">theloved 发表于 2020-12-25 21:51</a>
+
+精英病毒才出现几天？这就多人确诊了？</blockquote>
+看报道说了9月下旬就发现了，现在都12下旬了，时间太充足了。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 26199#       发表于 2020-12-25 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹女粉每次都能让数字民惊喜啊，上次卵用也400多w，星川都不到400。
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 26200#       发表于 2020-12-25 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49845008&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2020-12-25 21:55</a>
+看报道说了9月下旬就发现了，现在都12下旬了，时间太充足了。</blockquote>
+那可能我消息梳理错了？前几天出的欧洲诸国封锁英国对应迅速的消息，我还以为是刚发现就迅速封锁了，原来是这样
+
+
+
+
+
+                          
