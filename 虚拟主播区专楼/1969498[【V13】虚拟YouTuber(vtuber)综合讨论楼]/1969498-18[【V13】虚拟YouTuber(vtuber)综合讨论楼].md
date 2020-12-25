@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 14:04** 
+> ## **本文件最后更新于2020-12-25 16:03** 
 
 
 
@@ -9287,10 +9287,11 @@ u助妈妈也来打钱了
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 花二货| + 1|看起来又是很多单推不开心的一晚.|
 | alcoholic1000| + 1|后面再补吧，现在卡到不能看了.|
 
 
@@ -10484,6 +10485,25 @@ Others终究只能是Others
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 1|求求网站名|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10812,4 +10832,633 @@ BGM (Vocal：月ノ美兎withウクレレ)
 
 
 
-                                
+
+
+-----
+
+####  Hemis  
+##### 26018#       发表于 2020-12-25 14:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹版正统在4厕，红迪不姓虹
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 26019#       发表于 2020-12-25 14:10
+
+
+
+[@NBXX](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=486818)
+[https://frontpagemetrics.com/](https://frontpagemetrics.com/)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 2|😇|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 26020#       发表于 2020-12-25 14:23
+
+
+
+<blockquote>龙魂绯影 发表于 2020-12-25 11:54
+meth都够在国内再死一回的了
+
+看来从收了蝗开始，holo在国内完蛋就只是时间问题了
+
+要是杏别那么贪心 ...</blockquote>
+杏不贪心就如同希特勒不搞巴巴罗萨计划
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26021#       发表于 2020-12-25 14:28
+
+
+
+[https://creators.tubers.app/channel/UC1CfXB_kRs3C-zaeTG3oGyg](https://creators.tubers.app/channel/UC1CfXB_kRs3C-zaeTG3oGyg)
+<img src="https://i.loli.net/2020/12/25/SNgJ5WG2M4hQXsf.png" referrerpolicy="no-referrer">
+
+……？
+
+这个网站上新鲜数据还不少，慢慢看
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|是120%的好评率呢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 26022#       发表于 2020-12-25 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839572&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-25 12:34</a>
+
+这不是各reddit的梗么？怎么nga现在才知道。。</blockquote>
+因为虫蝗自己加了holometh的tag<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+这黄皮美裔是真的会玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 26023#       发表于 2020-12-25 14:46
+
+
+
+
+要来了
+
+前几天还一个👎都没呢，真是的。
+
+[https://youtu.be/u_F4jopFAXM](https://youtu.be/u_F4jopFAXM)
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/144527klaa79lttsz7acsh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201225_144517.JPG</strong> (45.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 14:45 上传
+
+
+
+
+
+
+【実質フリーチャット】神楽めあ と 聖ならない夜 【 一年越しの約束】
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26024#       发表于 2020-12-25 14:50
+
+
+
+ 本帖最后由 黑之和 于 2020-12-25 14:51 编辑 
+
+【現在販売中の「#ぷちさんじかるた」紹介！】
+
+「ぷちさんじかるた2020」より『て』を紹介！
+
+読み札：
+でも四連休じゃん！
+でもでもでもでもでもでもでも
+でも四連休じゃん★
+
+葛葉(@vamp_kuzu)、勇気ちひろ(@Chihiro_yuki23)
+
+販売ページはこちら▽
+[https://shop.nijisanji.jp/s/niji/item/detail/SSZS-14014](https://shop.nijisanji.jp/s/niji/item/detail/SSZS-14014)
+<img src="https://p.sda1.dev/0/b3f7cec8537be5f9704cae87f88bf075/IMG_CMP_202842091.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26025#       发表于 2020-12-25 14:53
+
+
+
+
+目前为止第一也是唯一一个去红迪拜码头的虹人是——葵皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26026#       发表于 2020-12-25 15:00
+
+
+
+ 本帖最后由 winda 于 2020-12-25 15:06 编辑 
+
+<strong>にじさんじの人気VTuber達</strong>が、いい部屋ネットの新店舗を盛り上げるために奮闘！！12月29日(火)17:00- 音声サービス AuDeeにて配信開始
+『爆誕！いい部屋ネット にじさんじ店』
+
+
+https://prtimes.jp/main/html/rd/p/000002236.000004829.html
+
+
+
+
+
+
+
+-----
+
+####  Abyssmarionette  
+##### 26027#       发表于 2020-12-25 15:07
+
+
+
+<blockquote>smy20011 发表于 2020-12-25 12:34
+这不是各reddit的梗么？怎么nga现在才知道。。</blockquote>
+reddit里玩玩直播的时候提一点和直接放进标题还是有些区别的吧...
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 26028#       发表于 2020-12-25 15:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/150941q4ynmgdscqilnbzb.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2020-12-25_15-09-29.png</strong> (362.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 15:09 上传
+
+
+
+
+
+
+
+牛姨还专门录了个视频
+[链接](https://www.reddit.com/r/Nijisanji/comments/kjuvwb/konnyui_im_nui_sociere_a_vtuber_from_nijisanji_i/)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 26029#       发表于 2020-12-25 15:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没啥好说的，她这活也整是给龙之子看的，不爽就去404举报。
+
+只希望你综知名龙之子能出来说说到底这些药梗有啥乐子，你们龙之子为啥吃这套
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26030#       发表于 2020-12-25 15:14
+
+
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+_{E7[{KFAYDJ36L7D5PG44S.jpg
+(121.64 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-25 15:14 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/151402taqi0iljai0casci.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 26031#       发表于 2020-12-25 15:20
+
+
+
+
+插个楼我问问月灵怎么没消息了？没戏了？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26032#       发表于 2020-12-25 15:23
+
+
+
+
+国外对这种东西的接受度本来就高，不像国内人人喊打
+当然我根本不想看到这种东西堂而皇之的出现，恶心
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 26033#       发表于 2020-12-25 15:25
+
+
+
+
+国内玩溜冰梗的也不少啊，也没见人人喊打，山泥若又菠菜又冰的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26034#       发表于 2020-12-25 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49841277&amp;ptid=1969498" target="_blank">Junchoon 发表于 2020-12-25 15:20</a>
+
+插个楼我问问月灵怎么没消息了？没戏了？</blockquote>
+哪里没戏，她们剧团天天排戏呢，她原来的皮是自己用捏人软件捏的，说了来B播的话得弄个新皮，等着吧
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26035#       发表于 2020-12-25 15:29
+
+
+
+ 本帖最后由 poipanchao 于 2020-12-25 15:30 编辑 
+<blockquote>坂田金时kin 发表于 2020-12-25 15:25
+国内玩溜冰梗的也不少啊，也没见人人喊打，山泥若又菠菜又冰的</blockquote>
+因为不认识这人是谁我就去百度了下
+
+这不算人人喊打吗？还是说因为这梗他红了？那就有点超出我的理解范围了……撸圈玩这么大？
+
+
+
+
+
+
+Screenshot_20201225_152714_com.baidu.searchbox.jpg
+(42.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-25 15:28 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/152834ettsptd9msjnjzdu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 26036#       发表于 2020-12-25 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49841391&amp;ptid=1969498" target="_blank">poipanchao 发表于 2020-12-25 15:29</a>
+
+因为不认识这人是谁我就去百度了下
+
+这不算人人喊打吗？还是说因为这梗他红了？那就有点超出我的理解范围 ...</blockquote>
+101这帮子主播都是以下限口嗨为荣的，什么靠伍兹买了房，捧臭脚的一堆。
+
+他不播是懒狗不想播了，捧臭脚的多的很，并没人人喊打，nga招魂贴都有呢，正大光明的说他去丑国溜冰了
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 26037#       发表于 2020-12-25 15:35
+
+
+
+
+斗鱼都没橄榄他怎么叫人人喊打，他b站视频一堆人玩他的梗，他最红是当年uzi季中赛决赛翻盘那场买了菠菜，从死马脸变嗑药一样，经典名言小虎来点作用啊，小虎
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26038#       发表于 2020-12-25 15:42
+
+
+
+ 本帖最后由 NBXX 于 2020-12-25 15:43 编辑 
+
+<[img src="https://i.loli.net/2020/12/25/YWht9GyIja5mPiU.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=sen0hlVRD1o](https://www.youtube.com/watch?v=sen0hlVRD1o)
+
+七天耐久直播
+<[img src="https://i.loli.net/2020/12/25/bjvYCt5cpT2lM4z.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26039#       发表于 2020-12-25 15:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49841440&amp;ptid=1969498" target="_blank">nowaki 发表于 2020-12-25 15:33</a>
+101这帮子主播都是以下限口嗨为荣的，什么靠伍兹买了房，捧臭脚的一堆。
+
+他不播是懒狗不想播了，捧臭脚的 ...</blockquote>
+好吧，那几个涉事的戏子的粉丝都知道要洗……
+结合以前五五开，还有今天知道的这个
+“该管管了”
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 26040#       发表于 2020-12-25 15:43
+
+
+
+
+月灵这事，nga那一阵风的热潮已经过去了，就算搞定了开播也不可能复制什么奇迹了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26041#       发表于 2020-12-25 15:47
+
+
+
+
+V综业务已经扩展到国内101真人主播上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 26042#       发表于 2020-12-25 15:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">奇迹还是有的，啊批还是有大箱的嘛，可以再来一波鲸落不是么。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26043#       发表于 2020-12-25 15:52
+
+
+
+
+具体怎么样要看月灵的硬实力如何了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26044#       发表于 2020-12-25 16:00
+
+
+
+
+月灵过20天发的b站动态3小时一百多回复，不火吗，
+
+也许包含戒断反应在里面
+
+
+
+
+
+                               
