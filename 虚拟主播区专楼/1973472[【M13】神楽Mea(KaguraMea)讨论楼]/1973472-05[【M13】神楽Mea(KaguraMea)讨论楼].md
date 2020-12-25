@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 20:11** 
+> ## **本文件最后更新于2020-12-26 00:06** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_Jte3I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_IWfsF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11623,4 +11623,511 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 
 
 
-                           
+
+
+-----
+
+####  青春银河  
+##### 6662#       发表于 2020-12-25 21:10
+
+
+
+
+还蛮逗的
+
+马车掉线不是要全员-30吗，素质真差啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6663#       发表于 2020-12-25 21:14
+
+
+
+
+一年的贷款最后就这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6664#       发表于 2020-12-25 21:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是蛮逗的，有种pop子和pipi美的感觉
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6665#       发表于 2020-12-25 22:00
+
+
+
+
+挺好的，至少令人记忆深刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总比没啥可说的尬聊好
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6666#       发表于 2020-12-25 22:11
+
+
+
+
+我懂了,是虹liver故事会,赏饭给你麻吃不要不识抬举<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6667#       发表于 2020-12-25 22:25
+
+
+
+
+不得不说这bgm真带感
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 6668#       发表于 2020-12-25 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844609&amp;ptid=1973472" target="_blank">青春银河 发表于 2020-12-25 21:10</a>
+
+还蛮逗的
+
+马车掉线不是要全员-30吗，素质真差啊</blockquote>
+她俩这私房打ai，没分的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6669#       发表于 2020-12-25 22:32
+
+
+
+
+Mea不说异议压力真是可惜
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6670#       发表于 2020-12-25 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6671#       发表于 2020-12-25 22:53
+
+
+
+
+不该黑屁苔苔的，谢虹人老爷赏饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6672#       发表于 2020-12-25 22:56
+
+
+
+
+本土彩虹还是强啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6673#       发表于 2020-12-25 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，这联动挺好玩的
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6674#       发表于 2020-12-25 23:00
+
+
+
+
+不知道是不是有台本 麻酱血carry
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6675#       发表于 2020-12-25 23:01
+
+
+
+
+这会看的挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最后都变成证人有罪了就很草
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6676#       发表于 2020-12-25 23:12
+
+
+
+
+算了.... 还是蛮有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6677#       发表于 2020-12-25 23:14
+
+
+
+
+打完游戏只赶上尾巴，说起来原来舞元的声音是这样的啊
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 6678#       发表于 2020-12-25 23:16
+
+
+
+ 本帖最后由 暴走的包子 于 2020-12-25 23:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">好活，pv希望，舞元钢琴草
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6679#       发表于 2020-12-25 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈耶最后这个ed还是好好唱的，绝了
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 6680#       发表于 2020-12-25 23:18
+
+
+
+
+差点没听出是咩阿
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6681#       发表于 2020-12-25 23:20
+
+
+
+
+我宣布这次是狗蛋唯一一次舞元企划高光
+
+
+咩宝唱得好有感情 爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 6682#       发表于 2020-12-25 23:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">说实话，这舞元裁判的活儿整得还真挺不错的，还能拉着彩虹系给吊人灌一大口饭，苔苔，暂时滴神！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6683#       发表于 2020-12-25 23:20
+
+
+
+
+好活，节目安排上苔苔还是有一手的、
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6684#       发表于 2020-12-25 23:21
+
+
+
+
+是御姐音~果然圣诞节成长为大人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 6685#       发表于 2020-12-25 23:23
+
+
+
+
+这次效果那么好应该会有熟肉吧，到时候再重温一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 6686#       发表于 2020-12-25 23:27
+
+
+
+
+什么?节目效果好吗，该补录播了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6687#       发表于 2020-12-25 23:31
+
+
+
+
+这次联动咩宝很积极很有干劲<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6688#       发表于 2020-12-25 23:32
+
+
+
+
+啊这 有五元debuff评价都那么高吗 等个熟肉补
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6689#       发表于 2020-12-25 23:35
+
+
+
+
+因为并没有什么比较膈应的舞咩环节,本质环舞元彩虹圈故事会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是我不看虹的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6690#       发表于 2020-12-25 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪怕有台本 咩宝这个反应速度和进攻力度都是首屈一指 最后苔苔部分的阴阳怪气笑死我了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 6691#       发表于 2020-12-25 23:51
+
+
+
+
+这种虹圈联动可以多搞点,嗨叔叔土农民还是少点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 6692#       发表于 2020-12-25 23:51
+
+
+
+ 本帖最后由 rosevalley46 于 2020-12-25 23:53 编辑 
+
+风怒编辑了
+
+
+
+
+
+                          
