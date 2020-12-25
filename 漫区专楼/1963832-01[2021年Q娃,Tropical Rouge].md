@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 12:14** 
+> ## **本文件最后更新于2020-12-26 04:07** 
 
 
 
@@ -9,11 +9,15 @@
 
 
 
- 本帖最后由 HGCG 于 2020-12-23 17:52 编辑 
+ 本帖最后由 HGCG 于 2020-12-25 18:49 编辑 
 
 化妆变身！无敌的干劲！
 
-<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1glxo3tw3ozj21560u0twf.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thy39fj20u016h4g8.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thcr1ij20xc0inahr.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thit65j20xc0jqk0q.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -4349,4 +4353,479 @@ staff什么时候公开？
 
 
 
-                                         
+
+
+-----
+
+####  cmyk1234  
+##### 248#       发表于 2020-12-24 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827651&amp;ptid=1963832" target="_blank">韩子 发表于 2020-12-24 11:27</a>
+真的吗？那可以接受不少了……（掩面</blockquote>
+杂志图已经在微博贴吧传开，第一波商品部分包括硬皮笔记和口红笔（lip pen）
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 249#       发表于 2020-12-24 13:56
+
+
+
+
+我也觉得今年蛮好看的啊，特别喜欢yin兽变身器和q娃一起作战这个设定，估计是很多人被疫情停播一断就没再追了
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 250#       发表于 2020-12-24 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49828905&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2020-12-24 13:07</a>
+
+杂志图已经在微博贴吧传开，第一波商品部分包括硬皮笔记和口红笔（lip pen） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">感谢，那个硬皮本看上去成本还蛮低的样子23333（不过安全就好了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 251#       发表于 2020-12-24 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827461&amp;ptid=1963832" target="_blank">蓬莱妹红 发表于 2020-12-24 11:12</a>
+今年断太多了，前面看着就断了后面没接上去。。。直接跳过看明年的吧 ...</blockquote>
+一样，停更那段时间消磨了兴趣，重新放送后忘记看又断一段时间就更不想追了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 252#       发表于 2020-12-24 14:04
+
+
+
+<blockquote>Sliurus 发表于 2020-12-24 13:57
+一样，停更那段时间消磨了兴趣，重新放送后忘记看又断一段时间就更不想追了 ...</blockquote>
+一样，不过准备补回来
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 253#       发表于 2020-12-24 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829368&amp;ptid=1963832" target="_blank">韩子 发表于 2020-12-24 13:56</a>
+感谢，那个硬皮本看上去成本还蛮低的样子23333（不过安全就好了</blockquote>
+硬皮看上去有凸版印刷封面，应该不便宜。
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 254#       发表于 2020-12-24 21:13
+
+
+
+
+我猜明年有鬼头
+
+<img src="https://img.saraba1st.com/forum/202012/24/211211q4cptqz57k7kzb6h.png" referrerpolicy="no-referrer">
+
+
+<strong>1ECFEF00-7DC2-4F4F-BDCE-2785FF57F0D0.png</strong> (742.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-24 21:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 255#         楼主| 发表于 2020-12-24 21:19
+
+
+
+
+明年不会真有鬼头明里吧
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 256#       发表于 2020-12-24 22:34
+
+
+
+
+鬼头的镜头感不错啊
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 257#       发表于 2020-12-24 23:01
+
+
+
+
+可是那是19年的图了诶
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 258#         楼主| 发表于 2020-12-25 07:37
+
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1glzascasz0j20lc0n8kjl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂上あゆみ  
+##### 259#       发表于 2020-12-25 09:45
+
+
+
+ 本帖最后由 坂上あゆみ 于 2020-12-25 10:01 编辑 
+
+虹主的私服跟亮亮很像
+
+珊瑚的刘海跟南姐姐很像难道····
+
+
+
+
+
+
+
+
+e7cbae74gy1glxo3tw3ozj21560u0twf1.jpg
+(434.91 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-25 09:59 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/095921cg77wxbbo7pw4wg9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 260#         楼主| 发表于 2020-12-25 18:47
+
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thy39fj20u016h4g8.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thcr1ij20xc0inahr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thit65j20xc0jqk0q.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0a3229azj20u00xv1ho.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0a33gub2j20u00w44gp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0a34mw2xj20u00zuwxv.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0a34aamqj20y00u0ng3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0a3k1zmoj20u01luk2l.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0a38hxcaj20xc0nqq3n.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 261#       发表于 2020-12-25 18:56
+
+
+
+
+人鱼真的没腿啊，粉主真是健康色气<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 262#       发表于 2020-12-25 19:17
+
+
+
+
+这是画笔还是麦克风
+黄q娃怎么感觉变身后矮了不少，还是说比例问题
+还是很期待的
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 263#       发表于 2020-12-25 19:25
+
+
+
+
+我猜人鱼多半是前半一段时期后能变腿然后作为追加战士，当然可能后半另有第二位追加战士
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 264#       发表于 2020-12-25 19:52
+
+
+
+
+紫色好像小唯<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 265#       发表于 2020-12-25 20:14
+
+
+
+
+红毛举止之间透露着一丝妩媚<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 266#       发表于 2020-12-25 20:42
+
+
+
+
+感觉大姐姐是jd年龄的了
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 267#       发表于 2020-12-25 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49843603&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2020-12-25 19:17</a>
+
+这是画笔还是麦克风
+
+黄q娃怎么感觉变身后矮了不少，还是说比例问题
+
+还是很期待的 ...</blockquote>
+麦克风吧，和人鱼有关的当然是唱歌
+
+
+
+
+
+
+
+-----
+
+####  浅悠梦Jasmine  
+##### 268#       发表于 2020-12-25 21:04
+
+
+
+
+你们都咋想的，那玩意明明是口红（
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 269#       发表于 2020-12-25 21:22
+
+
+
+<blockquote>月夜凝雪 发表于 2020-12-25 20:50
+麦克风吧，和人鱼有关的当然是唱歌</blockquote>
+唱K小鱼仙（
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 270#       发表于 2020-12-25 22:58
+
+
+
+<blockquote>浅悠梦Jasmine 发表于 2020-12-25 21:04
+你们都咋想的，那玩意明明是口红（</blockquote>
+主要是，一大根棒子只有前端一点点是口红（而且还是白色的…不明白为什么做成红的呢
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 271#       发表于 2020-12-26 03:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49845546&amp;ptid=1963832" target="_blank">韩子 发表于 2020-12-25 22:58</a>
+
+主要是，一大根棒子只有前端一点点是口红（而且还是白色的…不明白为什么做成红的呢 ...</blockquote>
+多半是彩色光体验
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 272#       发表于 2020-12-26 04:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">目前来看最喜欢红紫 说起来人鱼也算是在紫 追加以后是准备变蓝么
+
+
+
+
+
+                                        
