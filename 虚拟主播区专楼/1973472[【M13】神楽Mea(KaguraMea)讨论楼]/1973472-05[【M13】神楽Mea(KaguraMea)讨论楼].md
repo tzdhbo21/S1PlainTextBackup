@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 00:11** 
+> ## **本文件最后更新于2020-12-25 14:10** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_uf7c0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_eGgyi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10217,10 +10217,11 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 
 
 
- 参与人数 10战斗力 +11
+ 参与人数 11战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 素人不相识| + 1|好评加鹅|
 | 缺陷电气杨永信| + 1|好评加鹅|
 | 路人庚| + 1||
 | 鷹書たかしょ| + 2|好评加鹅|
@@ -10691,4 +10692,592 @@ Everyday young life JUNES！
 
 
 
-                             
+
+
+-----
+
+####  ylssb10438  
+##### 6608#       发表于 2020-12-25 00:18
+
+
+
+ 本帖最后由 ylssb10438 于 2020-12-25 00:26 编辑 
+
+这首可爱😊这情感抒发的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 6609#       发表于 2020-12-25 00:26
+
+
+
+
+这人真的强了好多  我却还是这么lj
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6610#       发表于 2020-12-25 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6611#       发表于 2020-12-25 00:27
+
+
+
+
+经典曲目有点多啊。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6612#       发表于 2020-12-25 00:36
+
+
+
+
+这个さよなら
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6613#       发表于 2020-12-25 00:36
+
+
+
+
+这首好听啊，好好唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6614#       发表于 2020-12-25 00:44
+
+
+
+
+果然是SJ S1的小巨魔
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 6615#       发表于 2020-12-25 00:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">圣诞快乐，祝楼友梦里都有羊薅
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 6616#       发表于 2020-12-25 00:46
+
+
+
+
+上海蟹食べたい あなたと食べたいよ<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6617#       发表于 2020-12-25 01:09
+
+
+
+
+楼友们圣诞快乐，来自一个没听到今晚歌回的rz……
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6618#       发表于 2020-12-25 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6619#       发表于 2020-12-25 01:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6620#       发表于 2020-12-25 02:00
+
+
+
+
+221页了)
+
+b博动,圣诞快乐
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 6621#       发表于 2020-12-25 11:42
+
+
+
+<img src="https://p.sda1.dev/0/f9ed6ffae593d863389b48c09254fa09/1人酒.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|xswl|
+| 鷹書たかしょ| + 2|虽然乐了，但AUT是女粉啊|
+| Mr.shelter| + 1|欢乐多|
+| sw11133| + 1|思路广|
+| 龙魂绯影| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6622#       发表于 2020-12-25 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">乐了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6623#       发表于 2020-12-25 12:40
+
+
+
+
+你麻和尼哥的联动好像是嘴里含着水说话的马车企划，有热水和冰水
+不是很懂霓虹人的脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6624#       发表于 2020-12-25 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839624&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2020-12-25 12:40</a>
+你麻和尼哥的联动好像是嘴里含着水说话的马车企划，有热水和冰水
+不是很懂霓虹人的脑回路 ...</blockquote>
+让观众猜吗？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6625#       发表于 2020-12-25 12:44
+
+
+
+
+嘴里含热水和冰水，嘶，联想到了某些不好的东西
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6626#       发表于 2020-12-25 12:44
+
+
+
+
+艹，也太阴间了这活
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6627#       发表于 2020-12-25 12:44
+
+
+
+ 本帖最后由 GRMeA104 于 2020-12-25 12:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839651&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2020-12-25 12:42</a>
+让观众猜吗？</blockquote>
+https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=15208702357857632570
+好像是这个，热水冰水是看尼哥放出来的对话猜的
+要是大冬天让生理期女生含冰水我只能说你个狗王八蛋已经不是人了.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然一切以实物为准<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6628#       发表于 2020-12-25 12:46
+
+
+
+
+谢邀，生理期第一天难受到吃止痛药。今天第三天，刚喝一杯冰可乐，状况稳定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能这就是我身体不好的原因吧..... 麻 麻不要学(›´ω`‹ )
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6629#       发表于 2020-12-25 12:54
+
+
+
+
+含水怎么说话啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 而且就算一开始是冰水 含久了也变热水了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6630#       发表于 2020-12-25 12:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是日式综艺范的胡椒水芥末水之类的阴间玩意儿就该偷笑了（
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 6631#       发表于 2020-12-25 13:14
+
+
+
+
+含水说话这活尼哥和星川整过
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6632#       发表于 2020-12-25 13:16
+
+
+
+
+我觉得这种企划不行。老老实实打雀魂不好吗。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6633#       发表于 2020-12-25 13:19
+
+
+
+
+圣诞还要看昨天nt企划<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6634#       发表于 2020-12-25 13:21
+
+
+
+
+文化鸿沟文化鸿沟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 6635#       发表于 2020-12-25 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">咩宝....好惨呜呜
+
+草 居然有个铁茶壶把穷神打晕了
+
+舞元和neru拿着个炸弹传来传去几回合了都没爆<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 6636#       发表于 2020-12-25 13:26
+
+
+
+
+看不懂这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+只能听听叫声了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6637#       发表于 2020-12-25 13:45
+
+
+
+
+草 yygq起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6638#       发表于 2020-12-25 14:02
+
+
+
+
+好起来了，捡到好的卡就是容易翻盘啊。
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6639#       发表于 2020-12-25 14:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们在那看的直播啊
+
+求地址啊
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6640#       发表于 2020-12-25 14:07
+
+
+
+[https://live.bilibili.com/22467099](https://live.bilibili.com/22467099)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sw11133| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+                            

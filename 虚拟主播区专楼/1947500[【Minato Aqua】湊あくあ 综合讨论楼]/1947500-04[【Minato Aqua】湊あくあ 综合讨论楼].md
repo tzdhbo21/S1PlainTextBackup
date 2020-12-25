@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-23 08:01** 
+> ## **本文件最后更新于2020-12-25 14:01** 
 
 
 
@@ -260,9 +260,9 @@ syl 早上有盐水的早起对决<img src="https://static.saraba1st.com/image/s
 
 
 
- 本帖最后由 乌鸦绅士 于 2020-12-22 11:33 编辑 
+ 本帖最后由 乌鸦绅士 于 2020-12-24 13:05 编辑 
 
-<img src="https://s3.ax1x.com/2020/12/22/rDJNUx.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/24/S8orhf5FLTJnWup.jpg" referrerpolicy="no-referrer">
 
 溝口ケージ先生早上因为这次直播发出来的盐水<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 [https://twitter.com/Keji_NtyPe/status/1341188308357955584/photo/1](https://twitter.com/Keji_NtyPe/status/1341188308357955584/photo/1)
@@ -591,4 +591,527 @@ live前等候室中的盐水
 
 
 
-                                                
+
+
+-----
+
+####  ylssb10438  
+##### 4532#       发表于 2020-12-23 11:48
+
+
+
+
+额，五年后是想干嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4533#       发表于 2020-12-23 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这是打算圣诞节搞末影龙RTA吗
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 4534#       发表于 2020-12-23 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">虔诚的求道者能不能来点新花样
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4535#       发表于 2020-12-23 21:21
+
+
+
+
+要是有版权许可的话<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+有生之年还能看到steam游戏福袋回吗<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4536#       发表于 2020-12-23 22:12
+
+
+
+
+是个吉尔的RTA，分明就是装傻卖萌
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4537#       发表于 2020-12-23 22:49
+
+
+
+
+mc的RTA是真的不懂有什么乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+ 全程卖萌，太虚无了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4538#       发表于 2020-12-23 22:55
+
+
+
+
+nmd 真要圣诞节rta啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你打枪都比rta好看，溜了溜了，看隔壁贴贴了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4539#       发表于 2020-12-23 22:57
+
+
+
+ 本帖最后由 面具13 于 2020-12-23 23:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以下播了。
+
+草，新开了一个档，开创造，你要使用强制误差调整大法吗？
+
+
+
+下次估计要先挖矿，再去下界了。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4540#       发表于 2020-12-23 23:13
+
+
+
+
+这就是hololive的pro gamer偶像洋葱女仆吗？天天MC！还要在圣诞节RTA末影龙，其他最新最in的游戏也不玩 ，只会卖萌！
+
+就这还想被称为gamer？真是有够可笑的呢！！！嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">（
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4541#       发表于 2020-12-23 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">被偶像梦忽悠瘸了
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 4542#       发表于 2020-12-23 23:24
+
+
+
+
+能不能别玩这破游戏<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4543#       发表于 2020-12-23 23:58
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-24 13:08 编辑 
+
+只能希望明天的RTA快点结束吧，我可不想要在MC中迎接圣诞节<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/24/JXGhKLDviHSgxw3.jpg" referrerpolicy="no-referrer">https://twitter.com/SakuraMX1/status/1340963435832479744
+
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4544#       发表于 2020-12-24 00:04
+
+
+
+
+多来点装傻卖萌，我倒要看看她1.15是怎么在评论云玩家的忽悠下去炸床的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4545#       发表于 2020-12-24 03:07
+
+
+
+
+1.15用床炸问题不大，一般速通都是在传送门柱子第三格放一个垫脚方块，顶上放床，引爆后跳起来再放，循环。问题主要是她完全不懂用方块阻挡的方式减少爆炸伤害
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4546#       发表于 2020-12-24 15:20
+
+
+
+
+哎，我还挺想看她打2077的<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">傻逼公司
+圣诞节玩mc末影龙rts可太功利了）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4547#       发表于 2020-12-24 15:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你什么时候产生了她会对2077这种游戏感兴趣的错觉，她的野炊大革命老滚5坟头草都比人高了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4548#       发表于 2020-12-24 19:14
+
+
+
+ 本帖最后由 面具13 于 2020-12-24 20:55 编辑 
+
+怎么是1.7.10。感觉大概率到了地方会发现差2-3颗末影之眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给她得逞了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4549#       发表于 2020-12-24 20:59
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-24 21:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结束了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4550#       发表于 2020-12-24 21:14
+
+
+
+
+这能打一年
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4551#       发表于 2020-12-24 21:29
+
+
+
+
+也算是破自己纪录了······
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4552#       发表于 2020-12-24 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">啥，还打算以后有机会挑战2小时以内
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4553#       发表于 2020-12-24 21:41
+
+
+
+
+rta上瘾了呗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">也是好事
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 4554#       发表于 2020-12-24 21:42
+
+
+
+
+rta是好，但能不能换个游戏
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4555#       发表于 2020-12-24 21:44
+
+
+
+
+长期熬夜口腔溃疡很正常
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4556#       发表于 2020-12-24 21:50
+
+
+
+
+哎，我天国的黑魂1rta
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4557#       发表于 2020-12-24 22:12
+
+
+
+
+rta结束了是吗，好耶！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 4558#       发表于 2020-12-24 22:26
+
+
+
+
+别MC了求求了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4559#       发表于 2020-12-24 22:38
+
+
+
+
+夸宝不再多聊一会熬到0点骗点sc吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4560#       发表于 2020-12-24 22:43
+
+
+
+
+今天这RTA也是运气太好了
+
+白捡黑曜石，下界要塞就在门附近，神殿也很近
+
+最扯的是挖下去直接就在末地传送门房间
+
+如果不是珍珠前两个晚上掉率太低还有最后没睡觉直接进门失误了，估计可以打进2小时内
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4561#       发表于 2020-12-25 13:42
+
+
+
+
+cover这脑子是有毒吧，24:00接力歌回，最后一班压轴，这是让她过中国的圣诞咯<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4562#       发表于 2020-12-25 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该不会只有这一播吧
+
+
+
+
+
+                                               

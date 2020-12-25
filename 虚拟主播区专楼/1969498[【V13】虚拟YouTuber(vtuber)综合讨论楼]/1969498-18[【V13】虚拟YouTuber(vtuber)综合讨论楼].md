@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 02:06** 
+> ## **本文件最后更新于2020-12-25 14:04** 
 
 
 
@@ -643,10 +643,11 @@ syl，哈哈哈哈，杏奴差不多得了
 
 
 
- 参与人数 11战斗力 +8
+ 参与人数 12战斗力 +9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Bondrewd| + 1|欢乐多|
 | 酒瓶止迁| + 2|必须加回来|
 | sd873148| + 1|好评加鹅|
 | 巨尻压面饼| + 1||
@@ -9605,4 +9606,1210 @@ SYL：
 
 
 
-                                  
+
+
+-----
+
+####  Mafise  
+##### 25954#       发表于 2020-12-25 02:23
+
+
+
+
+月灵她们家还有圣诞节吃蛋糕的传统？
+
+草查了一下查出来这么个东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/e90241e47d711e7e09cb929aef73d212/IMG_CMP_234003664.jpeg" referrerpolicy="no-referrer">
+
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 25955#       发表于 2020-12-25 02:30
+
+
+
+<img src="https://p.sda1.dev/0/a933374bd284b70e3fbb61ea31e40515/IMG_CMP_212798003.jpeg" referrerpolicy="no-referrer">
+https://twitter.com/rin31153336/status/1342046967128416257?s=19
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 25956#       发表于 2020-12-25 08:45
+
+
+
+
+2434里连野良猫都会规劝辍学小学生两句
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25957#       发表于 2020-12-25 09:58
+
+
+
+
+我觉得不管哪个国家，正常人都会劝小孩子好好读书吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25958#       发表于 2020-12-25 10:03
+
+
+
+
+侧面说明了你虹观众有多低龄了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25959#       发表于 2020-12-25 10:18
+
+
+
+
+管人观众平均年龄肯定都不高啊，上次老爱粉丝连线还有新品jk打电话呢<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 25960#       发表于 2020-12-25 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是龙皇的石油王集会完全就是社会成功人士团体。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 25961#       发表于 2020-12-25 10:43
+
+
+
+
+小学生看虹，社会人看杏，杏又赢
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 25962#       发表于 2020-12-25 10:45
+
+
+
+
+月灵也觉得HSK难
+
+
+看来HSK是真的难<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 25963#       发表于 2020-12-25 10:46
+
+
+
+
+年轻人才是未来啊。社畜们过两年就推不动了呀
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25964#       发表于 2020-12-25 10:49
+
+
+
+ 本帖最后由 katern 于 2020-12-25 10:56 编辑 
+
+江戸レナ两周年重大发表
+[https://www.youtube.com/watch?v=KYMN9qYQ7_8](https://www.youtube.com/watch?v=KYMN9qYQ7_8)
+
+VSinger 江戸レナ 1st.ワンマンライブ众筹
+[https://www.muevo.jp/campaigns/2661](https://www.muevo.jp/campaigns/2661)
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 25965#       发表于 2020-12-25 10:50
+
+
+
+
+以前不是说杏仁低龄化，看虹的都是社畜吗，现在不会反过来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25966#       发表于 2020-12-25 10:58
+
+
+
+
+月灵只能业余时间学吧，也没环境，
+
+雫lulu一年能有现在这水平。天天混qq群功不可没
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 25967#       发表于 2020-12-25 11:16
+
+
+
+<blockquote>目力干员leison 发表于 2020-12-25 10:50
+以前不是说杏仁低龄化，看虹的都是社畜吗，现在不会反过来了吧
+
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+只是某些人的观众年龄大而已，比如葵皇，还有你虹那几个阴湿老宅，观众整体年龄肯定不如hololive的
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 25968#       发表于 2020-12-25 11:17
+
+
+
+
+月灵姐发推了吗？没看到啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 25969#       发表于 2020-12-25 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49838691&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-25 11:17</a>
+
+月灵姐发推了吗？没看到啊</blockquote>
+月灵契约者发的
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 25970#       发表于 2020-12-25 11:24
+
+
+
+<blockquote>目力干员leison 发表于 2020-12-25 10:50
+以前不是说杏仁低龄化，看虹的都是社畜吗，现在不会反过来了吧
+
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+你楼总是身边统计学，自然有多种结论
+
+以前还有豆腐都是社畜的说法，现在社畜都跑哪了？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 25971#       发表于 2020-12-25 11:31
+
+
+
+
+低龄观众喜欢“有趣的内容”
+
+被生活艹够了的肥宅才回变成套皮女主播的gachi，那谁年龄大就很显然了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 25972#       发表于 2020-12-25 11:35
+
+
+
+
+之前nationalist你综还有大儒辩解一番，这次meth是否另有高见
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25973#       发表于 2020-12-25 11:40
+
+
+
+
+油管同接大概又出问题了，郡道昨晚开会限，头三分钟，显示观看人数5人，但在评论的至少有20人以上，这垃圾账号的判定好怪啊，会员也会被算成是买的吗
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 25974#       发表于 2020-12-25 11:50
+
+
+
+
+她也不是第一回玩drug了，还能怎么辩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 25975#       发表于 2020-12-25 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839013&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-25 11:40</a>
+ 油管同接大概又出问题了，郡道昨晚开会限，头三分钟，显示观看人数5人，但在评论的至少有20人以上，这垃圾 ...</blockquote>
+自从油管加入垃圾用户这个机制以后，之前百分之50的非会都被判断成垃圾账号，开个重要聊天信息，就几乎只剩下会员在说话了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这就是谷歌强强工程师？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 25976#       发表于 2020-12-25 11:54
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-12-25 11:59 编辑 
+
+meth都够在国内再死一回的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看来从收了蝗开始，holo在国内完蛋就只是时间问题了
+要是杏别那么贪心，那些对b没有兴趣的杏v干脆不入驻，说不定还能在国内留下大亏之类的人
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 25977#       发表于 2020-12-25 11:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/115737ioa92o9n80901q4p.png" referrerpolicy="no-referrer">
+
+
+<strong>jhjoha.PNG</strong> (21.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 11:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 25978#       发表于 2020-12-25 11:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不，野良猫那个是她以前联动的那个小学辍学youtuber，不是观众。之前阿委杂谈时候说她线下去给她们拍照然后吃饭时候说的。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25979#       发表于 2020-12-25 11:59
+
+
+
+
+还行
+
+<img src="https://img.saraba1st.com/forum/202012/25/115952ktldavlvgoql8le5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqDShePU0AAJqFN.jpg</strong> (351.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 11:59 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 25980#       发表于 2020-12-25 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839116&amp;ptid=1969498" target="_blank">丿焰丶 发表于 2020-12-25 11:50</a>
+自从油管加入垃圾用户这个机制以后，之前百分之50的非会都被判断成垃圾账号，开个重要聊天信息，就几乎只 ...</blockquote>
+这回更怪，会员都被判定成垃圾账号了<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+省一楼，月之可以每周来一次歌回吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25981#       发表于 2020-12-25 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839013&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-25 11:40</a>
+
+油管同接大概又出问题了，郡道昨晚开会限，头三分钟，显示观看人数5人，但在评论的至少有20人以上，这垃圾 ...</blockquote>
+正常，鲨鱼同接卡死2w5，聊天室的速度大概是以前4w的速度。。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25982#       发表于 2020-12-25 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839169&amp;ptid=1969498" target="_blank">龙魂绯影 发表于 2020-12-25 11:54</a>
+
+meth都够在国内再死一回的了
+
+看来从收了蝗开始，holo在国内完蛋就只是时间问题了
+
+要是杏别那么贪心 ...</blockquote>
+这不是各reddit的梗么？怎么nga现在才知道。。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25983#       发表于 2020-12-25 12:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这东西早都是蝗的属性之一了，以前ascc里面动不动什么吸入型ascc，ascc成瘾者，还有原创人物可 可 卡 因，我是挺恶心蝗的这些梗的。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 25984#       发表于 2020-12-25 12:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/124048hk5kt8m57tf756e5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-h09gK13T1kShs-7v.jpg</strong> (68.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 12:40 上传
+
+
+
+
+
+本土古参心豚看到这种梗不会觉得膈应吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 25985#       发表于 2020-12-25 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赤井心本身不比这梗恶心多了。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25986#       发表于 2020-12-25 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839645&amp;ptid=1969498" target="_blank">Aminor 发表于 2020-12-25 12:41</a>
+
+本土古参心豚看到这种梗不会觉得膈应吗</blockquote>
+心豚不都早死绝了么XD
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 25987#       发表于 2020-12-25 12:47
+
+
+
+
+比起tskk，心心更像是嗨了的那个（玩笑）
+
+nga以前对麻药梗的态度并不反感（大部分人），开相关玩笑，转发相关FA的挺多的，不过梗图举报一下就会被隐藏。
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 25988#       发表于 2020-12-25 12:48
+
+
+
+
+月灵姐姐发b站动态了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 25989#       发表于 2020-12-25 12:57
+
+
+
+
+这种烂梗以前不在意是因为没人搞蝗，现在到风口上了当然要揪着打<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 25990#       发表于 2020-12-25 13:03
+
+
+
+
+麻药梗狐皇都带头玩，还有啥可说的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 25991#       发表于 2020-12-25 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839572&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-25 12:34</a>
+这不是各reddit的梗么？怎么nga现在才知道。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是头一回看到
+另外自己把大名写标题上跟论坛粉丝玩，还是不一样的吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 25992#       发表于 2020-12-25 13:05
+
+
+
+
+狐皇还会推特表演断药和幻觉早安可可呢，你们加油好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 25993#       发表于 2020-12-25 13:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蛮好的，一起搞一起搞
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 25994#       发表于 2020-12-25 13:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/131300v768xhuhhv8hm1wz.png" referrerpolicy="no-referrer">
+
+
+<strong>tweetcyborg (3).png</strong> (189.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 13:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 25995#       发表于 2020-12-25 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49839948&amp;ptid=1969498" target="_blank">colodes 发表于 2020-12-25 13:13</a></blockquote>
+进军欧美，都能进军欧美.jpg
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 25996#       发表于 2020-12-25 13:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/25/131419menec5ad4niefl05.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2020-12-25 131405.jpg</strong> (136.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 13:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 25997#       发表于 2020-12-25 13:14
+
+
+
+
+占领舆论高地越早越好，彩虹整天慢人亿步。
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 25998#       发表于 2020-12-25 13:25
+
+
+
+<img src="https://p.sda1.dev/0/0c796c0a8f755da5089b1596b239c7e6/IMG_CMP_99297347.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 25999#       发表于 2020-12-25 13:33
+
+
+
+
+Others终究只能是Others
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 26000#       发表于 2020-12-25 13:34
+
+
+
+
+从历史经验看，转折点还是在像meme review这种反馈高的内容
+
+<img src="https://img.saraba1st.com/forum/202012/25/133228g7kkgxkw0xvvxy06.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(6).png</strong> (14.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-25 13:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26001#       发表于 2020-12-25 13:36
+
+
+
+
+好！nijiniggers被清算的时候就要来了，居然敢踏入大杏国神圣的红迪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  撕叁  
+##### 26002#       发表于 2020-12-25 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49829427&amp;ptid=1969498" target="_blank">poipanchao 发表于 2020-12-24 14:02</a>
+
+为什么来s1的不是叶队就是黑客粉呢（不论男女），都见不到火畜的
+
+有楼友分析一下吗 ...</blockquote>
+你楼叶队抱团成这样谁敢说话啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26003#       发表于 2020-12-25 13:39
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-25 13:43 编辑 
+
+你圣诞节，喝着酒唱着歌
+
+突然听说彩虹入驻红迪了
+
+
+怎么会有这种事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+Syl,大家都是阴湿巨魔，谁还能捂嘴了不成
+
+想说就说，最多被视奸叶队追着扣鹅，算什么大事儿吗
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26004#       发表于 2020-12-25 13:40
+
+
+
+
+那现在的红迪估计和杏没亡前的nga差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 26005#       发表于 2020-12-25 13:41
+
+
+
+
+另外，华生妹妹20w粉丝达成，一周涨了16w的粉丝。。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26006#       发表于 2020-12-25 13:45
+
+
+
+
+郡道昨晚英语做诗（其实是在谢sc）
+
+I will eat breakfast/tomorrow/your money
+
+能不能看懂红迪啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，期待起来了
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 26007#       发表于 2020-12-25 13:45
+
+
+
+<blockquote>CAserlumos 发表于 2020-12-25 13:40
+那现在的红迪估计和杏没亡前的nga差不多</blockquote>
+不止，红迪虹版只有几个尸体、没人说话，都躲进discord了，nga虹楼起码有几个活人;不如说是杏没亡前的v8
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26008#       发表于 2020-12-25 13:52
+
+
+
+
+那虹会在红迪宣传vr吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26009#       发表于 2020-12-25 13:53
+
+
+
+
+睡醒。翻翻feedly补一下楼里没提到的早间新闻。
+<strong>「あおぎり高校」新人物「山黒音玄」中之人试音开始</strong>
+[https://panora.tokyo/archives/16581](https://panora.tokyo/archives/16581)
+
+あおぎり高校、新キャラクター「山黒音玄」の新人VTuberオーディションを実施
+<img src="https://i.loli.net/2020/12/25/Sy4MFXDCvAp2wfg.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2020/12/25/R36KwT7vXAVfjZo.png" referrerpolicy="no-referrer">23:59までとなります。</blockquote><strong>用于分析人气Youtuber频道的「TUBERS 排行站」开始运营</strong>
+[https://panora.tokyo/archives/16605](https://panora.tokyo/archives/16605)
+
+人気のYouTubeチャンネルが分析できる、YouTuber/VTuber向け「TUBERS ランキングサイト」がスタート
+[https://creators.tubers.app/](https://creators.tubers.app/)
+<img src="https://i.loli.net/2020/12/25/LCP7e6pYklz59xa.png" referrerpolicy="no-referrer"> <blockquote>ランキング上のアイコンをクリックすれば、ぞれぞれのチャンネルごとに人口統計学データに基づき独自のアルゴリズムが算出したチャンネル登録者の年齢層や男女比のデモグラフィックデータが入手できるほか、過去に投稿した動画の再生数やコメント数などをさかのぼって確認でき、YouTubeチャンネルの分析にもご活用いただけます。
+
+※一部機能の利用には、YouTubeチャンネルと紐づいたGoogleアカウントの連携が必要となります。</blockquote><strong>美国vtuber事务所VShojo进行慈善募捐直播获得善款740万日元</strong>
+[https://panora.tokyo/archives/16547](https://panora.tokyo/archives/16547)
+
+米VTuber事務所「VShojo」、チャリティ配信を実施　約740万円を寄付
+<img src="https://i.loli.net/2020/12/25/ilaFcDMIzGvHPgL.png" referrerpolicy="no-referrer">
+
+https://​VShojo.com/Cheer <blockquote>「VShojo x Charity Stream」を開催中、タレントたちはドネーションプラットフォームの「Tiltify」上にて寄付を呼びかけました。
+
+当初は25,000.00ドルを集めることを目標としていましたが、開始より5時間で目標金額を突破、最終的に目標の285%、トータルで71,349.69ドル (約740万円)を集めることを達成致しました。
+
+900人以上の人々が寄付に参加し、平均の寄付額は75ドル (約7800円) でした。</blockquote>
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26010#       发表于 2020-12-25 13:53
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26011#       发表于 2020-12-25 13:53
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26012#       发表于 2020-12-25 13:54
+
+
+
+
+虹版怕是要管理员占活跃人数一半了
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 26013#       发表于 2020-12-25 13:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">欧美虹人在disc阴湿你杏
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26014#       发表于 2020-12-25 13:59
+
+
+
+
+「病院、行きましたか？」
+
+桂言葉 (CV：月ノ美兎)
+西園寺世界 (CV：月ノ美兎)
+BGM (Vocal：月ノ美兎withウクレレ)
+
+[https://twitter.com/sanshi_2525/status/1342214952925319168?s=21](https://twitter.com/sanshi_2525/status/1342214952925319168?s=21)
+
+
+不知何时配音全都凑齐的school days天台对峙场景，月之与月之在月之的歌声中争辩到底有没有怀孕<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26015#       发表于 2020-12-25 13:59
+
+
+
+
+白皮虹人誓要将"no meme"的口号进行到底，天下虹人都是一个味，阴湿婆罗门的形象跃然纸上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 26016#       发表于 2020-12-25 14:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">天下大同，到哪都不要忘了阴湿虹人心
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26017#       发表于 2020-12-25 14:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 以后对立厨真的搞起来，怕不是要线下battle了，nijifag能不能行阿
+
+
+
+
+
+                                
