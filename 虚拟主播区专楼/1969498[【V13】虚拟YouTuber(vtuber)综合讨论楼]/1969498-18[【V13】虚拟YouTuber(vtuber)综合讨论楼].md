@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 20:04** 
+> ## **本文件最后更新于2020-12-26 22:06** 
 
 
 
@@ -18773,11 +18773,11 @@ baby park yyds<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 
 
- 本帖最后由 DDWarrior 于 2020-12-26 19:43 编辑 
+ 本帖最后由 DDWarrior 于 2020-12-26 20:38 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥异世界情绪的线上翻唱live居然是一图流...感觉只能挂后台当bgm了
 
-而且这听起来像是事先录好的吧（？）
+但是这唱得是真的好啊...乍一听都像是提前录好的一样<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
 
@@ -18810,7 +18810,7 @@ baby park yyds<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-26 19:46 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-26 20:06 编辑 
 
 
 <img src="https://img.saraba1st.com/forum/202012/26/194233u9mvz0uvem0m33mu.png" referrerpolicy="no-referrer">
@@ -18844,6 +18844,20 @@ baby park yyds<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 
 
+<img src="https://img.saraba1st.com/forum/202012/26/200644e2l10ny021cl5l88.jpg" referrerpolicy="no-referrer">
+
+
+<strong>年始スケジュール .jpg</strong> (262.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 20:06 上传
+
+
+
+
+
+
 <img src="https://img.saraba1st.com/forum/202012/26/194630o1010ezkxy1atkxk.png" referrerpolicy="no-referrer">
 
 
@@ -18852,6 +18866,7 @@ baby park yyds<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 下载附件
 
 2020-12-26 19:46 上传
+
 
 
 
@@ -19028,6 +19043,25 @@ You Are King
 
 草，还自来水了一下马娘
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kazuma| + 1|都没人接你话茬加一分紫薇下|
+
+
+
+查看全部评分
 
 
 
@@ -19223,4 +19257,911 @@ upd8。。。
 
 
 
-                  
+
+
+-----
+
+####  rzrbtk  
+##### 26441#       发表于 2020-12-26 20:07
+
+
+
+
+如果歌谣祭是3D限定的话，那就能再看到跳舞尊和跳舞西西咯？
+也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26442#       发表于 2020-12-26 20:08
+
+
+
+
+阿露丝明年一月中旬新衣服，那么画师...
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26443#       发表于 2020-12-26 20:10
+
+
+
+
+要是歌谣祭就这点人我必开始黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26444#       发表于 2020-12-26 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我先不站队，如果虹人狂黑这个，我就吹上天，
+
+
+如果虹人狂吹，我就黑上天，
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26445#       发表于 2020-12-26 20:15
+
+
+
+
+unit music festival，比起黑屁参加人员不如我们先黑屁如何组队吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26446#       发表于 2020-12-26 20:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853158&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2020-12-26 20:15</a>
+
+unit music festival，比起黑屁参加人员不如我们先黑屁如何组队吧</blockquote>
+两个大头，剩下的按照位置分？
+
+虽然缺德，但我想看葛尊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26447#       发表于 2020-12-26 20:17
+
+
+
+
+如果能让我看偶像服月之，我可以原谅一切。
+
+省一楼，野猫一人红白歌会（[https://youtu.be/c9JfuHw0TYU](https://youtu.be/c9JfuHw0TYU)）
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26448#       发表于 2020-12-26 20:18
+
+
+
+
+图里凑羁绊就能凑一堆了，爱咋黑屁咋黑屁
+
+有葛尊情歌对唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26449#       发表于 2020-12-26 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 首先排除关西JK组，这三人一队，估计明天火星撞地球了
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26450#       发表于 2020-12-26 20:20
+
+
+
+
+彩虹这一天一个节目，我已经死了（满足
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 26451#       发表于 2020-12-26 20:22
+
+
+
+
+葛皇最可能的是刀也社长吧，叶师不在组gamers有点尬
+
+看站位的和ssk组有点怪
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26452#       发表于 2020-12-26 20:23
+
+
+
+
+🙏
+
+<img src="https://img.saraba1st.com/forum/202012/26/202253ybviqtvmvvtmjc7u.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #007 - 'Latest Tweets _ Twitter' - twitter_com.png</strong> (39.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 20:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26453#       发表于 2020-12-26 20:23
+
+
+
+
+三年目の浮気
+
+
+五年目の破局
+
+
+危険なクラス会
+
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26454#       发表于 2020-12-26 20:24
+
+
+
+
+皇女这三人红白没连麦啊
+
+不过司你这还特地提了一嘴某人声音特别小也挺够的了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26455#       发表于 2020-12-26 20:28
+
+
+
+
+这个节目量，和去年比好像是稍微多一点，那就暂时不飞田角吗了，之前算是我贷款了
+
+
+
+
+
+
+
+-----
+
+####  yamato gun  
+##### 26456#       发表于 2020-12-26 20:35
+
+
+
+
+情绪这选曲真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kakera9576  
+##### 26457#       发表于 2020-12-26 20:36
+
+
+
+
+世界情绪今天好几首个人感觉很不错啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26458#       发表于 2020-12-26 20:37
+
+
+
+
+这一天来得有些迟，又太快了
+
+总之，恭喜.
+
+<img src="https://img.saraba1st.com/forum/202012/26/203642xwnqffkqqutvey5y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>叶くん50万人が愛してるぞ.jpg</strong> (110.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 20:36 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/203643kvcrsn8k4kn4ck7l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>色んな景色をみんなで見て行きましょう～！.jpg</strong> (215.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 20:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26459#       发表于 2020-12-26 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  草 这歌谣祭 虽然你说因为3d原因吧，但是人选完全不包括那几个歌势还是挺草的，本质上位节目了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 26460#       发表于 2020-12-26 20:55
+
+
+
+
+刚刚听V红白听到一个个人觉得好有意思的V。
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/205510xxxnwwidwql48yla.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201226205449.png</strong> (288.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 20:55 上传
+
+
+
+
+
+[https://www.youtube.com/channel/UCQy9HAmDWom4jvy01NAlzSQ](https://www.youtube.com/channel/UCQy9HAmDWom4jvy01NAlzSQ)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26461#       发表于 2020-12-26 21:05
+
+
+
+
+竟然把葛拉来唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26462#       发表于 2020-12-26 21:09
+
+
+
+
+等等，我看错节目单完美错过小辣椒唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26463#       发表于 2020-12-26 21:10
+
+
+
+ 本帖最后由 NBXX 于 2020-12-26 21:12 编辑 
+
+.LIVE【どっとライブ】
+
+@dotLIVEyoutuber
+
+【お知らせ】
+
+どっとライブに新たな仲間が所属し、活動していくことが決まりました。
+
+新人、現所属者共々引き続きよろしくお願い致します。
+[https://youtu.be/JeYyRNHGpuw](https://youtu.be/JeYyRNHGpuw) <blockquote>どっとライブより1月3日から新人VTuberがデビュー致します。
+
+
+
+・七星みりり（Nanahoshi Milily）
+
+宇宙にいつか行ってみたい自称完璧宇宙美少女。
+
+モデルをしながらいつかオリジナル下着、ルームウェア、コスメなどプロジュースブランドを作りたいという野望がある。
+
+
+Twitter：[https://twitter.com/Milily_VTuber](https://twitter.com/Milily_VTuber)
+
+
+・リクム（Rikumu）
+
+あらゆる夢を主食としている、女怪盗。
+
+良い夢も悪い夢も、何でも盗んで食べる。
+
+至高の味を求め、自分の手で良質な夢を生み出そうとしているらしい。
+
+
+Twitter：[https://twitter.com/Rikumu_VTuber](https://twitter.com/Rikumu_VTuber)
+
+
+・ルルン・ルルリカ（Rurun Rururica）
+
+魔王をめざしてる中魔界から転生してきた獣人の魔女。
+
+好奇心旺盛で人間の文化に興味があり手始めに人間界の魔王になるため配信をはじめる。
+
+
+Twitter：[https://twitter.com/Rururica_VTuber](https://twitter.com/Rururica_VTuber)
+
+
+【初配信日】
+
+・1月3日(日)20:00〜 リクム
+
+・1月3日(日)21:00〜 ルルン・ルルリカ
+
+・1月3日(日)22:00〜 七星みりり
+
+
+※配信スケジュール等は変更となる場合がありますのでご了承ください。</blockquote>
+<[img src="https://i.loli.net/2020/12/26/mHfPACswIJW23Ng.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/26/9kYep24XwgzvUJK.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/26/jMo42G8aeiKltrp.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 26464#       发表于 2020-12-26 21:13
+
+
+
+
+点哥哥再出发？
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 26465#       发表于 2020-12-26 21:13
+
+
+
+
+!点弟弟加人了！？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26466#       发表于 2020-12-26 21:13
+
+
+
+
+是新曲geminids
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">好哎
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26467#       发表于 2020-12-26 21:13
+
+
+
+
+喷了，阿点新人前途估计都不如774的新人
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 26468#       发表于 2020-12-26 21:15
+
+
+
+
+我看了节目表才意识到，狐皇压轴？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26469#       发表于 2020-12-26 21:16
+
+
+
+
+虹杏都不抽卡，点哥哥想了想，咬牙上了。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 26470#       发表于 2020-12-26 21:19
+
+
+
+
+点生活这个立绘水平仿佛停留在2018，让人想起现在的成员曾经的2D
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26471#       发表于 2020-12-26 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853728&amp;ptid=1969498" target="_blank">Porsche 发表于 2020-12-26 21:15</a>
+我看了节目表才意识到，狐皇压轴？</blockquote>
+在黑黑前面，已经唱过了，最后是白组的MZM吧
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26472#       发表于 2020-12-26 21:29
+
+
+
+
+点不会又来一次订阅达到多少才换立绘这种操作吧。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26473#       发表于 2020-12-26 21:31
+
+
+
+
+也许，日本要好起来了，看这真剑胜负三周还挺认真的<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">希望liver身体健康
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26474#       发表于 2020-12-26 21:31
+
+
+
+
+日本封国了，【#日本28日起暂停所有国家地区新入境#】受到新型冠状病毒在全世界的感染扩大，日本将进行最终调整，在本月28日到明年1月末之间，原则上拒绝所有的国家或地域来的外国人的新入境。 ​​​​
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26475#       发表于 2020-12-26 21:31
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-26 21:53 编辑 
+
+MZM来了！！
+
+<img src="https://img.saraba1st.com/forum/202012/26/213151lny6p56vz4ttz57v.png" referrerpolicy="no-referrer">
+
+
+<strong>【#第3回V紅白】今年最後に皆でもりあがろう～～！！.png</strong> (623.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 21:31 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=deKvoxhaqOM](https://www.youtube.com/watch?v=deKvoxhaqOM)
+
+
+生歌！！超级喜欢这首
+[Beep☆CARAMEL / MonsterZ MATE](https://www.youtube.com/watch?v=se0Cfzwfj8A)
+
+
+​メイカくんー！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26476#       发表于 2020-12-26 21:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/213546f1oxqm6pgq6h8p6m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>86545848_p0_master1200.jpg</strong> (547.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 21:35 上传
+
+
+
+
+
+[https://www.pixiv.net/artworks/86545848](https://www.pixiv.net/artworks/86545848)
+
+
+水龙敬画的和船长婚后的本子
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26477#       发表于 2020-12-26 21:38
+
+
+
+ 本帖最后由 黑之和 于 2020-12-26 21:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853891&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-26 21:31</a>
+MZM来了！！
+
+
+https://www.youtube.com/watch?v=deKvoxhaqOM</blockquote>
+好听
+这么一直蹦还能气息这么稳，针不戳<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+叶能不能多和高坂玩玩吸吸歌力（当然现在进步也不小啦
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26478#       发表于 2020-12-26 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853765&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2020-12-26 21:19</a>
+
+点生活这个立绘水平仿佛停留在2018，让人想起现在的成员曾经的2D</blockquote>
+一看就是被用来献祭的2d……
+
+也就是说还是有3d的咯（这次线怎么算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26479#       发表于 2020-12-26 21:44
+
+
+
+
+省一楼……怎么感觉神椿招到一堆怪物之后眼界就高起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 26480#       发表于 2020-12-26 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853942&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-26 21:35</a>
+
+https://www.pixiv.net/artworks/86545848
+
+
+水龙敬画的和船长婚后的本子</blockquote>
+后面还有一本船长本啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 26481#       发表于 2020-12-26 21:52
+
+
+
+
+惊了，阿点招人了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26482#       发表于 2020-12-26 21:57
+
+
+
+
+31号有莉光，
+开什么玩笑，要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26483#       发表于 2020-12-26 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854056&amp;ptid=1969498" target="_blank">pansherry 发表于 2020-12-26 21:46</a>
+
+后面还有一本船长本啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那张露点啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26484#       发表于 2020-12-26 22:04
+
+
+
+
+我的妈呀，原来郡道能正常地唱歌，竟然？？？
+
+
+クリスマス？なにそれ？おいしいの？ covered by #SKB部（[https://www.youtube.com/watch?v=Cak-CmGBr9Y](https://www.youtube.com/watch?v=Cak-CmGBr9Y)）
+
+
+
+
+
+                 
