@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-24 12:18** 
+> ## **本文件最后更新于2020-12-26 10:10** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_IpspY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_O6v2c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -2904,4 +2904,577 @@ A-SOUL一路看下来，与其说是大资本下场干烂V圈，不如说是大�
 
 
 
-                                            
+
+
+-----
+
+####  Mr.shelter  
+##### 154#       发表于 2020-12-24 14:56
+
+
+
+
+嘉然的说话方式还是有点受不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其他还行
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 155#       发表于 2020-12-24 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49830010&amp;ptid=1974517" target="_blank">Mr.shelter 发表于 2020-12-24 14:56</a>
+嘉然的说话方式还是有点受不了其他还行</blockquote>
+我觉得还好吧，正常女孩子说话啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 156#       发表于 2020-12-24 15:09
+
+
+
+
+怎么说呢，声音有点捏？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉不太自然吧
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 157#       发表于 2020-12-24 16:47
+
+
+
+
+贝拉，一百首任选，人形舞蹈机<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 158#       发表于 2020-12-24 20:29
+
+
+
+
+打SC都难届到啊，这个团都是这样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 159#       发表于 2020-12-24 22:01
+
+
+
+
+贝拉被v8用ybb钓到了还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 160#       发表于 2020-12-24 22:09
+
+
+
+
+弹幕笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 161#       发表于 2020-12-24 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49833299&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-24 20:29</a>
+
+打SC都难届到啊，这个团都是这样</blockquote>
+会不会她们的弹幕姬没有专门的提示？可以去给运营提意见嘛
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 162#       发表于 2020-12-24 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49834449&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-24 22:31:44</a>
+会不会她们的弹幕姬没有专门的提示？可以去给运营提意见嘛</blockquote>不是弹幕机的问题吧，嘉然读sc还是读的挺频繁的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 163#       发表于 2020-12-24 23:35
+
+
+
+ 本帖最后由 Lucio 于 2020-12-24 23:38 编辑 
+
+今天也是从头看到尾，除了喝水基本都在看了。
+
+首先从外部看，泥哥依然鸵鸟，艾撕衣稳步讨论，V8爆炸输出，已经成为主要讨论点，到10点左右的时候，差不多一整个版面都在讨论，截图，互动人数和弹幕接近独轮车级别，热度那是绝对不低。
+
+先说缺点：
+
+1开始没整好，准备时间太长，估计也是由于这个原因，V一开始放不开很拘谨，看YYGQ的弹幕没反应过来，大概在开播一小时后把握到了节奏，渐入佳境；2SC基本当成了普通弹幕处理，读得很少，诚然有些SC因为偶像包袱不好读出来，但是对SC这么敷衍让我直接没有了打钱的动力，本来开场炫技，跳完6种舞蹈的时候我就已经想上船，但后来越来越觉得该等等。中途人气最高的时候是5W多，那个时候有一个500的SC，加上一字马直播间氛围火热，当时人气顶到10W是没问题的。
+
+然后说优点：
+
+1节目效果爆炸，场控一流，基本成功完成所有预定：钉宫三连，一字马还债，新衣发布，戴着动捕做各个高难度动作，绝对碾压隔壁6000日元——真是给贝拉提鞋都不配；2创造了好女人以及求胜心的梗，也给各位DD心里塑造一个良好形象；3二次元浓度出乎意料地足，会唱鸟之诗非常意外，而且居然还唱得有板有眼。
+
+
+最后，所有人的第一轮独播都还没有结束，看得出运营是照着综艺节目的思路去编排节目，估计是想等第一轮全部和大家见面之后，再根据观众反馈调整。综艺节目和直播最大的不同就是观众互动的区别，直播时互动的数量和强度比综艺时候要高好几个数量级，尤其是VTB，观众本身参与，V和观众的互动就是节目中很重要的一部分。弱化观众的因素，节目效果会打很大的折扣。舞力，歌力，抗压情商，这一些是基础，在保证这些基础上，加入20%左右的沙雕女网友，大家玩到一起的元素，基本就完美了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海底铁锚| + 1||
+| Mr.shelter| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 164#       发表于 2020-12-25 08:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">看了一周下来，感觉整个箱里还是嘉然的直播力和控场能力最强，向晚和贝拉在直播互动这一块还是太青涩了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 165#       发表于 2020-12-25 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49836629&amp;ptid=1974517" target="_blank">齐桓公 发表于 2020-12-25 08:23</a>
+
+看了一周下来，感觉整个箱里还是嘉然的直播力和控场能力最强，向晚和贝拉在直播互动这一块还是太青 ...</blockquote>
+毕竟明星跟主播能力要求差别还是挺大的  估计之前也没有怎么训练这方面的内容
+
+
+
+
+
+
+
+-----
+
+####  rilkey  
+##### 166#       发表于 2020-12-25 20:07
+
+
+
+
+尼哥防空洞日常不敢谈论a骚，v8引流去的观众说实话嘴上每个把门的观感不佳，就现在来看五个人舞蹈力都橄榄整个v圈了，接下来各自找到发展方向稳步固粉，坐等搞live或者接舞蹈小工商。（但这和我是看嘉狗又有什么关系呢，看不到嘉然我直接蚂蚁爬）
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 167#       发表于 2020-12-25 20:25
+
+
+
+
+嘉然再不播我要犯病了😅
+
+逼我当抖友吗😅
+
+如果改成睿站独播而抖音传短视频，我马上成为抖友😅
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 168#       发表于 2020-12-25 20:35
+
+
+
+
+今天晚上SC都能届到，我要打钱！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|什么榜一|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 169#       发表于 2020-12-25 20:37
+
+
+
+
+这衣服就是换个贴图色啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zxc5175011  
+##### 170#       发表于 2020-12-25 20:39
+
+
+
+<blockquote>伊可费斯 发表于 2020-12-25 20:37
+这衣服就是换个贴图色啊</blockquote>
+圣诞节特典就用这几天，换色很合理
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 171#       发表于 2020-12-25 20:46
+
+
+
+
+我前几天提的意见，写的小作文全部届到了，太特么感动了！<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 172#       发表于 2020-12-25 21:49
+
+
+
+
+不行了这个小妮子太可爱了，我要嘉然<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 173#       发表于 2020-12-25 22:15
+
+
+
+
+8u们都是些人穷批话多的劣质用户，asoul什么时候能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">破防了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 174#       发表于 2020-12-25 22:23
+
+
+
+
+8u人穷p话多，s1人穷p话少。
+“s1？s1在任何时候都起不了作用”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+seriously，比起舰长和sc，同接人数和弹幕量对大资本更重要。有钱捧个钱场，没钱捧个人场。
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 175#       发表于 2020-12-25 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49845188&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-25 22:15</a>
+
+8u们都是些人穷批话多的劣质用户，asoul什么时候能站起来破防了
+
+
+  -- 来自 能手机投票的 Stage1官 ...</blockquote>
+x早伊原树里一个人就可以发上千条弹幕，我看着右边不停刷出这位的大名😅
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 176#       发表于 2020-12-25 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49845275&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-25 22:25</a>
+
+x早伊原树里一个人就可以发上千条弹幕，我看着右边不停刷出这位的大名😅 ...</blockquote>
+真不是用了独轮车？  昨天nga那边看弹幕数这么多还以为是乐华刷的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|人力车|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 177#       发表于 2020-12-25 22:36
+
+
+
+
+珈乐发歌曲视频了  虽然只有几秒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  但听起来还不错？
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 178#       发表于 2020-12-25 22:42
+
+
+
+
+手摇车罢了，不信自己可以去matsuri.icu翻弹幕记录
+
+
+
+
+
+
+
+-----
+
+####  from1926  
+##### 179#       发表于 2020-12-26 02:13
+
+
+
+ 本帖最后由 from1926 于 2020-12-26 02:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49844177&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-25 20:25</a>
+
+嘉然再不播我要犯病了😅
+
+逼我当抖友吗😅
+
+如果改成睿站独播而抖音传短视频，我马上成为抖友😅 ...</blockquote>
+不可能B独播的，这企划是字节的，哪有自家阵地不要去敌台做独播的。。不过少数几次b限应该还是有可能的。。
+
+话说运营各个论坛应该都有看，反应很快啊。。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 180#       发表于 2020-12-26 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49846883&amp;ptid=1974517" target="_blank">from1926 发表于 2020-12-26 02:13</a>
+不可能B独播的，这企划是字节的，哪有自家阵地不要去敌台做独播的。。不过少数几次b限应该还是有可能的。 ...</blockquote>
+怎么又来个企划是字节的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逼乎口嗨也新吗。
+
+
+
+
+
+
+
+-----
+
+####  白徵明  
+##### 181#       发表于 2020-12-26 09:33
+
+
+
+
+抖音观众又没人权，有个屁用
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 182#       发表于 2020-12-26 09:39
+
+
+
+
+我在B站动态下面写的小作文全部届到了，那不得继续多写一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以前那种把yhm捧起来的环境怎么想都不对劲，现在来一个专业的把这个市场洗个牌我能好好看v<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
