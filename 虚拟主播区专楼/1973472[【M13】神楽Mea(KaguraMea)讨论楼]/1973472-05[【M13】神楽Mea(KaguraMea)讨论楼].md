@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 00:06** 
+> ## **本文件最后更新于2020-12-26 18:06** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_IWfsF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_yOV31" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12130,4 +12130,582 @@ Mea不说异议压力真是可惜
 
 
 
-                          
+
+
+-----
+
+####  古战场亡魂  
+##### 6693#       发表于 2020-12-26 01:20
+
+
+
+
+这种一次性消费了彩虹那么多梗积累的企划，苔苔自己也难得来一次。
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6694#       发表于 2020-12-26 10:55
+
+
+
+
+三点等麻酱出场
+
+
+
+
+
+
+DSC_0097.JPG
+(61.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 10:54 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/105451nyf2fvii3caywffr.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KarinC| + 1|节目单不是2点半出场吗？|
+| 黒長直姫| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6695#       发表于 2020-12-26 11:29
+
+
+
+
+是2点半不是3点
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6696#       发表于 2020-12-26 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848432&amp;ptid=1973472" target="_blank">Mikumiku831 发表于 2020-12-26 10:55</a>
+
+三点等麻酱出场</blockquote>
+节目表上写1430 注意下哦
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6697#       发表于 2020-12-26 12:31
+
+
+
+
+官组新熟肉还以为掉粉掉到40w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6698#       发表于 2020-12-26 12:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6699#       发表于 2020-12-26 13:14
+
+
+
+
+赌博是不好的
+我深刻体会了这点
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 6700#       发表于 2020-12-26 13:39
+
+
+
+
+今天会不会有惯例的贴贴巨魔出现呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6701#       发表于 2020-12-26 13:49
+
+
+
+
+你咩提前征集了bw问题了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6702#       发表于 2020-12-26 14:46
+
+
+
+
+声音太小了
+周围噪音好烦躁啊
+想让那个唱歌的傻叉闭嘴
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6703#       发表于 2020-12-26 15:07
+
+
+
+
+一觉睡过头又只看到尾巴
+BLS 1月2号重播，好耶
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6704#       发表于 2020-12-26 15:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那么可以和小麻一起看小麻了吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6705#       发表于 2020-12-26 15:16
+
+
+
+
+小麻在老家呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6706#       发表于 2020-12-26 15:16
+
+
+
+
+小麻会不会和麻妈麻爸一起看live 小麻要哈子尬希了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6707#       发表于 2020-12-26 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道要不要票开不开放购票，如果要岂不是显得延期公告出来之后不再卖票这个决定十分nt？
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6708#       发表于 2020-12-26 15:24
+
+
+
+
+卖票了 40块 之前有票的可以继续免费看
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6709#       发表于 2020-12-26 15:25
+
+
+
+
+重播完有个公告,不知道是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6710#       发表于 2020-12-26 15:36
+
+
+
+
+2nd举办决定（
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6711#       发表于 2020-12-26 15:37
+
+
+
+
+总不可能是2nd吧
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6712#       发表于 2020-12-26 15:39
+
+
+
+
+卖曲子，卖碟子，卖语音，新2d。反正应该这里面有一个吧。
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6713#       发表于 2020-12-26 15:40
+
+
+
+
+建议暂时调低期望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我估计可能是那些原创曲的pv
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6714#       发表于 2020-12-26 15:52
+
+
+
+
+胆子大点，2nd线下线上预定，顺便卖碟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+             
+
+叔叔求你再把路费赚回去好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6715#       发表于 2020-12-26 15:54
+
+
+
+
+pv吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6716#       发表于 2020-12-26 15:56
+
+
+
+
+还2nd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+楼友别有这些不切实际的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6717#       发表于 2020-12-26 15:57
+
+
+
+
+卖BD也好啊
+
+
+2nd搞线上的多大点事···
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6718#       发表于 2020-12-26 16:05
+
+
+
+
+天狗会买票的，只是线上2nd也不是不能办啊资本家......<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6719#       发表于 2020-12-26 16:09
+
+
+
+
+可能是发专辑了吧
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 6720#       发表于 2020-12-26 16:25
+
+
+
+
+谁能来点现场coser
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6721#       发表于 2020-12-26 17:03
+
+
+
+
+微博上有人发
+<img src="https://p.sda1.dev/0/b9b8527cd92745c4bc8c93bc4fd6fbae/IMG_CMP_210351398.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6722#       发表于 2020-12-26 17:25
+
+
+
+
+好真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6723#       发表于 2020-12-26 17:46
+
+
+
+
+有如月cos么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 6724#       发表于 2020-12-26 18:03
+
+
+
+
+先别骂，指不定小麻自己穿还比不过人家
+
+
+
+
+
+                         

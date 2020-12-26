@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 16:03** 
+> ## **本文件最后更新于2020-12-26 18:04** 
 
 
 
@@ -15683,7 +15683,7 @@ twi:cac_kun<img src="https://p.sda1.dev/0/96bc26b97f41ad82b0efe1070b66a138/IMG_C
 <img src="https://img.saraba1st.com/forum/202012/26/133504w7ej92ei77eagljq.png" referrerpolicy="no-referrer">
 
 
-<strong>D`WTJKLIIX4F8}TZ`KY6WG6.png</strong> (1.93 MB, 下载次数: 0)
+<strong>D`WTJKLIIX4F8}TZ`KY6WG6.png</strong> (1.93 MB, 下载次数: 1)
 
 下载附件
 
@@ -16454,7 +16454,7 @@ syl 不基德，疫情高发了月灵会有空多播一点吗
 
 
 
- 本帖最后由 alcoholic1000 于 2020-12-26 15:46 编辑 
+ 本帖最后由 alcoholic1000 于 2020-12-26 16:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49850742&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-26 15:36</a>
 
 决赛葛叶、阿叶、笹木包揽前三好了，（以上排名不分先后）
@@ -16479,6 +16479,24 @@ syl 不基德，疫情高发了月灵会有空多播一点吗
 
 
 这人，有可能会是今年的冠军
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/160849q0wdfhksfx9xckwd.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 本戦【#マリカにじさんじ杯】c-2..png</strong> (306.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 16:08 上传
+
+
+
+
+
+
+
+紧张死了！！
 
 
 
@@ -16596,4 +16614,1186 @@ syl 不基德，疫情高发了月灵会有空多播一点吗
 
 
 
-                       
+
+
+-----
+
+####  rzrbtk  
+##### 26302#       发表于 2020-12-26 16:04
+
+
+
+
+拜托来个月之练过的图嘞！
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26303#       发表于 2020-12-26 16:05
+
+
+
+
+今年冠军还真不好说，nrk出乎意料的强
+
+
+
+
+
+
+
+-----
+
+####  没有爱就看不见  
+##### 26304#       发表于 2020-12-26 16:08
+
+
+
+
+月之无了，成濑给爷冲
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26305#       发表于 2020-12-26 16:08
+
+
+
+
+月之选手<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26306#       发表于 2020-12-26 16:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">葛叶给我杀！
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26307#       发表于 2020-12-26 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">今年怎么连个采访环节都没了 明明这部分比比赛好看
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26308#       发表于 2020-12-26 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">奈罗花游戏时间不足，有些图只有一次深夜跑全图的练习时间，不熟的图就是第四场的结果。
+另外求procon接触不良问题不要再发作了。
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26309#       发表于 2020-12-26 16:17
+
+
+
+
+感觉C组反而比B组激烈是怎么回事，第一第二弦月长尾景33，第三第四叶奈罗花32
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26310#       发表于 2020-12-26 16:20
+
+
+
+
+狱卒后面比赛加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26311#       发表于 2020-12-26 16:21
+
+
+
+
+lize是和德龙和尊一起出场啊，希望采访环节能多透点信息出来，来年就指着这个活了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26312#       发表于 2020-12-26 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851081&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-26 16:13</a>
+奈罗花游戏时间不足，有些图只有一次深夜跑全图的练习时间，不熟的图就是第四场的结果。
+另外求proc ...</blockquote>
+啊原来没怎么练吗，郡道说看到努力的人得到回报看哭了，还全力应援nrk，她又瞎吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 26313#       发表于 2020-12-26 16:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">如果教练可以代打那么皇女稳拿第一了
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26314#       发表于 2020-12-26 16:25
+
+
+
+
+红白有时间表还行，可以避开老逼糊坦了
+
+[https://www.youtube.com/watch?v=deKvoxhaqOM](https://www.youtube.com/watch?v=deKvoxhaqOM)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26315#       发表于 2020-12-26 16:26
+
+
+
+
+时刻不忘整活的黑哥在开马车歌回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26316#       发表于 2020-12-26 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851161&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 16:23</a>
+啊原来没怎么练吗，郡道说看到努力的人得到回报看哭了，还全力应援nrk，她又瞎吹啊 ...</blockquote>
+又是拔智齿又是准备新衣发布的时间不足啊，今早还在找卖procon的和与youtube bug战斗。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26317#       发表于 2020-12-26 16:33
+
+
+
+
+下巴：看得出来某人很努力地想竖中指，但是可惜！niji3D是没有这个功能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26318#       发表于 2020-12-26 16:37
+
+
+
+
+上次就有这种感觉了，皇女不太喜欢吃硬币？配速一直有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26319#       发表于 2020-12-26 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851247&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-26 16:32</a>
+又是拔智齿又是准备新衣发布的时间不足啊，今早还在找卖procon的和与youtube bug战斗。 ...</blockquote>
+看来郡道说的努力是和厄运战斗的方面<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，
+
+省一楼，王子蛮熟练的嘛
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 26320#       发表于 2020-12-26 16:42
+
+
+
+
+千草上V红白，一直向歌衣和司强调自己是和他们初次见面而不知道怎么称呼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 26321#       发表于 2020-12-26 16:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">二连チクタク，走力差的基本没机会了
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26322#       发表于 2020-12-26 16:43
+
+
+
+
+d组预测是圆圆压胜的，没想到王子这么强<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26323#       发表于 2020-12-26 16:44
+
+
+
+
+强过头了吧
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26324#       发表于 2020-12-26 16:46
+
+
+
+
+才发现bora要参加29号的FFL 除了她全是职业或者猎杀哥 感觉又要遇敌死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26325#       发表于 2020-12-26 16:50
+
+
+
+
+社畜王子之前播爆，也算是努力有回报吧，
+郡道敢不敢说出自己为王子应援再杀一波噶吃呢<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26326#       发表于 2020-12-26 16:54
+
+
+
+
+赫国复国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 26327#       发表于 2020-12-26 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">D组走力还是社畜最强，几个低难度ni都会走
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26328#       发表于 2020-12-26 16:57
+
+
+
+
+皇女差点，幸好最后进了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26329#       发表于 2020-12-26 16:58
+
+
+
+
+这组太紧张了，皇女开局非常差，硬币数量少道具也一直没吃到，顶着压力逆风翻盘
+
+第二那局前期优势因为道具被打没，掉到第八，凭借终于回归的道具运气星星+炮弹+近道素养冲回第二
+
+压线！
+
+<img src="https://img.saraba1st.com/forum/202012/26/165748i7jkr6dkwrv7zj77.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 本戦【#マリカにじさんじ杯】d.pn.png</strong> (462.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 16:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26330#       发表于 2020-12-26 16:58
+
+
+
+ 本帖最后由 free 于 2020-12-26 17:00 编辑 
+
+[https://www.youtube.com/watch?v=deKvoxhaqOM](https://www.youtube.com/watch?v=deKvoxhaqOM)
+
+大葵来了！快看
+
+草为什么放pretender，怎么想的
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 26331#       发表于 2020-12-26 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851386&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 02:50</a>
+
+社畜王子之前播爆，也算是努力有回报吧，
+
+郡道敢不敢说出自己为王子应援再杀一波噶吃呢 ...</blockquote>
+看的阿社窗，阿社确定出线之后就反复说想赢王子，一股少年的热血感，不争馒头争口气，发现需要加时赛的时候直接乐开了花，就为了反超那一点分
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26332#       发表于 2020-12-26 17:00
+
+
+
+
+今天大葵真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26333#       发表于 2020-12-26 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851161&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 16:23</a>
+
+啊原来没怎么练吗，郡道说看到努力的人得到回报看哭了，还全力应援nrk，她又瞎吹啊 ...</blockquote>
+这练的够多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20201226170122.png
+(701.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 17:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/170151tba0uu5aatdmkepe.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26334#       发表于 2020-12-26 17:11
+
+
+
+
+虹楼那个马车菠菜贴我allin的naraka<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，感觉挺稳的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26335#       发表于 2020-12-26 17:14
+
+
+
+
+感觉该奶了，神田王子成濑nrk葛叶，无论谁第一我都开心
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26336#       发表于 2020-12-26 17:14
+
+
+
+<blockquote>CAserlumos 发表于 2020-12-26 17:02
+这练的够多了</blockquote>
+但彩虹的酬勤系选手真的太多了
+
+
+
+
+
+
+IMG_20201226_171055.png
+(328.28 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 17:13 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/171356aysl4p30ddy0x0xz.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+IMG_20201226_170642.png
+(314.94 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 17:14 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/171406yzj02jhl22os8loj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 26337#       发表于 2020-12-26 17:18
+
+
+
+
+底边夺冠能改变底边境地么<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 长景这个同接起飞的感觉可以，王子成濑nrk这些感觉还是不行
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26338#       发表于 2020-12-26 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 反正免费淘汰掉我是很开心的，这就够了
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26339#       发表于 2020-12-26 17:22
+
+
+
+
+新出的分组好吓人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26340#       发表于 2020-12-26 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851609&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-26 17:18</a>
+底边夺冠能改变底边境地么 长景这个同接起飞的感觉可以，王子成濑nrk这些感觉还是不行 ...</blockquote>
+太狼性了吧<img src="https://static.saraba1st.com/image/smiley/animal2017/005.png" referrerpolicy="no-referrer">，不用事事都订阅嘞，
+王子跟郡关系不错，难得抽时间出来直播搞活动；成濑教过郡道马车，重回王位很燃；nrk是郡道应援选手，所以他们赢了就挺开心的，
+订阅的事他们自己担心，作为观众我只看节目效果啊
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 26341#       发表于 2020-12-26 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有用轻mii的？看来信心十足啊
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26342#       发表于 2020-12-26 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851609&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-26 17:18</a>
+
+底边夺冠能改变底边境地么 长景这个同接起飞的感觉可以，王子成濑nrk这些感觉还是不行 ...</blockquote>
+出云霞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你虹的观众很多就是图个乐子，看完了人就全跑了，订阅都不会点的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26343#       发表于 2020-12-26 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851710&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-26 17:28</a>
+ 出云霞  你虹的观众很多就是图个乐子，看完了人就全跑了，订阅都不会点的 ...</blockquote>
+霞剑盾杯高光后播剑盾同接也是有四位数的，比以前只有几百的同接高出很多了，结果比完转头就播其他的。
+
+虹观众图个乐，liver自己也是挺不在乎的（
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26344#       发表于 2020-12-26 17:36
+
+
+
+
+成濑自己第一的时候看到蓝龟壳来了直接刹车让葵接。
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 26345#       发表于 2020-12-26 17:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛郎把把选雪山，就是不给别人机会咯
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26346#       发表于 2020-12-26 17:39
+
+
+
+
+葛叶没救了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26347#       发表于 2020-12-26 17:39
+
+
+
+
+葛皇没了，输了比赛但是赢了人生啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26348#       发表于 2020-12-26 17:40
+
+
+
+
+这局马车是否象征着虹同接鬼称号的易位逐渐开始了
+
+
+
+
+
+
+
+-----
+
+####  没有爱就看不见  
+##### 26349#       发表于 2020-12-26 17:42
+
+
+
+
+地狱啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26350#       发表于 2020-12-26 17:42
+
+
+
+
+叶师傅啊！！啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26351#       发表于 2020-12-26 17:45
+
+
+
+
+啧，全都是月之练了的图
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26352#       发表于 2020-12-26 17:46
+
+
+
+ 本帖最后由 qq845629713 于 2020-12-26 17:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 不破完全不给别人机会阿 
+
+决赛同接没天皇-1w、没葛叶-2w、没黑黑组合-1w、没lize再-1w，
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26353#       发表于 2020-12-26 17:48
+
+
+
+
+谁都没有想到，我们寄予厚望的葛叶…………………………
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26354#       发表于 2020-12-26 17:49
+
+
+
+
+刀说葛叶有crcup所以没进，是在给台阶吗？
+省一楼，感觉，最近的夜王国真的绝好调啊
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26355#       发表于 2020-12-26 17:51
+
+
+
+
+葛叶第一局最后一圈第二离终点还有一点，被炸到第8，后面也是一直吃道具，然后没了
+我很好奇今年冠军，明年的结果
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 26356#       发表于 2020-12-26 17:51
+
+
+
+
+葛叶推特刚发一分钟就1000+评论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，可怕可怕
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26357#       发表于 2020-12-26 17:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">能让阴湿哥享受尊妈解说么，刀也加油
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26358#       发表于 2020-12-26 17:55
+
+
+
+
+阿葵进了，好耶
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26359#       发表于 2020-12-26 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 说真的，我有看到不破道具针对某个人，放过某个人，
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26360#       发表于 2020-12-26 17:58
+
+
+
+
+笹木 “如今奖杯就在眼前，我必须考虑这会不会是我此生仅有的机会。gamers能有过去的霸主地位，葛叶功不可没，重铸gamers的荣光，我辈义不容辞！”
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26361#       发表于 2020-12-26 17:58
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-26 17:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851894&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 17:49</a>
+
+刀说葛叶有crcup所以没进，是在给台阶吗？
+
+省一楼，感觉，最近的夜王国真的绝好调啊 ...</blockquote>
+cr和马车连轴转确实有点吃力，二十四、二十五有线下还要超长时通勤，葛皇昨天晚上通宵练习，到这个点可能状态也不行了
+
+
+不过旧人也是时候让位了，葛皇2020年说「gamer的大航海时代到了」，大概就是这样...
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26362#       发表于 2020-12-26 17:58
+
+
+
+
+gamers的荣耀，还是要靠本间桑捍卫
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26363#       发表于 2020-12-26 17:59
+
+
+
+
+草ww，一时间gamer关键词连发啊
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 26364#       发表于 2020-12-26 18:00
+
+
+
+
+葵皇意外的强<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26365#       发表于 2020-12-26 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 把不破带进上等人圈子的罪魁祸首就是某人，gamers海贼团要被黑胡子不破一人祸害完了，
+
+
+
+
+
+                     

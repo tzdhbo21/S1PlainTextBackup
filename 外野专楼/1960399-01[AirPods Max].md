@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-17 22:16** 
+> ## **本文件最后更新于2020-12-26 18:10** 
 
 
 
@@ -27,7 +27,14 @@
 ####  4600  
 ##### 2#       发表于 2020-9-17 17:22
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+像医疗器械
+
+
+
+
 
 
 
@@ -3308,14 +3315,7 @@ homepod这玩意就是搭配Hom ...</blockquote>
 ####  大江户战士  
 ##### 184#       发表于 2020-12-9 00:20
 
-
-
-
-无线的也就别讲HIFI了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3441,17 +3441,7 @@ QQ图片20201209001946.png
 ####  大江户战士  
 ##### 188#       发表于 2020-12-9 00:25
 
-
-
- 本帖最后由 大江户战士 于 2020-12-9 00:27 编辑 
-
-看了，还是H1芯片啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-我懂了，在Max面前Pro显得那么有性价比，这波苹果在大气层
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3499,19 +3489,7 @@ homepod这玩意就是搭配Hom ...</blockquote>
 ####  大江户战士  
 ##### 191#       发表于 2020-12-9 00:33
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655674&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 00:21</a>
-
-The Verge说可以Lightning转3.5mm</blockquote>
-这个耳机设计看上去是两个耳包独立驱动，也就是有两块H1
-
-
-这样的话怎么连有线有一只耳朵都会是无线的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3632,26 +3610,7 @@ The Verge说可以Lightning转3.5mm</blockquote>
 ####  大江户战士  
 ##### 195#       发表于 2020-12-9 00:37
 
-
-
- 本帖最后由 大江户战士 于 2020-12-9 00:40 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655772&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 00:36</a>
-
-不是苹果强，是hifi厂太菜。没搞出什么技术壁垒。
-
-而这个销量上去后，dolby之类的进来就是降维打击了</blockquote>
-说白了其实大多数人听不出来区别的，那自然是功能多、易用更好了，就像特斯拉和传统车厂的关系，买HiFi的还会继续买，这是两种人群
-
-
-但是这个价格……推广我估计有难度。大部分人肯定也分不清2000块钱的QC35/WH1000和这东西的差别
-
-
-
-说白了就是定位有点尴尬
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3681,23 +3640,7 @@ The Verge说可以Lightning转3.5mm</blockquote>
 ####  大江户战士  
 ##### 197#       发表于 2020-12-9 00:45
 
-
-
- 本帖最后由 大江户战士 于 2020-12-9 00:47 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655812&amp;ptid=1960399" target="_blank">Chia 发表于 2020-12-9 00:43</a>
-
-区别是不难的，从区别到优劣比较难。这也是小厂的生存之道（如果音频只有一个指标，那小厂早死完了）
-
-
-果 ...</blockquote>
-能区别出来的人，我不觉得会去买这个……
-
-还是觉得价位太高了，定到3000左右会更好，专坑木耳
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3784,16 +3727,7 @@ via蓝牙的音质就不可能hifi吧<img src="https://static.saraba1st.com/imag
 ####  大江户战士  
 ##### 202#       发表于 2020-12-9 00:51
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655838&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 00:47</a>
-
-用脚脖子想也知道不可能，难道充电也要左右分别充电这种智障设计？</blockquote>
-充电不是放套子里的么
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3819,16 +3753,7 @@ via蓝牙的音质就不可能hifi吧<img src="https://static.saraba1st.com/imag
 ####  大江户战士  
 ##### 204#       发表于 2020-12-9 00:54
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655867&amp;ptid=1960399" target="_blank">宏 发表于 2020-12-9 00:52</a>
-
-那问题来了，lighting线插哪</blockquote>
-我也在纳闷，现在图太少了看不到耳机接口在哪
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3853,22 +3778,7 @@ via蓝牙的音质就不可能hifi吧<img src="https://static.saraba1st.com/imag
 ####  大江户战士  
 ##### 206#       发表于 2020-12-9 01:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49655858&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-12-9 00:50</a>
-
-苹果aac文件去读这个https://www.apple.com/itunes/docs/apple-digital-masters.pdf
-
-
-改进了AAC的转换和编 ...</blockquote>
-说白了其实也是牺牲了音质的压缩算法，只不过常人听不出区别
-
-
-作类比就像JPEG一样
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4676,16 +4586,7 @@ hifi厂有什么技术壁垒，脑放？头梁铁丝？
 ####  大江户战士  
 ##### 249#       发表于 2020-12-9 10:57
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49658092&amp;ptid=1960399" target="_blank">风雪天 发表于 2020-12-9 10:38</a>
-
-这价格可以上传统耳机厂商的次旗舰大耳或旗舰耳塞了</blockquote>
-大厂降噪头戴大部分都是2000左右，这一下拉了两倍
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5173,16 +5074,7 @@ HiFi大概就这样了，喊着保真其实没几个真的在意保真——当�
 ####  大江户战士  
 ##### 274#       发表于 2020-12-9 15:26
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661377&amp;ptid=1960399" target="_blank">白木あえか 发表于 2020-12-9 15:09</a>
-
-苹果其实根本不在意Max的音乐表现，之所以搞这东西主要还是为AR铺路，就算在意音质也更多侧重视频领域的表 ...</blockquote>
-现在就怕这东西够不上HIFI反而把本来均价2000的高端降噪耳机拉倒均价4000
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5191,41 +5083,7 @@ HiFi大概就这样了，喊着保真其实没几个真的在意保真——当�
 ####  大江户战士  
 ##### 275#       发表于 2020-12-9 15:26
 
-
-
-
-据报道，据彭博社的 Mark Gurman 报道，苹果新发布的 AirPods Max 耳罩式耳机在推迟数月后，省略了一些原本计划的功能。
-
-
-苹果AirPods Max因开发问题功能被阉割：可更换头带、触摸控制
-
-
-今年早些时候，来自彭博社的报道称，当时被认为是名为 “AirPods Studio”的 AirPods Max 遭遇了数次开发挑战，导致多次延期和功能缩减。尽管有大量关于该产品的传闻，但在最近的三次苹果活动中，该产品都未能出现。
-
-
-9 月，AirPods Max 的设计在一段视频中泄露，表明可能很快就会推出。这款耳机原本打算在 2020 年中期投入生产，但由于开发问题，比如头带出现问题，在测试过程中发现<strong>头带太紧</strong>，所以生产时间被推后。
-
-
-据悉，AirPods Max 原本将提供独特的可定制性，包括可更换头带和耳套。彭博社正确地预测，苹果将放弃可更换头带的设计，以加速生产。
-
-
-此外，人们还认为 AirPods Max 将在耳机侧面配备用于控制的触摸垫。在最终产品中，这似乎已经被 Apple Watch 中的数字表冠所取代。
-
-
-苹果AirPods Max因开发问题功能被阉割：可更换头带、触摸控制
-
-
-在今天早些时候宣布 AirPods Max 之后，Mark Gurman 认为苹果为了让产品最终发布，放弃了大量的功能。
-
-
-其他关于苹果 AirPods Max 的传闻也未能实现。爆料者 Jon Prosser 多次表示，AirPods Max 将有 350 美元的 “运动版本”和 599 美元的 “豪华版本”。虽然 Prosser 所说的 599 美元与最终的 549 美元价格相差无几，但更便宜的 350 美元 “运动版本”并没有出现。
-
-
-9to5Mac 此前曾报道，AirPods Max 将具有 “颈部检测”功能和自适应音频通道，可在左右两侧进行切换，让用户可以以任何方式使用耳机。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7464,7 +7322,14 @@ sony和bose我不管听什么都闷，max则像是一个活泼开朗的JK
 ####  兰开夏  
 ##### 387#       发表于 2020-12-17 10:05
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+这东西真蛋疼，特定领域专攻又有明显缺陷
+
+
+
+
 
 
 
@@ -7539,4 +7404,802 @@ https://www.zhihu.com/question/434 ...</blockquote>
 
 
 
-                                    
+
+
+-----
+
+####  ziyo  
+##### 392#         楼主| 发表于 2020-12-18 02:42
+
+
+
+ 本帖最后由 ziyo 于 2020-12-18 02:47 编辑 
+
+crinacle的测量
+
+<img src="https://img.saraba1st.com/forum/202012/18/024220j8tb8ftlkdlxz0lx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>AirPods-Max.jpg</strong> (87.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 02:42 上传
+
+
+
+
+
+
+The good: for the sheer amount it has, the APM’s bass is very well-done. The bass emphasis is focused mainly in the sub-bass (sub-150Hz frequencies since people keep harassing me about this, yes sub-bass is technically under 80Hz but the APMs begin their rise at around 150Hz, hence brain-fart) and so is well separated from melodic instrumental frequencies. A lot of consumer-friendly headsets tend to get this very wrong (looking at you, Sony)<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> so thumbs up to Apple for being one of the few to get it right.
+
+The meh: with all the talk on DSP and other software magics, the imaging performance on the APM is… average. None of the familiar crossfeed tech seems to be at play here and the APM sounds like what it is: a closed-back headphone. Utterly average and nothing special.
+
+But do note that this is with non-Apple devices, so maybe the “Spatial Audio” function on Apple devices could fix this. More on that in the full review.
+
+The bad: in the “intangibles”, the APM does very little to justify its $550 price tag. My personal benchmark for resolution/detail for this kind of sound signature would be the $700 Audeze LCD-2 Classic, and the APM is not even close. Let’s not even talk about the Sennheiser HD800S… frankly, doesn’t even belong in the same conversation much less a comparison point in a formal review.
+
+The APM is probably closest to a decent $100 closed-back studio monitor; the AKG K371, the Shure SRH440, the Audio Technica ATH-M40X/M50X, maybe even the Beyerdynamic DT770 Pro.
+
+TL;DR: In consideration that it’s a wireless ANC headphone, good for $300.
+
+
+Reminder that these are initial impressions. Full review coming soon.
+
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 393#       发表于 2020-12-18 03:40
+
+
+
+ 本帖最后由 黑兽 于 2020-12-18 03:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49754834&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-17 21:08</a>
+
+又一日上班摸鱼的感想，借了同事的qc35、700也一起听了下，主观上我愿意断言它确实是降噪耳机体系里素质最 ...</blockquote>
+森海不是主打音质吗，有没有对比
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 394#       发表于 2020-12-18 09:14
+
+
+
+<blockquote>黑兽 发表于 2020-12-18 03:40
+森海不是主打音质吗，有没有对比</blockquote>
+前同事一起出差的时候给我听过一耳朵大馒头，我觉得轰头厚重，听感比xm4高但拉不开明显差距（印象和我刚拿到max时候的感受差不多）。Max是我唯一觉得在自己的听音取向（pop/jazz/r&amp;b/轻音/原声/anisong）里带来更高一层享受的
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 395#       发表于 2020-12-18 09:28
+
+
+
+<blockquote>Fuero 发表于 2020-12-18 09:14
+前同事一起出差的时候给我听过一耳朵大馒头，我觉得轰头厚重，听感比xm4高但拉不开明显差距（印象和我刚 ...</blockquote>
+不过补充一下，个人觉得Max还是不太适合4K价位，纯听音的情况，下放到3K档是比较合适的，现价格多余的价值我觉得是那些Apple Stuff比如下血本的工艺、材质、暂时感觉不到有什么用的空间音频
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 396#         楼主| 发表于 2020-12-18 14:56
+
+
+
+ 本帖最后由 ziyo 于 2020-12-18 14:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49757630&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-18 09:14</a>
+
+前同事一起出差的时候给我听过一耳朵大馒头，我觉得轰头厚重，听感比xm4高但拉不开明显差距（印象和我刚 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/18/144846pinizfwnf1vqvwno.png" referrerpolicy="no-referrer">
+
+
+<strong>graph (2).png</strong> (378.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 14:48 上传
+
+
+
+
+
+
+和xm4比较，可以看出超低频差不多，
+
+人声这段为啥sony几代都是闷厚
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/145258hp03360c5ywciso5.png" referrerpolicy="no-referrer">
+
+
+<strong>graph (4).png</strong> (377.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 14:52 上传
+
+
+
+
+
+
+qc35
+
+
+<img src="https://img.saraba1st.com/forum/202012/18/145406mxrooqfxorqkje0h.png" referrerpolicy="no-referrer">
+
+
+<strong>graph (1).png</strong> (373.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 14:54 上传
+
+
+
+
+
+
+拜亚那个蓝牙
+
+<img src="https://img.saraba1st.com/forum/202012/18/145542kgkwiau8cwujwvwd.png" referrerpolicy="no-referrer">
+
+
+<strong>graph (5).png</strong> (368.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 14:55 上传
+
+
+
+
+
+
+371，371bt差不多
+
+<img src="https://img.saraba1st.com/forum/202012/18/145730hrxw0vhxrzhxhh8j.png" referrerpolicy="no-referrer">
+
+
+<strong>graph (6).png</strong> (378.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-18 14:57 上传
+
+
+
+
+
+
+森海大馒头，这……
+
+
+
+
+
+
+
+
+
+-----
+
+####  roamer  
+##### 397#       发表于 2020-12-18 18:30
+
+
+
+
+有连windows的评测吗
+
+
+
+
+
+
+
+-----
+
+####  einhorn  
+##### 398#       发表于 2020-12-18 19:18
+
+
+
+
+调音看上去还行，不过单元素质一般的话就没意思了，说实在的QC35 XM4的单元素质也不坏
+
+
+封闭式大耳天生比入耳更难调教，这方面DSP不多整点活的话其实也不会比一般封闭动圈好到哪里去
+
+
+
+
+
+
+
+-----
+
+####  ulric  
+##### 399#       发表于 2020-12-18 22:43
+
+
+
+ 本帖最后由 ulric 于 2020-12-18 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49756821&amp;ptid=1960399" target="_blank">黑兽 发表于 2020-12-18 03:40</a>
+
+森海不是主打音质吗，有没有对比</blockquote>
+森海自己有线都拿不出几款主打音质的了，HD805N、Aonic50才是把成本用在声学优化方面的异类
+
+
+
+
+
+
+
+-----
+
+####  Bolmrux  
+##### 400#       发表于 2020-12-20 10:52
+
+
+
+
+去官方店试了，喷了，头太大了戴不上，可调节部分调最大也戴不上，苹果我**
+
+最后手动把耳垂塞进耳罩里才勉强能降噪
+
+这朋友做不成了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 401#         楼主| 发表于 2020-12-20 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49782224&amp;ptid=1960399" target="_blank">Bolmrux 发表于 2020-12-20 10:52</a>
+去官方店试了，喷了，头太大了戴不上，可调节部分调最大也戴不上，苹果我**
+
+最后手动把耳垂塞进耳罩里才勉 ...</blockquote>
+拉杆拉完都戴不上？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+也太大了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Bolmrux  
+##### 402#       发表于 2020-12-20 12:37
+
+
+
+<blockquote>ziyo 发表于 2020-12-20 12:01
+拉杆拉完都戴不上？
+
+也太大了吧
+</blockquote>
+但森海和索尼拉到最大都能戴啊
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 403#       发表于 2020-12-20 13:29
+
+
+
+
+没放保护套直接摆桌上放了大概12个小时，没掉电（87%-&gt;87%），看来不用特地放套子里，另外很神奇的一点是插线接PS5手柄以及PC时，都可以用旋钮控制音量
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 404#         楼主| 发表于 2020-12-20 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783868&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-20 13:29</a>
+没放保护套直接摆桌上放了大概12个小时，没掉电（87%-&gt;87%），看来不用特地放套子里，另外很神奇的一点是插 ...</blockquote>
+音量由耳机控制，3.5的有线传的也是模拟转数字信号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  izthr  
+##### 405#       发表于 2020-12-20 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49756742&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-12-18 02:42</a>
+
+crinacle的测量
+
+
+The good: for the sheer amount it has, the APM’s bass is very well-done. The bass e ...</blockquote>
+这曲线真实不，这要是真的不是相当于没法听？
+
+
+
+
+
+
+
+-----
+
+####  izthr  
+##### 406#       发表于 2020-12-20 14:38
+
+
+
+
+另外为什么现在全都动次打次，话说ture music是不是影响力也太大了点，话说当初我用的7506居然还有人认为低音不错，这当年可是标准的两头翘式的录音室用监听声
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 407#       发表于 2020-12-20 15:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看不懂频谱，有没有**给个说法
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 408#         楼主| 发表于 2020-12-20 17:55
+
+
+
+ 本帖最后由 ziyo 于 2020-12-20 18:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784387&amp;ptid=1960399" target="_blank">izthr 发表于 2020-12-20 14:31</a>
+
+这曲线真实不，这要是真的不是相当于没法听？</blockquote>
+有几个版本，但是大体走向差不多，怎么就没法听
+
+补一个水月bk测的
+
+<img src="https://img.saraba1st.com/forum/202012/20/183923yo1jjmoia31oj1o2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>max.jpg</strong> (22.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 18:39 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/20/183946hrorrr8om6o8s41y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>max2.jpg</strong> (361.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-20 18:39 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 409#       发表于 2020-12-20 19:01
+
+
+
+ 本帖最后由 Fuero 于 2020-12-20 19:58 编辑 
+
+看到个接近自己想法的评测，有兴趣的建议实地听听
+
+根据近期的观察很多老烧觉得苹果不配染指头戴，也有很多初心者看到4k觉得这玩意是天价耳机，觉得是beats换皮，但一旦放下先入为主的印象去认真听下，我觉得其实都是能发现亮点的
+
+10多年前读书时入坑，台机系统一步步从1k玩到50k档，耳机耳塞也是从最早的几百玩到2w3w的各家旗舰，自认为还是可以评价一下Max的听感
+
+它不是最贵的主动降噪头戴，最贵的已经在10k+档位了，它的解析力和台机推出来的耳机有所差距，但它毫无疑问是好听的主动降噪头戴（大编制等除外）
+
+当然我更加期待HIFI老厂们明年的无线新品会不会受此影响来点不一样的更新
+ <blockquote>By far the most impressive aspect of the AirPods Max is their sound quality. Prior to the AirPods Max, I had almost no complaints about the AirPods Pro, but that's certainly changed now. 
+
+
+The Max sound as good as some higher-end headphones I've been fortunate enough to listen to during demos at trade shows like CES. </blockquote><blockquote>Appleは ｢AirPods Max｣ の音質について、独自設計した40mm口径のダイナミックドライバによって、深みのある豊かな低音域、正確な中音域、明瞭で透き通った高音域の伸びを実現していると謳っている。
+
+
+この文言と6万円超えという価格設定から、Appleは音質に相当自信があるんだろうなとワクワクしながらも、内心は半信半疑の気持ちを持ちながらAirPods Maxで音楽を聴いてみた。しかし、筆者の期待は良い意味で裏切られた。想像していたものよりもずっと高いクオリティのサウンドに仕上がっていたからだ。特に、Apple Digital Master楽曲を聴くとその凄さがわかる。
+
+
+AirPods Maxの音を一言で表すなら “クセの無い素直なニュートラル” 。高音から低音、大きな音から小さな音までひとつの音も潰れることなく鮮明に表現されていて、音の解像度は非常に高い。Appleの言う ｢原音に忠実なサウンド｣ は確かに実現できていると言えるだろう。ボーカルや奏者の息遣い、ギターやバイオリンなどの弦楽器の弦の振動までもが目の前で演奏されているかのようにリアルに伝わってくる。
+
+
+さらに筆者が驚いたのは、音が鳴っている場所が両耳付近ではなく自分の周囲なのではないかと錯覚してしまうほど音場が広いこと。ライブ音源との相性は抜群だ。
+
+
+また、ひとつひとつの音の伸びがとても良いのも大きな特徴だ。前方近くで鳴ったハイハットの音が耳の後ろまでスーッと伸びて消える。鳴り終わった音の処理もとても丁寧で、雑さを感じることは一切ない。
+
+
+中には6万円の価値はないと一刀両断しているレビューもあるかもしれないが、筆者の評価はその真逆。正直なところ最初は懐疑心もあった。オーディオを得意とするBoseやSonyのヘッドホンを超えることはAppleと言えども容易いことではないと思っていたからだ。
+
+
+しかし、AirPods Maxのそれは ｢WH-1000XM4｣ 以上の高い再現度を持った製品だった。もちろん、｢音｣ には人それぞれ好き嫌いがあるものだとは思うが、少なくとも音の解像度という点では ｢WH-1000XM4｣ や ｢Noise Cancelling Headphones 700｣ は上回っていると言える。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  bigice  
+##### 410#       发表于 2020-12-20 22:01
+
+
+
+
+看了这么多楼没人说吗，实际在开发中的一共有两款，这次发布的是“高端”版，售价4399，明年可能还会发布一款“运动”版，参考 Apple Watch 应该售价3599，各种渠道下应该能给到2000多，明年这一款通过砍掉不锈钢能解决贵和重的问题，这才是走量的。今年发的高端版由于产能等问题先定个高价，打出名声，顺带卖给有钱人，明年出的除了材质略显一般，才是真正普通消费者用的。AirPods Max 本质上和其他苹果产品一样，都是打一个差异化，降噪届我音质最好，音质届我降噪最好，还附带最好的通透模式加空间音频，对苹果用户来说运动版 AirPods Max 性价比高于 XM4.
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 411#       发表于 2020-12-20 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49789828&amp;ptid=1960399" target="_blank">bigice 发表于 2020-12-20 22:01</a>
+
+看了这么多楼没人说吗，实际在开发中的一共有两款，这次发布的是“高端”版，售价4399，明年可能还会发布一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">要是这样我就取消订单等了
+
+
+
+
+
+
+
+-----
+
+####  cat339  
+##### 412#       发表于 2020-12-21 09:24
+
+
+
+
+运动版一直都在传啊，问题以苹果的尿性，没实际发布前谁也不敢打包票有。
+
+
+
+另外，苹果发了个文档说明省电模式的原理：
+[https://support.apple.com/en-us/HT211886](https://support.apple.com/en-us/HT211886)
+
+
+以下引用瘾科技：
+
+因为苹果没有在 AirPods Max 上加入开关，所以这款耳机的低功耗模式具体是如何运作，在发布后便引发了很多的疑问。如今随着产品正式开始出货，苹果也终于放出了一份支持文档来详细对该问题进行说明。原来除了放入 Smart Case 会即刻触发 AirPods Max 的低功耗模式外，当耳机在保护套外面的时候，只要待机 5 分钟后低功耗模式便会自动开启。
+
+
+不光如此，当 AirPods Max 离开 Smart Case 72 小时以后，设备就将启动更激进的省电模式。它会把蓝牙和寻找耳机的功能都关掉，以尽可能帮助 AirPods Max 节省电量。而当耳机被装入 Smart Case 的情况下，只要 18 个小时后 AirPods Max 就会进入强力省电模式了。对于想入手这款产品的用户来说，苹果的这番说明应该能减轻一些大家对耳机耗电的忧虑吧。
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 413#       发表于 2020-12-21 09:35
+
+
+
+
+有轻量版的话再买一副…摘下省电还是挺靠谱的可以放心，体感和其它耳机的关机耗电一样
+
+
+
+
+
+
+
+-----
+
+####  roamer  
+##### 414#       发表于 2020-12-21 13:27
+
+
+
+
+去环球港试听了，感觉不错，等个运动版
+
+
+
+
+
+
+
+-----
+
+####  mcq_2  
+##### 415#       发表于 2020-12-21 13:57
+
+
+
+
+2000以下可以考虑，佩戴再舒服一点
+
+
+
+
+
+
+
+-----
+
+####  flyfish  
+##### 416#       发表于 2020-12-21 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49751509&amp;ptid=1960399" target="_blank">Fuero 发表于 2020-12-17 15:11</a>
+习惯的力量真可怕，我已经习惯这个重量一点也不觉得重了，这太异常了吧 ...</blockquote>
+是信仰力<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Neho  
+##### 417#       发表于 2020-12-21 14:25
+
+
+
+
+忧虑源自不可知 人家没人要文档
+
+
+
+
+
+
+
+-----
+
+####  葵  
+##### 418#       发表于 2020-12-22 21:21
+
+
+
+
+今天去果的自营店感受了下，听感一耳朵蛮惊艳的，声场分离都挺能打的，听AM上的acc居然都很好听，是我听过最好听的水果产品，裤兜里刚到手的AirPods pro瞬间就不香了～<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+真机质感真挺好的，蓝色粉色最好看～<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 419#       发表于 2020-12-22 23:39
+
+
+
+ 本帖最后由 Fuero 于 2020-12-22 23:46 编辑 
+
+IM和whathifi评价，运动版快点出来吧，以及早点开掉做保护套的那位
+
+<img src="https://img.saraba1st.com/forum/202012/22/233851bxo9u5qx53ubqq3w.png" referrerpolicy="no-referrer">
+
+
+<strong>111.png</strong> (312.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 23:38 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/22/234327ov14iv6dhv1kkvm2.png" referrerpolicy="no-referrer">
+
+
+<strong>222.png</strong> (374.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-22 23:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fuero  
+##### 420#       发表于 2020-12-23 17:03
+
+
+
+
+补充whathifi音质对比评价：
+
+
+Sound quality. Of course for us, this is the big one. And – spoiler alert – we have been blown away by the AirPods Max. They really do take sound quality from wireless, noise-cancelling headphones to a whole new level compared to the Bose and Sony. They needed to, based on the price difference, but it really is a jump from wireless audio to wireless hi-fi.
+
+
+And that's impressive. After all, both Sony and Bose have been in the noise-cancelling sphere for years, each time improving the sound-per-pound they offer. The Bose 700 display a superb level of musicality and clarity, sounding direct, dynamic and detailed. 
+
+
+That said, they can't quite compete with the depth of bass and detail offered by the Sony WH-1000XM4. The Sonys sound that bit more composed and are confident, punchy and poised. Their timing is brilliant, too.Sony's LDAC codec also allows for higher-quality files to be played wirelessly from a compatible source.  
+
+
+But listening to the Apple AirPods Max, we’re instantly thrilled by the super-crisp and spacious delivery. There’s a degree of clarity and energy that even the Sonys can’t match, and they sound more engaging and authentic. More precise and exciting, they feel like a significant step-up in terms of sonic sophistication.
+
+
+Of course, switch from music to movies and the AirPods Max have a trick up their sleeve in the form of spatial audio, which provides a virtual surround sound experience from 5.1, 7.1 and even Dolby Atmos content. The effect is superb. The presentation is open, spacious and convincing, and the head-tracking, which ensures the audio is always relative to the screen as you move your head, is amazingly smooth and accurate. Even allowing for the extra outlay, we have a clear winner.
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 421#         楼主| 发表于 2020-12-26 17:47
+
+
+
+ 本帖最后由 ziyo 于 2020-12-26 17:51 编辑 
+
+[https://www.bilibili.com/video/B ... 67656e63655f6176.42](https://www.bilibili.com/video/BV1T64y1Z7ke?spm_id_from=333.5.b_6469676974616c5f696e74656c6c6967656e63655f6176.42)
+
+
+拆解视频，还想还原呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+有一说一看看xm4，qc35的内部，这货卖一倍价格毫不夸张<img src="http://cdn.52audio.com/wp-content/uploads/2020/08/4-7.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/26/175110lwhhhy28htq92wrh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4-7.jpg</strong> (167.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 17:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 422#       发表于 2020-12-26 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851872&amp;ptid=1960399" target="_blank">ziyo 发表于 2020-12-26 17:47</a>
+
+https://www.bilibili.com/video/B ... 67656e63655f6176.42
+
+
+拆解视频，还想还原呢</blockquote>
+这拆解水平真实拉稀，逼站up都什么水平
+
+
+
+
+
+                                   
