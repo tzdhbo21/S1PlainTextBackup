@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 04:07** 
+> ## **本文件最后更新于2020-12-26 14:11** 
 
 
 
@@ -9,7 +9,7 @@
 
 
 
- 本帖最后由 HGCG 于 2020-12-25 18:49 编辑 
+ 本帖最后由 HGCG 于 2020-12-26 12:08 编辑 
 
 化妆变身！无敌的干劲！
 
@@ -18,6 +18,8 @@
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thcr1ij20xc0inahr.jpg" referrerpolicy="no-referrer">
 
 <img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm09thit65j20xc0jqk0q.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/bf385be38f7687539b6184e63212c2bf/IMG_CMP_123488302.png" referrerpolicy="no-referrer">
 
 
 
@@ -4828,4 +4830,534 @@ e7cbae74gy1glxo3tw3ozj21560u0twf1.jpg
 
 
 
-                                        
+
+
+-----
+
+####  风鸣弦十郎  
+##### 273#       发表于 2020-12-26 04:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49847178&amp;ptid=1963832" target="_blank">风鸣弦十郎 发表于 2020-12-26 04:06</a>
+
+目前来看最喜欢红紫 说起来人鱼也算是在紫 追加以后是准备变蓝么</blockquote>
+仔细看了下 是粉 色盲了
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 274#       发表于 2020-12-26 05:59
+
+
+
+
+系构是横谷！！！我突然有信心了！
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 275#       发表于 2020-12-26 07:02
+
+
+
+<blockquote>laphire 发表于 2020-12-26 05:59
+系构是横谷！！！我突然有信心了！</blockquote>
+为啥啊
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 276#       发表于 2020-12-26 08:48
+
+
+
+
+明年井上亚树子会去哪里？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 277#       发表于 2020-12-26 09:23
+
+
+
+
+奶一口微笑复刻，反派boss靠收集人类（虫子）的干劲复活
+都叫延迟魔女了，不会还能互相理解，互相包容吧（“一个劲的往前冲也不好，有时也要停下来休息一下，所以延迟魔女是不会消失的”）
+这系构我看了一下，光美新人，系构的作品里同性的比例好高，还有free啥的，不知道能不能期待一下水战
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 278#       发表于 2020-12-26 09:41
+
+
+
+<blockquote>laphire 发表于 2020-12-26 05:59
+系构是横谷！！！我突然有信心了！</blockquote>
+不是村山功吗
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 279#       发表于 2020-12-26 09:44
+
+
+
+<blockquote>噗哩噗 发表于 2020-12-26 03:54
+多半是彩色光体验</blockquote>
+（我不太熟悉之前的玩具版权图，要是那种幻彩发光塑料部件的话，一般来说应该也会在图上画出来？（等玩具照片看看吧
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 280#       发表于 2020-12-26 09:46
+
+
+
+
+没想到人设图出来以后最喜欢的是人鱼和红毛的人间体…紫毛真的好像天气之子女主，但服装比起其他人感觉偏村姑了，好像那种单集被反派坑的路人妹子哇…另外她竟然穿凉拖配袜子
+
+
+
+
+
+
+
+-----
+
+####  wind4rap  
+##### 281#       发表于 2020-12-26 09:57
+
+
+
+
+拖延症患者需要Q娃亲亲抱抱才有干劲干活，Q娃快来救我啊
+
+
+
+
+
+
+
+-----
+
+####  spadepie  
+##### 282#       发表于 2020-12-26 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49847963&amp;ptid=1963832" target="_blank">韩子 发表于 2020-12-26 09:44</a>
+（我不太熟悉之前的玩具版权图，要是那种幻彩发光塑料部件的话，一般来说应该也会在图上画出来？（等玩具 ...</blockquote>
+玩具就是发彩色光的<img src="https://p.sda1.dev/0/452db2fd54867267e3084d6f0b0c4c80/IMG_CMP_165391601.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yukihana0  
+##### 283#       发表于 2020-12-26 10:39
+
+
+
+<img src="https://p.sda1.dev/0/bf385be38f7687539b6184e63212c2bf/IMG_CMP_123488302.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo X21i A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yukihana0  
+##### 284#       发表于 2020-12-26 10:43
+
+
+
+
+官网更新了，监督土田丰，系构横谷，人设中谷友纪子（公主）
+
+—— 来自 vivo X21i A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 285#         楼主| 发表于 2020-12-26 10:45
+
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0swz4fjkj20pt0qc113.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0swy7izdj20pn0qmwlp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0swyv0bxj20pe0qwdm3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0swyrxx8j20pd0qi7bt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0swyvbbdj20rg0q7aft.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0swxzdpgj20pm0nqwiu.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0xwvp9tjj20ri0bm1kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0xx3brp2j20u00u0hdv.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0xx5pc6pj20u00u0hdu.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xxajpmyj20u00u0qv7.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xxcc7pij215o0jqnex.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0xxer3zfj215o0ly1kj.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xxi0jffj20ri0ri4qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xxvk2dtj20ri0bm1kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xy04qugj20u00u0qv6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xy615e8j20u00u0qv7.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0xy7jjjfj20u00u0b2a.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0xyasoqcj20u00u0qv7.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0xzj218dj20ri0bm1kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0xzpyi7nj20u00u0e82.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0xzso271j20u00u0x6q.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0xzznp8oj20u00u0npe.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0y049s5nj20u00u0u0y.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0y0hyac5j20u00u0u0y.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0y0tkru0j20ri0bm7wd.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0y0ykxzsj20u00u04qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0y15qzcsj20u00u0x6p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gm0y19s29gj20u00u01ky.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0y1dkuhuj20u00u04qq.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0y1hkxikj20u00u0x6p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0zcanf54j20qo0k0kjl.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0zcjwyhqj20xc0p0qv6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gm0zd3mdesj20qi0trx6p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gm0zd7upyqj20ot0xc7wi.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gm0zddyl1fj20sj0jqe81.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 286#       发表于 2020-12-26 11:13
+
+
+
+<img src="https://wx1.sinaimg.cn/large/006wQFVGly1gm132woz4nj30u00ntgrk.jpg" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/large/006wQFVGly1gm132ypq38j31bj1ag7bz.jpg" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/large/006wQFVGly1gm12nsqkygj30u006iab1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 287#       发表于 2020-12-26 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就老实交代了，想给紫色戴眼镜。绝对不是想迫害谁。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 288#       发表于 2020-12-26 11:37
+
+
+
+
+红这个一点也不像中3…<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 289#       发表于 2020-12-26 11:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 说真的黄毛这个眼影实在是接受不了
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 290#       发表于 2020-12-26 11:48
+
+
+
+
+发错楼了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 291#       发表于 2020-12-26 11:51
+
+
+
+
+红就看起来很会跳钢管舞的样子，キュアフラミンゴ还上趋势了
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 292#       发表于 2020-12-26 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">就不能来个超龄jdQ娃吗，jd有什么不好
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 293#         楼主| 发表于 2020-12-26 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848737&amp;ptid=1963832" target="_blank">三合一出现 发表于 2020-12-26 11:29</a>
+
+我就老实交代了，想给紫色戴眼镜。绝对不是想迫害谁。
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+变身！
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gm14gdmgkgj20fs0b4abv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  laphire  
+##### 294#       发表于 2020-12-26 12:04
+
+
+
+<blockquote>csolfans 发表于 2020-12-26 09:41
+不是村山功吗</blockquote>
+看楼下或wb的staff表(
+
+syl.横谷把穷到不行的宝宠第7季写的还不错，他做系构感觉真的信心回来了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 295#       发表于 2020-12-26 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848985&amp;ptid=1963832" target="_blank">宅音 发表于 2020-12-26 11:55</a>
+
+就不能来个超龄jdQ娃吗，jd有什么不好</blockquote>
+大胆一点，人妻q娃<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 296#       发表于 2020-12-26 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49849029&amp;ptid=1963832" target="_blank">HGCG 发表于 2020-12-26 12:00:06</a>
+变身！</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化形态妥了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 297#       发表于 2020-12-26 12:29
+
+
+
+
+原来是每个人的口红不同色啊…（女主的魅力点是嘴唇，到时候动画千万别给整个烈焰红唇出来就好…养人鱼的那个玩具看起来很好玩，酸了
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 298#       发表于 2020-12-26 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848985&amp;ptid=1963832" target="_blank">宅音 发表于 2020-12-26 11:55</a>
+就不能来个超龄jdQ娃吗，jd有什么不好</blockquote>
+今年追加的外形挺超龄了吧
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 299#       发表于 2020-12-26 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49849326&amp;ptid=1963832" target="_blank">月夜凝雪 发表于 2020-12-26 12:32</a>
+今年追加的外形挺超龄了吧
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.0.4-play ...</blockquote>
+今年追加没有jd的味道<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 300#       发表于 2020-12-26 12:56
+
+
+
+<blockquote>Sliurus 发表于 2020-12-26 12:21
+大胆一点，人妻q娃</blockquote>
+说实话，今年地球天使初看人设的确很人妻。想不到竟然是0岁儿
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 301#       发表于 2020-12-26 13:05
+
+
+
+
+q娃形态眼睛好多爱心啊，感觉观感会怪怪的
+居然对xxxx做这种事❤我绝对不会原谅你❤我kl耐不下去啦❤，现在的我，活力全开❤干劲满满❤
+
+
+
+
+
+                                       

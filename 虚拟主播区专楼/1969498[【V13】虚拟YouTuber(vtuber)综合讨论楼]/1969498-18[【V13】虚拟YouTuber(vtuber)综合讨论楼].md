@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 02:06** 
+> ## **本文件最后更新于2020-12-26 14:05** 
 
 
 
@@ -14830,10 +14830,11 @@ azki没来，是不是陪老公去了，不过就live上那表现，来了也不
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士| + 1|辛苦辛苦，确实唱累了，歌单都不是新的.|
 | 空集| + 1|本来船就是唱K水准没把她当歌势。.|
 
 
@@ -15129,4 +15130,662 @@ HIMEHINA LIVE Blu-ray「The 1st.」 未上榜。
 
 
 
-                         
+
+
+-----
+
+####  zore  
+##### 26231#       发表于 2020-12-26 04:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费以前还空妈空妈的叫,还说不会黑的
+
+不知道什么时候就傻逼圆脸嘻嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26232#       发表于 2020-12-26 04:28
+
+
+
+
+差不多就是从今年生日会开始吧，不好好练歌，不听大葵话，新专太难听
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 26233#       发表于 2020-12-26 05:46
+
+
+
+
+草，月灵居然播了，亏了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26234#       发表于 2020-12-26 07:11
+
+
+
+
+免费真要恨死圆脸怎么会半夜四点想圆脸想到睡不着还来泥潭回答圆脸相关问题。反正圆脸的日子眼见一天比一天好过，以杏的加速度横A也早就在射程之内了，只是到时候sololive的愿望大概要打折成温暖大家庭拼盘。但一个人的梦想能兑现80%已经是绝大多数人可望不可及的成就了。就是到时候免费偷着乐差不多得了，不然圆脸hater的人设崩了不太好。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+SYL：
+
+来看前女友感满满的华生歌回吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=Nm5TYnlzxGs](https://www.youtube.com/watch?v=Nm5TYnlzxGs)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26235#       发表于 2020-12-26 09:43
+
+
+
+ 本帖最后由 caupollen 于 2020-12-26 09:47 编辑 
+
+nga又赢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+快进到月灵感谢nga
+
+
+
+
+
+
+600D650C-0E59-478C-926E-7FCDD6258CC0.jpeg
+(49.31 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 09:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/094205j9i43erj4w893r9w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26236#       发表于 2020-12-26 10:14
+
+
+
+
+以后yhm想在b发家致富先要拜lga码头，泥哥赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 26237#       发表于 2020-12-26 10:23
+
+
+
+
+所以nga=红迪？那泥潭就是4chan了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，倒也是挺符合传统印象的
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 26238#       发表于 2020-12-26 11:06
+
+
+
+
+月灵姐姐不都感谢过NGA的免指导了吗？这茬应该可以翻篇了叭<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 26239#       发表于 2020-12-26 11:23
+
+
+
+
+twi:cac_kun<img src="https://p.sda1.dev/0/96bc26b97f41ad82b0efe1070b66a138/IMG_CMP_84636378.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 26240#       发表于 2020-12-26 11:28
+
+
+
+
+【番　組　名】 年末ホロライブ　～ゆくホロくるホロ2020～
+【出　演　者】 ホロライブ所属タレント
+【配 信 日 時】 2020年12月31日（木）18時半から配信開始
+【配 信 場 所】 YouTube： https://youtu.be/CBTwb8jqJM8
+
+＜スケジュール＞
+・18:30～19:50　　年末！ホロクイズ【#年末ホロクイズ】
+【出演】ロボ子さん、 アキローゼンタール、 夏色まつり、 潤羽るしあ、 宝鐘マリン、 天音かなた、 常闇トワ
+
+・20:00～21:20　　第2回ホロライブ撮れ高大賞 受賞式
+【出演】大神ミオ、 白銀ノエル、 不知火フレア、 雪花ラミィ、 獅白ぼたん、 森カリオペ、 小鳥遊キアラ
+
+・21:30～22:50　　総取り！ほろかるた
+【出演】さくらみこ、 大空スバル、 兎田ぺこら、 姫森ルーナ、 尾丸ポルカ
+
+・23:00～00:20　　ゆくホロくるホロ2020～ホロ晦日年越しカウントダウン～
+【出演】友人A、 ホロライブ所属タレント
+
+・00:30～02:00　　holo 大喜利 GRAND PRIX2
+【出演】白上フブキ、 赤井はあと、 星街すいせい、 角巻わため、 桃鈴ねね
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 26241#       发表于 2020-12-26 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望这次跨年能来几个重大发表吧。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26242#       发表于 2020-12-26 11:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/113446d3zy6fbf1yy3f3py.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201226123419.jpg</strong> (53.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 11:34 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/113450gdif8q0vefbiobog.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201226123416.jpg</strong> (35.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 11:34 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/113510bihwel8tdss636hh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201226123413.jpg</strong> (160.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 11:35 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/113519unrvbszvevtn1zue.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201226123409.jpg</strong> (74.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 11:35 上传
+
+
+
+
+
+
+再看一眼.jpg
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26243#       发表于 2020-12-26 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848208&amp;ptid=1969498" target="_blank">yuandi0120 发表于 2020-12-26 10:23</a>
+
+所以nga=红迪？那泥潭就是4chan了，倒也是挺符合传统印象的
+
+
+—— 来自 HUAWEI VOG-AL00, Android 1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有这么纯良的4CHAN。。。。。
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 26244#       发表于 2020-12-26 12:03
+
+
+
+<blockquote>noHentai 发表于 2020-12-26 11:28
+【番　組　名】 年末ホロライブ　～ゆくホロくるホロ2020～
+
+【出　演　者】 ホロライブ所属タレント
+
+【配  ...</blockquote>
+*与此同时，虹的百多个懒狗liver和两百个staff都在和**们看电视，除了提前录的一小时外连个春晚都组织不起来。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26245#       发表于 2020-12-26 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到录像，今年能把新年倒计时时间对上了么。顺便能真跳了吧。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 26246#       发表于 2020-12-26 12:17
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-12-26 11:39
+哪有这么纯良的4CHAN。。。。。</blockquote>
+你潭可不会直播杀人
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26247#       发表于 2020-12-26 12:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 新年嘛，当然要和最亲爱的人一起现充过阿，看人上人上地上波，
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 26248#       发表于 2020-12-26 12:26
+
+
+
+
+外国人都不能参加木口年会，搞个p的wwh
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 26249#       发表于 2020-12-26 12:29
+
+
+
+ 本帖最后由 AKili 于 2020-12-26 12:31 编辑 
+
+这木口年会不还拉了两个在日en的过来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 26250#       发表于 2020-12-26 12:49
+
+
+
+
+现在这时候明显自推不去公司才好啊
+
+东京确诊天天创新高，还发现了传播性强几倍的英国变异病毒
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 26251#       发表于 2020-12-26 13:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">日本完蛋是迟早的问题吧，还是呆家里好
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26252#       发表于 2020-12-26 13:19
+
+
+
+
+三枝昨天3D回熟肉出了，唱歌部分消音，因为以前本人说不好意思不想传播出音源。
+你们唱歌虹人啊，男女一个样<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26253#       发表于 2020-12-26 13:25
+
+
+
+
+这次年度最佳会不会还是糊坦啊，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26254#       发表于 2020-12-26 13:25
+
+
+
+
+这次年度最佳会不会还是糊坦啊，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26255#       发表于 2020-12-26 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49849704&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 13:19</a>
+
+三枝昨天3D回熟肉出了，唱歌部分消音，因为以前本人说不好意思不想传播出音源。
+
+你们唱歌虹人啊，男女一个 ...</blockquote>
+那还是三枝麻烦，梅丽莎是不能传完整投稿，床是不能剪辑，他的字幕组就啥都不行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 26256#       发表于 2020-12-26 13:35
+
+
+
+
+舞元审判：
+[作者](https://twitter.com/fuwa_h8511/status/1342537558505320449/photo/1)
+
+<img src="https://img.saraba1st.com/forum/202012/26/133504w7ej92ei77eagljq.png" referrerpolicy="no-referrer">
+
+
+<strong>D`WTJKLIIX4F8}TZ`KY6WG6.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 13:35 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|🔥|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26257#       发表于 2020-12-26 13:44
+
+
+
+<[img src="https://i.loli.net/2020/12/26/XUChYvDLgPRzpTt.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/26/YmWkQEBHL8cleFi.jpg" referrerpolicy="no-referrer">
+
+emmm，官方简中？
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 26258#       发表于 2020-12-26 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49849704&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 13:19</a>
+
+三枝昨天3D回熟肉出了，唱歌部分消音，因为以前本人说不好意思不想传播出音源。
+
+你们唱歌虹人啊，男女一个 ...</blockquote>
+每到这种时候……日本人事真多啊<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26259#       发表于 2020-12-26 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49849902&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-26 13:44</a>
+
+emmm，官方简中？</blockquote>
+只是代购自己翻译的商品介绍吧，现在这情况即使真要本地化官方不该先出英语吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26260#       发表于 2020-12-26 14:00
+
+
+
+
+诶诶诶这个片头
+
+
+
+
+
+                        
