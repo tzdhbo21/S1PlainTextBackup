@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 22:06** 
+> ## **本文件最后更新于2020-12-27 00:03** 
 
 
 
@@ -20164,4 +20164,1257 @@ https://www.pixiv.net/artworks/86545848
 
 
 
-                 
+
+
+-----
+
+####  free  
+##### 26485#       发表于 2020-12-26 22:08
+
+
+
+[https://www.youtube.com/watch?v=QnpWsk7CpS4](https://www.youtube.com/watch?v=QnpWsk7CpS4)
+
+异世界情绪这个live也是留到明天中午12点，要下载的快下吧，这个真挺好的，裸春目前直播唱过的最强了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26486#       发表于 2020-12-26 22:11
+
+
+
+
+露露唱歌回开始了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26487#       发表于 2020-12-26 22:14
+
+
+
+
+这niru也太强了吧，单人灭了ras那队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十月鼠  
+##### 26488#       发表于 2020-12-26 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854361&amp;ptid=1969498" target="_blank">free 发表于 2020-12-26 22:08</a>
+
+https://www.youtube.com/watch?v=QnpWsk7CpS4
+
+异世界情绪这个live也是留到明天中午12点，要下载的快下吧， ...</blockquote>
+什么时候改榜免费老师
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26489#       发表于 2020-12-26 22:27
+
+
+
+<blockquote>【所属会社からのお知らせ】
+
+現在弊社タレントに対し、配信中のチャット等によりセンシティブな発言を誘発して、炎上を引き起こそうとする事象が散見されています。
+
+これに対し、NGワードを設定して予防を行っておりますが、当該対応は政治的意図を含むものではなく、タレントの安全な配信を担保するためである旨ご理解ください。
+
+
+上記のとおり、炎上を故意に誘発しようとするユーザーによるチャットやコメントによって、タレントが意図せずセンシティブな発言を行ってしまう可能性があります。
+
+このような発言を行った場合にも、タレントには政治的・社会的意図は無いことを予めご理解ください。
+
+
+Notices From COVER Corporation
+
+
+We have been made aware of a number of attempts to incite controversy against our talents by causing them to utter sensitive statements using the live stream chat.
+
+
+In response to this, we have set up a list of terms unable to be mentioned at present to prevent this. Please understand that this response is not politically motivated and is intended to ensure the peaceful live streams by our talents.
+
+
+Please understand that even if such statements were to be said by the talents, these are in no way politically or ideologically motivated.</blockquote>
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26490#       发表于 2020-12-26 22:31
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-26 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854580&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-26 22:27</a></blockquote>
+郡an里最让我想呕的
+
+
+删了删了，总之就是有个人用郡道的名和头像在龙推下支持O独（[https://twitter.com/Be6Q99gjSHiMAxC/with_replies](https://twitter.com/Be6Q99gjSHiMAxC/with_replies)）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+| IDIDIDID| + 1|やばいよやばいよ，图删了吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26491#       发表于 2020-12-26 22:32
+
+
+
+
+不要倒屎啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26492#       发表于 2020-12-26 22:33
+
+
+
+
+丢个连接差不多得了，不然见不到郡gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26493#       发表于 2020-12-26 22:39
+
+
+
+
+2020年、嫌いなVtuberランキング 結果発表！
+[https://www.youtube.com/watch?v=kL7t-00bnvQ](https://www.youtube.com/watch?v=kL7t-00bnvQ)
+
+
+
+不要倒fh屎，来看阿裁倒屎，目前公布到第六名金鱼妹
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26494#       发表于 2020-12-26 22:42
+
+
+
+
+蝗才第5？狐皇第10
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26495#       发表于 2020-12-26 22:42
+
+
+
+
+蝗才第5？狐皇第10
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26496#       发表于 2020-12-26 22:42
+
+
+
+
+蝗才第五<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26497#       发表于 2020-12-26 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854690&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-26 22:39</a>
+
+2020年、嫌いなVtuberランキング 結果発表！
+
+https://www.youtube.com/watch?v=kL7t-00bnvQ</blockquote>
+你吗我一点进去就看见虫<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26498#       发表于 2020-12-26 22:42
+
+
+
+ 本帖最后由 Map-2 于 2020-12-26 22:44 编辑 
+
+这颁奖词麻了啊，泥哥写的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+阿裁唐突拉夫发言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26499#       发表于 2020-12-26 22:43
+
+
+
+
+独轮车瞬间刷起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 26500#       发表于 2020-12-26 22:45
+
+
+
+
+这个理由，把我乐到了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26501#       发表于 2020-12-26 22:45
+
+
+
+ 本帖最后由 caupollen 于 2020-12-26 22:46 编辑 
+
+读的是讨厌投票理由吧，真有人给裁狗认真写理由的吗，太牛了 而且才200票其实也不算多吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26502#       发表于 2020-12-26 22:45
+
+
+
+
+中华炮不给力阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26503#       发表于 2020-12-26 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854750&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-26 22:45</a>
+
+读的是讨厌投票理由吧，真有人给裁狗认真写理由的吗，太牛了</blockquote>
+怎么不认真，连累hololive全员，还把OG毕业带上了，很难不是泥哥写的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26504#       发表于 2020-12-26 22:47
+
+
+
+
+第4名 sio，这票数倍杀蝗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26505#       发表于 2020-12-26 22:47
+
+
+
+
+到女主角这一下子票数翻倍还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26506#       发表于 2020-12-26 22:48
+
+
+
+
+露露在弹琴轻唱天元突破OP 好温柔 哭了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26507#       发表于 2020-12-26 22:48
+
+
+
+
+bsyl：
+
+
+看了下隔壁colo哥的记录怎么叶师傅也上榜了，火畜差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26508#       发表于 2020-12-26 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854765&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-26 22:46</a>
+
+怎么不认真，连累hololive全员，还把OG毕业带上了，很难不是泥哥写的吧 ...</blockquote>
+所以认真给裁狗写这种东西的人实在太牛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26509#       发表于 2020-12-26 22:49
+
+
+
+<blockquote>野坐輪
+
+​ドル部票のが中華票より強かったって事だねドル部票のが中華票より強かったって事だねドル部票のが中華票より強かったって事だねドル部票のが中華票より強かったって事だねドル部票のが中華票より強かったって事だねドル部票のが中華票より強かったって事だねドル部票のが中華票より強かったって事だね</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26510#       发表于 2020-12-26 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854791&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-26 22:48</a>
+
+bsyl：
+
+
+看了下隔壁colo哥的记录怎么叶师傅也上榜了，火畜差不多得了</blockquote>
+10到8名就1票之差，到叶其实就174票
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 26511#       发表于 2020-12-26 22:50
+
+
+
+
+露露唱个天元突破都是asmr版
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26512#       发表于 2020-12-26 22:51
+
+
+
+
+口了比sio还能多100多票！
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26513#       发表于 2020-12-26 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854814&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-26 22:51</a>
+
+口了比sio还能多100多票！</blockquote>
+但为什么和金鱼妹都一起上榜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26514#       发表于 2020-12-26 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854819&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-26 22:52</a>
+
+但为什么和金鱼妹都一起上榜了</blockquote>
+我也奇怪为什么她会比金鱼更高
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 26515#       发表于 2020-12-26 22:55
+
+
+
+
+这种投票有时效性，如果投票正好赶上某次炎上发生的话肯定会影响结果
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26516#       发表于 2020-12-26 22:56
+
+
+
+
+啊这，郡道破千了。。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26517#       发表于 2020-12-26 22:56
+
+
+
+
+mrra是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26518#       发表于 2020-12-26 22:56
+
+
+
+
+这只能看出谁anti更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">显然虹an&gt;杏an
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26519#       发表于 2020-12-26 22:56
+
+
+
+
+我操1000多票郡an也太牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 26520#       发表于 2020-12-26 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一看郡AN里冒出什么怪胎我都不会奇怪了，这声势也太浩大了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26521#       发表于 2020-12-26 22:57
+
+
+
+
+老子最爱的口了郡sio三角来了！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1|思路广|
+| alcoholic1000| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 26522#       发表于 2020-12-26 22:58
+
+
+
+
+第一果然是裁狗自己
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26523#       发表于 2020-12-26 22:58
+
+
+
+
+叶师自从ARK就开始因为各种原因炎上
+
+然后APEX炎上，然后MC叶星炎上，然后LOL，然后原神
+
+
+不过他打游戏也确实会偶有暴言，*ch年卡用户<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 26524#       发表于 2020-12-26 23:00
+
+
+
+
+霓虹彩虹人果然比杏人阴湿得多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+整天看裁狗还参与裁狗的anti投票，什么成分不用说了吧
+
+相比之下杏人生活在阳光下，不屑于看这种臭水沟里的节目，于是杏v就没人投票了
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26525#       发表于 2020-12-26 23:01
+
+
+
+ 本帖最后由 Map-2 于 2020-12-26 23:02 编辑 
+
+1645票，裁狗自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26526#       发表于 2020-12-26 23:02
+
+
+
+
+最后用自己打圆场也太缩了，废物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26527#       发表于 2020-12-26 23:04
+
+
+
+
+后面这些颁奖词都不行啊，还是蝗的那个最乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26528#       发表于 2020-12-26 23:06
+
+
+
+ 本帖最后由 CAserlumos 于 2020-12-26 23:08 编辑 
+
+走姐也参加歌谣祭了，这是好的
+
+不过还有不破，会和葵皇合唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我怀疑是某人拉来的
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 26529#       发表于 2020-12-26 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854870&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 22:57:51</a>
+老子最爱的口了郡sio三角来了！</blockquote>也可以说是裁盐mrra的4p
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26530#       发表于 2020-12-26 23:07
+
+
+
+
+この後24時からはsteamセールで買ってみた、ナゾトキ？ゲームやってみる！
+
+触ったことないけど天才の郡道なら余裕でしょ？
+
+
+【Superliminal】新感覚謎解きゲーですがIQ5億なので余裕だと思います。【にじさんじ郡道】 [https://youtu.be/-rhdEs3tV18](https://youtu.be/-rhdEs3tV18) 
+
+@YouTube
+
+より
+
+
+郡道名次出来之后立刻发了条直播预告，待会玩游戏，事抗压巨魔惹<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">。
+
+顺便，郡道确实做了很多即使我也看不惯的事，有人讨厌有人批评真的很正常，
+
+但我始终还是没法认可鸣神裁和打心底认同他的人！明明这人也80疑似逼人自杀啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26531#       发表于 2020-12-26 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854899&amp;ptid=1969498" target="_blank">梅斯之围 发表于 2020-12-26 23:00</a>
+霓虹彩虹人果然比杏人阴湿得多
+
+整天看裁狗还参与裁狗的anti投票，什么成分不用说了吧
+
+相比之下杏人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏an票都在拉米和狐皇那边吧  蝗这显然尼哥票 很难和杏an混为一谈
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26532#       发表于 2020-12-26 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854969&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-26 23:07</a>
+この後24時からはsteamセールで買ってみた、ナゾトキ？ゲームやってみる！
+
+触ったことないけど天才の郡道な ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26533#       发表于 2020-12-26 23:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/230927vvoztqtijtkvkl6t.png" referrerpolicy="no-referrer">
+
+
+<strong>19.png</strong> (253.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 23:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26534#       发表于 2020-12-26 23:12
+
+
+
+
+774inc最强！774inc最强！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26535#       发表于 2020-12-26 23:13
+
+
+
+
+从任何角度来说，哈哥当薪王的时代终于过去了。
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 26536#       发表于 2020-12-26 23:16
+
+
+
+
+能别再给弱智引流了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26537#       发表于 2020-12-26 23:21
+
+
+
+
+露皇弹唱睡眠不足，太应景了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26538#       发表于 2020-12-26 23:25
+
+
+
+
+郡道同接比平时高....
+
+郡an要不以后常来，1000多人也不少啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 26539#       发表于 2020-12-26 23:37
+
+
+
+
+？郡道干了啥
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 26540#       发表于 2020-12-26 23:37
+
+
+
+
+话说郡道的anti是怎么增值出来的？主要是哪些代表事件？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26541#       发表于 2020-12-26 23:39
+
+
+
+
+虹男这么往死里挣也不怪yagoo宁愿便乘gay也要给星资源了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26542#       发表于 2020-12-26 23:43
+
+
+
+
+露露在唱石川阿姨的阿姨说~~<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 26543#       发表于 2020-12-26 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">uninstall好听，能不能正经唱一下
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26544#       发表于 2020-12-26 23:44
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-26 23:51 编辑 
+
+到底中间发生了啊，我印象中之前郡道不是变成了雀魂指定代言人了吗，这雀魂唯一指定谁担当谁凉啊？？？？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26545#       发表于 2020-12-26 23:45
+
+
+
+
+郡道怕不是呼吸也会滋生anti<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26546#       发表于 2020-12-26 23:48
+
+
+
+
+这....要细数自己推的罪恶也太痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+归根到底就是郡道做的事让很多人不快，但又没有糟糕/实锤到能让运营说她身体不适不干了，运营也会干活让她删了，
+
+本人也很硬，自搜到anti就光速block，至今没有休止过（其他不快人都歇过一段时间），更不快了，
+
+再加上，跟sio扯上关系，跟口了扯上关系，盐an觉得郡道和sio一伙，口了信觉得郡道是阻碍口了复归的大敌，希望她走人，
+
+我觉得差不多就这样了。
+
+郡道有些事我也觉得做的不对，但我又不是她爹，在她想要征求意见前我不会叫她去改，也能理解有人因此讨厌她，
+
+别人讨厌郡道和我喜欢郡道，都是美丽而自然的事<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 2|摸摸头|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26547#       发表于 2020-12-26 23:54
+
+
+
+
+虹虫楼看了一下，葛叶怎么比成濑鸣还增加多了100<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 26548#       发表于 2020-12-26 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855213&amp;ptid=1969498" target="_blank">asdhai 发表于 2020-12-26 23:37</a>
+话说郡道的anti是怎么增值出来的？主要是哪些代表事件？</blockquote>
+可以说没有代表性事件，郡道的anti都是她日常的言行积攒起来的。
+
+从rp放弃，到经常说メタい话题、黄段子、时常暴言和偶尔撒谎（这个见仁见智），而且会block比较anti或者过激的人，导致从mrra营业早期就有不少口了信anti，后来又因为mrra的解散和郡神结成让部分mrra信转黑，这些人又不断剪辑和强调郡道的暴言，壮大郡an的队伍，才导致现在这么多人把她当作不快女王。
+
+而且最重要的，就像郡gachi说的，她从未休止过，甚至从未公开表示过在意anti活动，更加加剧了她的不快感
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1|roger|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26549#       发表于 2020-12-27 00:02
+
+
+
+
+翼をください唱的真好听<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               

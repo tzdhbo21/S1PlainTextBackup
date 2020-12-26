@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 10:10** 
+> ## **本文件最后更新于2020-12-27 00:11** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_O6v2c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_YQ0yz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -2403,6 +2403,7 @@ A 小伙伴你好！目前暂无计划哦。
 
 
 
+ 本帖最后由 SuperCK 于 2020-12-26 23:35 编辑 
 
 嘉然表情包收集
 <img src="https://p.sda1.dev/0/0ef4d7df346fad2fedac18b623a19e90/IMG_CMP_39346719.png" referrerpolicy="no-referrer">
@@ -2410,6 +2411,8 @@ A 小伙伴你好！目前暂无计划哦。
 <img src="https://p.sda1.dev/0/bad21d238d316382e4f60ed19c2d4d0c/IMG_CMP_86072819.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/0/a8d632f47a62775d11bf24aff15daf50/IMG_CMP_162126166.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/0/356090ba54a1e9455bb197607ce1bc4d/IMG_CMP_62120767.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/955600b8617d6e8edf747966e01f0f84/1608996860744.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4c7919ac4e507de3c74d3e426df82e5e/IMG_CMP_67871614.jpeg" referrerpolicy="no-referrer">
 
 
 
@@ -3477,4 +3480,670 @@ x早伊原树里一个人就可以发上千条弹幕，我看着右边不停刷�
 
 
 
-                                           
+
+
+-----
+
+####  SuperCK  
+##### 183#       发表于 2020-12-26 11:32
+
+
+
+
+转自v吧<blockquote>乐华哪里找来的贝拉这种女人啊?
+都说小动作反映个人习惯，贝拉好像是那种家教很好的女人。
+你们注意到她的细节了吗？腼腆就不说了，坐姿非常的优雅，估计平时自己也是那么坐的吧？两腿都很自然地并拢，不是野丫头那种**咧咧的。
+站着的时候是很自然的内八，并且自觉并拢腿。
+手不是耷拉着的，要么是两手握着放在身前，害羞的时候是把手并拢放在身后，从不张牙舞爪。
+笑的时候一定捂着嘴，从来不是前仰后合的，这如果是刻意的话，两个小时自由发挥很快就会绷不住的，这只能解释为她养成的习惯，什么好女人？
+跳舞的时候明明那么烧，不表演的时候又害羞得要死，什么反差萌？可别又是哪家大小姐来玩票吧？***直接ptsd了</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 184#       发表于 2020-12-26 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848769&amp;ptid=1974517" target="_blank">SuperCK 发表于 2020-12-26 11:32</a>
+转自v吧</blockquote>
+向晚应该是典型野丫头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 185#       发表于 2020-12-26 14:48
+
+
+
+<img src="https://p.sda1.dev/0/e7c3a0a4f1c4c3d744bc3ad50ced58b0/老鼠人的独白.jpg" referrerpolicy="no-referrer">
+
+
+鼠人的独白.jpg
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 186#       发表于 2020-12-26 15:26
+
+
+
+
+字节赢麻了
+
+抖音号已注册，我也是抖友了
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 187#       发表于 2020-12-26 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49850390&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-26 14:48</a>
+鼠人的独白.jpg</blockquote>
+哈哈哈唉
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 188#       发表于 2020-12-26 18:12
+
+
+
+
+昨晚嘉然跳舞也太可爱了吧，嘉然的面捕也太强了，跳舞时候嘴巴和眼睛的细节绝了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 189#       发表于 2020-12-26 18:24
+
+
+
+
+这个wink好撩，我已经是嘉然的狗了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+[G@@N93Y]SN{F}JCWO9N2HV.png
+(457.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 18:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/182252xrzjoohdjoddo848.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 190#       发表于 2020-12-26 18:26
+
+
+
+
+嘉碗饭，8点集合！
+
+好想发怪文书怎么办哦<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 191#       发表于 2020-12-26 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49852233&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-26 18:26</a>
+嘉碗饭，8点集合！
+
+好想发怪文书怎么办哦</blockquote>
+可恶，可是8点我要去看茶茶啊
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 192#       发表于 2020-12-26 21:08
+
+
+
+
+现在的节目效果，巅峰时的夏色吹雪也不过如此了吧，运营太特么专业了。国V之光，橄榄菲拉不堪的樱花妹！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|什么さくら|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 193#       发表于 2020-12-26 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853650&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-26 21:08</a>
+现在的节目效果，巅峰时的夏色吹雪也不过如此了吧，运营太特么专业了。国V之光，橄榄菲拉不堪的樱花妹！[f: ...</blockquote>
+想看，抖音么？
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 194#       发表于 2020-12-26 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853711&amp;ptid=1974517" target="_blank">伊可费斯 发表于 2020-12-26 21:13</a>
+
+想看，抖音么？</blockquote>
+现在是b站有播，向晚和嘉然糖豆人。向晚直播间
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 195#       发表于 2020-12-26 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49853711&amp;ptid=1974517" target="_blank">伊可费斯 发表于 2020-12-26 21:13</a>
+
+想看，抖音么？</blockquote>
+双推
+
+可爱🥰
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 196#       发表于 2020-12-26 21:27
+
+
+
+
+贴贴营业牛得一逼，游戏匹配不到人能杂谈20多分钟（现在都还在杂谈），这业务能力
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 197#       发表于 2020-12-26 21:35
+
+
+
+
+我感觉在A-soul上体会到了什么叫“舞台少女每日进化中”<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 198#       发表于 2020-12-26 22:10
+
+
+
+
+情弱问下一包薯片嘻嘻什么梗啊 最后全在刷跟独轮车一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  acgreen  
+##### 199#       发表于 2020-12-26 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854385&amp;ptid=1974517" target="_blank">zero_death 发表于 2020-12-26 22:10:23</a>
+情弱问下一包薯片嘻嘻什么梗啊 最后全在刷跟独轮车一样 v2.4.3</blockquote>黑桃影小号
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 200#       发表于 2020-12-26 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854385&amp;ptid=1974517" target="_blank">zero_death 发表于 2020-12-26 22:10</a>
+
+情弱问下一包薯片嘻嘻什么梗啊 最后全在刷跟独轮车一样
+
+
+—— 来自 OnePlus IN2010, Android 11上的 ...</blockquote>
+holocn桃皇的转生账号，被嘉然评论区的知名怪文书《冻僵的心在寒风中微微发烫》化用玩梗
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 201#       发表于 2020-12-26 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854385&amp;ptid=1974517" target="_blank">zero_death 发表于 2020-12-26 22:10</a>
+
+情弱问下一包薯片嘻嘻什么梗啊 最后全在刷跟独轮车一样
+
+
+—— 来自 OnePlus IN2010, Android 11上的 ...</blockquote>
+著名定型文，B站 新户眠子 原创，被工具人和嘉然届到了。特意在圣诞节全员回给了个窗外的镜头。以及嘉然决定要搞一场定型文朗诵回。
+
+
+原文如下：
+
+我好想做嘉然小姐的狗啊。
+
+可是嘉然小姐说她喜欢的是猫，我哭了。
+
+我知道既不是狗也不是猫的我为什么要哭的。因为我其实是一只老鼠。
+
+我从没奢望嘉然小姐能喜欢自己。我明白的，所有人都喜欢理解余裕上手天才打钱的萌萌的狗狗或者猫猫，没有人会喜欢阴湿带病的老鼠。
+
+但我还是问了嘉然小姐:“我能不能做你的狗？”
+
+我知道我是注定做不了狗的。但如果她喜欢狗，我就可以一直在身边看着她了，哪怕她怀里抱着的永远都是狗。
+
+可是她说喜欢的是猫。
+
+她现在还在看着我，还在逗我开心，是因为猫还没有出现，只有我这老鼠每天蹑手蹑脚地从洞里爬出来，远远地和她对视。
+
+等她喜欢的猫来了的时候，我就该重新滚回我的洞了吧。
+
+但我还是好喜欢她，她能在我还在她身边的时候多看我几眼吗？
+
+嘉然小姐说接下来的每个圣诞夜都要和大家一起过。我不知道大家指哪些人。好希望这个集合能够对我做一次胞吞。
+
+
+猫猫还在害怕嘉然小姐。
+
+我会去把她爱的猫猫引来的。
+
+我知道稍有不慎，我就会葬身猫口。
+
+那时候嘉然小姐大概会把我的身体好好地装起来扔到门外吧。
+
+那我就成了一包鼠条，嘻嘻。
+
+我希望她能把我扔得近一点，因为我还是好喜欢她。会一直喜欢下去的。
+
+
+我的灵魂透过窗户向里面看去，挂着的铃铛在轻轻鸣响，嘉然小姐慵懒地靠在沙发上，表演得非常温顺的橘猫坐在她的肩膀。壁炉的火光照在她的脸庞，我冻僵的心脏在风里微微发烫。
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 202#       发表于 2020-12-26 22:20
+
+
+
+
+这个弹幕浓度绝对百舰级，人气却只有4W5不上5W，不公平<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  from1926  
+##### 203#       发表于 2020-12-26 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854506&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-26 22:20</a>
+
+这个弹幕浓度绝对百舰级，人气却只有4W5不上5W，不公平</blockquote>
+不能跟b签约，礼物也比较少，倍率上不去
+
+另外8u人均手摇独轮车，弹幕做不得数啊
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 204#       发表于 2020-12-26 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854506&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-26 22:20</a>
+这个弹幕浓度绝对百舰级，人气却只有4W5不上5W，不公平</blockquote>
+虽然不甘心，但往好处想，其他v的上舰与sc对中之人的收益有直接影响，但对asoul的中之人来说可能无可厚非。asoul更看重的是人气和流量，以便于在日后的破圈做原始积累。商业模式也能降维打击。
+asoul的成功基本表明传统电视综艺在新领域做点小创新还能第二春。
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 205#       发表于 2020-12-26 22:28
+
+
+
+
+あまりとや御馴々しく思し召の程もはかりがたく汲かね候へども
+
+おもひ迫りて堪がたさにまはらぬ筆のひろひ書一筆申参らせ候
+
+さては此頃おもひもかけず初めて御めもじ致してより時
+
+すいたらしき御方と存候より
+
+胸の炎も休まらず何となう心苦しきまでにこがれて候
+
+ただ明暮御俤のみたちもさらずおもひ暮しの音をのみなかれ
+
+身は空蝉の唐衣かはらぬ袖をかたしきて夜と共に嘆きあかし参らせ候
+
+去ながらわれわれ風情いかに思ひをかけ参らし
+
+よしやこがれて此儘にあの世の人となるとてもおよばぬ事と
+
+をりをりは我身で心をいましめておもひきり候はんと強くたしなみ候へど
+
+こころの駒の狂出してはなかなかにとどめがたく
+
+はしり書して君がみもとへ憂き数々をしめし参らせ候
+
+あはれなき御心のはしにもこなたの心を汲わけられ御かへり言なし給はば
+
+善知識の曼陀羅にもかへて嬉しく守にかけ煩悩のやみをはらし申べく
+
+呉々よしなに御さつし願ひ上候かしこ
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 206#       发表于 2020-12-26 22:30
+
+
+
+
+前三个观感都不错，明晚去抖音看珈乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 207#       发表于 2020-12-26 23:09
+
+
+
+
+感谢楼上解答 定型文看到了不过之前没怎么看国v
+今天从头翻了下动态 这抗压力属实惊到我了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">难怪放第一个入场b  
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 208#       发表于 2020-12-26 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854994&amp;ptid=1974517" target="_blank">zero_death 发表于 2020-12-26 23:09</a>
+
+感谢楼上解答 定型文看到了不过之前没怎么看国v
+
+今天从头翻了下动态 这抗压力属实惊到我了难怪放第 ...</blockquote>
+今天晚上我觉得很有阅兵的意思，中间排队半个小时一直在聊一直没冷场，杂谈力惊人，还演示了贴贴营业。好像就是告诉观众，同时告诉别的V：“你们会的我都能，还能比你们做得更牛逼。但是我们会的你不能”。推这个组安心舒适。
+
+下次的定形文朗读，肯定又是爆炸神回。
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 209#       发表于 2020-12-26 23:48
+
+
+
+[https://b23.tv/yBNJTD](https://b23.tv/yBNJTD)
+草，有人把那个定型文做成视频了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 210#       发表于 2020-12-26 23:51
+
+
+
+
+我好吃这个皮，为什么3D这样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 211#       发表于 2020-12-26 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855118&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-26 23:23</a>
+
+今天晚上我觉得很有阅兵的意思，中间排队半个小时一直在聊一直没冷场，杂谈力惊人，还演示了贴贴营业。好 ...</blockquote>
+差不多得了，我都要怀疑你是不是真的さくら了😅
+
+向晚游戏力还是肉眼可见的拉跨，虽然可爱但是乐华对于mmr自带劝退光环算下来还是负分
+
+定型文朗读也就是继续巩固鼠人基本盘，又不能引流mmr怎么爆炸啊
+
+来点优质录播和二创才有意义，现在看乐华staff还没把睿站玩明白（直播准备和临场应变其实也有问题）
+
+像ls这个视频连个配音都没有，属于是低创中的低创
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 212#       发表于 2020-12-27 00:01
+
+
+
+
+今天玩超级兔子人的话，肯定贼有节目效果
+
+
+
+
+
+                                          
