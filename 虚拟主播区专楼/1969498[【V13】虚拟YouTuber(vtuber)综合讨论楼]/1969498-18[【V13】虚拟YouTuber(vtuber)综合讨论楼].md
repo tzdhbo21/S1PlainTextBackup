@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 00:03** 
+> ## **本文件最后更新于2020-12-27 02:04** 
 
 
 
@@ -21332,10 +21332,11 @@ mrra是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.pn
 
 
 
- 参与人数 1战斗力 +2
+ 参与人数 2战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| einne| + 1||
 | asdhai| + 2|摸摸头|
 
 
@@ -21417,4 +21418,367 @@ mrra是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.pn
 
 
 
-               
+
+
+-----
+
+####  qq845629713  
+##### 26550#       发表于 2020-12-27 00:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/000737jxeeecoac89yy85r.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201227000722.png</strong> (393.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 00:07 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/000749ubjhjim96miscdsj.png" referrerpolicy="no-referrer">
+
+
+<strong>020503vy77hxsyfpc8cc40_waifu2x_art_noise0_scale_tta_1.png</strong> (17.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 00:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26551#       发表于 2020-12-27 00:13
+
+
+
+
+看互动，好像kr狐狸才是亲生的一样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26552#       发表于 2020-12-27 00:15
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-27 00:19 编辑 
+
+看了下PB，阿希今年光SC一项就收了4KW+日币，到底什么时候《现原形》阿，每次都是下个月，等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26553#       发表于 2020-12-27 00:21
+
+
+
+
+一之濑niru菩提明天加油啊、、、、
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26554#       发表于 2020-12-27 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855586&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-27 00:21</a>
+
+一之濑niru菩提明天加油啊、、、、</blockquote>
+能吃一把鸡我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26555#       发表于 2020-12-27 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855595&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2020-12-27 00:22</a>
+
+能吃一把鸡我就满足了</blockquote>
+说不定真能，我看niru状态很好啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26556#       发表于 2020-12-27 00:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 飞黄腾达的大女儿和底边二女儿
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26557#       发表于 2020-12-27 00:34
+
+
+
+<img src="https://i.loli.net/2020/12/27/xBfPl58FKMJytrj.png" referrerpolicy="no-referrer">
+
+真巨魔来了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26558#       发表于 2020-12-27 00:36
+
+
+
+ 本帖最后由 kikiwalu 于 2020-12-27 00:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855671&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-27 00:34:16</a>
+
+真巨魔来了</blockquote>
+草，左上角<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 我记得korekore和kson认识的吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26559#       发表于 2020-12-27 00:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26560#       发表于 2020-12-27 00:38
+
+
+
+
+阿裁输麻了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26561#       发表于 2020-12-27 00:39
+
+
+
+
+韩国狐狸挺可爱的，有大女儿18年那种青涩的感觉。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 26562#       发表于 2020-12-27 01:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">勒夫一个v好像超过了红团成为了b站收入第一，这下个月的sc排名视频咋做啊。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26563#       发表于 2020-12-27 01:40
+
+
+
+
+狼羊中的一个？人家又不是勒夫手下
+
+是也无所谓啦，yhm不行
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 26564#       发表于 2020-12-27 01:49
+
+
+
+ 本帖最后由 flyskywalker92 于 2020-12-27 01:57 编辑 
+
+金憨憨貌似明天要和阿希桃铁
+
+
+金铜憨憨 阿希 杏团长 窗在阿希这
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 26565#       发表于 2020-12-27 01:50
+
+
+
+
+不是狼羊，是叫什么切茜娅，画风有点怪的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26566#       发表于 2020-12-27 01:52
+
+
+
+
+是切西亚吧，做出来挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者视频直接排除乐府的人
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26567#       发表于 2020-12-27 01:53
+
+
+
+
+白蒜头新皮远不如蒜头（不是payri那个）
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 26568#       发表于 2020-12-27 01:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">露露居然还在唱，听了一晚
+
+
+
+
+
+
+
+-----
+
+####  清枝  
+##### 26569#       发表于 2020-12-27 01:58
+
+
+
+
+露露作息怎么也这么阴间了，现在大家都变成了下午起床人了吗
+
+
+
+
+
+              
