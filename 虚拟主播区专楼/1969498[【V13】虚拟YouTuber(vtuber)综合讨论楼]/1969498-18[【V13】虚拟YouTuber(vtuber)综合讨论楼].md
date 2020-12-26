@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 14:05** 
+> ## **本文件最后更新于2020-12-26 16:03** 
 
 
 
@@ -15703,10 +15703,12 @@ twi:cac_kun<img src="https://p.sda1.dev/0/96bc26b97f41ad82b0efe1070b66a138/IMG_C
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 古战场亡魂| + 1|真像严徒海慈啊|
+| asdhai| + 1|舞元，我烧了你|
 | SuntoryNomu| + 1|🔥|
 
 
@@ -15781,11 +15783,817 @@ emmm，官方简中？</blockquote>
 
 
 
+ 本帖最后由 alcoholic1000 于 2020-12-26 14:44 编辑 
 
 诶诶诶这个片头
 
+DT决出，那有些人势必要失败了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+2434，我的神经病人收纳所
+
+<img src="https://img.saraba1st.com/forum/202012/26/142158bgr32ms23rg23f3o.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 本戦【#マリカにじさんじ杯】a-1..png</strong> (311.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 14:21 上传
 
 
 
 
-                        
+
+
+
+三枝星川1w同接，不破湊1w8，数字之鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/26/144448y9kbzviiai4zcauu.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 本戦【#マリカにじさんじ杯】a-2..png</strong> (453.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 14:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26261#       发表于 2020-12-26 14:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">b组解说尊妈，有阴湿决战有葛尊，b组精彩
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26262#       发表于 2020-12-26 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 从尊嘴里念出葛叶的名字，我要GC了
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 26263#       发表于 2020-12-26 14:15
+
+
+
+
+看起来决赛能破10万
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26264#       发表于 2020-12-26 14:19
+
+
+
+
+谁叔替了爱丽丝啊
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26265#       发表于 2020-12-26 14:23
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/142333g4r8zwfwwt49n3l6.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201226142325.png</strong> (135.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 14:23 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 26266#       发表于 2020-12-26 14:39
+
+
+
+<blockquote>【新型コロナ】東京都で新たに949人の感染確認 過去最多
+
+
+1日あたりの感染者数が900人を超えたのは初めて。重症者の数はきのうと同じく81人となっている。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 26267#       发表于 2020-12-26 14:43
+
+
+
+
+你日💊
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26268#       发表于 2020-12-26 14:49
+
+
+
+
+A组跑完了，好激烈，不敢想象后面的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26269#       发表于 2020-12-26 14:52
+
+
+
+ 本帖最后由 Suny08 于 2020-12-26 15:01 编辑 
+
+中场结束瞬间9w5掉到8w2，你虹观众真的无情，b组有葛尊buff加上死亡之组不敢想数字了，5ch的狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+尊这声くずは<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26270#       发表于 2020-12-26 15:04
+
+
+
+
+这预测前三不就是阴湿事件三人组吗，投票人搞啥
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26271#       发表于 2020-12-26 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你虹女V的独角兽就是这样被杀掉的
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26272#       发表于 2020-12-26 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">尊妈对着葛叶:YOU ARE KING
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26273#       发表于 2020-12-26 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">杀光了也有虹男人养着
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26274#       发表于 2020-12-26 15:07
+
+
+
+
+想看成濑在尊妈面前橄榄葛叶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26275#       发表于 2020-12-26 15:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">的确药丸，我是等着东京奥运会取消了
+
+syl 不基德，疫情高发了月灵会有空多播一点吗
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26276#       发表于 2020-12-26 15:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 成濑这不就是典型的龙套角色么？被左拥右抱的男主角击败是他最好的结局了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26277#       发表于 2020-12-26 15:10
+
+
+
+
+啊啊啊啊啊啊啊！月之刚睡醒就来播了，声音干干的好特别啊！！！
+早晨的女友感<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">！！！
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26278#       发表于 2020-12-26 15:10
+
+
+
+
+葵宝别吃了 又要胖了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26279#       发表于 2020-12-26 15:12
+
+
+
+
+阿巴笑死我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26280#       发表于 2020-12-26 15:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 欺负纸木娟和小绿是吧，11窗放不下，就让人家俩人放一起，
+
+
+你虹staff可真够阴湿的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26281#       发表于 2020-12-26 15:19
+
+
+
+
+成濑葛叶争第一，好好笑
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26282#       发表于 2020-12-26 15:20
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-26 15:29 编辑 
+
+刀也！刀也你得支棱起来啊！<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+好！
+
+<img src="https://img.saraba1st.com/forum/202012/26/152901kj2eahhjmbtjpmhl.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 本戦【#マリカにじさんじ杯】b.pn.png</strong> (306.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 15:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26283#       发表于 2020-12-26 15:23
+
+
+
+
+哦豁葛皇第一，有妹子buff还是无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26284#       发表于 2020-12-26 15:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">第二场终点线前被葛叶抢了第一，阴湿哥你这能忍？
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 26285#       发表于 2020-12-26 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49850542&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-26 15:07</a>
+
+想看成濑在尊妈面前橄榄葛叶</blockquote>
+这是啥事
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 26286#       发表于 2020-12-26 15:27
+
+
+
+
+好奶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26287#       发表于 2020-12-26 15:28
+
+
+
+
+怎么让神田第一了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26288#       发表于 2020-12-26 15:29
+
+
+
+
+4K奶油面包拳是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/26/Js8ZtC9lLwMSN5p.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26289#       发表于 2020-12-26 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算是葛皇也逃不过黄毛吗
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26290#       发表于 2020-12-26 15:30
+
+
+
+ 本帖最后由 ygysh0505 于 2020-12-26 15:34 编辑 
+
+看的葛叶窗，最后一圈感觉浪了，结果从1掉下来了，要不然是稳的，很好奇决赛syl 该看叶师和长尾景了
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26291#       发表于 2020-12-26 15:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+-zue37Q5-9j1yK2oT3cSvo-go.jpg
+(95.84 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-26 15:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/26/153427wfern4fn78n0f431.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26292#       发表于 2020-12-26 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">奈罗花procon右r键接触不良只能换操作习惯用zr了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26293#       发表于 2020-12-26 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">决赛葛叶、阿叶、笹木包揽前三好了，（以上排名不分先后）
+
+
+反正都要看尊采访葛叶的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26294#       发表于 2020-12-26 15:38
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-26 15:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49850742&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-26 15:36</a>
+
+决赛葛叶、阿叶、笹木包揽前三好了，（以上排名不分先后）
+
+
+反正都要看尊采访葛叶的 ...</blockquote>
+别奶了别奶了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/26/154629kjvuw5ff45k5jw1p.png" referrerpolicy="no-referrer">
+
+
+<strong>【マリオカート8DX】第3回マリオカートにじさんじ杯 本戦【#マリカにじさんじ杯】c-1..png</strong> (259.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-26 15:46 上传
+
+
+
+
+
+
+
+这人，有可能会是今年的冠军
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26295#       发表于 2020-12-26 15:42
+
+
+
+
+全心全意为月之选手应援
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26296#       发表于 2020-12-26 15:45
+
+
+
+
+小绿倒了 奈羅花给我冲<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26297#       发表于 2020-12-26 15:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49850732&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2020-12-26 15:35</a></blockquote>
+アザミ这对位的是谁啊，怎么还？？？的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26298#       发表于 2020-12-26 15:56
+
+
+
+
+叶师傅！！！！！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26299#       发表于 2020-12-26 15:57
+
+
+
+
+叶就这？？？手脚冰凉啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26300#       发表于 2020-12-26 15:59
+
+
+
+
+月之大叹气
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26301#       发表于 2020-12-26 16:00
+
+
+
+
+二连第一 奈羅花最强！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                       
