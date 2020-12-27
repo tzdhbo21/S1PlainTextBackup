@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 18:06** 
+> ## **本文件最后更新于2020-12-27 10:03** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_yOV31" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_U2hF9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12708,4 +12708,586 @@ pv吧
 
 
 
-                         
+
+
+-----
+
+####  elect  
+##### 6725#       发表于 2020-12-26 18:07
+
+
+
+
+不知道今天半夜会不会播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6726#       发表于 2020-12-26 18:08
+
+
+
+
+《小麻自己在家cos自己》
+
+hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6727#       发表于 2020-12-26 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851482&amp;ptid=1973472" target="_blank">龙魂绯影 发表于 2020-12-26 17:03:32</a>
+微博上有人发</blockquote>右边那个还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6728#       发表于 2020-12-26 19:52
+
+
+
+
+麻酱那个涩谷风的卡姿兰大眼睛cos麻酱不会很爆笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6729#       发表于 2020-12-26 20:10
+
+
+
+
+初版ddd军服模型已经很卡姿兰大眼睛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6730#       发表于 2020-12-26 20:35
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-26 21:07 编辑 
+
+初代军服ddd完美展现你麻的未来审美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后知后觉，忘了昨天是大灰狼和小红帽一周年了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6731#       发表于 2020-12-26 22:09
+
+
+
+
+mk2在吗 给我nga小号咩版权限呀
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6732#       发表于 2020-12-26 22:22
+
+
+
+
+只要相信自己的运气
+
+终归还是获得回报
+
+我中了两个mea盲盒
+
+圣诞和勋章都拿到手了
+
+虽然代价是多了10个废物
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 6733#       发表于 2020-12-26 23:02
+
+
+
+
+咩啊我知道你在看的，1月2日我们能discord群同步视听吗。1W档也行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 6734#       发表于 2020-12-26 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854369&amp;ptid=1973472" target="_blank">黒長直姫 发表于 2020-12-26 22:09</a>
+
+mk2在吗 给我nga小号咩版权限呀
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端</blockquote>
+BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6735#       发表于 2020-12-26 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">同时视听然后听她不停害羞怪叫嘛
+
+好
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 6736#       发表于 2020-12-27 01:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">0.16%，比你妈原神还难抽
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6737#       发表于 2020-12-27 01:52
+
+
+
+
+0.16%，比你妈原神还难抽
+
+真没想到原神都有可以被拿来拄拐的日子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6738#       发表于 2020-12-27 01:56
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/015628marqrbzbob9ac4rr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>804B995F-F1C9-441E-A61F-F1E542C6DAA7.jpeg</strong> (435.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 01:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6739#       发表于 2020-12-27 02:13
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-27 02:28 编辑 
+
+这活动12月27日至31截止，mea都回老家了最多也就直播tc无转播，油管的也就个桃铁联动还不开台。开直播还能当顺便打赏，在连轮播都没有的直播间玩纯抽卡也没气氛啊？？而且这种直接把v分369的操作，mea这边好歹说还有利用价值。6%的基本上就差明说是用来污染卡池的了。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6740#       发表于 2020-12-27 02:36
+
+
+
+
+刚开始没细看以为抽的是app、网页上面的什么头像挂件、边框之类的线上玩意，看了规则才知道是抽实体周边，这tm仿佛是在逗我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说这年头所谓的“盲盒”文化真是坏的透彻
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 6741#       发表于 2020-12-27 02:59
+
+
+
+
+现在日本这种情况，真的担心啊，她回老家
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 6742#       发表于 2020-12-27 03:14
+
+
+
+ 本帖最后由 2111X 于 2020-12-27 03:20 编辑 
+
+阿b又来开发人性恶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你麻为何总是被当作工具<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不行，越想越严重，谁授权阿b借你麻的形象进行赌博活动的？
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6743#       发表于 2020-12-27 03:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854927&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2020-12-26 23:03:54</a>
+BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
+
+顺便有人抽奖吗（
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6744#       发表于 2020-12-27 03:23
+
+
+
+
+要是整个fgo那种大手子画的牛逼卡面说不定还有兴趣试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6745#       发表于 2020-12-27 03:42
+
+
+
+
+懂了，这就开轮播，小麻最听叔叔的话了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+                              
+
+《你麻的稀有程度在所有人之上，天狗们不要不识抬举》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 6746#       发表于 2020-12-27 03:48
+
+
+
+
+这个活动最大的受益者将是第一位拒绝参加的V<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小麻冲啊！！！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6747#       发表于 2020-12-27 04:01
+
+
+
+
+日本昨天确诊3880，光东京就900多，地铁司机都感染一打了，我觉得她不见得能回家。
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 6748#       发表于 2020-12-27 06:34
+
+
+
+
+不安起来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6749#       发表于 2020-12-27 07:21
+
+
+
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+                          
+
+小麻一定要注意安全啊，一想到她说喉咙坏掉就顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6750#       发表于 2020-12-27 09:02
+
+
+
+
+能不能直接打车回家啊
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6751#       发表于 2020-12-27 09:09
+
+
+
+
+家人开车接比较安全！就是小麻可能要和麻妈一路对线。
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6752#       发表于 2020-12-27 09:19
+
+
+
+
+希望麻妈来接吧
+
+麻妈:为什么我要来接你啊 车又脏了 整个车都因为你变臭了 赶紧开窗通风啊 为什么不坐电车啊 你就不能拒绝我来接你然后执意坐电车吗 怎么这时候这么听话了 真烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6753#       发表于 2020-12-27 09:58
+
+
+
+
+也不至于跟她对线吧，毕竟刚冒出来了几个新型变异确诊而且也刚刚封国了，按照你咩姐的尿性估计直接不安拉满（
+
+不过目前感觉她应该还是能回家的，就是她回了家后可能会因为封城无法返回了（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6754#       发表于 2020-12-27 09:59
+
+
+
+
+好浓的麻味儿，小麻回家劝咱妈出道vtb好不好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6755#       发表于 2020-12-27 10:02
+
+
+
+
+麻妈对线是因为喜欢麻担心麻啊 参考上次去黄兔子家 麻妈担心小麻安全才主动送的 对线对了一路 老傲娇了
+
+
+
+
+
+                        
