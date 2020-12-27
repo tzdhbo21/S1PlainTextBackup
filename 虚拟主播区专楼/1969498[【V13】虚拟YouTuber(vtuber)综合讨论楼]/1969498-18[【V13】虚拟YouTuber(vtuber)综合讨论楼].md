@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 22:03** 
+> ## **本文件最后更新于2020-12-28 02:05** 
 
 
 
@@ -24234,4 +24234,643 @@ cover已经是阻碍hololive发展的最大障碍了吧。</blockquote>
 
 
 
-          
+
+
+-----
+
+####  Hemis  
+##### 26679#       发表于 2020-12-27 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">月灵又收到礼物了
+
+话说其实都是怎么送的，寄事务所？
+
+
+
+
+
+
+
+-----
+
+####  1315474500  
+##### 26680#       发表于 2020-12-27 22:14
+
+
+
+
+兔妈来了
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 26681#       发表于 2020-12-27 22:17
+
+
+
+
+然后被赶走了，兔宝你.....<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26682#       发表于 2020-12-27 22:19
+
+
+
+
+叶又跟nyantako一起打枪了，可爱阳角真不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26683#       发表于 2020-12-27 22:32
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-27 22:35 编辑 
+
+怎么才能把郡道拐去搞虹团同时试听<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+えらちゃん明天也播<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26684#       发表于 2020-12-27 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 猴子心气神都没了，想翻盘只能把虹女liver的黑料全部曝光了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26685#       发表于 2020-12-27 22:48
+
+
+
+
+月灵这礼物不会是直接送到契约者地址的吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 26686#       发表于 2020-12-27 22:59
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gm2t57tj4rj20gk0nf44r.jpg" referrerpolicy="no-referrer">
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gm2t5eakrij21hc0u0kjl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 26687#       发表于 2020-12-27 23:09
+
+
+
+ 本帖最后由 pansherry 于 2020-12-27 23:22 编辑 
+
+杏这MC版本终于要升级了啊
+
+SYL，明天晚上10点ぺこマリ
+
+ZSYL，兔子你还惦记着伊势海老ASMR啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26688#       发表于 2020-12-27 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862569&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-27 22:48</a>
+
+月灵这礼物不会是直接送到契约者地址的吧</blockquote>
+我帮你换个表情
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不知道春节前她能不能搞定新皮
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 26689#       发表于 2020-12-27 23:41
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/234003c11xwt01wu3tuk19.jpg" referrerpolicy="no-referrer">
+
+
+<strong>粽子.jpg</strong> (465.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 23:40 上传
+
+
+
+
+
+
+这如果说的是真的，那可能粽子才是真正逛B站最勤的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26690#       发表于 2020-12-27 23:42
+
+
+
+<blockquote>十四洲 发表于 2020-12-27 22:19
+叶又跟nyantako一起打枪了，可爱阳角真不错</blockquote>
+Nyantako这妹子好可爱啊，推了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26691#       发表于 2020-12-27 23:44
+
+
+
+
+这种礼物一般是直接寄到剧团的吧
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 26692#       发表于 2020-12-27 23:50
+
+
+
+
+https://twitter.com/rariemonn765/status/1343214335003295744?s=19
+小野友树的2d
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 26693#       发表于 2020-12-27 23:56
+
+
+
+
+润姨老视奸了，今天对还昨天コレコレ的节目生气了<img src="https://img.saraba1st.com/forum/202012/27/220626nvlrxmlxx5m74okz.png" referrerpolicy="no-referrer">
+
+
+刚说完，就出现在船长说她平胸的直播间（
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26694#       发表于 2020-12-27 23:57
+
+
+
+
+也许郡道变得擅长打枪的那一天真的会来吧（笑）
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/235653l7jzh99pufhfju77.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 647 - ロリ先生 (@kodaimailove) 的推文回复 _ Twitter - twitter.c.jpg</strong> (77.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 23:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 26695#       发表于 2020-12-28 00:01
+
+
+
+
+纸马和皮神，真是羡慕届到的啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26696#       发表于 2020-12-28 00:27
+
+
+
+
+叶终于要掏出他的起球毛衣2020ver.了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 26697#       发表于 2020-12-28 00:41
+
+
+
+
+我这个号可以贡献給露西亚视奸你们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 26698#       发表于 2020-12-28 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你虹预告了会有新衣装和官方剪影剧透了新衣装的还有谁没定披露时间啊，除了黛灰从十月？拖到2021还有别人吗
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26699#       发表于 2020-12-28 00:50
+
+
+
+
+“质”的一回杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26700#       发表于 2020-12-28 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49863483&amp;ptid=1969498" target="_blank">fastary 发表于 2020-12-28 00:47</a>
+
+你虹预告了会有新衣装和官方剪影剧透了新衣装的还有谁没定披露时间啊，除了黛灰从十月？拖到2021还 ...</blockquote>
+郡道，星川，还有个不确定是谁的（roa？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26701#       发表于 2020-12-28 01:03
+
+
+
+ 本帖最后由 NBXX 于 2020-12-28 01:05 编辑 
+
+[https://www.youtube.com/watch?v=Fn1Rcqg0w-Q](https://www.youtube.com/watch?v=Fn1Rcqg0w-Q)
+
+【ドーナドーナ】わるいことしよう！
+<[img src="https://i.loli.net/2020/12/28/6CrIjlynDXdxpgh.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 26702#       发表于 2020-12-28 01:04
+
+
+
+
+还以为润姨很忙呢,天天视(奸)察组号,顺藤摸瓜....
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26703#       发表于 2020-12-28 01:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牙白，这游戏真要播也太麻烦了吧
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 26704#       发表于 2020-12-28 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49863537&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-28 00:54</a>
+
+郡道，星川，还有个不确定是谁的（roa？</blockquote>
+女子，我平衡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怎么还有个不确定啊，现在都还没有人认领怕不真就是roa的
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 26705#       发表于 2020-12-28 01:18
+
+
+
+
+这游戏不是18＋嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26706#       发表于 2020-12-28 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862664&amp;ptid=1969498" target="_blank">喜闻乐见 发表于 2020-12-27 22:59</a></blockquote>
+看这个样子，那个ar技术老爱这次也要用？
+
+业界总算不藏着掖着了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26707#       发表于 2020-12-28 01:23
+
+
+
+
+有直播模式？
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26708#       发表于 2020-12-28 01:26
+
+
+
+ 本帖最后由 Hemis 于 2020-12-28 01:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有直播模式，H场景自动skip
+
+但字和某些叫声不会和谐
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26709#       发表于 2020-12-28 01:28
+
+
+
+
+不愧是堪比2077的大作
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 26710#       发表于 2020-12-28 01:31
+
+
+
+
+就算开直播模式也不一定能保住直播间吧……
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 26711#       发表于 2020-12-28 01:36
+
+
+
+
+糟了，想看直播又不想被剧透
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26712#       发表于 2020-12-28 01:41
+
+
+
+
+深夜学汉语韩语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26713#       发表于 2020-12-28 01:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">稍微关了一下回来怎么本体和助手都没了
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 26714#       发表于 2020-12-28 01:50
+
+
+
+
+看不见图的话危险程度应该**降低？
+
+
+
+
+
+         
