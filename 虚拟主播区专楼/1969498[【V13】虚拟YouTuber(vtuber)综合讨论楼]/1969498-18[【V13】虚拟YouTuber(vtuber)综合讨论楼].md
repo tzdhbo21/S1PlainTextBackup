@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 02:04** 
+> ## **本文件最后更新于2020-12-27 12:03** 
 
 
 
@@ -20912,6 +20912,25 @@ mrra是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.pn
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noHentai| + 1|确实|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -21332,10 +21351,11 @@ mrra是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.pn
 
 
 
- 参与人数 2战斗力 +3
+ 参与人数 3战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1||
 | einne| + 1||
 | asdhai| + 2|摸摸头|
 
@@ -21781,4 +21801,499 @@ mrra是真的<img src="https://static.saraba1st.com/image/smiley/face2017/139.pn
 
 
 
-              
+
+
+-----
+
+####  Ketestrait  
+##### 26570#       发表于 2020-12-27 02:21
+
+
+
+
+露皇阴间作息才是传统，也就前段时间累出病了才收敛点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl
+
+结束曲又弹了一遍睡眠不足<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，建议定为角色主题歌
+
+
+
+
+
+
+
+-----
+
+####  清枝  
+##### 26571#       发表于 2020-12-27 02:25
+
+
+
+
+还有安可，她怎么弹这么开心
+
+之前直播的时候我看作息好像没有这么阴间
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 26572#       发表于 2020-12-27 02:29
+
+
+
+
+露露一直很阴间啊，甚至从阴间播到阳间然后又播回阴间。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26573#       发表于 2020-12-27 02:34
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-27 02:36 编辑 
+
+阳光：但行好事，莫问前程
+
+阴湿：我马自立总有一天要橄榄你虹所有B站转播
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/023257g6vj8vhqu8q53mmj.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #008 - '【桃太郎電鉄】今宵は戦争じゃいッッッ！.png</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 02:32 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -rm7-| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26574#       发表于 2020-12-27 02:37
+
+
+
+
+管人无关： 今天刚看了马车杯就在游戏里看到这个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gm1tt8w7elj20mh0k00uj.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 26575#       发表于 2020-12-27 02:41
+
+
+
+
+所以蝗上榜的题名词是啥？有点好奇（
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26576#       发表于 2020-12-27 02:44
+
+
+
+<blockquote>真飞鸟i 发表于 2020-12-27 01:50
+不是狼羊，是叫什么切茜娅，画风有点怪的。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版  ...</blockquote>
+开除v籍不就完了，这圈子从起步就是这么玩的，不然绊爱哪能当那么久订阅第一。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 26577#       发表于 2020-12-27 02:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855545&amp;ptid=1969498" target="_blank"> IDIDIDID 发表于 2020-12-27 00:15</a>  本帖最后由 IDIDIDID 于 2020-12-27 00:19 编辑   看了下PB，阿希今年光SC一项就收了4KW 日币，到底什么时候《现原形》阿，每次都是下个月，等不及了 </blockquote>
+为什么有这么多人给这干啥啥不行的沙布打钱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+虽然我也打过，但那时她还突出一个《上进》来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 26578#       发表于 2020-12-27 03:31
+
+
+
+[https://kai-you.net/feature/imarine](https://kai-you.net/feature/imarine)
+
+之前有没有人说过这个来着
+
+
+
+
+
+
+02-07-33-033.jpg
+(528.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-27 03:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/033216v9qnhmrclt7vc7rd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 26579#       发表于 2020-12-27 05:17
+
+
+
+
+去补了昨晚异世界情绪的live，好强啊，各种曲风都驾驭得很好，中之人是声乐系出身吗？
+留档留到今天11点，建议都去听一听
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 26580#       发表于 2020-12-27 07:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49856284&amp;ptid=1969498" target="_blank">ひびき 发表于 2020-12-27 02:49</a>
+
+为什么有这么多人给这干啥啥不行的沙布打钱
+
+
+虽然我也打过，但那时她还突出一个《上进》 ...</blockquote>
+因为小祭是姬样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tewaku  
+##### 26581#       发表于 2020-12-27 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49856078&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-27 01:50</a>
+
+不是狼羊，是叫什么切茜娅，画风有点怪的。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版  ...</blockquote>
+乐府里谁不刷数据啊，昨天一天刷40多万当然第一啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 26582#       发表于 2020-12-27 10:47
+
+
+
+
+异世界情绪和春猿火说话声音/语气怎么那么像，是不是神椿的人都这么说话
+不过至少没有阿火那么明显的剪辑拼接痕迹了，现场演唱可能性微存？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26583#       发表于 2020-12-27 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857380&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2020-12-27 10:47</a>
+
+异世界情绪和春猿火说话声音/语气怎么那么像，是不是神椿的人都这么说话
+
+不过至少没有阿火那么明显的剪辑拼 ...</blockquote>
+大概抽卡的时候刻意选的吧，不过花谱刚出道的时候说话还是很有jc味的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26584#       发表于 2020-12-27 11:00
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-27 11:38 编辑 
+
+ホロスターズ【公式】
+
+@holostarstv
+
+·
+
+12h
+
+【お知らせ】
+
+令和3年1月3日にホロスターズによる<strong>新作カバーMV</strong>をホロスターズ公式chでプレミア公開予定ですShooting star
+
+(お正月衣装リレーとお正月グッズも同日です！)
+
+
+年明けに準備が整いましたら再度ご報告させて頂きます！
+
+お楽しみにSparkles
+
+<img src="https://img.saraba1st.com/forum/202012/27/110014wu36uzic6aj6ccja.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqKzUJrU8AEFelM.jpg</strong> (46.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 11:00 上传
+
+
+
+
+
+
+
+
+
+
+很难不支持😓😜
+
+
+
+
+
+
+
+
+-----
+
+####  鹦与鹉  
+##### 26585#       发表于 2020-12-27 11:09
+
+
+
+
+已经删了吗，还想听一次情绪酱的heart station<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26586#       发表于 2020-12-27 11:50
+
+
+
+
+以前不是说过EN那边有在避开龙心嘛？
+
+没了，
+
+ina有打算跟心联动
+
+
+希望独轮车饶ina一命
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26587#       发表于 2020-12-27 11:52
+
+
+
+
+心没有吧，只有龙，心好像都联动过好几回en了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 26588#       发表于 2020-12-27 11:53
+
+
+
+
+心整天和en联动的，龙的确没有
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26589#       发表于 2020-12-27 11:55
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-27 11:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857853&amp;ptid=1969498" target="_blank">Aminor 发表于 2020-12-27 11:52</a>
+
+心没有吧，只有龙，心好像都联动过好几回en了</blockquote>
+没有几次啦，就是跟华生，现在ina也上了。
+
+也不知道独轮车战况如何，希望不要溅射到吧
+
+看了眼还有kiaramori，
+
+EN自闭人只有鲨了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26590#       发表于 2020-12-27 11:58
+
+
+
+
+断网了一天，感觉错过了很多啊，叶an数量还挺解释一致的
+
+
+
+
+
+             
