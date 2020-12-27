@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 16:02** 
+> ## **本文件最后更新于2020-12-27 20:07** 
 
 
 
@@ -22924,4 +22924,700 @@ https://twitter.com/yuya_illust_/status/1342998634862940163?s=19
 
 
 
-            
+
+
+-----
+
+####  hulaoda007  
+##### 26616#       发表于 2020-12-27 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858960&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-27 14:29</a>
+
+郡an，不要太过分了
+
+
+有人在郡道推下发了她上鸣神裁榜二位的截图，然后理所当然被block了，</blockquote>
+  说道郡ANTI，有个还蛮有意思的现象。就是某一个Liver的粉丝在他们Liver和郡道完全没有交流过的情况下集体讨厌郡道。
+
+  理由只是因为这个Liver的粉丝的性格几乎相同并且对郡道这种性格感到不适。简单说天生就不待见。这个倒是还蛮有意思的。毕竟原Liver和郡道没有任何一次的在台面上交流过。私下也似乎没有。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 26617#       发表于 2020-12-27 17:00
+
+
+
+
+这anti几岁啊。。这么ky么
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 26618#       发表于 2020-12-27 17:03
+
+
+
+
+你圈的anti不都脑子多少有点问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 26619#       发表于 2020-12-27 17:10
+
+
+
+
+好熟悉的anti味儿，梦回2018？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26620#       发表于 2020-12-27 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858409&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-27 13:06</a>
+虽然我很喜欢情绪，不过隔壁这都吹成啥了，没那么强吧......
+而且神椿的“直播”一直以来我是保持怀疑态度 ...</blockquote>
+其实从另一个方面讲，要是能把人声像V家那样肆意调教，也是隔壁梦想的一种实现方式就是了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26621#       发表于 2020-12-27 17:17
+
+
+
+
+cr杯主视角在日本斗鱼 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这也太拉跨了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 26622#       发表于 2020-12-27 17:23
+
+
+
+
+niru加油啊
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 26623#       发表于 2020-12-27 17:30
+
+
+
+<blockquote>OldGlory 发表于 2020-12-27 12:46
+火鸡什么时候说德语？</blockquote>
+BV1Bp4y1r7dk，BV1ft4y1Y74U
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 26624#       发表于 2020-12-27 17:44
+
+
+
+
+心疼花剪，前几天亲戚去世，今天是人生中最珍贵的20岁生日，然后还要开live，疲惫不堪<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26625#       发表于 2020-12-27 17:52
+
+
+
+
+胡桃和猩猩那队nice啊，练习里一直10多位，第一局直接6杀第三名，爽到
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26626#       发表于 2020-12-27 17:54
+
+
+
+
+胡桃冲<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26627#       发表于 2020-12-27 18:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚说完第二局就19名淘汰了，猩猩这武器构成太差了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26628#       发表于 2020-12-27 18:07
+
+
+
+
+一之濑冲啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26629#       发表于 2020-12-27 18:09
+
+
+
+
+叶师傅冲...冲啊玩得开心就好
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 26630#       发表于 2020-12-27 18:10
+
+
+
+
+冲，都可以冲
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26631#       发表于 2020-12-27 18:12
+
+
+
+
+压力到了niru佬这里！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26632#       发表于 2020-12-27 18:14
+
+
+
+
+难啊难啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，感觉进不了前三了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26633#       发表于 2020-12-27 18:19
+
+
+
+
+葛这没子弹没甲也太难了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26634#       发表于 2020-12-27 18:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">太惨了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26635#       发表于 2020-12-27 18:29
+
+
+
+
+bora感觉好紧张啊...
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26636#       发表于 2020-12-27 18:32
+
+
+
+
+夜见西西这队稳定前10加2kill啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这次表现确实有点出乎我意料了，本来以为她们这队铁垫底的，西斯科的指挥还是老辣
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26637#       发表于 2020-12-27 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49860400&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-27 18:32</a>
+
+夜见西西这队稳定前10加2kill啊……，这次表现确实有点出乎我意料了，本来以为她们这队铁垫底的，西 ...</blockquote>
+小熊猫也是两次前十2kill<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+夜见噗贴贴（你们啥时候再一起玩啊
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 26638#       发表于 2020-12-27 18:50
+
+
+
+
+100万耐久
+[https://www.youtube.com/watch?v=sARSWE-r_Lw](https://www.youtube.com/watch?v=sARSWE-r_Lw)
+
+点下订阅
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26639#       发表于 2020-12-27 18:59
+
+
+
+
+bora吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 26640#       发表于 2020-12-27 19:19
+
+
+
+
+
+中田也v了
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gm2msek3fvj20gq0ixwkp.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26641#       发表于 2020-12-27 19:22
+
+
+
+
+奈羅花新衣服好看 好色哦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26642#       发表于 2020-12-27 19:23
+
+
+
+
+奈罗花可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26643#       发表于 2020-12-27 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49860793&amp;ptid=1969498" target="_blank">喜闻乐见 发表于 2020-12-27 19:19</a>
+
+中田也v了</blockquote>
+v圈子发展到现在，谁都可以套个皮出道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26644#       发表于 2020-12-27 19:35
+
+
+
+
+aka这g7是真的离谱啊，胡桃直接被放倒
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26645#       发表于 2020-12-27 19:47
+
+
+
+
+bora吃了一次鸡 这次CR杯我已经满足了 最后一场了 花芽姐 胡桃 uge和bora都冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26646#       发表于 2020-12-27 19:49
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm2nodpfw4j20q70j2dhi.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gm2nn3cf88j20t10j6aby.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm2nn7bknkj20s60iz7g5.jpg" referrerpolicy="no-referrer">
+
+
+油管君警告.jpg
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26647#       发表于 2020-12-27 19:52
+
+
+
+
+奈罗花新衣服色<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+EqPbhGiU0AAL2Bw.jpg
+(120.85 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-27 19:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/195206cropjrsqjzr8xq8u.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EqPbUlFUYAALl1N.jpg
+(133.61 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-27 19:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/195206toczxhhaxbhxhgb3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EqPbWQ7UUAEFJBK.jpg
+(132.19 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-27 19:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/195206gkefbjuesv59o0ss.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EqPaol7VQAEE9ln.jpg
+(226.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-27 19:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/195205t8fq5f5ohf66e5z5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26648#       发表于 2020-12-27 20:01
+
+
+
+ 本帖最后由 free 于 2020-12-27 20:06 编辑 
+
+老爱live的嘉宾果然是谱皇
+
+
+天音一周年live拖了一小时没开了，他杏怎么这么垃圾
+
+喷了，因设备原因延期到1月2日，大杏的技术力真的太高了
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26649#       发表于 2020-12-27 20:04
+
+
+
+
+花芽姐好JB强<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           
