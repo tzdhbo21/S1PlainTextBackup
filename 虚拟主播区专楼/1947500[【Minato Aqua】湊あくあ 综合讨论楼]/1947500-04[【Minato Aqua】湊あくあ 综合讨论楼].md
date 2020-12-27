@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-25 14:01** 
+> ## **本文件最后更新于2020-12-28 00:01** 
 
 
 
@@ -1114,4 +1114,527 @@ cover这脑子是有毒吧，24:00接力歌回，最后一班压轴，这是让�
 
 
 
-                                               
+
+
+-----
+
+####  nevp  
+##### 4563#       发表于 2020-12-25 14:04
+
+
+
+
+昨晚说了应该还会有一播的
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4564#       发表于 2020-12-25 14:54
+
+
+
+
+今天不会还是mc吧
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4565#       发表于 2020-12-25 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4566#       发表于 2020-12-25 18:11
+
+
+
+
+强行不撞
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 4567#       发表于 2020-12-25 18:29
+
+
+
+ 本帖最后由 lightsuger 于 2020-12-25 18:37 编辑 
+
+看其他人该播播
+
+唱完了的也想撞就撞（比如狐坦）
+
+这企划有啥意义？
+
+开了个8点的会限，希望正式唱的时候好好唱
+
+别整卖蠢人设了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4568#       发表于 2020-12-25 19:39
+
+
+
+
+会限刚好接在诗音的圣诞歌会后面 幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4569#       发表于 2020-12-25 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">歌回加油
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4570#       发表于 2020-12-25 23:15
+
+
+
+
+安定的​Sow Halation<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 4571#       发表于 2020-12-25 23:22
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-25 23:24 编辑 
+
+这首departures她什么时候二段进化了，最后差点人都唱没了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+哪首难干哪首，这就是偶像梦吗？
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4572#       发表于 2020-12-25 23:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">嚎得我枪一抖
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 4573#       发表于 2020-12-25 23:29
+
+
+
+
+前面挺好，这哦哦哦有点不对劲🤔
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4574#       发表于 2020-12-25 23:30
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4575#       发表于 2020-12-25 23:31
+
+
+
+
+上次唐突毕业曲原来是伏笔
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4576#       发表于 2020-12-25 23:33
+
+
+
+ 本帖最后由 Maonpuyo 于 2020-12-25 23:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我开始理解什么叫圆脸鬼叫了，不过对洋葱来说这算进化。。吗最后一首好活
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4577#       发表于 2020-12-25 23:34
+
+
+
+
+草，最后这首好活🤣
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4578#       发表于 2020-12-25 23:36
+
+
+
+
+怎么又是mc
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4579#       发表于 2020-12-25 23:37
+
+
+
+
+怪不得被放到最后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4580#       发表于 2020-12-26 19:22
+
+
+
+<[img src="https://i.loli.net/2020/12/26/UjNiGwyYc3zI1WJ.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/26/tNJc6DjqbEdkVMi.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">https://twitter.com/summer_tail720
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4581#       发表于 2020-12-26 19:35
+
+
+
+
+帅夸爱了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4582#       发表于 2020-12-26 20:31
+
+
+
+
+等等，原来是底边才艺展示大会吗<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+不知道akukin建设除了被挖角和剥削之外还能爆出什么雷，哇裤哇裤～
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4583#       发表于 2020-12-26 20:34
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-26 21:12 编辑 
+
+正牌清扫员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+乳搾り担当ラミさん⁉
+採用√
+
+再等等，为什么是面试官问你愿不愿意来我司？
+明明给个“回去等消息吧”就算十分客气了好吧！
+
+被扫地大妈打趴下了的安保员有聘用的必要吗！？
+
+天哥这个塔是刷溺尸的吗，夸宝该逊位了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4584#       发表于 2020-12-26 20:58
+
+
+
+
+人越来越多<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4585#       发表于 2020-12-26 21:19
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-26 21:50 编辑 
+
+喂喂，iofi女士，在俺们hololive，“社内恋爱”可是禁语啊……
+
+喂喂，气氛紧张起来了啊，都说了要把兔田家的牌子收一收，社长手都在抖了啊
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4586#       发表于 2020-12-26 21:53
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-26 22:09 编辑 
+
+哦哦哦哦哦哦，童工可不太妙了啊，通報します
+
+原来是试图自称社长情妇来走后门的坏东西啊
+
+这必须得否了
+
+
+
+这结语，全是保险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看给夸宝整得快炎上PTSD了吧
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4587#       发表于 2020-12-26 21:54
+
+
+
+
+愛人採用！！
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4588#       发表于 2020-12-26 23:49
+
+
+
+
+工资是鳕鱼的屑企业，该炎上了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4589#       发表于 2020-12-27 21:29
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-27 22:06 编辑 
+
+幸运星OP，神薙OP，怎么都是山本宽的OP代表，夸宝难道跳过这些舞蹈吗<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+Type Wild，这神奇宝贝第五个ED，我在电视上看的辽艺版好像都没播到这一集<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">但是夸宝应该也在穿尿不湿吧
+
+
+ホウキ云，日式面包王的OP，这片至今印象最深的是原漫画作者亲自画了女主角的エロ本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4590#       发表于 2020-12-27 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">神薙好啊，入宅作之一，夸宝什么时候3D跳这个的舞
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4591#       发表于 2020-12-27 22:13
+
+
+
+
+这两天刚好一直在重温龙虎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4592#       发表于 2020-12-27 22:22
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-27 22:23 编辑 
+
+はじめてのチュウ~♥<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">← 张铁林附体
+
+
+
+
+
+                                              

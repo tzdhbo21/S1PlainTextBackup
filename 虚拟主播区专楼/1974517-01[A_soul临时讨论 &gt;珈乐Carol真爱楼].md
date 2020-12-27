@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 22:11** 
+> ## **本文件最后更新于2020-12-28 00:11** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_LINz9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_mNMhj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -5499,4 +5499,265 @@ rp队友环节还挺可爱的，有反差萌
 
 
 
-                                        
+
+
+-----
+
+####  与太郎  
+##### 288#       发表于 2020-12-27 22:11
+
+
+
+
+staff太拉了
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 289#       发表于 2020-12-27 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862253&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-27 22:11</a>
+
+staff太拉了</blockquote>
+珈乐自己的问题，看了下昨天七字母录播，明显队友都看得出有问题。尤其是向晚说，弹幕刷屏，珈乐会假装看不见自说自话这点，简直是完美呈现。
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 290#       发表于 2020-12-27 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862276&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2020-12-27 22:14</a>
+
+珈乐自己的问题，看了下昨天七字母录播，明显队友都看得出有问题。尤其是向晚说，弹幕刷屏，珈乐会假装看 ...</blockquote>
+这还不拉啊😅
+
+让我想到了一直拉跨需要我来擦屁股的同事😅
+
+珈乐自己尬住乐那是另一回事，staff连贴个动态lrc都做不好，我给公司搞春节联欢会都没这么拉😅
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 291#       发表于 2020-12-27 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862318&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-27 22:18</a>
+
+这还不拉啊😅
+
+让我想到了一直拉跨需要我来擦屁股的同事😅
+
+珈乐自己尬住乐那是另一回事，staff连贴个动态l ...</blockquote>
+主要还是她自己的问题，staff那边是准备得不好，但是她自己完全没有应对能力，而且还自闭这点真的太致命了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 292#       发表于 2020-12-27 22:23
+
+
+
+
+我突然觉得嘉晚饭那期是圣经了，可以多听几遍挖细节<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 293#       发表于 2020-12-27 22:26
+
+
+
+
+都怪嘉然，要不是嘉然我根本就不会关注这个团，我从一开始抱着乐子人心态来看乐华笑话的，要不是嘉然让我zqsg，我也不会下抖音被折磨两小时，都怪嘉然<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 294#       发表于 2020-12-27 22:42
+
+
+
+
+BV1B54y1t7jc
+
+然指导和晚指导什么预言家<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 295#       发表于 2020-12-27 23:15
+
+
+
+ 本帖最后由 临界点 于 2020-12-27 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862528&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-27 22:42</a>
+
+BV1B54y1t7jc
+
+然指导和晚指导什么预言家</blockquote>
+毕竟一个队的  肯定很了解  不过她这性格做练习生不是应该早就被淘汰了吗  不过怎么说呢 如果以后能比较快的成长也说不定能成为一个卖点
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 296#       发表于 2020-12-27 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862788&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-27 23:15</a>
+
+毕竟一个队的  肯定很了解  不过她这性格做练习生不是应该早就被淘汰了吗  不过怎么说呢 如果以后能比较快 ...</blockquote>
+偶像练习生和主播差别还是挺大的。表演能力-主持能力-综艺能力 三个能力都得专门培养。一般练习生只看重表演能力吧。
+
+嘉然这种六边形机师还是可遇不可得，感觉是挑选了非常长的时间的样子。
+
+现在再来看嘉然首播才能体会到什么是神回，抗压拉满下还能淡定的直播，脑子转得快精准规避挖坑弹幕，及时的卖萌+杂谈能掌控直播节奏，那天的直播间可以说是梦开始的地方。
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 297#       发表于 2020-12-27 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862788&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-27 23:15</a>
+
+毕竟一个队的  肯定很了解  不过她这性格做练习生不是应该早就被淘汰了吗  不过怎么说呢 如果以后能比较快 ...</blockquote>
+贝拉的情况不就是练舞练伤不能长期跳么，乐华也不是傻，能推真人为什么要推asoul
+
+当然铁打的经纪公司流水的训练生，这几个能被选上肯定还有一点点东西
+
+至于养成系从成本（三维演播室投入），从国内（不止V圈）都看不出有这个的氛围，除了TFBOYS一朵奇葩
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 298#       发表于 2020-12-27 23:39
+
+
+
+ 本帖最后由 临界点 于 2020-12-27 23:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862906&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2020-12-27 23:28</a>
+
+偶像练习生和主播差别还是挺大的。表演能力-主持能力-综艺能力 三个能力都得专门培养。一般练习生只看重 ...</blockquote>
+起码的抗压能力跟不怯场的能力应该也是必备的吧
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 299#       发表于 2020-12-27 23:50
+
+
+
+
+不过没想到抖音竟然是直接显示人数的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 300#       发表于 2020-12-27 23:57
+
+
+
+
+刚好没看最后几分钟，我急了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 301#       发表于 2020-12-28 00:03
+
+
+
+
+哭了的剪辑快一点
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
