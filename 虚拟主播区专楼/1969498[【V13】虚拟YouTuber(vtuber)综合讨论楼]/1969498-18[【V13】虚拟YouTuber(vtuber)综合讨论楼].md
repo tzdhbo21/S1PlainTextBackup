@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 12:03** 
+> ## **本文件最后更新于2020-12-27 16:02** 
 
 
 
@@ -22296,4 +22296,632 @@ EN自闭人只有鲨了
 
 
 
-             
+
+
+-----
+
+####  Kitali  
+##### 26591#       发表于 2020-12-27 12:25
+
+
+
+
+https://twitter.com/yuya_illust_/status/1342998634862940163?s=19
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/122438xdlfpoao0dccyytp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20201227_121617.jpg</strong> (569.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 12:24 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26592#       发表于 2020-12-27 12:28
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/122759rk9a92qf4k9dkt45.png" referrerpolicy="no-referrer">
+
+
+
+我就问一句田角这次还跟吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|印度和俄罗斯哪个厉害，好像可以秒杀吧.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 26593#       发表于 2020-12-27 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857876&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-27 11:55</a>
+
+没有几次啦，就是跟华生，现在ina也上了。
+
+也不知道独轮车战况如何，希望不要溅射到吧
+
+看了眼还有kiaramor ...</blockquote>
+鲨鱼只跟en的联动，绝大部分时间都在和ame玩。。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26594#       发表于 2020-12-27 12:46
+
+
+
+
+火鸡什么时候说德语？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 26595#       发表于 2020-12-27 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858253&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-27 12:46</a>
+
+火鸡什么时候说德语？</blockquote>
+已经开过一次德语课了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 26596#       发表于 2020-12-27 13:06
+
+
+
+
+虽然我很喜欢情绪，不过隔壁这都吹成啥了，没那么强吧......
+而且神椿的“直播”一直以来我是保持怀疑态度的......
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26597#       发表于 2020-12-27 13:13
+
+
+
+
+没乐理基础的一般人就听个声色，大部分人连修没修都听不出来
+
+大家都是木耳，聚在一起吹一吹感动一下就当团建了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26598#       发表于 2020-12-27 13:20
+
+
+
+<img src="https://p.sda1.dev/0/366f0ae2a14ece2f06ccfd6d09050b74/IMG_CMP_152276450.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 26599#       发表于 2020-12-27 13:25
+
+
+
+
+排名去掉乐府，营收算上乐府，泥哥总有办法赢
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26600#       发表于 2020-12-27 13:29
+
+
+
+
+我以前还去学过考过乐理的(乐器等级考试要求)我也除了音色啥也听不出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26601#       发表于 2020-12-27 13:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/132913aygnm33fsnmwjs8i.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #012 - 'Matsuri Channel 夏色まつり - YouTube&amp;#0.png</strong> (165.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 13:29 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/132923aqn483qm30shm511.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #014 - '佐藤希Sato Nozomi - YouTube' - www.png</strong> (51.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 13:29 上传
+
+
+
+
+
+
+👆均为按点击量排序后的最前排内容。
+
+
+
+
+
+研究了5分钟希学，答案是祭丝差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  الطائر  
+##### 26602#       发表于 2020-12-27 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858409&amp;ptid=1969498" target="_blank">noHentai 发表于 2020-12-27 13:06</a>
+
+虽然我很喜欢情绪，不过隔壁这都吹成啥了，没那么强吧......
+
+而且神椿的“直播”一直以来我是保持怀疑态度 ...</blockquote>
+讲道理，连人都是假的，假唱与否已经不重要。要真想以歌手身份出道，谁还当V啊。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26603#       发表于 2020-12-27 13:40
+
+
+
+
+えらちゃん最近是怎么了，自己不是三姐了就这么不甘心嘛
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26604#       发表于 2020-12-27 13:41
+
+
+
+
+👍
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/134050vopakizhvdh63eve.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqJFsQTU8AAhrH6.jpg</strong> (583.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 13:40 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 烯丝短尾猫| + 1|kzhm好（|
+| qq845629713| + 1|一个敢伸手、一个敢放阿|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26605#       发表于 2020-12-27 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858679&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-27 13:40</a>
+
+えらちゃん最近是怎么了，自己不是三姐了就这么不甘心嘛</blockquote>
+以前的三姐和现在的三姐都很可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 26606#       发表于 2020-12-27 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858601&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-27 13:30</a>
+
+👆均为按点击量排序后的最前排内容。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">翻唱自从版权炮隐藏后就只有那两个合唱在
+
+单恋还是前几天这边人去钓鱼才吐出来的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26607#       发表于 2020-12-27 13:53
+
+
+
+
+异世界情绪的live已经更新到2楼大礼包里了
+
+讲道理这个就算有修都很强了，裸春第一人没啥问题
+
+
+
+
+
+
+
+-----
+
+####  鹦与鹉  
+##### 26608#       发表于 2020-12-27 13:57
+
+
+
+
+隔壁能届到不是没原因的，yhm就喜欢用力过猛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26609#       发表于 2020-12-27 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858738&amp;ptid=1969498" target="_blank">えびふらいおん 发表于 2020-12-27 13:50</a>
+
+翻唱自从版权炮隐藏后就只有那两个合唱在
+
+单恋还是前几天这边人去钓鱼才吐出来的 ...</blockquote>
+好吧其实塔号点击暴涨的原因是伊比利亚再征服<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/140208gb6urz8uq8juzj58.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #015 - '【歌＆雑談】太りました。残念【佐藤希_顔.png</strong> (142.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 14:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26610#       发表于 2020-12-27 14:04
+
+
+
+
+一堆有马的同时视听 幸运丁香 我的小丁香加油啊 最终战啊 有终之美啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kazuma| + 1|赌狗狂欢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 26611#       发表于 2020-12-27 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858757&amp;ptid=1969498" target="_blank">free 发表于 2020-12-27 13:53</a>
+异世界情绪的live已经更新到2楼大礼包里了
+
+讲道理这个就算有修都很强了，裸春第一人没啥问题 ...</blockquote>
+你太小看现代修音技术了……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26612#       发表于 2020-12-27 14:25
+
+
+
+
+说到乐理，当年我啃得是李重光那本，坑爹到姥姥家了，说出来都是泪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26613#       发表于 2020-12-27 14:29
+
+
+
+
+郡an，不要太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+有人在郡道推下发了她上鸣神裁榜二位的截图，然后理所当然被block了，
+
+被block之后相当不服说：“你连小小的失误都不能原谅吗？SNS背后也是有心的人，再小的事集中起来也可以让人消失，你好好想想吧！”
+
+
+我说我自己.jpg
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26614#       发表于 2020-12-27 14:38
+
+
+
+
+叶@にじさんじ
+
+@Kanae_2434
+
+おうまさんは枠取らない！
+
+
+かなえのさぶあか
+
+@kanae_iroiro
+
+ギャンブルはリスナーさんに怒られそうだからほどほどまん
+
+
+啥人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 26615#       发表于 2020-12-27 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858960&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-27 14:29</a>
+
+郡an，不要太过分了
+
+
+有人在郡道推下发了她上鸣神裁榜二位的截图，然后理所当然被block了，</blockquote>
+我已经看过不知道多少
+
+‘我被郡道block了，所以说这人就是不行啊，就这样还当企业势？’
+
+然后点开一看‘ickr怎么还不开除郡道’
+
+之类的人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            
