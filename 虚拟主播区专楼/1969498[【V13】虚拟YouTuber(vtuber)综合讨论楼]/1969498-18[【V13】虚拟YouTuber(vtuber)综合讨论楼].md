@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 20:07** 
+> ## **本文件最后更新于2020-12-27 22:03** 
 
 
 
@@ -23620,4 +23620,618 @@ EqPaol7VQAEE9ln.jpg
 
 
 
-           
+
+
+-----
+
+####  NBXX  
+##### 26650#       发表于 2020-12-27 20:12
+
+
+
+[https://twitter.com/GOD_YOMI/status/1343109185509023745](https://twitter.com/GOD_YOMI/status/1343109185509023745)<blockquote>現よみ/utsutsuyomi @GOD_YOMI
+
+
+28日(月)21時〜Among usコラボ🔪✨
+
+
+2020最後のあもあすはこちらのメンツ
+
+
+百鬼あやめ😈
+
+くろくも🎤
+
+椎名唯華👻
+
+夜見れな🌹
+
+星街すいせい☄
+
+黯希ナツメ🐱
+
+天野ピカミィ⚡️
+
+
+どんな感じになるかわからない！
+
+楽しめるのは間違いない😏
+
+
+主催したけど上手く進行できるか
+
+わからないのでお手柔らかに👏</blockquote>
+<[img src="https://i.loli.net/2020/12/27/NKj1MAOGEcYrWa8.png" referrerpolicy="no-referrer">
+
+
+
+
+_______________________________
+
+小天使的LIVE延期了，难受
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26651#       发表于 2020-12-27 20:12
+
+
+
+
+花芽姐那队也吃鸡了 完美！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26652#       发表于 2020-12-27 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861025&amp;ptid=1969498" target="_blank">winda 发表于 2020-12-27 19:52</a>
+
+奈罗花新衣服色</blockquote>
+mnnt组29日一周年接力歌回
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26653#       发表于 2020-12-27 20:14
+
+
+
+ 本帖最后由 Suzutsuki 于 2020-12-27 20:38 编辑 
+
+花芽姐三连霸没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26654#       发表于 2020-12-27 20:22
+
+
+
+
+噗丽姐niru最后还是没吃到鸡，两次败在最后吃鸡的手下<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+不知道会不会参加v最协，找点靠谱的队友拿个冠军啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26655#       发表于 2020-12-27 20:24
+
+
+
+
+486的2周年3d都直接消失了，小天使至少还有明确时间嘛，嘿民要感激要珍惜。
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 26656#       发表于 2020-12-27 20:26
+
+
+
+
+        僕が主役でもいいですか？
+
+　　いいえ
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26657#       发表于 2020-12-27 20:29
+
+
+
+
+事到如今只能说安定草台
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26658#       发表于 2020-12-27 20:31
+
+
+
+
+niru菩提一之濑这队明明可以的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26659#       发表于 2020-12-27 20:34
+
+
+
+[https://live.bilibili.com/21908222](https://live.bilibili.com/21908222)
+
+罗莎琳毕业了，杏在中国彻底结束了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 26660#       发表于 2020-12-27 20:34
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/203420oxmlo4ebme74txkv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201227-202809.jpg</strong> (825.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 20:34 上传
+
+
+
+
+
+
+给cover也上一柱抬走吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26661#       发表于 2020-12-27 20:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/203608x8dmddn2wd84ewfe.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201227203536.png</strong> (600.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 20:36 上传
+
+
+
+
+
+
+
+劲爆歌姬音乐祭来啦🎵，嗨起来！
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 26662#       发表于 2020-12-27 20:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">cover已经是阻碍hololive发展的最大障碍了吧。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 26663#       发表于 2020-12-27 20:38
+
+
+
+
+花芽姐的三连霸 就差了几分啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mus2012  
+##### 26664#       发表于 2020-12-27 20:38
+
+
+
+
+先是拍屏LIVE 这回直接整没了  突出一个又穷又草台 
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26665#       发表于 2020-12-27 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861400&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-27 20:38</a>
+
+cover已经是阻碍hololive发展的最大障碍了吧。</blockquote>
+有没有主播团体开除自家运营的，想见识见识<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 26666#       发表于 2020-12-27 20:44
+
+
+
+ 本帖最后由 holoan 于 2020-12-27 20:45 编辑 
+
+3期生赶紧独立把这群废物staff炒了吧<blockquote>ぺっさんすげぇ！
+
+デバフ企業所属でこれだぜ！</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 26667#       发表于 2020-12-27 20:46
+
+
+
+
+明天tskk要3D，能不能再坏一回啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 26668#       发表于 2020-12-27 20:48
+
+
+
+
+太孝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 26669#       发表于 2020-12-27 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">杏奴能不能和你们的傻逼cover爹一起滚出cn啊
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 26670#       发表于 2020-12-27 20:56
+
+
+
+
+獅白打个窝窝屎都有1w多同接？
+
+杏真的是很强大
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 26671#       发表于 2020-12-27 20:56
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/27/205535e4byfzdcphdfd7u2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqN26MQUcAEk3x6.jpg</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 20:55 上传
+
+
+
+
+
+[https://twitter.com/sherryQQ00/status/1343048303378714627/photo/1](https://twitter.com/sherryQQ00/status/1343048303378714627/photo/1)
+
+<img src="https://img.saraba1st.com/forum/202012/27/205536rdsel0wa2drd2zsz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqO2Ok5UYAAX5N4.jpg</strong> (337.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 20:55 上传
+
+
+
+
+
+[https://twitter.com/Kooh_ku/status/1343117952929841153](https://twitter.com/Kooh_ku/status/1343117952929841153)
+
+<img src="https://img.saraba1st.com/forum/202012/27/205536a800kttcknl2k0tk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqPm4X7UUAECMyS.jpg</strong> (424.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-27 20:55 上传
+
+
+
+
+
+[https://twitter.com/fangjoker524/status/1343170981007802371](https://twitter.com/fangjoker524/status/1343170981007802371)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26672#       发表于 2020-12-27 20:57
+
+
+
+
+给holo在中国最后上一株香，挺不错的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26673#       发表于 2020-12-27 21:03
+
+
+
+
+えらちゃん，又一天两播<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，这三天连着公开播了几次了。
+哈？？？年底冲业绩？
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 26674#       发表于 2020-12-27 21:12
+
+
+
+
+今年的“にじさんじ”N站视频排行榜第一，毫不意外的是这个2小时二创大作。
+
+
+年間にじさんじニコニコランキングSP03 2020年
+[https://www.nicovideo.jp/watch/sm38020695](https://www.nicovideo.jp/watch/sm38020695)
+
+
+2434 Allstars Parade
+[https://www.nicovideo.jp/watch/sm36536617](https://www.nicovideo.jp/watch/sm36536617)
+ <blockquote>■集計期間：2019年12月16日0時～2020年12月15日24時
+
+■集計方法：再生数＋(コメント数×補正値)＋(マイリスト登録数×25)
+
+■集計対象：タグ 「にじさんじ」がついている動画 →約20500件</blockquote>
+
+<img src="https://p.sda1.dev/0/b5b00978de7fea75ef38e3b1e14da9b5/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26675#       发表于 2020-12-27 21:22
+
+
+
+
+四姐你怎么恐怖游戏都没过w啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26676#       发表于 2020-12-27 21:24
+
+
+
+[https://www.youtube.com/watch?v=-omKAd_sbFo](https://www.youtube.com/watch?v=-omKAd_sbFo)
+
+【歌ってみた】チューリングラブ feat.Sou / ナナヲアカリ【星街すいせい&amp;響木アオ】
+
+合いの手
+
+夏色まつりちゃん
+
+夜空メルちゃん
+
+
+奇怪的组合...
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 26677#       发表于 2020-12-27 21:25
+
+
+
+<img src="https://p.sda1.dev/0/c7bb1d658b6c99afdba2c709dff11e81/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/3fc8d9671ebca373069052002d8aaffd/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/1d58d3dc409738723b5d4fee693252ff/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/875ba14498fcc8ee12bb936729416bd3/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26678#       发表于 2020-12-27 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 喷四姐的给我道歉好吧，你笹木不是借了机台的东风，今年年内能50w阿，明年机台烂掉了，看你怎么办
+
+
+
+
+
+          

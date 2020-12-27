@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-27 20:14** 
+> ## **本文件最后更新于2020-12-27 22:11** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_N0bR0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_LINz9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -4708,8 +4708,11 @@ rp是做不久的。
 
 
 
+ 本帖最后由 pllllum 于 2020-12-27 20:20 编辑 
 
 rp队友环节还挺可爱的，有反差萌
+弹幕v8浓度有点高，专门为了a团下载抖音的人不少啊，赢麻了
+低情商:主播编弹幕，高情商:都是原创弹幕
 
 
 
@@ -4724,11 +4727,776 @@ rp队友环节还挺可爱的，有反差萌
 
 
 
+ 本帖最后由 from1926 于 2020-12-27 20:16 编辑 
 
-前面的分析基本都说中了，听得出来一直很紧张。。老社恐了。。
-
-
-
+前面的分析基本都说中了，听得出来开始很紧张，老社恐了。。不过首播开局拉胯也算a团的特色了（前几个都有），等到唱歌环节应该会好一些吧
 
 
-                                         
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 244#       发表于 2020-12-27 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861198&amp;ptid=1974517" target="_blank">from1926 发表于 2020-12-27 20:13</a>
+
+前面的分析基本都说中了，听得出来开始很紧张，老社恐了。。不过首播开局拉胯也算a团的特色了（前几个都有 ...</blockquote>
+说明都是真的素人  之前肯定都没搞过直播
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 245#       发表于 2020-12-27 20:22
+
+
+
+
+工具人能处吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Peris  
+##### 246#       发表于 2020-12-27 20:23
+
+
+
+
+难为她硬凹人设了
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 247#       发表于 2020-12-27 20:27
+
+
+
+
+歌担居然是个阴角，想不到
+
+
+
+
+
+
+
+-----
+
+####  芸芸提不起劲  
+##### 248#       发表于 2020-12-27 20:29
+
+
+
+
+珈乐声音比想象中软好多，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 249#       发表于 2020-12-27 20:29
+
+
+
+ 本帖最后由 pllllum 于 2020-12-27 20:31 编辑 
+
+击掌戳中萌点了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+很难不gachi<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 250#       发表于 2020-12-27 20:38
+
+
+
+
+现在来看这个人设真的好微妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看本人能不能突破自己吧，比较第一次直播
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 251#       发表于 2020-12-27 20:42
+
+
+
+
+运营还是得谢罪，可能看嘉然首播和向晚首播2.0 效果好就飘了。
+
+
+
+
+
+
+
+-----
+
+####  Peris  
+##### 252#       发表于 2020-12-27 20:49
+
+
+
+
+这肯定是运营写的台本，等一个道歉好吧
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 253#       发表于 2020-12-27 20:51
+
+
+
+
+有比这还灾难的首播吗？乐华你都准备了些什么啊
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 254#       发表于 2020-12-27 20:52
+
+
+
+ 本帖最后由 すみぺ 于 2020-12-27 21:00 编辑 
+
+编辑了 妈的这唱两句tm突然不唱了是咋回事 太拉跨了 放后台听简直灾难<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  from1926  
+##### 255#       发表于 2020-12-27 20:53
+
+
+
+ 本帖最后由 from1926 于 2020-12-27 20:55 编辑 
+
+来了首我喜欢的歌，但是唱的。。就不是很合适。。我个人不是很喜欢这个人设和声线的搭配。。
+
+
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 256#       发表于 2020-12-27 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861516&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2020-12-27 20:51</a>
+
+有比这还灾难的首播吗？乐华你都准备了些什么啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不禁夸，根本不禁夸。等下周二的QA运营来谢罪。
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 257#       发表于 2020-12-27 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861530&amp;ptid=1974517" target="_blank">すみぺ 发表于 2020-12-27 20:52</a>
+索性歌唱的能听</blockquote>
+唱歌也没法听啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都唱了些什么啊，一小时三首，要么是催眠的，要么是三俗烂歌
+
+这就是抖音风格吗
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 258#       发表于 2020-12-27 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861544&amp;ptid=1974517" target="_blank">寒星 发表于 2020-12-27 20:54</a>
+
+唱歌也没法听啊这都唱了些什么啊，一小时三首，要么是催眠的，要么是三俗烂歌
+
+
+这就是抖音风格吗 ...</blockquote>
+只能建议下周来b站搞个首播2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 259#       发表于 2020-12-27 20:56
+
+
+
+
+这唱的都是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  from1926  
+##### 260#       发表于 2020-12-27 20:58
+
+
+
+
+我宁可她整个30首歌耐久连唱到下播。。
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 261#       发表于 2020-12-27 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几首下来都是弱的不行的歌。。
+
+我还以为这种人设应该是唱大歌的，老是唱这种能听出来个屁啊
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 262#       发表于 2020-12-27 21:02
+
+
+
+
+哪怕唱几首甜歌都好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 263#       发表于 2020-12-27 21:03
+
+
+
+
+就这也太不摇滚了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 264#       发表于 2020-12-27 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861590&amp;ptid=1974517" target="_blank">寒星 发表于 2020-12-27 21:00</a>
+
+几首下来都是弱的不行的歌。。
+
+
+我还以为这种人设应该是唱大歌的，老是唱这种能听出来个屁啊 ...</blockquote>
+我觉得她的唱功最多就是比普通人强一些而已  远不如这几天刚冒出来的环姐惊艳   
+
+
+
+
+
+
+
+-----
+
+####  Peris  
+##### 265#       发表于 2020-12-27 21:06
+
+
+
+
+感觉是嘉然乃琳两个高手带三个小孩
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 266#       发表于 2020-12-27 21:08
+
+
+
+
+开播1h 07min，终于跳舞了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+跳的还行。
+
+运营不行。
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 267#       发表于 2020-12-27 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861639&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-27 21:06</a>
+我觉得她的唱功最多就是比普通人强一些而已  远不如这几天刚冒出来的环姐惊艳    ...</blockquote>
+所以她基本上是拉闸了，比向晚还拉，向晚拉还有点像人设，她拉是真的拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 268#       发表于 2020-12-27 21:09
+
+
+
+
+未来可期 未来可期<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 269#       发表于 2020-12-27 21:11
+
+
+
+
+下播了会不会去找嘉然嘤嘤嘤呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 270#       发表于 2020-12-27 21:13
+
+
+
+ 本帖最后由 临界点 于 2020-12-27 21:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861658&amp;ptid=1974517" target="_blank">寒星 发表于 2020-12-27 21:08</a>
+
+所以她基本上是拉闸了，比向晚还拉，向晚拉还有点像人设，她拉是真的拉 ...</blockquote>
+向晚也得靠嘉然才能出彩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  我发现像她们这种3D  如果是一个人直播除了跳舞有用外真没啥作用  但联动的话两人各种小动作还蛮有意思的
+
+
+
+
+
+
+
+-----
+
+####  Peris  
+##### 271#       发表于 2020-12-27 21:19
+
+
+
+
+这™唱得是个啥啊😭😭😭能不能整点别人唱不了的歌
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 272#       发表于 2020-12-27 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861714&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-27 21:13</a>
+
+向晚也得靠嘉然才能出彩或者我们应该期待下次嘉然带着珈乐直播会是什么效果  我发现像她们 ...</blockquote>
+珈乐的问题绝对不是靠队友带就能解决的，她本人拿的皮离自己太偏了，然后rp能力也不行，所有人里就她给人感觉最突兀最别扭，其他人顶多是有点太二次元了受不了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 273#       发表于 2020-12-27 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861779&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2020-12-27 21:21</a>
+珈乐的问题绝对不是靠队友带就能解决的，她本人拿的皮离自己太偏了，然后rp能力也不行，所有人里就她给人 ...</blockquote>
+之前觉得二次元浓度太低，现在是太二次元了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 274#       发表于 2020-12-27 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861779&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2020-12-27 21:21</a>
+
+珈乐的问题绝对不是靠队友带就能解决的，她本人拿的皮离自己太偏了，然后rp能力也不行，所有人里就她给人 ...</blockquote>
+设定都是可以改的    但确实是比较社恐型  有队员在可能会好一些吧   话说像这种性格也会想着去当练习生也是比较奇怪的事
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 275#       发表于 2020-12-27 21:24
+
+
+
+
+嘉然永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer"> 管人这块被她玩明白了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 276#       发表于 2020-12-27 21:26
+
+
+
+
+珈乐有点像刚进歌姬的墨汐吧，不过珈乐这边压力比墨汐当时大多了，多让嘉然或者向晚带一带直播可能好点
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 277#       发表于 2020-12-27 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861800&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2020-12-27 21:23</a>
+
+之前觉得二次元浓度太低，现在是太二次元了嘛</blockquote>
+就初中女生那种二次元，有点腻的那种
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 278#       发表于 2020-12-27 21:31
+
+
+
+
+没看向晚2077首播，真的很拉吗
+
+我感觉小剧场和糖豆人都播的不错啊
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 279#       发表于 2020-12-27 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861871&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-27 21:31</a>
+
+没看向晚2077首播，真的很拉吗
+
+我感觉小剧场和糖豆人都播的不错啊</blockquote>
+作为首播肯定是拉的，作为一般游戏直播倒没什么
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 280#       发表于 2020-12-27 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861871&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-27 21:31</a>
+
+没看向晚2077首播，真的很拉吗
+
+我感觉小剧场和糖豆人都播的不错啊</blockquote>
+2077主要问题是当时没有经验，2077炒不起气氛加上向晚主要是氪金母猪人设有点问题。这边能让我觉得哪都有问题。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 281#       发表于 2020-12-27 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861871&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-27 21:31</a>
+
+没看向晚2077首播，真的很拉吗
+
+我感觉小剧场和糖豆人都播的不错啊</blockquote>
+嘉然神回首播在前，向晚的首播1.0对比一下就确实拉了。
+
+好在首播2.0和之后找准了吃瘪系捧哏的定位，观感一下子暴涨。可以考虑开个德云社分社。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 282#       发表于 2020-12-27 21:38
+
+
+
+
+珈乐以后直播还是唱戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 283#       发表于 2020-12-27 21:41
+
+
+
+
+珈乐加油吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 284#       发表于 2020-12-27 21:54
+
+
+
+
+最后十五分钟勉强还行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+前面真的是折磨和煎熬。
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 285#       发表于 2020-12-27 21:54
+
+
+
+
+感觉还是太紧张了 音色不错<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Peris  
+##### 286#       发表于 2020-12-27 22:07
+
+
+
+
+听说最后哭了？这™是个啥啊😭
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 287#       发表于 2020-12-27 22:10
+
+
+
+
+强还是v8老哥强，基本都说中了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+多练级吧。还是未来可期的。
+
+
+
+
+
+                                        
