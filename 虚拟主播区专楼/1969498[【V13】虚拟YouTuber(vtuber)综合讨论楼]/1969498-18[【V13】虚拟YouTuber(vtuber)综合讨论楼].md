@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-28 02:05** 
+> ## **本文件最后更新于2020-12-28 12:04** 
 
 
 
@@ -24873,4 +24873,551 @@ https://twitter.com/rariemonn765/status/1343214335003295744?s=19
 
 
 
-         
+
+
+-----
+
+####  絵生voice  
+##### 26715#       发表于 2020-12-28 02:29
+
+
+
+ 本帖最后由 絵生voice 于 2020-12-28 02:53 编辑 
+
+
+<img src="https://p.sda1.dev/0/668ae1cd3f69d7235047f16f2e34fd34/IMG_CMP_3106866.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26716#       发表于 2020-12-28 02:33
+
+
+
+
+外面混了一天回来原来cover又死🐎了，真是太棒啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+SYL：
+
+眼神不错
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/023403ducqmqy0fczksczc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqPmVpwU0AYamYO.jpg</strong> (173.49 KB, 下载次数: 6)
+
+下载附件
+
+2020-12-28 02:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 26717#       发表于 2020-12-28 09:05
+
+
+
+
+S1FUN看V综偶尔会闪退，其他S1FUN用户有这种现象吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 26718#       发表于 2020-12-28 09:20
+
+
+
+
+色批rurudo老师，我爱了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26719#       发表于 2020-12-28 09:41
+
+
+
+
+【#にじFes2021　メインステージ】
+
+
+2/28(日)『月ノ美兎&amp;樋口楓&amp;Rain Drops ステージ』に出演予定の童田明治ですが、喉の不調により大事を取ってお休みさせていただくため、今回の出演を辞退させていただきます。
+
+楽しみにしていた皆さま、誠に申し訳ございません。
+
+
+阿菜？！？！？！
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 26720#       发表于 2020-12-28 10:13
+
+
+
+
+阿菜摸了一个多月了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26721#       发表于 2020-12-28 10:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/101500rillsslgnaj81g2i.png" referrerpolicy="no-referrer">
+
+
+<strong>nga.178.com_read.php_tid=24854765.png</strong> (27.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 10:15 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26722#       发表于 2020-12-28 10:24
+
+
+
+
+提前2个月喉咙不适，其实就是已经不想玩了。。这就是天下的19组，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 26723#       发表于 2020-12-28 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49863599&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-28 01:03</a>
+
+https://www.youtube.com/watch?v=Fn1Rcqg0w-Q
+
+【ドーナドーナ】わるいことしよう！</blockquote>
+有点劲啊，不过确实有和谐模式，略过H，不过有些女的叫声不会和谐<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26724#       发表于 2020-12-28 10:37
+
+
+
+
+菜姨是隐退不想玩了还是准备跳槽了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26725#       发表于 2020-12-28 10:44
+
+
+
+
+不太基德但不会是新冠了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 26726#       发表于 2020-12-28 10:47
+
+
+
+
+猜测管人身体状况有恙到底基德还是卜基德<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26727#       发表于 2020-12-28 10:48
+
+
+
+
+休养了，还是想参加live的。
+
+[https://www.universal-music.co.jp/raindrops/news/2020-12-28/](https://www.universal-music.co.jp/raindrops/news/2020-12-28/)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 26728#       发表于 2020-12-28 10:49
+
+
+
+
+最近舞台事故真多啊，怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26729#       发表于 2020-12-28 10:53
+
+
+
+
+之前那次直播的时候应该还没啥，有出去走走还唱了歌，现在就....
+希望她身体健康吧，哪怕跳槽神椿去唱难听歌也比真的病休好
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26730#       发表于 2020-12-28 11:04
+
+
+
+
+希望阿菜没事
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26731#       发表于 2020-12-28 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">阿菜
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26732#       发表于 2020-12-28 11:13
+
+
+
+
+このたび、ホロライブ運営と「桃鈴ねね」との協議の結果、「桃鈴ねね」のメイン衣装を変更することをお知らせいたします。配信日は2021年1月31日（木）を予定しております。
+
+<img src="https://img.saraba1st.com/forum/202012/28/111311wmbwnj42ebbebtxz.png" referrerpolicy="no-referrer">
+
+
+<strong>d30268-336-341973-5.png</strong> (127.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 11:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26733#       发表于 2020-12-28 11:15
+
+
+
+
+叶，新衣装！
+29日
+明天！
+终于要换掉起球毛衣了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26734#       发表于 2020-12-28 11:24
+
+
+
+
+这不还是包子头吗，改什么了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26735#       发表于 2020-12-28 11:24
+
+
+
+
+这不还是包子头吗，改什么了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 26736#       发表于 2020-12-28 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服装变得轻飘飘了更偶像一点。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26737#       发表于 2020-12-28 11:32
+
+
+
+
+ねね真正要修的是她那个截瘫L2D，太不自然了，和446也差太远了
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 26738#       发表于 2020-12-28 11:33
+
+
+
+
+菜姐姐这看来真的要无了啊。一个月没动一动就是这消息
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 26739#       发表于 2020-12-28 11:33
+
+
+
+
+nene她那无时无刻都在傻笑的脸都快成特色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26740#       发表于 2020-12-28 11:47
+
+
+
+
+等等，那口了怎么说
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26741#       发表于 2020-12-28 11:53
+
+
+
+
+194现在就一个郡道烂人在动，这合理吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26742#       发表于 2020-12-28 11:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/115833zmmwhow37hmu3aot.jpg" referrerpolicy="no-referrer">
+
+
+<strong>冰火.jpg</strong> (80.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 11:58 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26743#       发表于 2020-12-28 12:01
+
+
+
+
+11岁，哎，早日康复<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
