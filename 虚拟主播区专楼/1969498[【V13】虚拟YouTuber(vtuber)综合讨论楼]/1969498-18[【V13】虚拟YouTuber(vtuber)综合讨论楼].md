@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-28 12:04** 
+> ## **本文件最后更新于2020-12-28 18:04** 
 
 
 
@@ -25420,4 +25420,612 @@ nene她那无时无刻都在傻笑的脸都快成特色了<img src="https://stat
 
 
 
-        
+
+
+-----
+
+####  Vneet  
+##### 26744#       发表于 2020-12-28 12:27
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-28 11:13
+このたび、ホロライブ運営と「桃鈴ねね」との協議の結果、「桃鈴ねね」のメイン衣装を変更することをお知ら ...</blockquote>
+“协议的结果”？虽然大概只是再说人设RP，不过新衣装用这个词挺新鲜的。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26745#       发表于 2020-12-28 12:37
+
+
+
+ 本帖最后由 caupollen 于 2020-12-28 12:43 编辑 
+
+过于中国风的人设会引起现在holo一些有反中血液观众的中国ptsd，这是为了留下这些照顾这些观众的情绪<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 26746#       发表于 2020-12-28 12:47
+
+
+
+
+啊不就是把原来那件土到爆的衣服换掉吗。毕竟作为纸片偶像，偶像服比现实里的常服还土也是有够好笑的
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 26747#       发表于 2020-12-28 13:17
+
+
+
+
+主要就是现在的衣服太debuff，主衣服3d是用最多跟好久的，本人不满不就换了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 26748#       发表于 2020-12-28 13:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/134744veg3qppedjwxz3fy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (400.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 13:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26749#       发表于 2020-12-28 13:52
+
+
+
+
+之前虹官方入驻虹迪，有几位录了视频进行自我介绍，
+
+矢車りね的口语还挺好的
+[https://www.reddit.com/r/Nijisan ... uma_from_nijisanji/](https://www.reddit.com/r/Nijisanji/comments/kkxm9c/hellloooooo_%C2%B3_%C2%B3_%C2%B3_im_rine_yaguruma_from_nijisanji/)
+
+
+朝日南アカネ
+[https://www.reddit.com/r/Nijisan ... hina_a_vtuber_from/](https://www.reddit.com/r/Nijisanji/comments/kkwq9w/bakuponchi_im_akane_asahina_a_vtuber_from/)
+
+西園チグサ
+[https://www.reddit.com/user/Chigusa_Nishizono](https://www.reddit.com/user/Chigusa_Nishizono)
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26750#       发表于 2020-12-28 13:59
+
+
+
+
+感觉虹EN1期出道应该比想象的快
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 26751#       发表于 2020-12-28 14:03
+
+
+
+ 本帖最后由 FCCHua 于 2020-12-28 14:05 编辑 
+
+贴一个sky的https://www.reddit.com/r/Nijisanji/comments/kkc4cc/how_are_you_feeling_today_im_kana_sukoya_vtuber/
+以及b站熟肉 https://b23.tv/7WCyWJ
+今晚她又要和noor她们联动了，可以听英语了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 26752#       发表于 2020-12-28 14:07
+
+
+
+
+老爱有牌面啊，第二次上了。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 26753#       发表于 2020-12-28 14:16
+
+
+
+
+《脱中国》不愧是fh企业 永远能够把握当下最in的fh潮流
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26754#       发表于 2020-12-28 14:29
+
+
+
+
+管人无关
+ <blockquote>任天堂株式会社（本社：京都市南区、代表取締役社長：古川俊太郎、以下「当社」）が、株式会社マリカー（現商号：株式会社MARIモビリティ開発、本店：東京都品川区、以下「被告会社」）及びその代表取締役（以下、併せて「被告ら」）に対して2017年2月24日に提起した訴訟において、被告らから上告受理の申し立てがなされておりましたが、2020年12月24日付で最高裁判所第一小法廷において、本件を上告審として受理しないとする決定が下されました。これにより、知的財産高等裁判所において被告会社に対する不正競争行為の差止等及び被告らに対する5,000万円の損害賠償金の支払いを命じた控訴審判決が確定いたしましたのでお知らせいたします。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26755#       发表于 2020-12-28 15:14
+
+
+
+
+西园寺今早朝活不错，应该是2020年最后一次了吧？
+花了老大时间收集日本全国各地的推荐食品食品还做了几个排行榜，挺有意思的，
+疫情快结束吧！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26756#       发表于 2020-12-28 15:38
+
+
+
+<img src="https://p.sda1.dev/0/58e3c10e0c55ad034e69601d51926828/IMG_CMP_167623979.png" referrerpolicy="no-referrer">
+
+昨晚船长杂谈还是挺神回的 一转对各个身边女人的看法 ，并且粽子也在评论区视奸互动，传统船粽营业，以及一转连麦傻紫润润火鸡，很让人回归初心的快乐。
+<img src="https://p.sda1.dev/0/13bc9f1e9f1065f9450356b025e5fe1a/IMG_CMP_256850657.jpeg" referrerpolicy="no-referrer">
+
+读sc的时候还发生了一天和推特互动同步的趣事
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26757#       发表于 2020-12-28 15:44
+
+
+
+<img src="https://s3.ax1x.com/2020/12/28/rTnr5D.png" referrerpolicy="no-referrer">
+
+草，碰到一之濑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 26758#       发表于 2020-12-28 16:30
+
+
+
+
+可能跟管人有0.5的关系
+[https://twitter.com/egg_wrkn/status/1343013636881567744](https://twitter.com/egg_wrkn/status/1343013636881567744)
+
+常用字幕对应字体表
+<[img src="https://i.loli.net/2020/12/28/Nfa4AUb56nHrm2G.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/12/28/4I5YSX9dtgBRrU8.png" referrerpolicy="no-referrer">
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|很有帮助|
+| qesto| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 26759#       发表于 2020-12-28 16:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/163932o4xr9yiuuu5xyu9e.png" referrerpolicy="no-referrer">
+
+
+<strong>夏色吹雪.png</strong> (403.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 16:39 上传
+
+
+
+
+ <blockquote>夏色吹雪</blockquote>贴给谁看哦 你永远可以相信阿希的脑回路
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 26760#       发表于 2020-12-28 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49869342&amp;ptid=1969498" target="_blank"> Kanchiki 发表于 2020-12-28 16:40</a>  引用:夏色吹雪贴给谁看哦 你永远可以相信阿希的脑回路 附件： </blockquote>
+别尬黑，两debu抱团取暖呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26761#       发表于 2020-12-28 17:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/170258fhqy55ekcqqhhgyq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqUBpubUwAAsst7.jpg</strong> (363.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 17:02 上传
+
+
+
+
+
+
+
+画师好懂，从皆守开始数，假JK、OL、人妻、JD
+
+
+属性和衣服搭配的很好，和个人直播风格也很搭，我是佩服的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好看|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26762#       发表于 2020-12-28 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49869342&amp;ptid=1969498" target="_blank">Kanchiki 发表于 2020-12-28 16:40</a>
+贴给谁看哦 你永远可以相信阿希的脑回路</blockquote>
+额，郡道美玲赞了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26763#       发表于 2020-12-28 17:22
+
+
+
+
+不省一楼，
+虹麻将杯出预告了，舞元主催，露易丝力一社解说，64人参加，郡道雀魂地狱再临
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26764#       发表于 2020-12-28 17:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 和雀魂合作的虚拟liver会有好下场吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26765#       发表于 2020-12-28 17:29
+
+
+
+[https://www.youtube.com/watch?v=NnDILRX1fss&amp;feature=youtu.be](https://www.youtube.com/watch?v=NnDILRX1fss&amp;feature=youtu.be)
+
+嘿，holo你真把ng集配上手k动画做出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26766#       发表于 2020-12-28 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49869848&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-28 17:25</a>
+和雀魂合作的虚拟liver会有好下场吗</blockquote>
+郡道实质虹避雷针，在她被劈死前不用怕的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26767#       发表于 2020-12-28 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49869904&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-28 17:30</a>
+ 郡道实质虹避雷针，在她被劈死前不用怕的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">这种时候我就推荐唯一指定麻将游戏雀龙门了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26768#       发表于 2020-12-28 17:42
+
+
+
+
+叶师赌马的最后好像提了一句会参加，要是能好好学一学以后打麻将爱护一下观众血压就好了
+
+顺便他最协可能是和kiss部的人一起，期待了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26769#       发表于 2020-12-28 17:48
+
+
+
+
+最协黑黑拆了？
+能不能来个黑黑相爱相杀的戏码
+一边喊着相方的名字一边斩杀<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 26770#       发表于 2020-12-28 17:49
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2020-12-28 17:53 编辑 
+
+麻将有64人参与，新手应该很多吧，集训什么时候来一个
+
+syl，最协黑黑还真拆了，比赛公布的时候就想过叶葛千拆开每人各带一队，应该会更有意思一点，没想到还真拆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 26771#       发表于 2020-12-28 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26772#       发表于 2020-12-28 18:02
+
+
+
+
+也不是第一次拆了，上次组队就是和kamito和admin
+
+
+不过kiss部，总不能是信长吧<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 26773#       发表于 2020-12-28 18:02
+
+
+
+<blockquote>Kanchiki 发表于 2020-12-28 16:40
+贴给谁看哦 你永远可以相信阿希的脑回路</blockquote>
+白皮吃夏吹那套吗？
+
+
+
+
+
+       
