@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-28 22:06** 
+> ## **本文件最后更新于2020-12-29 02:03** 
 
 
 
@@ -26739,6 +26739,25 @@ Zzsyl，不破虾皇葛皇v最协组队了，是时候给不破皇的封号了�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|衣服太多了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -26918,14 +26937,420 @@ Bsyl，新春！にじさんじ麻雀杯二0二一主催 舞元
 
 
 
+ 本帖最后由 -rm7- 于 2020-12-28 22:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49872524&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-28 22:03</a>
 哎，哎！
 郡道apex打枪命中率惨不忍睹，于是买了个打枪练习游戏，乖乖，效果跟闭眼打得一眼，就打个移动的 ...</blockquote>
-是那个aim hero嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个太硬核了不适合qpex这种持续跟枪把
+是那个aim hero嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个太硬核了不适合apex这种持续跟枪游戏吧
 那玩意适合练拉枪定位
 
 
 
 
 
-      
+
+
+-----
+
+####  -rm7-  
+##### 26802#       发表于 2020-12-28 22:10
+
+
+
+
+Bsyl
+
+<img src="https://p.sda1.dev/0/3de68010cc20d6b7851c1e3ba49b94b7/IMG_CMP_114492344.jpeg" referrerpolicy="no-referrer">
+
+啊祭的喝酒杂谈
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26803#       发表于 2020-12-28 22:16
+
+
+
+<blockquote>十四洲 发表于 2020-12-28 20:55
+2434新春麻雀杯参赛名单
+
+截全图的话太多了，搞了个只有名字的（复制的时候神秘地出现了卵用
+
+</blockquote>
+发现mao和夜见名字又是挨到一起的，马车杯她俩也是，感觉可能是一起报名的，最近看mao和夜见的各种互动看出了mahimiki 的感觉，mao就是mahiro 位各种姬佬特有的不安，夜见铁直女一直无所谓然后又反复挑逗mao，这俩人是不是会复刻mahimiki 啊，我好期待，等一个直播撕破脸
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26804#       发表于 2020-12-28 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49872677&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-28 22:16</a>
+
+发现mao和夜见名字又是挨到一起的，马车杯她俩也是，感觉可能是一起报名的，最近看mao和夜见的各种互动看 ...</blockquote>
+草，mao那么可爱，你怎么忍心安排这么毒的剧情给她
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26805#       发表于 2020-12-28 22:31
+
+
+
+
+太怪了太怪了，vr领先本社<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26806#       发表于 2020-12-28 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49872677&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-28 22:16</a>
+
+发现mao和夜见名字又是挨到一起的，马车杯她俩也是，感觉可能是一起报名的，最近看mao和夜见的各种互动看 ...</blockquote>
+你说的这个mahimiki到底是不是mihiru……
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26807#       发表于 2020-12-28 23:20
+
+
+
+<blockquote>poipanchao 发表于 2020-12-28 23:06
+你说的这个mahimiki到底是不是mihiru……</blockquote>
+是的是的，原来这对是叫mihiru么
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 26808#       发表于 2020-12-28 23:35
+
+
+
+
+金憨憨这家用3d 有点可爱
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 26809#       发表于 2020-12-28 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49873392&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-28 23:20</a>
+是的是的，原来这对是叫mihiru么</blockquote>
+本来按照11区双人命名规律确实应该这么叫的
+但是国内有更自由的缩略方式<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26810#       发表于 2020-12-28 23:58
+
+
+
+
+最近木口同接是不是低了不少，啥情况啊
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 26811#       发表于 2020-12-28 23:59
+
+
+
+<img src="http://i2.tiimg.com/688038/a708287c50cb9ef6.png" referrerpolicy="no-referrer">
+<img src="http://i2.tiimg.com/688038/ef1e6e52e6e6ab4a.png" referrerpolicy="no-referrer">
+<img src="http://i2.tiimg.com/688038/5af85a13c5493af5.png" referrerpolicy="no-referrer">
+<img src="http://i2.tiimg.com/688038/9c07bffc2a52bb3a.png" referrerpolicy="no-referrer">
+
+经过11个小时的战斗，虽然出门1小时直播睡觉5小时...但是大小姐的家用3d终于设置成功了！真是太可爱了！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26812#       发表于 2020-12-29 00:03
+
+
+
+
+你郡会限赶人去看大小姐3D程度的可爱…
+后悔没去看了，郡道说话听着难受<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 26813#       发表于 2020-12-29 00:07
+
+
+
+
+月灵的第一张fanart？看把她高兴的
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 26814#       发表于 2020-12-29 00:09
+
+
+
+ 本帖最后由 εRemastered 于 2020-12-29 00:11 编辑 
+
+鹰宫这个3D 虽然是弹一下但是仿佛衣服可动性很高一样 有意思
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26815#       发表于 2020-12-29 00:15
+
+
+
+
+感觉3d比2d好诶，没那么憨了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26816#       发表于 2020-12-29 00:30
+
+
+
+
+建议直接叫国产六字母
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26817#       发表于 2020-12-29 00:36
+
+
+
+
+都有fanart了还不投稿点新歌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 26818#       发表于 2020-12-29 00:52
+
+
+
+
+我其实早就想问怎么还没有大佬画fanart了，终于来了
+她好激动好可爱，希望能带给月灵姐更多信心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+po一下吧还是，感谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/90319f70ffb6a6ce95a408d51c15f11d/IMG_CMP_252324214.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 26819#       发表于 2020-12-29 01:00
+
+
+
+
+上推看了下，因为这fanart连发四条推还真是高兴坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 26820#       发表于 2020-12-29 01:15
+
+
+
+[https://www.youtube.com/watch?v=lCwUPLcnCV8](https://www.youtube.com/watch?v=lCwUPLcnCV8)
+
+狮子的笑声虽然很姨，但还是很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|音量注意|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 26821#       发表于 2020-12-29 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49873831&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-29 00:15</a>
+
+感觉3d比2d好诶，没那么憨了</blockquote>
+三瓣嘴没有了，坏起来了
+
+
+
+
+
+     
