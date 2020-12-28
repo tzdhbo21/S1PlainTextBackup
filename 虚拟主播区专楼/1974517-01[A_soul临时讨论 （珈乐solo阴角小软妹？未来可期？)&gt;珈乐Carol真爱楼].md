@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-28 18:12** 
+> ## **本文件最后更新于2020-12-28 22:13** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_f9lwQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_TMmsh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -6499,7 +6499,7 @@ V8怎么自己打起来了<img src="https://static.saraba1st.com/image/smiley/fa
 
 
 
-就离谱，v8还发起正义春来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这首播这么拉胯也能护的吗，说难听点是炸箱级表现了。
+就离谱，v8还发起正义春来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这首播以及后续应对这么拉胯也能护的吗，说难听点是炸箱级表现了。
 
 这事运营赶紧出来公关一下才是真的，让观众在下面打来打去是不会有好结果的
 
@@ -6507,4 +6507,524 @@ V8怎么自己打起来了<img src="https://static.saraba1st.com/image/smiley/fa
 
 
 
-                                      
+
+
+-----
+
+####  deadpoem  
+##### 337#       发表于 2020-12-28 18:14
+
+
+
+
+这抖音录播也太麻了吧，在B站发抖音录播是在挑衅叔叔和B友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 338#       发表于 2020-12-28 18:19
+
+
+
+
+维阿新人比这首播拉胯的多的是，怎么就炸箱级了
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 339#       发表于 2020-12-28 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870330&amp;ptid=1974517" target="_blank">pllllum 发表于 2020-12-28 18:19</a>
+
+维阿新人比这首播拉胯的多的是，怎么就炸箱级了</blockquote>
+真的吗，八期生之后没看过首播了，八期之前感觉没有特别拉胯的
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 340#       发表于 2020-12-28 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870345&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-28 18:21</a>
+真的吗，八期生之后没看过首播了，八期之前感觉没有特别拉胯的</blockquote>
+看看卡欧斯首播
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 341#       发表于 2020-12-28 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870330&amp;ptid=1974517" target="_blank">pllllum 发表于 2020-12-28 18:19</a>
+维阿新人比这首播拉胯的多的是，怎么就炸箱级了</blockquote>
+维阿国企那能比吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来舆论环境就差了，前面打了几手好牌现在都炸成这样了，这位要是直播顺序排前面一点asoul直接就寄了
+
+
+
+
+
+
+
+-----
+
+####  万圣节～  
+##### 342#       发表于 2020-12-28 18:27
+
+
+
+ 本帖最后由 万圣节～ 于 2020-12-28 18:30 编辑 
+
+珈乐删了什么动态？
+看了眼评论区，怎么都在说别退出？珈乐什么时候说要退出？还是说是v8自己发散的
+
+syl  官号也搞笑，之前几次的录播怎么都不发，光把圣诞的发了。
+
+zsyl 不知道这两天还有直播没<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我想然然和贝拉了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|v8日常团建犯病罢了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 343#       发表于 2020-12-28 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870282&amp;ptid=1974517" target="_blank">deadpoem 发表于 2020-12-28 18:14</a>
+
+这抖音录播也太麻了吧，在B站发抖音录播是在挑衅叔叔和B友吗</blockquote>
+这有什么？ N站油管录播那么多 为啥抖音的就不行？ 再说了B站抖音的视频还少吗
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 344#       发表于 2020-12-28 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870390&amp;ptid=1974517" target="_blank">万圣节～ 发表于 2020-12-28 18:27</a>
+
+珈乐删了什么动态？
+
+看了眼评论区，怎么都在说别退出？珈乐什么时候说要退出？还是说是v8自己发散的 ...</blockquote>
+v8和泥哥的少数共同点之一，贷款吃屎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 345#       发表于 2020-12-28 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870390&amp;ptid=1974517" target="_blank">万圣节～ 发表于 2020-12-28 18:27</a>
+珈乐删了什么动态？
+看了眼评论区，怎么都在说别退出？珈乐什么时候说要退出？还是说是v8自己发散的 ...</blockquote>
+目前都是V8脑补的，官号装死中
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 346#       发表于 2020-12-28 18:29
+
+
+
+
+真不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么搞的世界末日一样
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 347#       发表于 2020-12-28 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870282&amp;ptid=1974517" target="_blank">deadpoem 发表于 2020-12-28 18:14:09</a>
+这抖音录播也太麻了吧，在B站发抖音录播是在挑衅叔叔和B友吗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">可能是因为抖音的弹幕比较正常所以才发的抖音录播吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 348#       发表于 2020-12-28 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870375&amp;ptid=1974517" target="_blank">寒星 发表于 2020-12-28 18:25</a>
+
+维阿国企那能比吗本来舆论环境就差了，前面打了几手好牌现在都炸成这样了，这位要是直播顺序排前 ...</blockquote>
+首播失败这个锅运营和珈乐55开
+
+号称项目准备2年，结果连个有点学习能力和应变能力的后勤团队都凑不出来是吧😅
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 349#       发表于 2020-12-28 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870426&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-28 18:31</a>
+
+首播失败这个锅运营和珈乐55开
+
+号称项目准备2年，结果连个有点学习能力和应变能力的后勤团队都凑不出来是 ...</blockquote>
+别尬黑，6点下班了，遵守劳动法的公司爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 350#       发表于 2020-12-28 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870391&amp;ptid=1974517" target="_blank">临界点 发表于 2020-12-28 18:27</a>
+
+这有什么？ N站油管录播那么多 为啥抖音的就不行？ 再说了B站抖音的视频还少吗 ...</blockquote>
+抖B双推流，结果发了个录得不太好的抖音录播
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 351#       发表于 2020-12-28 18:52
+
+
+
+
+话说珈乐抖音人气为何这么少啊，连官组号都不如
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 352#       发表于 2020-12-28 18:55
+
+
+
+<blockquote>万圣节～ 发表于 2020-12-28 18:27
+珈乐删了什么动态？
+
+看了眼评论区，怎么都在说别退出？珈乐什么时候说要退出？还是说是v8自己发散的
+</blockquote>
+珈乐删了b站的视频和抖音一些播放少的视频
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 353#       发表于 2020-12-28 18:56
+
+
+
+<blockquote>与太郎 发表于 2020-12-28 18:52
+话说珈乐抖音人气为何这么少啊，连官组号都不如</blockquote>
+我看微博抖音有说觉得珈乐不够酷girl的，可能跟这个有关系，本身这个人设也不那么大众向
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 354#       发表于 2020-12-28 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">删就是因为有抖音icon，而且不好看，删了。你B允许散户搬运抖音视频吸流量，但遇到其他资本，你懂得。
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 355#       发表于 2020-12-28 19:02
+
+
+
+<blockquote>海底铁锚 发表于 2020-12-28 18:56
+删就是因为有抖音icon，而且不好看，删了。你B允许散户搬运抖音视频吸流量，但遇到其他资本，你懂得 ...</blockquote>
+抖音好像也删了吧，我不太清楚
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 356#       发表于 2020-12-28 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870738&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2020-12-28 19:02</a>
+抖音好像也删了吧，我不太清楚</blockquote>
+抖音没删<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 357#       发表于 2020-12-28 19:06
+
+
+
+<blockquote>海底铁锚 发表于 2020-12-28 19:04
+抖音没删</blockquote>
+那是我被v8误导了
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 358#       发表于 2020-12-28 20:13
+
+
+
+ 本帖最后由 与太郎 于 2020-12-28 20:41 编辑 
+
+[https://www.bilibili.com/video/BV1Gp4y1B7ci](https://www.bilibili.com/video/BV1Gp4y1B7ci)
+来自虚拟沙口
+
+配音版来了
+
+
+
+
+
+
+
+-----
+
+####  芸芸提不起劲  
+##### 359#       发表于 2020-12-28 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870629&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-28 18:52</a>
+话说珈乐抖音人气为何这么少啊，连官组号都不如</blockquote>
+抖音好像是真实人数吧
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 360#       发表于 2020-12-28 20:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49871327&amp;ptid=1974517" target="_blank">芸芸提不起劲 发表于 2020-12-28 20:13</a>
+
+抖音好像是真实人数吧</blockquote>
+不是说直播人气，本身我也是为看珈乐直播专门下了抖音，其他人抖音直播人气怎样不清楚（真要说的话，因为抖限8u大量涌入，直播人气应该比其他人双推的高）
+
+组内其他人都是20w+粉丝，就珈乐一个不到13w（官组都有15w了），昨天直播也就涨了几千粉，这很有问题
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 361#       发表于 2020-12-28 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49871405&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-28 20:21</a>
+
+不是说直播人气，本身我也是为看珈乐直播专门下了抖音，其他人抖音直播人气怎样不清楚（真要说的话，因为 ...</blockquote>
+昨天那个直播效果，不掉粉就不错了
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 362#       发表于 2020-12-28 21:18
+
+
+
+
+所以嘉然下次直播啥时候，我有点出现禁断症状了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+嘉然…我的嘉然……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  逸yi  
+##### 363#       发表于 2020-12-28 21:27
+
+
+
+
+明天就有公告啦
+
+
+
+
+
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 364#       发表于 2020-12-28 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49869638&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2020-12-28 20:06</a>
+
+V8怎么自己打起来了</blockquote>
+内战是v8特色,不得不尝
+
+
+
+
+
+                                     
