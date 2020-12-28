@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-28 00:04** 
+> ## **本文件最后更新于2020-12-28 20:04** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_Jnyll" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_f6sZD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14328,10 +14328,12 @@ TC播
 
 
 
- 参与人数 4战斗力 +5
+ 参与人数 6战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 黒長直姫| + 1|都是中文看不懂啊|
+| Dualist彩| + 1|好评加鹅|
 | 鷹書たかしょ| + 2||
 | Mr.shelter| + 1|好评加鹅|
 | KarinC| + 1|好评加鹅|
@@ -14360,4 +14362,584 @@ TC播
 
 
 
-                      
+
+
+-----
+
+####  IrisL  
+##### 6816#       发表于 2020-12-28 00:07
+
+
+
+
+真不怪mixi
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6817#       发表于 2020-12-28 07:17
+
+
+
+
+转生。。。。。
+
+                 
+
+全是你楼车过的，究竟是麻是你楼意志的集中表现，还是你楼是麻的意识合集，目前尚不得知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6818#       发表于 2020-12-28 07:27
+
+
+
+
+给劲哦
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6819#       发表于 2020-12-28 09:07
+
+
+
+
+麻酱哪有楼友这么巨魔，她是小天使大可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 6820#       发表于 2020-12-28 09:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">又是美好的一天
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6821#       发表于 2020-12-28 11:52
+
+
+
+
+中午有时隔已久的白毛紫毛mc联动<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+             
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6822#       发表于 2020-12-28 11:52
+
+
+
+
+哦对了，指koyori和noe<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6823#       发表于 2020-12-28 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6824#       发表于 2020-12-28 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6825#       发表于 2020-12-28 12:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/124232tc2cccpl0io5cgkc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0BA67112-9548-4724-9367-92ECE11285AC.jpeg</strong> (320.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 12:42 上传
+
+
+
+
+
+
+
+前面还有个凌晨4点的fleet
+
+<img src="https://img.saraba1st.com/forum/202012/28/124339jky55k0ygsx70ns5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7CC8527A-C1A1-4AAB-9CEE-4C5DE94B744E.jpeg</strong> (32.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 12:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6826#       发表于 2020-12-28 13:12
+
+
+
+
+我的白毛紫毛回来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6827#       发表于 2020-12-28 13:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/131945mch6ajsh7ms87dbm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>35BB8CFC-5B31-406C-A09E-EC44B843BE58.jpeg</strong> (397.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 13:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6828#       发表于 2020-12-28 13:34
+
+
+
+
+先奶一口她从老家回来头两天有一场桃铁联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 6829#       发表于 2020-12-28 14:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白毛经典睡过头
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6830#       发表于 2020-12-28 15:51
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-28 16:14 编辑 
+
+这桃铁比想象中内容多啊，三次联动才17年打的像圣杯战争一样。之前认为一次打8年，只要联动7次还是太保守了。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6831#       发表于 2020-12-28 16:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/162241q31bruiioav1l66t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2d245eca0a46f21ff615ac17e1246b600d33ae45.jpg</strong> (505.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 16:22 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/162241p6g2gfmdiw02wwgg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>89638c763912b31bbd4d3f6d9118367adbb4e145.jpg</strong> (533.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 16:22 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/162242nllrfcoptdo4oaoe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f03f47d8f2d3572c3ac36e989d13632763d0c345 (1).jpg</strong> (321.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 16:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6832#       发表于 2020-12-28 16:23
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/162334lzb6l4wd3nznbb3n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dfc3f12b2834349b51fa96c1deea15ce34d3bee2.jpg</strong> (454.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 16:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6833#       发表于 2020-12-28 16:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/28/162446tcdp2a378d7xp3gz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7b251cdab6fd52660aa5c450bc18972bd60736dc.jpg</strong> (296.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-28 16:24 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+| Mr.shelter| + 1|帮大忙了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 6834#       发表于 2020-12-28 16:37
+
+
+
+
+7点油管歌回
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6835#       发表于 2020-12-28 16:56
+
+
+
+
+今年最后的麻酱 呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6836#       发表于 2020-12-28 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">今年再也看不到蟹女人了吗
+
+不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6837#       发表于 2020-12-28 17:25
+
+
+
+
+临行前的告别<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6838#       发表于 2020-12-28 19:13
+
+
+
+
+怎么我喜欢的妹子都喜欢nino<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6839#       发表于 2020-12-28 19:18
+
+
+
+
+明年3月份就能喝酒、赌马逛牛郎店了。
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 6840#       发表于 2020-12-28 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不安。得赶紧想个法子把小麻关起来
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6841#       发表于 2020-12-28 19:30
+
+
+
+
+正好赶上开唱
+
+
+
+
+
+
+
+-----
+
+####  vegetable  
+##### 6842#       发表于 2020-12-28 19:49
+
+
+
+
+又是发情
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6843#       发表于 2020-12-28 19:50
+
+
+
+
+这大概就是tc歌回的感觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
