@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 00:01** 
+> ## **本文件最后更新于2020-12-30 02:02** 
 
 
 
@@ -3047,7 +3047,7 @@ V最強決定戦のメンバー
 
 
 Screenshot_20201229-202821776 (1).jpg
-(61.5 KB, 下载次数: 0)
+(61.5 KB, 下载次数: 1)
 
 
 
@@ -3582,10 +3582,11 @@ lga剪出来劈兔子的那个帖子，热评的那些翻翻记录都是啥阳�
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mafise|-2|平衡|
 | 空集| + 1|扒皮|
 | admentus| + 1|好评加鹅|
 
@@ -3767,10 +3768,11 @@ syl，除了10月底看过那段时间几个夸的知名切片和两首歌，我
 
 
 
- 参与人数 1战斗力 -2
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mafise| + 2|回血|
 | nowaki|-2|不缺您这点鹅|
 
 
@@ -3890,10 +3892,11 @@ crew还等着主子赶紧辞职脱离苦海呢，跟我们路灯人不是一路�
 
 
 
- 参与人数 5战斗力 +1
+ 参与人数 6战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mafise|-1|平衡|
 | 飞姆托|-1|棕姨不算人吗|
 | admentus| + 1||
 | 目力干员leison| + 1|“乐人者终将被人乐”|
@@ -4011,6 +4014,25 @@ crew无论是在滚出cn之前还是之后，那种我家夸夸最强，其他�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mafise|-2|杏奴差不多得了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4090,10 +4112,11 @@ zsyl，自己反感你扣你的，别说得好像楼友反应都和你一样，�
 
 
 
- 参与人数 7战斗力 +4
+ 参与人数 8战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mafise| + 1|草，免费哥武德|
 | einne| + 1|欢乐多|
 | JoelBirch| + 1|欢乐多|
 | 2L模仿47哥| + 1|欢乐多|
@@ -4864,7 +4887,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_m4T1W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_m2CDT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -5140,7 +5163,7 @@ u助妈妈的贺图头身比就正常了不少（更有美女的感觉
 <img src="https://img.saraba1st.com/forum/202012/29/230556gjxtul88v8j6yrvf.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EqadXuWU8AEFGam.jpg</strong> (267.29 KB, 下载次数: 0)
+<strong>EqadXuWU8AEFGam.jpg</strong> (267.29 KB, 下载次数: 1)
 
 下载附件
 
@@ -5469,4 +5492,225 @@ cover是退出中国了啊，不是退出bilibili，这杏仁还觉得能抬起�
 
 
 
-                                        
+
+
+-----
+
+####  cheatdeath3  
+##### 27292#       发表于 2020-12-30 00:24
+
+
+
+
+cover是退出了，可crew还没退出啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+服务无国界，公司有国籍。新时代人都树立自己的道路自信了，也就杏奴还在崇洋媚外，搞窝里斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 27293#       发表于 2020-12-30 00:28
+
+
+
+
+你指的是
+“糊姨又在硬蹭漫威，吐了”这种道路自信吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+说起来这招跟谁学的，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27294#       发表于 2020-12-30 00:48
+
+
+
+ 本帖最后由 OldGlory 于 2020-12-30 00:50 编辑 
+
+风宫祭退出balus
+
+
+バルスは29日、同社に所属するVTuber・風宮まつりさんが12月31日で独立して活動を続けることを発表した。
+
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 27295#       发表于 2020-12-30 00:53
+
+
+
+
+妈的又错过了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，时差党太难了
+
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27296#       发表于 2020-12-30 00:53
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-12-30 00:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883960&amp;ptid=1969498" target="_blank">Map-2 发表于 2020-12-30 00:28</a>
+
+你指的是
+
+“糊姨又在硬蹭漫威，吐了”这种道路自信吗
+
+说起来这招跟谁学的，嘻嘻 ...</blockquote>
+当然是支持支持中国，或者支持至少不反对中国的公司或个人势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+落后腐朽的杏奴应进行思想上的自我改造，争做积极向上的新时代人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 27297#       发表于 2020-12-30 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883360&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2020-12-29 22:51</a>
+草，素质太差了
+这弹幕导向略怪……
+syl，又是这个怪游戏，可以做新的咏叹调了吗 ...</blockquote>
+有录播我就做<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+之前整的俩活播放全破万了我也是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 27298#       发表于 2020-12-30 01:17
+
+
+
+
+歌谣祭可以啊，牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+就是怎么不让露尊多跳会儿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27299#       发表于 2020-12-30 01:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/013614unni0hoonhz0goz2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqacwWKVgAEXb5p.jpg</strong> (203.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 01:36 上传
+
+
+
+
+
+[https://twitter.com/higeneko_tail/status/1343934051468472325](https://twitter.com/higeneko_tail/status/1343934051468472325)
+
+<img src="https://img.saraba1st.com/forum/202012/30/013656sl3ubpebbluollcj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqZn86gUUAAdWmQ.jpg</strong> (247.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 01:36 上传
+
+
+
+
+
+[https://twitter.com/ya_Tsubo603/status/1343875843567673347](https://twitter.com/ya_Tsubo603/status/1343875843567673347)
+
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 27300#       发表于 2020-12-30 01:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我也错过了曰曰曰
+
+感谢各位repo
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27301#       发表于 2020-12-30 01:50
+
+
+
+
+我们尼轰人都在看最强的鬼灭之刃，你怎么在看漫威啊，能不能开除日籍
+
+
+
+
+
+                                       
