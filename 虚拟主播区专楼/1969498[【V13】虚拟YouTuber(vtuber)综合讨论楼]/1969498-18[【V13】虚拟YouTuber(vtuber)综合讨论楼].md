@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-29 18:04** 
+> ## **本文件最后更新于2020-12-29 20:03** 
 
 
 
@@ -28617,11 +28617,2089 @@ crew看到这一幕要PTSD了<img src="https://static.saraba1st.com/image/smiley
 
 
 
+ 本帖最后由 IDIDIDID 于 2020-12-29 18:04 编辑 
 
 还有PV的吗这么奢侈
 
 
+能不能让我看一下虹studio一次性能捉几个人
 
 
 
-    
+
+
+
+
+-----
+
+####  黑之和  
+##### 26881#       发表于 2020-12-29 18:05
+
+
+
+
+排面啊<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+这次最多能上几个人啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26882#       发表于 2020-12-29 18:06
+
+
+
+
+才发现是在尊妈台 还以为是官号
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 26883#       发表于 2020-12-29 18:07
+
+
+
+
+电竞女孩的最高指示 <blockquote>눈보라❄️💜ヌンボラ【NIJISANJI KR】 
+
+@BoraNun2434
+
+✌️</blockquote>
+にじさんじ公式🌈🕒 
+
+@nijisanji_app
+
+【「#にじさんじアーカイブス 2020-2021」予約受付中！】
+
+
+オフィシャルストア予約特典は『にじさんじアーカイブス2020-2021』のディレクターズカット版小冊子！
+
+
+本誌に入りきらなかった対談の掲載！
+
+海外ライバーの原語版も全員分収録しています！
+
+
+ご予約はこちら▼
+[https://shop.nijisanji.jp/s/niji/item/detail/SSZS-14010](https://shop.nijisanji.jp/s/niji/item/detail/SSZS-14010)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26884#       发表于 2020-12-29 18:08
+
+
+
+
+にじ人権：３Ｄ
+
+ホロ人権：アイドル服
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26885#       发表于 2020-12-29 18:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/29/180958hdudkj4zkxzcu4d7.png" referrerpolicy="no-referrer">
+
+
+<strong>2020 にじさんじユニット歌謡祭 : #NJU歌謡祭.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 18:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26886#       发表于 2020-12-29 18:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葵皇真唱震撼人心！
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 26887#       发表于 2020-12-29 18:10
+
+
+
+
+阿葵这唱的是个jb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26888#       发表于 2020-12-29 18:11
+
+
+
+
+就这？零下十几度冻的我手疼，就为了看来回左右摇摆？
+
+我瞬间低评价
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26889#       发表于 2020-12-29 18:11
+
+
+
+
+这数字如同坐上火箭一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26890#       发表于 2020-12-29 18:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也怪不得索尼不理你了，是我我也……
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26891#       发表于 2020-12-29 18:12
+
+
+
+
+安全裤差评<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 26892#       发表于 2020-12-29 18:14
+
+
+
+
+怎么还有一首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26893#       发表于 2020-12-29 18:15
+
+
+
+
+《对比》
+
+阿葵我们回家吧
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 26894#       发表于 2020-12-29 18:15
+
+
+
+
+只要我的3D足够可爱，就没有人会在意我的唱功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26895#       发表于 2020-12-29 18:15
+
+
+
+
+不如狐皇跳的好
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26896#       发表于 2020-12-29 18:15
+
+
+
+
+七姨太这还是各方面有点处刑小肥葵的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26897#       发表于 2020-12-29 18:15
+
+
+
+
+你虹这是没有还是没用cover那种手持摄影阿
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26898#       发表于 2020-12-29 18:17
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm4w7vbb3oj20xv0iy40z.jpg" referrerpolicy="no-referrer">
+
+
+这就是传说中的……胸部喊麦吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26899#       发表于 2020-12-29 18:17
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-29 18:19 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202012/29/181754ubx1xk57hh7kce7z.gif" referrerpolicy="no-referrer">
+
+
+<strong>Untitled-1.gif</strong> (405.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 18:17 上传
+
+
+
+
+
+
+
+
+七姨太身高比露露设定身高矮么？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26900#       发表于 2020-12-29 18:18
+
+
+
+
+其实这样也好，最拉夸的先上了，后面就算车祸了也不可能比这个还垃圾了，
+
+尊这就是你的计策吗
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26901#       发表于 2020-12-29 18:19
+
+
+
+
+阿葵这3d也还是有点拉垮啊，行不行啊，能不能给二姐修一下
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 26902#       发表于 2020-12-29 18:20
+
+
+
+
+起码大家跳起来了，还有整活，算是很好的利用了3D的优势
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 26903#       发表于 2020-12-29 18:21
+
+
+
+
+让露皇当场处刑葵皇是哪个小天才想的主意
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26904#       发表于 2020-12-29 18:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/29/182055ycy49gut8cx66xf8.gif" referrerpolicy="no-referrer">
+
+
+<strong>Untitled-1.gif</strong> (94.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 18:20 上传
+
+
+
+
+
+
+🦄：🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪🔪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26905#       发表于 2020-12-29 18:21
+
+
+
+
+走是l2d上的 感觉还不错
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26906#       发表于 2020-12-29 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我露可爱，升天了
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26907#       发表于 2020-12-29 18:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修的时候把男人们的也顺便修修吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26908#       发表于 2020-12-29 18:23
+
+
+
+
+应该是老的一批都没修过，下巴和社长对比更明显
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26909#       发表于 2020-12-29 18:23
+
+
+
+
+刀社长这个组合可以哈！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26910#       发表于 2020-12-29 18:24
+
+
+
+
+下巴x社长<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26911#       发表于 2020-12-29 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">社长和下巴合唱，帅啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26912#       发表于 2020-12-29 18:25
+
+
+
+
+虹男上了之后同接劲增暴增天元突破
+
+就是这midi伴奏也太拉跨了，看来没找专门做的
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26913#       发表于 2020-12-29 18:26
+
+
+
+
+社长还是顶，气氛起来了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26914#       发表于 2020-12-29 18:26
+
+
+
+
+间奏也太草了
+不管是正坐社长
+还是虚空吉他刀也<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26915#       发表于 2020-12-29 18:26
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-29 18:28 编辑 
+
+刀也和社长台风差了还挺多的，帅啊
+
+这两人差了有十岁吧
+
+全场最拉垮3d出现了！给一哥修一下啊，这么一看刀也模型真精致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26916#       发表于 2020-12-29 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刀也可以啊 没雌堕
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26917#       发表于 2020-12-29 18:27
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-29 18:28 编辑 
+
+王、登场
+
+
+王唱歌原来还挺好听的
+
+
+SYL
+
+SC像垃圾一样涌过来了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26918#       发表于 2020-12-29 18:28
+
+
+
+
+王的3d什么时候修修
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26919#       发表于 2020-12-29 18:28
+
+
+
+
+二连虹男后数字如火箭开始喷火了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26920#       发表于 2020-12-29 18:28
+
+
+
+
+iqkr能不能给葛件正装，能上台就行阿
+穿了多久红拖鞋了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26921#       发表于 2020-12-29 18:29
+
+
+
+
+葛叶继续毛拖鞋啊....
+看到个弹幕说社长脚艺人，笑死
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26922#       发表于 2020-12-29 18:30
+
+
+
+
+葛叶这3D是真的拉跨，ickr在干嘛，这可是金矿阿。
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26923#       发表于 2020-12-29 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来是唱两首就进入MC环节的模式
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26924#       发表于 2020-12-29 18:31
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-29 18:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/29/183631iz71g74gvleovgot.png" referrerpolicy="no-referrer">
+
+
+<strong>2020 にじさんじユニット歌謡祭 : #NJU歌謡祭-2.png</strong> (943.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 18:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 26925#       发表于 2020-12-29 18:31
+
+
+
+ 本帖最后由 帕克桑 于 2020-12-29 18:34 编辑 
+
+葛尊来了！？无互动 低评价了
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 26926#       发表于 2020-12-29 18:31
+
+
+
+
+这种有时间录就可以随便量产的live有必要用新3D嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  橘子火火火  
+##### 26927#       发表于 2020-12-29 18:31
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26928#       发表于 2020-12-29 18:31
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-29 18:36 编辑 
+
+找走和牛郎来客串就可以避免尊采访葛叶了，原来如此。
+
+
+SYL：
+
+2434的3D的脸和表情的问题还是和杏有差距的。
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26929#       发表于 2020-12-29 18:32
+
+
+
+
+葛叶：小黄毛看见了吗
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26930#       发表于 2020-12-29 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49880851&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-29 18:31</a>
+
+找走和牛郎来客串就可以避免尊采访葛叶了，原来如此。</blockquote>
+但是避免不了葛皇一出声尊妈就在右下角掩嘴笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26931#       发表于 2020-12-29 18:34
+
+
+
+
+这种日子，就特别想为某露脸女歌手招魂<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26932#       发表于 2020-12-29 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 有什么那么好笑的阿，阿尊看到葛叶在台上笑得也太开心了吧
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26933#       发表于 2020-12-29 18:35
+
+
+
+
+弦月，yyd工具人
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26934#       发表于 2020-12-29 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刀也这一直翻白眼
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26935#       发表于 2020-12-29 18:36
+
+
+
+
+草，楼友一说，我仔细看了还真是，葛叶一说话，尊就捂脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26936#       发表于 2020-12-29 18:37
+
+
+
+
+女々しくて草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26937#       发表于 2020-12-29 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">葛尊隔空联动的机会越来越多了，什么时候能看到葛尊线下扭扭乐
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 26938#       发表于 2020-12-29 18:38
+
+
+
+
+这动作太傻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26939#       发表于 2020-12-29 18:38
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-29 18:39 编辑 
+
+这跳的唱的都什么玩意？？？你虹的广播体操和木口不是一个版本而已。
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 26940#       发表于 2020-12-29 18:39
+
+
+
+
+没有对比就没有伤害，这也就0.5杏吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26941#       发表于 2020-12-29 18:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这在干嘛啊
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26942#       发表于 2020-12-29 18:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这大小姐故意的吧，草
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26943#       发表于 2020-12-29 18:40
+
+
+
+
+但是女々しくて我记得金爆原唱就是这么瞎蹦的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26944#       发表于 2020-12-29 18:41
+
+
+
+
+那咋办嘛，活狠的要不就是请不来要不就是没3D。
+
+
+SYL：
+
+天皇和德龙可以不要搞这种整活曲吗求求了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26945#       发表于 2020-12-29 18:41
+
+
+
+
+这摄像机也很迷啊，上面蹦就算了你蹦什么？？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26946#       发表于 2020-12-29 18:41
+
+
+
+
+听到这首歌就气，你虹cover砖，说好要搞宣传pv，就出个了皇女的然后啥都没了，货也搞不出，咋？你虹没赚到<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">？
+
+省一楼，上次尊纪念也是，每次大小姐都是唱着唱着就笑了，就不要选这种谐曲嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26947#       发表于 2020-12-29 18:41
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-29 18:44 编辑 
+
+amigo！是谁
+
+草，露露恶魔，这绝对是故意不好好唱吧，快给安排个原声吉他
+[https://www.youtube.com/watch?v=C_S3zafsUOE](https://www.youtube.com/watch?v=C_S3zafsUOE)
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26948#       发表于 2020-12-29 18:41
+
+
+
+
+免费的大家图一乐就行了
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 26949#       发表于 2020-12-29 18:42
+
+
+
+
+所有对着德比的镜头都是灾难<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26950#       发表于 2020-12-29 18:42
+
+
+
+
+考拉这二连不累死……
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26951#       发表于 2020-12-29 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 女liver有我露压阵，
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26952#       发表于 2020-12-29 18:42
+
+
+
+
+免费的0.5杏还不够用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 26953#       发表于 2020-12-29 18:43
+
+
+
+
+本质2434年会卡拉ok<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26954#       发表于 2020-12-29 18:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喘起来了
+
+
+
+
+
+
+
+-----
+
+####  hlazd  
+##### 26955#       发表于 2020-12-29 18:44
+
+
+
+
+喘得有点色<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 26956#       发表于 2020-12-29 18:44
+
+
+
+
+美大生这唱的跟背景音乐似的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26957#       发表于 2020-12-29 18:44
+
+
+
+
+什么原来是真的给mic stand装动捕了吗？为什么在奇怪的地方用心了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26958#       发表于 2020-12-29 18:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 我私心怀疑，这是阿尊为了某个人专门组织的了，
+
+
+线下卡拉ok联谊，女猎手和男猎物，男猎人和女猎物，狩猎场！
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26959#       发表于 2020-12-29 18:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">整的跟卡拉ok差不多
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 26960#       发表于 2020-12-29 18:45
+
+
+
+
+露皇这喘气声就是行走的asmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26961#       发表于 2020-12-29 18:45
+
+
+
+
+别的说起码露葵和露考拉的舞蹈都是排练过的。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26962#       发表于 2020-12-29 18:46
+
+
+
+
+德比露露好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+好期待露皇live啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 26963#       发表于 2020-12-29 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 草，她们自己都承认是忘年会了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26964#       发表于 2020-12-29 18:48
+
+
+
+
+全场最佳：尊坐着甩腿
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26965#       发表于 2020-12-29 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">听德比唱歌好折磨（死
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 26966#       发表于 2020-12-29 18:49
+
+
+
+
+尊的腿好色<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 26967#       发表于 2020-12-29 18:49
+
+
+
+
+我是看出来了，谁是编外就把谁支到B站去做B限<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26968#       发表于 2020-12-29 18:50
+
+
+
+
+求摄影机往尊那边放大点
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26969#       发表于 2020-12-29 18:51
+
+
+
+
+来几个人表演漫才就圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，
+明年吧！（如果虹还有明年）
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 26970#       发表于 2020-12-29 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么多人要用3d，录像都要录好久的
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26971#       发表于 2020-12-29 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还带广告的广告都轮不上VR 好歹挂官网上的啊
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 26972#       发表于 2020-12-29 18:52
+
+
+
+
+如果只能听一个唱歌
+考拉和葵你们选哪个
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26973#       发表于 2020-12-29 18:53
+
+
+
+
+ＣＭくそ長すぎ<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 26974#       发表于 2020-12-29 18:53
+
+
+
+ 本帖最后由 十四洲 于 2020-12-29 18:56 编辑 
+
+多拉在B限歌回，这歌力不够上nju？葛本都在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://live.bilibili.com/22376014](https://live.bilibili.com/22376014)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 26975#       发表于 2020-12-29 18:53
+
+
+
+
+尊妈要来了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 26976#       发表于 2020-12-29 18:54
+
+
+
+
+vr果然是塞纳河，有id都不带你。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26977#       发表于 2020-12-29 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49881050&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-29 18:53</a>
+ＣＭくそ長すぎ</blockquote>
+但是在广告中涨上10w了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26978#       发表于 2020-12-29 18:54
+
+
+
+
+感觉，RRR要来了？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26979#       发表于 2020-12-29 18:55
+
+
+
+
+阿 rrr  这组之前live就感觉很好<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26980#       发表于 2020-12-29 18:55
+
+
+
+
+金憨憨这真唱吗？
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 26981#       发表于 2020-12-29 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大小姐这不就唱的挺好的，刚才那首什么玩意（错乱
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 26982#       发表于 2020-12-29 18:56
+
+
+
+
+尊的小动作太到位了，王牌机师
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 26983#       发表于 2020-12-29 18:57
+
+
+
+
+无料vs6000円gif大量发生中
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 26984#       发表于 2020-12-29 18:57
+
+
+
+
+月灵爹还有种菠萝的雅兴吗？真牛批啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26985#       发表于 2020-12-29 18:57
+
+
+
+
+葛叶我🔪了你
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26986#       发表于 2020-12-29 18:58
+
+
+
+
+这兔皇又要被NGA对比图辱了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 26987#       发表于 2020-12-29 18:58
+
+
+
+
+不是全生唱吧，大小姐歌力可以但也没这么稳，
+我流泪了，尊唱🍎<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 26988#       发表于 2020-12-29 18:59
+
+
+
+
+第二天该跳也跳过了  尼哥差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+尊妈力一强强舞台
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26989#       发表于 2020-12-29 18:59
+
+
+
+
+老爱live因为机材问题延期了，日本人你行不行阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26990#       发表于 2020-12-29 18:59
+
+
+
+
+目抜き通り虹这边和声也出事，我安心了。
+
+
+卧槽第二段居然调过来了，力一牛逼阿
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 26991#       发表于 2020-12-29 18:59
+
+
+
+
+6000VS无料，如果有个正面固定的机位就好了
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 26992#       发表于 2020-12-29 19:00
+
+
+
+
+尊小动作真好看，好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 26993#       发表于 2020-12-29 19:00
+
+
+
+
+A.I.Channel【重要なお知らせ】機材トラブルにより開演時間が遅れる見込みです。状況がわかり次第、再度お知らせいたします。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 26994#       发表于 2020-12-29 19:01
+
+
+
+
+这和声血炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 26995#       发表于 2020-12-29 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典器材故障
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 26996#       发表于 2020-12-29 19:01
+
+
+
+
+6000vs无料.mp3大量发生中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 26997#       发表于 2020-12-29 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49881101&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-29 18:57</a>
+葛叶我🔪了你</blockquote>
+差不多得了
+
+
+
+
+
+
+
+-----
+
+####  midearth  
+##### 26998#       发表于 2020-12-29 19:02
+
+
+
+
+这么拉跨，一来就器材故障
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 26999#       发表于 2020-12-29 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49880851&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-29 18:31</a>
+找走和牛郎来客串就可以避免尊采访葛叶了，原来如此。
+
+
+SYL：</blockquote>
+采访动作明显不是本人，应该是staff代打
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27000#       发表于 2020-12-29 19:03
+
+
+
+
+这都第几次器材故障了，真就全员草台啊
+
+
+
+
+
