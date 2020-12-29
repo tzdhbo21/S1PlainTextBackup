@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 00:14** 
+> ## **本文件最后更新于2020-12-29 10:05** 
 
 
 
@@ -1882,7 +1882,7 @@ BV13f4y1i7wj
 
 
 
- 本帖最后由 Stellar_Frost 于 2020-12-8 02:42 编辑 
+ 本帖最后由 Stellar_Frost 于 2020-12-23 01:29 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49643405&amp;ptid=1974980" target="_blank">daikejay 发表于 2020-12-7 21:54</a>
 
 那玩意根本就是高达里的米粒，boss机就是插了俩伪炉的钢蛋，最后阶段各种五彩大炮超机动满天米粒 ...</blockquote>
@@ -1891,7 +1891,7 @@ BV13f4y1i7wj
 那个微型飞弹其实基本打不中人，电磁炮和球形盾也不难躲，然后本尊的飞行技术其实很差可以一直咬尾，跟他绕圈见缝插针机炮+烧火棍磨死就行，主要考验容错率
 
 
-论boss演出其实我还挺喜欢米老头那段的，在太阳前掠过，电磁炮口闪着充能的亮光
+论boss演出我还挺喜欢米老头那段的，在太阳前掠过，电磁炮口闪着充能的亮光
 
 
 
@@ -2361,4 +2361,593 @@ mark一下，ac7还没玩…<img src="https://static.saraba1st.com/image/smiley/
 
 
 
-                                             
+
+
+-----
+
+####  鹿斗典善  
+##### 123#       发表于 2020-12-13 01:07
+
+
+
+
+半生不熟夹杂机翻的中文翻译让我通关了也没看懂剧情，大部分信息还是事后看百科才了解的，不过还好，没有AC7那么脱力就是了
+
+
+另外机炮吊舱太强大，F15配机炮狗斗揍BOSS，SAA远程阴人，AGML清地面目标，基本通打全部关
+
+
+纯机炮那台机有点看不懂，全身狗斗武装却配了个三流机动性，跟电脑绕圈总绕不过来....
+
+
+
+
+
+
+
+-----
+
+####  920619lqy  
+##### 124#       发表于 2020-12-13 01:20
+
+
+
+<blockquote>鹿斗典善 发表于 2020-12-12 11:07
+半生不熟夹杂机翻的中文翻译让我通关了也没看懂剧情，大部分信息还是事后看百科才了解的，不过还好，没有AC ...</blockquote>
+那一台的三个机炮都是凑数的，主武器其实是它自己的机炮，射速极高。这游戏的railgun从弹速和伤害判定来看建议改成Charged Particle Cannon。
+
+
+
+
+
+
+
+-----
+
+####  鹿斗典善  
+##### 125#       发表于 2020-12-13 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49702242&amp;ptid=1974980" target="_blank">920619lqy 发表于 2020-12-13 01:20</a>
+
+那一台的三个机炮都是凑数的，主武器其实是它自己的机炮，射速极高。这游戏的railgun从弹速和伤害判定来 ...</blockquote>
+射程也挺可怕，用大目标测试了下大概8K~6K
+
+
+但操纵实在太累了，什么都得靠舔
+
+
+
+
+
+
+
+-----
+
+####  Hqchan  
+##### 126#       发表于 2020-12-13 02:53
+
+
+
+
+第一次玩这种游戏，之前类似的只接触过战雷
+开着简单还能遨游天空，试了把普通结果全程被导弹锁，打得晕头转向<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+往上走还有两个难度，无法想象怎么在全程被锁的情况下输出<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 127#       发表于 2020-12-13 03:17
+
+
+
+ 本帖最后由 Stellar_Frost 于 2020-12-13 03:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49702782&amp;ptid=1974980" target="_blank">Hqchan 发表于 2020-12-13 02:53</a>
+
+第一次玩这种游戏，之前类似的只接触过战雷
+
+开着简单还能遨游天空，试了把普通结果全程被导弹锁，打得晕头 ...</blockquote>
+这游戏热焰弹效果非常简单粗暴，就是一键清空所有锁定
+
+五秒一发，节奏稍微控制下就很舒服了，而且敌机的导弹比皇牌空战的还烧火棍
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 128#       发表于 2020-12-13 10:15
+
+
+
+ 本帖最后由 zzy516232108 于 2020-12-13 10:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">靠，这游戏板野马戏那关，我直接把所有导弹和机炮都打空了……
+
+这游戏的多重锁定也太烂了……根本打不中啊
+
+
+最后可耻的用了叮的力量，锁定了导弹数量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，是我太浪费了
+
+
+
+
+
+
+
+-----
+
+####  savagealexander  
+##### 129#       发表于 2020-12-13 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49661717&amp;ptid=1974980" target="_blank">realgyf1985 发表于 2020-12-9 15:37</a>
+
+请问一下VR效果如何？为了这个买VR头盔怎么样。我只体验过PS4上的AC7 VR模式，当时被震惊到了。一直琢磨 ...</blockquote>
+ac7 在pc上可以用第三方软件实现较为完美的全程vr
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 130#       发表于 2020-12-14 23:42
+
+
+
+ 本帖最后由 zzy516232108 于 2020-12-15 00:26 编辑 
+
+普通难度同通关，最后几关打的爽。
+
+然后这剧情根本看不懂，红1什么情况啊。
+
+两个队友说死就死了，莫名其妙的。
+
+虽然整个游戏都很谜，但是真好玩啊，原创机是固定装备的也太可惜了。
+
+
+原创机开了攻角这个雪风机动啥情况……我没看懂
+
+180度直接漂移掉头，吓得我我手柄差点掉地上
+
+
+
+
+
+
+
+-----
+
+####  灰色蔓延  
+##### 131#       发表于 2020-12-15 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49722609&amp;ptid=1974980" target="_blank">zzy516232108 发表于 2020-12-14 23:42</a>
+
+普通难度同通关，最后几关打的爽。
+
+然后这剧情根本看不懂，红1什么情况啊。
+
+两个队友说死就死了，莫名其妙 ...</blockquote>
+剧情大概就是几次骑你脸的crimson1终于被monarch干爆之后疯特了，贝尔卡症候发作+床单舰长附体。在独立军收复首都获得胜利的时候用炭铀弹全弹发射核平了同时也是自己祖国的首都，其他队友都被瞬间吹飞击坠（片尾对话中幸存）。就主角monarch在地狱风景中和crimson1单挑（佣兵难度boss还有复制人+僚机）。
+
+攻角限制器就是AC7里HI-G的超级版，开启后一段时间内强行减速瞬间改变机头指向。俗称米老头变身器
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 132#       发表于 2020-12-15 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49722609&amp;ptid=1974980" target="_blank">zzy516232108 发表于 2020-12-14 23:42</a>
+
+普通难度同通关，最后几关打的爽。
+
+然后这剧情根本看不懂，红1什么情况啊。
+
+两个队友说死就死了，莫名其妙 ...</blockquote>
+有名有姓的队友都没死，最高难度片尾有对话
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 133#       发表于 2020-12-16 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734250&amp;ptid=1974980" target="_blank">灰色蔓延 发表于 2020-12-15 23:29</a>
+
+剧情大概就是几次骑你脸的crimson1终于被monarch干爆之后疯特了，贝尔卡症候发作+床单舰长附体。在独立军 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这魔怔剧情，这作者真是深得ac剧情真传啊……
+
+红1最后飞机击坠了也是he//dan爆炸……这原创机是不是有什么问题
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 134#       发表于 2020-12-16 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734887&amp;ptid=1974980" target="_blank">zzy516232108 发表于 2020-12-16 00:34</a>
+这魔怔剧情，这作者真是深得ac剧情真传啊……
+
+红1最后飞机击坠了也是he//dan爆炸……这原创机是不 ...</blockquote>
+原创机动力源就是碳铀
+
+
+
+
+
+
+
+-----
+
+####  灰色蔓延  
+##### 135#       发表于 2020-12-16 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49734887&amp;ptid=1974980" target="_blank">zzy516232108 发表于 2020-12-16 00:34</a>
+
+这魔怔剧情，这作者真是深得ac剧情真传啊……
+
+红1最后飞机击坠了也是he//dan爆炸……这原创机是不 ...</blockquote>
+原创机PW MK1动力推进系统就是那帮子空中战舰飞艇同款炭铀引擎小型化高性能版（双炉高达或者是VF都能搭得上）。
+
+
+
+
+
+
+
+-----
+
+####  IL282  
+##### 136#       发表于 2020-12-16 13:38
+
+
+
+
+这游戏哪都好就是玩着累，到现在还没通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  有钱多买小人  
+##### 137#       发表于 2020-12-16 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49739901&amp;ptid=1974980" target="_blank">IL282 发表于 2020-12-16 13:38</a>
+这游戏哪都好就是玩着累，到现在还没通
+
+—— 来自 OnePlus IN2020, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+关键是没存档点。真就老ac。老年人已经离不开存档点了。
+
+
+
+
+
+
+
+-----
+
+####  920619lqy  
+##### 138#       发表于 2020-12-16 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49739901&amp;ptid=1974980" target="_blank">IL282 发表于 2020-12-15 23:38</a>
+
+这游戏哪都好就是玩着累，到现在还没通
+
+
+—— 来自 OnePlus IN2020, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+缺乏让我打下去的动力，发售后一天打三关打了三天就不想动了，过了好几天耐着性子把剩下的一个下午打完了，然后就不太想碰了
+
+
+
+
+
+
+
+-----
+
+####  灰色蔓延  
+##### 139#       发表于 2020-12-21 03:07
+
+
+
+
+最近想折腾下VR，问下1060应该能跑中特效VR吧？
+
+
+配置上看小派5k+是否能带的动不？另外玩翅膀人这种只移动视角的游戏是否单头显不需要基站定位就足够了？
+
+
+
+
+
+
+
+-----
+
+####  ramo  
+##### 140#       发表于 2020-12-21 08:59
+
+
+
+
+请教大佬们一个摇杆设置的问题，我用的莱仕达双翼摇杆。可以正常使用但是每次退出游戏重进都会丢失摇杆的键位和轴绑定设置。重装过驱动、改过用户文件下的设置INI文档，都搞不好。求大佬帮忙想想是什么问题。
+
+
+
+
+
+
+
+-----
+
+####  ramo  
+##### 141#       发表于 2020-12-21 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49619544&amp;ptid=1974980" target="_blank">allies 发表于 2020-12-5 16:09</a>
+
+打到突袭岛屿那关才发现ASM是反空艇的。。一发一个，喷了。airship也是ship，没毛病 ...</blockquote>
+你要不说我估计打通关了都不知道拿这个ASM有什么船可以炸
+
+
+
+
+
+
+
+-----
+
+####  夜留歌  
+##### 142#       发表于 2020-12-21 10:56
+
+
+
+
+之前只玩过AC7，还是玩的辅助模式，这个默认只有专家模式感觉转弯很不习惯，一不注意就歪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 143#       发表于 2020-12-21 14:16
+
+
+
+
+再玩了玩征服模式，该开始挑刺了
+画面和UI果然还是短板，有的地图画面明暗很不和谐，云经常过曝刺眼，调了调gamma感觉没救。
+进云层的时候UI也跟着晃，过曝的云叠在浅绿色的敌人框上再加上晃动可以说什么都看不见仿佛盲射。而且不清楚海拔变化根本不知道自己在往上还是往下飞。
+虽然ac7进云层偶尔也会有UI看不清的情况，但翅膀人这个更难受了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JAROD009  
+##### 144#       发表于 2020-12-21 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49791950&amp;ptid=1974980" target="_blank">灰色蔓延 发表于 2020-12-21 03:07</a>
+
+最近想折腾下VR，问下1060应该能跑中特效VR吧？
+
+
+配置上看小派5k+是否能带的动不？另外玩翅膀人这种只移动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你想多了，我2080都只能低特效4000*2000相对流畅，还不能稳90f
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 145#       发表于 2020-12-21 16:02
+
+
+
+ 本帖最后由 dumplingpro 于 2020-12-21 16:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49791950&amp;ptid=1974980" target="_blank">灰色蔓延 发表于 2020-12-21 03:07</a>
+
+最近想折腾下VR，问下1060应该能跑中特效VR吧？
+
+
+配置上看小派5k+是否能带的动不？另外玩翅膀人这种只移动 ...</blockquote>
+1060不要折腾小派，超大视角非常吃显卡。
+
+
+一般选择OC Quest 2，最便宜，但是需要折腾FB账号，这种调低勉强可以带（模飞类游戏大多都优化不佳）
+
+泥潭VR群 QQ 677498928
+
+
+
+
+
+
+
+-----
+
+####  灰色蔓延  
+##### 146#       发表于 2020-12-21 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797050&amp;ptid=1974980" target="_blank">JAROD009 发表于 2020-12-21 15:57</a>
+
+你想多了，我2080都只能低特效4000*2000相对流畅，还不能稳90f</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">那明年只能等着3系显卡本来再体验VR了
+
+
+
+
+
+
+
+-----
+
+####  cxasuka  
+##### 147#       发表于 2020-12-22 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49795867&amp;ptid=1974980" target="_blank">rainknine 发表于 2020-12-21 14:16</a>
+
+再玩了玩征服模式，该开始挑刺了
+
+画面和UI果然还是短板，有的地图画面明暗很不和谐，云经常过曝刺眼，调了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">征服简直是随机阴间地图大集合，警报30级刷出夜晚全黑的图打飞行舰队简直了，漫天巨型垃圾在你眼前乱晃随时撞死你没商量，就是一片漆黑看不见，根本是恐怖游戏
+
+
+
+
+
+
+
+-----
+
+####  920619lqy  
+##### 148#       发表于 2020-12-23 00:23
+
+
+
+<blockquote>rainknine 发表于 2020-12-21 00:16
+再玩了玩征服模式，该开始挑刺了
+
+画面和UI果然还是短板，有的地图画面明暗很不和谐，云经常过曝刺眼，调了 ...</blockquote>
+是，征服模式我第一次死是撞地上了。还有就是这模式的敌机数量和导弹数量不讲道理的，结果就是打到后面巨卡无比，直接卡成ppt
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 149#       发表于 2020-12-23 00:49
+
+
+
+ 本帖最后由 Stellar_Frost 于 2020-12-23 01:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49795867&amp;ptid=1974980" target="_blank">rainknine 发表于 2020-12-21 14:16</a>
+
+再玩了玩征服模式，该开始挑刺了
+
+画面和UI果然还是短板，有的地图画面明暗很不和谐，云经常过曝刺眼，调了 ...</blockquote>
+毕竟随机搭配的，然后那个云层非常安东骨灰云，说实在的总体体验算是不太能长玩的那种，低难度没挑战高难度堆怪严重，而且一个AClike搞随机地图其实就等于没有关卡设计嘛
+
+论打火鸡节奏把控必须褒扬一下AC7的M19和SP1，不过那是个268+138大洋的游戏，也不太好比
+
+然后高等级警报堆怪非常暴露CPU优化不行，如果开随机特武插件卡的会更厉害，我刷出30级警报成就之后就不想再打了，想打XPF可以去M21开双倍[打十个王者](https://www.bilibili.com/video/BV13f4y1i7wj)
+
+PW打火鸡还是玩个双倍M11最舒服，要再嗨一点就开玻璃大炮，完美还原老AC最高难度挨一发导弹即死；双倍M21有过关判定bug，如果两架boss机都被打进了最终形态，你把他们都击落也触发不了通关
+
+
+
+
+
+
+
+-----
+
+####  madcow  
+##### 150#       发表于 2020-12-27 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">买了隐藏机进去怎么只有机炮
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 151#       发表于 2020-12-29 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49855455&amp;ptid=1974980" target="_blank">madcow 发表于 2020-12-27 00:05</a>
+
+买了隐藏机进去怎么只有机炮</blockquote>
+有一架确实只有机炮
+
+不过这游戏机炮体验奇佳，弹速快、射速高、轨迹稳、伤害足，我拿到官方外挂PWmk1之前打ace战大多数击杀都是用的机炮
+
+
+
+
+
+                                            
