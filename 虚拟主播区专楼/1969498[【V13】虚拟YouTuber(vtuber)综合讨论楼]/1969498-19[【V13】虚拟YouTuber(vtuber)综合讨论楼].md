@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-29 22:03** 
+> ## **本文件最后更新于2020-12-30 00:01** 
 
 
 
@@ -3890,10 +3890,11 @@ crew还等着主子赶紧辞职脱离苦海呢，跟我们路灯人不是一路�
 
 
 
- 参与人数 4战斗力 +2
+ 参与人数 5战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 飞姆托|-1|棕姨不算人吗|
 | admentus| + 1||
 | 目力干员leison| + 1|“乐人者终将被人乐”|
 | 空集| + 1||
@@ -4089,10 +4090,13 @@ zsyl，自己反感你扣你的，别说得好像楼友反应都和你一样，�
 
 
 
- 参与人数 4战斗力 +1
+ 参与人数 7战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| einne| + 1|欢乐多|
+| JoelBirch| + 1|欢乐多|
+| 2L模仿47哥| + 1|欢乐多|
 | Map-2|-1|免费佬注意形象|
 | 空集|-1|免费直球露屁股也有人加鹅?|
 | OldGlory| + 2|今天的快乐|
@@ -4423,4 +4427,1046 @@ crew屁股这就不藏了？
 
 
 
-                                         
+
+
+-----
+
+####  katern  
+##### 27244#       发表于 2020-12-29 22:10
+
+
+
+
+月灵十分钟后在nico播
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27245#       发表于 2020-12-29 22:11
+
+
+
+
+月灵10分钟后开播
+
+
+
+
+
+
+`TRJCLGNF{B)NT$}4RS~7DG.png
+(23.69 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-29 22:11 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/29/221105cw1ct3d1uwn2q3ce.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| WDDzzZ| + 1|很关键兄弟|
+| JoelBirch| + 1|好！这次不会迟到了！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27246#       发表于 2020-12-29 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49882428&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-29 21:04</a>
+船长真是要死在这工商上</blockquote>
+真相了，现在在开这个垃圾手游抽卡，同接贼烂还没工商印号，真把自己玩死了。这游戏现在风评烂到在游戏圈都出名的年度粪手游，反正我是不忍心看了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 27247#       发表于 2020-12-29 22:16
+
+
+
+
+来来来,谁来上个免费直球"你妈也有五个男朋友"的图<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 27248#       发表于 2020-12-29 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883085&amp;ptid=1969498" target="_blank">kk89897 发表于 2020-12-29 22:16</a>
+
+来来来,谁来上个免费直球"你妈也有五个男朋友"的图</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/29/221636d0wh1sggowz1wkhq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20200930165735943.jpg</strong> (84.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 22:16 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kk89897| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27249#       发表于 2020-12-29 22:20
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-29 22:24 编辑 
+
+我终于可以说了，这个发型真的太丑了！太丑了！！
+
+偏分到底是哪个天才想出来的！本来就脸圆！现在更头大了！！不觉得很奇怪吗！！
+
+
+真的不行啊！！到底为什么一脸得意啊！！不行啊！
+
+
+衣服也好，头发也好，都不好看啊！！憋了一年为什么就出来这种东西啊！！翅膀也很奇怪啊！！
+
+中学生文艺汇演吗！啊！！
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27250#       发表于 2020-12-29 22:23
+
+
+
+ 本帖最后由 CAserlumos 于 2020-12-29 22:25 编辑 
+
+我觉着还不错<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27251#       发表于 2020-12-29 22:24
+
+
+
+
+非工商玩知名粪游戏花钱抽卡然后数字比平时极其惨淡巨大debuff的liver全业界我真的没见过第二个了，活活气死事业民
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 27252#       发表于 2020-12-29 22:24
+
+
+
+
+韩流チャラ男
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27253#       发表于 2020-12-29 22:26
+
+
+
+
+真的很丑吗？
+我觉得挺好看的啊<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+干净清爽的感觉
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 27254#       发表于 2020-12-29 22:26
+
+
+
+
+建议你们向起球毛衣道歉
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27255#       发表于 2020-12-29 22:27
+
+
+
+
+这不是甲斐田晴嘛！（玩笑）
+帅的啦还是，丑的一般都不敢发，像某人一样
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27256#       发表于 2020-12-29 22:27
+
+
+
+
+这皮鞋确实挺韩味的
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27257#       发表于 2020-12-29 22:29
+
+
+
+
+不过这个翅膀是不是有点小了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27258#       发表于 2020-12-29 22:29
+
+
+
+
+这个小翅膀好草生
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27259#       发表于 2020-12-29 22:32
+
+
+
+
+大哥！我就这个表情啊！啊！
+
+
+<img src="https://img.saraba1st.com/forum/202012/29/223245kfij3h0b7zn1i2p1.png" referrerpolicy="no-referrer">
+
+
+<strong>新衣装お披露目配信 ｜ 久しぶりの新衣装！待たせちゃったね。【にじさんじ:叶】.png.png</strong> (472.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 22:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 27260#       发表于 2020-12-29 22:33
+
+
+
+
+叶这新皮不是挺好的吗
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27261#       发表于 2020-12-29 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 27262#       发表于 2020-12-29 22:34
+
+
+
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_m4T1W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 27263#       发表于 2020-12-29 22:35
+
+
+
+<img src="https://p.sda1.dev/0/c8f785c34fbc3f034aaeb5b82f2bbe84/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 27264#       发表于 2020-12-29 22:35
+
+
+
+
+虽然我觉得没有上一套好看，但我觉得应该更多人觉得可爱，结束发推看看评论就了解了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27265#       发表于 2020-12-29 22:36
+
+
+
+
+月灵这直接聊契约者的演出和公演还行
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 27266#       发表于 2020-12-29 22:36
+
+
+
+
+偏分让这套衣服的油腻感增加了一倍，小辫子和发夹反倒还有一种清爽感
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 27267#       发表于 2020-12-29 22:37
+
+
+
+
+这头发不如改成中分，cos夏目贵志……
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 27268#       发表于 2020-12-29 22:39
+
+
+
+ 本帖最后由 flyskywalker92 于 2020-12-29 22:41 编辑 
+
+明年要哔哩哔哩播？说在准备
+
+
+不太确定 还有谁看了月灵的直播
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 27269#       发表于 2020-12-29 22:40
+
+
+
+
+完蛋，明年见……
+哦，还有两天就明年了呀，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兄啊你好几把怪  
+##### 27270#       发表于 2020-12-29 22:41
+
+
+
+
+实在是太韩国人了…………
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27271#       发表于 2020-12-29 22:41
+
+
+
+ 本帖最后由 caupollen 于 2020-12-29 22:59 编辑 
+
+月灵刚说 明年一月希望能哔哩哔哩播，皮已经找好了人在画了。
+
+什么时候能播取决于皮什么时候做好。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27272#       发表于 2020-12-29 22:45
+
+
+
+
+个人觉得这套衣服的魅力点
+解开一颗扣子的衬衣领口包括整段脖子（很有那种渣男学长的感觉
+毛衣下段露出的衬衣下摆
+露出指尖的左手
+恶感表情也不错（迎头碰见不想见的女人的表情
+比较生草的点
+把loto直接挂头上
+和超小的小学生风格翅膀（实装翅膀至少也要是mv里那种大小风格吧
+
+
+u助妈妈的贺图头身比就正常了不少（更有美女的感觉
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27273#       发表于 2020-12-29 22:46
+
+
+
+
+真的好油啊，到底怎么想的，韩流入侵吗
+
+本来还抱有会有拆分的幻想，这不是什么都没有吗
+
+显大还溜肩，第二件起球毛衣...我郑重地向葛皇的前两套新衣装道歉，你们还是好看的
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 27274#       发表于 2020-12-29 22:46
+
+，
+
+
+ 本帖最后由 fastary 于 2020-12-29 22:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虽然确实很韩流但也真的很帅啊，衬衣+毛线衫？一直是我看校园剧最中意的王道搭配（
+
+黑客新衣服看剪影感觉又是一套家居服+围裙差分，发型也只会多一撮小辫子，看游戏服其实我都要做好l2D不如亲妈设计图的心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 27275#       发表于 2020-12-29 22:46
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-12-29 23:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202012/29/230557zfw1mmmjpm17sqqb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqadY-1UUAAV6ty.jpg</strong> (287.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 23:05 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/29/230556gjxtul88v8j6yrvf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqadXuWU8AEFGam.jpg</strong> (267.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-29 23:05 上传
+
+
+
+
+
+
+[https://twitter.com/u_skeeep/status/1343934953579446274](https://twitter.com/u_skeeep/status/1343934953579446274)
+
+
+
+
+
+
+
+-----
+
+####  奥尔斯蒂德  
+##### 27276#       发表于 2020-12-29 22:47
+
+
+
+
+准备中，好耶。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 27277#       发表于 2020-12-29 22:50
+
+
+
+ 本帖最后由 Kojimaru 于 2020-12-29 22:53 编辑 
+
+谁在02直播间里问会不会进维阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，素质屌差啊
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27278#       发表于 2020-12-29 22:51
+
+
+
+
+我觉得还行吧？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 27279#       发表于 2020-12-29 22:51
+
+
+
+ 本帖最后由 JoelBirch 于 2020-12-29 22:58 编辑 
+
+草，素质太差了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这弹幕导向略怪……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl，又是这个怪游戏，可以做新的咏叹调了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 27280#       发表于 2020-12-29 22:52
+
+
+
+
+v综能看到无职的皮套号让我一愣
+
+syl，歌谣祭看的最舒服的是偶像委那组
+
+叶这个韩国人味爆表了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27281#       发表于 2020-12-29 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883345&amp;ptid=1969498" target="_blank">Kojimaru 发表于 2020-12-29 22:50</a>
+
+谁在02的直播里问会不会进维阿，素质屌差啊</blockquote>
+草，那个弱智到我了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+不过竟然还有日本粉抱怨了进b站了 b站账号太难注册
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 27282#       发表于 2020-12-29 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883371&amp;ptid=1969498" target="_blank">caupollen 发表于 2020-12-29 22:53</a>
+
+草，那个弱智到我了。 
+
+
+不过竟然还有日本粉抱怨了进b站了 b站账号太难注册 ...</blockquote>
+商 机 来 了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27283#       发表于 2020-12-29 23:06
+
+
+
+
+其实因为之前看大家都挺失望的样子，我已经把期待降到最低了，所以觉得还行啦
+
+混搭其他发型衣服眼镜应该挺好的，就是翅膀不行，不如去掉
+
+U助衣服设计就是素了点，不过跟他本人风格可能比较像，其实我最想要那套黑白格子衬衣实装<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 27284#       发表于 2020-12-29 23:12
+
+
+
+
+她越提批站我越期待了，好急<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27285#       发表于 2020-12-29 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883448&amp;ptid=1969498" target="_blank">十四洲 发表于 2020-12-29 23:06</a>
+
+其实因为之前看大家都挺失望的样子，我已经把期待降到最低了，所以觉得还行啦
+
+混搭其他发型衣服眼镜应该挺 ...</blockquote>
+长衬衣也很韩流啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过确实比这个好，U助置顶也挺好的。
+
+不知道你有没有买她的本，里面黑棒球帽斜挎包白卫衣格子裤那一套也比这个有层次
+
+
+再不济最后一页的粉色女装也比这个好看啊
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 27286#       发表于 2020-12-29 23:20
+
+
+
+
+阿叶的新衣装我觉得还行吧，不过我本来第一眼就不大吃阿叶的皮，入坑之后才越看越喜欢，小圆脸可爱，只要新衣服不那么灾难我觉得都好看，不过翅膀出来的时候我都笑yue了，这啥小翅膀
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 27287#       发表于 2020-12-29 23:26
+
+
+
+
+原皮还没那么像，楼上这几张像游戏王Z4的III了，这么想还可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|三妹衣服不比这好看？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27288#       发表于 2020-12-29 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883507&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2020-12-29 23:18</a>
+
+长衬衣也很韩流啊不过确实比这个好，U助置顶也挺好的。
+
+不知道你有没有买她的本，里面黑棒球帽斜 ...</blockquote>
+我不排斥韩流所以还好啦，说起来之前她摸的学pa也是这种，毛衣印象色挺好的，不知道为什么这次是白色，可能不想撞吧
+
+其实我最不喜欢的还是偶像服，从头到脚都踩雷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到都血压升高的程度
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27289#       发表于 2020-12-29 23:46
+
+
+
+
+其实纠结新衣服油腻不油腻，不如关心一下那个看一次生草一次的3d
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 27290#       发表于 2020-12-29 23:49
+
+
+
+
+日本画师的效率<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 27291#       发表于 2020-12-29 23:52
+
+
+
+
+cover是退出中国了啊，不是退出bilibili，这杏仁还觉得能抬起头来我也只能说一句“生为杏仁，然后才是中国人”，抱拳了老铁
+
+
+
+
+
+                                        
