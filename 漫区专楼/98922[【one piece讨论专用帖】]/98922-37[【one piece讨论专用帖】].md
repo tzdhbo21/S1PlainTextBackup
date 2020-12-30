@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 14:00** 
+> ## **本文件最后更新于2020-12-30 16:00** 
 
 
 
@@ -2280,4 +2280,104 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 
 
 
-                                              
+
+
+-----
+
+####  蒹葭公子  
+##### 54119#       发表于 2020-12-30 14:02
+
+
+
+ 本帖最后由 蒹葭公子 于 2020-12-30 14:03 编辑 
+
+趁着这次的烂瓜，我给群里大半弃坑的网友科普了一下和之国有多烂……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顶上战争赤犬说的对啊，难怪赤犬能当元帅，跟其他人（指白胡子罗杰红发和之国一干御田舔狗等）不一样有识人之明<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 54120#       发表于 2020-12-30 14:06
+
+
+
+
+噢，开始清洗热搜，有点饭圈的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 54121#       发表于 2020-12-30 14:20
+
+
+
+
+快进到集英社作品全部封杀
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 54122#       发表于 2020-12-30 14:43
+
+
+
+
+好几年前收过大陆正版到司法岛篇呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这波要来大的了
+
+
+
+
+
+
+
+-----
+
+####  hie  
+##### 54123#       发表于 2020-12-30 14:57
+
+
+
+
+以后sb中国玻璃心人就别娱乐了，天天看样板戏就可以了
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 54124#       发表于 2020-12-30 15:14
+
+
+
+
+talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                             

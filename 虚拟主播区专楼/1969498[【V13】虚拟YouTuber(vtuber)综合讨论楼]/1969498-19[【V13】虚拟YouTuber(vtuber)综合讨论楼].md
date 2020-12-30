@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 02:02** 
+> ## **本文件最后更新于2020-12-30 16:02** 
 
 
 
@@ -3582,10 +3582,11 @@ lga剪出来劈兔子的那个帖子，热评的那些翻翻记录都是啥阳�
 
 
 
- 参与人数 3战斗力 0
+ 参与人数 4战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| フミさん| + 1||
 | Mafise|-2|平衡|
 | 空集| + 1|扒皮|
 | admentus| + 1|好评加鹅|
@@ -3822,10 +3823,14 @@ syl，除了10月底看过那段时间几个夸的知名切片和两首歌，我
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| cgte030629| + 1|太形象了您嘞|
+| goudante| + 1|欢乐多|
+| 空集| + 1|太监先死个马|
+| carfisher| + 1|乐了|
 | JoelBirch| + 1|确实，属实搞笑了|
 
 
@@ -4022,10 +4027,11 @@ crew无论是在滚出cn之前还是之后，那种我家夸夸最强，其他�
 
 
 
- 参与人数 1战斗力 -2
+ 参与人数 2战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|mafise爬|
 | Mafise|-2|杏奴差不多得了|
 
 
@@ -4112,10 +4118,12 @@ zsyl，自己反感你扣你的，别说得好像楼友反应都和你一样，�
 
 
 
- 参与人数 8战斗力 +5
+ 参与人数 10战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mr.shelter|-1|你也是crew，傻逼就闭嘴|
+| 轩辕无| + 1|好评加鹅|
 | Mafise| + 1|草，免费哥武德|
 | einne| + 1|欢乐多|
 | JoelBirch| + 1|欢乐多|
@@ -4624,10 +4632,12 @@ crew屁股这就不藏了？
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|欢乐多|
+| Mr.shelter| + 1|欢乐多|
 | kk89897| + 1|好评加鹅|
 
 
@@ -4887,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_m2CDT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_uk4nX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -5713,4 +5723,662 @@ syl，又是这个怪游戏，可以做新的咏叹调了吗 ...</blockquote>
 
 
 
-                                       
+
+
+-----
+
+####  shenqi2552  
+##### 27302#       发表于 2020-12-30 03:10
+
+
+
+
+我是每次一值班，月灵就开播，无奈
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 27303#       发表于 2020-12-30 03:52
+
+
+
+
+晚上肝gbf错过了月灵姐姐直播<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">罪过罪过
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27304#       发表于 2020-12-30 05:06
+
+
+
+ 本帖最后由 十四洲 于 2020-12-30 11:28 编辑 
+<blockquote>おはよ〜〜〜！まだねむい(   ᷇࿀ ᷆  )
+
+
+今日は22時から、4ヶ月ぶりの #かなえぼし 🔫🌟 </blockquote>是叶星，我活了
+
+
+
+
+
+
+
+-----
+
+####  扶桑洛槿  
+##### 27305#       发表于 2020-12-30 09:14
+
+
+
+
+说啥呢，舔鬼灭的人那么多，就算鳄鱼会赏饭，轮得到糊皇么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+漫威出死侍日漫了，万一画师有看v，到时候让死侍说两句，糊皇不是赚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27306#       发表于 2020-12-30 09:19
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-30 09:24 编辑 
+
+狐狐在金发碧眼八块腹肌八头身巨乳猛男和二刺螈小吊男鬼子之间怎么选，泥潭该不会真的不知道8<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+SYL：
+
+看你楼反应这么大去看下叶师傅的新衣服，发型还行吧，毕竟yhm喜欢韩流你楼不喜欢你楼算老几。就是这木之本樱同款翅膀实在太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按照韩流设计那应该是XXXL超大超拉风的翅膀才对。
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 27307#       发表于 2020-12-30 09:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">莫姨这种喜欢用烟头烫人的还真不好说
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 27308#       发表于 2020-12-30 10:48
+
+
+
+
+今天有叶星看，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 27309#       发表于 2020-12-30 11:04
+
+
+
+
+希望能看到叶穿新衣服联动，这样可以脑补情场高手诱骗无知少女
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 27310#       发表于 2020-12-30 11:37
+
+
+
+
+看了管人红白，发现个挺喜欢的 あかつきるきちゃんねる，链接不知道贴不贴的上来
+[https://www.youtube.com/watch?v=fOq2qbHKTMQ](https://www.youtube.com/watch?v=fOq2qbHKTMQ)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27311#       发表于 2020-12-30 12:07
+
+
+
+
+晚上有小蜜蜂新曲，去听了下原曲非常难听，但是应该会很快百万，彳亍吧。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 27312#       发表于 2020-12-30 12:09
+
+
+
+
+crew罪行罄竹难书<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27313#       发表于 2020-12-30 12:18
+
+
+
+<blockquote>夏色まつりIzakaya lanternホロライブ1期生
+
+@natsuiromatsuri
+
+·
+
+8h
+
+ツイートや配信を翻訳してくれてる方々本当にありがとうございますSparkles
+
+
+感謝がとまらんです！！！
+
+
+翻訳してくれてるのちゃんと見てるからなEyesTwo hearts</blockquote>
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 27314#       发表于 2020-12-30 13:08
+
+
+
+
+我就不该点进阿叶新衣装设计理念的，u助妈妈这次也离谱，阿叶拜托你设计，怎么个人新衣装还考虑和葛叶的配色的，画的又不是组合服，阿叶这新衣服现在排我心里最低了，还好平时配信只有半身，黑裤子可别让我见着了
+
+
+syl 本来我还觉得阿叶这次新衣服发布有点敷衍，有点担心，现在觉得敷衍得好啊
+
+zsyl 黑黑啥时候能解绑啊，我现在不指望解散了，只求稀释一下阿叶这边的葛叶浓度，阿叶cp好友虽多但没啥用，还是得葛叶出手，社长我挺看好你的，强强联合最新最潮
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 27315#       发表于 2020-12-30 13:34
+
+
+
+
+怎么都觉得这发型韩流，这难道不是最普通的主流男生发型吗，一般就这个和锅盖头二选一吧，还是说我常识有问题<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+作为皮套来讲就过于普通了，有点违和感
+
+—— 来自 meizu 17, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  撕叁  
+##### 27316#       发表于 2020-12-30 13:54
+
+
+
+
+原来泥潭也有微博毒唯型叶队啊，真哈人<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27317#       发表于 2020-12-30 14:01
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-30 14:07 编辑 
+
+这版头牛逼啊，还是国V粉丝有武德
+
+
+SYL：
+
+<img src="https://img.saraba1st.com/forum/202012/30/140727zyn0uqyyyqrl3vsn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f551328d87326d3e31ba84281aeacd9b4ebfb441.jpg@518w.jpg</strong> (80.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 14:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27318#       发表于 2020-12-30 14:03
+
+
+
+
+就快在泥潭看到毒唯叶队大战毒唯火畜了
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 27319#       发表于 2020-12-30 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49888243&amp;ptid=1969498" target="_blank">撕叁 发表于 2020-12-30 13:54</a>
+原来泥潭也有微博毒唯型叶队啊，真哈人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你回v综三句不离拱火，在这里就没必要西装打拳了，建议复刻星粉的武德充沛
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27320#       发表于 2020-12-30 14:12
+
+
+
+
+毒唯火畜摩多摩多，打起来
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27321#       发表于 2020-12-30 14:23
+
+
+
+
+打起来打起来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27322#       发表于 2020-12-30 14:24
+
+
+
+
+tmsk
+<img src="https://p.sda1.dev/0/9b32b1b10baf52d6ec9230ced1412e38/IMG_CMP_197158330.jpeg" referrerpolicy="no-referrer">
+kemt
+<img src="https://p.sda1.dev/0/4cbd47ae32144eff8acc6d43cc597c7c/IMG_CMP_38877270.jpeg" referrerpolicy="no-referrer">
+[https://twitter.com/juri20130226/status/1344045763463008257](https://twitter.com/juri20130226/status/1344045763463008257)
+[https://twitter.com/mmm24341/status/1344160810491289602](https://twitter.com/mmm24341/status/1344160810491289602)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27323#       发表于 2020-12-30 14:38
+
+
+
+ 本帖最后由 墨玄i 于 2020-12-30 14:39 编辑 
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/143742wyyfi57iq15zbh1n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eqa8p9rU0AAfuzW.jpg</strong> (148.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 14:37 上传
+
+
+
+
+
+[https://twitter.com/allpillbill/status/1343969042562838529](https://twitter.com/allpillbill/status/1343969042562838529)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27324#       发表于 2020-12-30 14:44
+
+
+
+
+笹木新衣装コンテストで一番いいねが多かった絵がこちら
+<img src="https://p.sda1.dev/0/92050f755b3088cde40929cfd71eb7cf/IMG_6188514A3F8D578B52BC90AF4E3B4A7E.jpeg" referrerpolicy="no-referrer">
+syl,
+<img src="https://p.sda1.dev/0/4b016b392a09aebe5d6e88a9b2aca3f3/IMG_3356101EE9FEEEDE6B9BB7B00895C062.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27325#       发表于 2020-12-30 14:59
+
+
+
+
+最近看的女同漫画有月之风味代餐<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，
+小动物感，自傲，偶尔得意忘形，偶尔会有怪怪的表情，吃瘪，但是很可爱，
+cp倒是一点不像通风口，不如说像莫伊拉，
+大家有心情可以去作者p站康康（[https://twitter.com/kamenoko5020?s=21](https://twitter.com/kamenoko5020?s=21)）
+
+
+
+
+
+
+
+-----
+
+####  撕叁  
+##### 27326#       发表于 2020-12-30 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49888358&amp;ptid=1969498" target="_blank">黑暗剑 发表于 2020-12-30 14:05</a>
+
+你回v综三句不离拱火，在这里就没必要西装打拳了，建议复刻星粉的武德充沛 ...</blockquote>
+那可不敢，按楼里人数差怕不是被直接橄榄<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  撕叁  
+##### 27327#       发表于 2020-12-30 15:05
+
+
+
+ 本帖最后由 撕叁 于 2020-12-30 15:21 编辑 
+
+爱嘴画师就嘴呗，只是这都能话锋一转扯上黑黑解绑怕不是黑黑深柜
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27328#       发表于 2020-12-30 15:08
+
+
+
+
+管人相关
+
+
+yyut今晚连弹30小时钢琴直接弹到跨年 [https://www.youtube.com/watch?v=14acTQte-zs&amp;feature=youtu.be&amp;ab_channel=%E9%88%B4%E6%9C%A8%E3%82%86%E3%82%86%E3%81%86%E3%81%9F](https://www.youtube.com/watch?v=14acTQte-zs&amp;feature=youtu.be&amp;ab_channel=%E9%88%B4%E6%9C%A8%E3%82%86%E3%82%86%E3%81%86%E3%81%9F)
+
+<img src="https://img.saraba1st.com/forum/202012/30/150807lfkdlanbdfnzfalk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqZKVD3UwAAtKRa.jpg</strong> (357.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 15:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 27329#       发表于 2020-12-30 15:32
+
+
+
+
+诗子姐抽雀魂 把老师的男人抽出来了 ntrかな？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 27330#       发表于 2020-12-30 15:45
+
+
+
+<blockquote>花守へるし復活
+
+
+3Dの体で復活します...!
+
+YouTube: 12/30 21:00~
+
+bilibili: 12/30 23:00~
+
+
+3Dモデルは大好きなお友達のミミミナちゃん ( 
+
+@VmMimimina
+
+ )が作ってくれましたきらめく
+
+
+▼花守へるし復活祭
+[https://youtu.be/EJ0-n0QexWg](https://youtu.be/EJ0-n0QexWg)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/30/154551d6qgpkj9i2izq6hj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ep_iMFmUcAIX92k.jpg</strong> (177.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 15:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27331#       发表于 2020-12-30 15:47
+
+
+
+
+修女今天的歌回还挺不错的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27332#       发表于 2020-12-30 15:56
+
+
+
+
+狐皇跑去蹭车万了，实属差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+这种打easy肯定是不练下打，蹭一波走人
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                                      
