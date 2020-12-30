@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 22:02** 
+> ## **本文件最后更新于2020-12-31 04:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_M0f1r" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_A8iqv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -8297,4 +8297,524 @@ SYL
 
 
 
-                                   
+
+
+-----
+
+####  SuntoryNomu  
+##### 27429#       发表于 2020-12-30 22:04
+
+
+
+
+セフィラ・スゥ🔮👑 @SephiraSu
+
+おつめ～ら～！
+
+今日の #せふぃらいぶ では、大事なお話でした。
+
+
+本当に悲しいことですが、1月末に引退させていただくことになりました。
+
+みんなとの思い出が本当に幸せで、毎日、ありがとうでいっぱいです。
+
+
+残り一ヶ月、一緒に楽しみましょう！
+
+
+▽アーカイブはこちら▽
+[https://youtu.be/FH8Nm0d8P8s](https://youtu.be/FH8Nm0d8P8s)
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/220407c09brwb9f8rdtd86.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqfXlQgUcAEuhTF.jpg</strong> (359.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 22:04 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 27430#       发表于 2020-12-30 22:06
+
+
+
+
+苏姐也要隐退了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27431#       发表于 2020-12-30 22:12
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-30 22:15 编辑 
+
+月之直播不小心露出捆绑龙哥和喝完的朝日啤酒了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+月之的年终总结感觉很那个啊....
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 27432#       发表于 2020-12-30 22:19
+
+
+
+以下内容需要积分高于 1 才可浏览
+
+竟然已经有了29980积分了啊，
+
+纪念一下吧。
+
+<img src="https://img.saraba1st.com/forum/202012/30/221944c8h6ggbbuz6aw428.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201230_221800.JPG</strong> (42.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 22:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27433#       发表于 2020-12-30 22:37
+
+
+
+ 本帖最后由 稀勢のささ 于 2020-12-30 22:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕业也不奇怪吧 播了那么久了没点起色同接永远的2-300顺便她那皮的能动性是真的强 希望彩虹别老偷3D设备 L2D的也偷点
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 27434#       发表于 2020-12-30 22:39
+
+
+
+
+lulu的外社姐妹1月引退了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27435#       发表于 2020-12-30 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 你虹的社内姐妹都引退过，某人两个社内姐妹都引退过，见怪不怪了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27436#       发表于 2020-12-30 23:08
+
+
+
+
+リロ氏在月之聊她那个【罪】料理的时候来扔了个sc，
+
+好饿
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 27437#       发表于 2020-12-30 23:14
+
+
+
+
+啊啊
+
+熊猫人唱了China advice啊
+
+挺好
+
+
+我一直认为任何一个有志于CN特攻的V其实都应该学一下这歌怎么唱。
+
+又是我爱你 我爱你
+
+又是China china的，虽然歌词里面的china其实是谐音梗而已。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 27438#       发表于 2020-12-30 23:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4943210075ee1c10aa78ea144651dd05/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/49aeefa2b30c4d34e68e7111b6c97620/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/84d4ad774dedc6d429d90c9ad4c32dbf/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tyccc  
+##### 27439#       发表于 2020-12-30 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49892478&amp;ptid=1969498" target="_blank">空露露森晓 发表于 2020-12-30 21:16</a>
+
+我个人来看的话，她推上提到阿叶次数还是蛮多的，当然你也说可能，就是不确定，我也是不确定，就不多说了 ...</blockquote>
+说葛叶是u助的推，倒也没说她比起叶更喜欢葛叶，会限我也见过好几次u助，叶本我也买了，可以看出她对自己儿子的爱。至于葛叶是她的推出处就是推特啊，往近了说葛叶生日那天，直接称呼葛叶是自己的推。腐向图，倒也没有那么过，就是葛叶在吸叶的血的一张图，感觉作为叶妈妈点赞这样的图不太合适，不过也可能是我太过杞忧了多管闲事。还有，都说了u助是くろのわオタク了，推特也经常转发和点赞黑黑相关的fa，为什么你还觉得她只是普通的喜欢黑黑呢，是相当喜欢啊。而且在你说的正常是指怎样，不正常又是怎样，我也没说u助不正常的啊，不过她站在叶妈妈的立场上，所作所为对单推不太友好吧，虽然我是不在意这些的。
+
+我只是陈述事实（虽然推特提到黑黑次数和叶的次数是我太主观了，具体我也没数过），举几个例子更直白告诉你u助确实是个黑黑民，为什么要说的我很反感u助似的。。。
+
+
+
+
+
+
+
+-----
+
+####  空露露森晓  
+##### 27440#       发表于 2020-12-30 23:53
+
+
+
+ 本帖最后由 空露露森晓 于 2020-12-31 00:35 编辑 
+<blockquote>tyccc 发表于 2020-12-30 23:27
+说葛叶是u助的推，倒也没说她比起叶更喜欢葛叶，会限我也见过好几次u助，叶本我也买了，可以看出她对自己 ...</blockquote>
+我也只是在陈述我所看到的，也没有说你讨厌u助，如果你觉得我在说你讨厌u助，那我只能说真的想多了。突然感觉后面一段与话题无关，删了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27441#       发表于 2020-12-31 00:07
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-31 00:08 编辑 
+
+放了JK组卫星；
+
+随笔内含自己去医院做检查的事，但离发售估计还挺远；
+
+放了fes要卖的四格中的一页；
+
+和闹气（perfume那个）一起玩fallguys，说闹气真的有看挺多liver的，然后故意用超高速发言强调自己是闹气看得最多的liver，然后立刻收得了闹气的【そだよ】的line，一直没敢说，实际上之前就交换了line了；
+
+之前葵葛剑月之一起玩了马车，月之每一把都垫底，被葛叶真诚地说“月之好可怜”；
+
+月之很满意昨天的kemt舞台，回来之后大概看了20遍，觉得歌词挺有VTB感（哪有？？？）
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27442#       发表于 2020-12-31 00:17
+
+
+
+
+repo苦手来随便repo一下，今天叶星玩了两个图，第一个很快就结束了，不过星川叫得很多很可爱，叶恶作剧吓她很好玩，中间等换图聊了下马车，去世界服玩了一会儿，叶问星川还记不记得猫狗的名字，星川说记得，但并没说对。第二个图是迷宫解谜比较多，不得不服叶的记地图力，我完全脑死看着他转来转去，最后成功以炎上（误）结尾可喜可贺！
+
+中间叶的登录数闹钟响了一下实在很草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27443#       发表于 2020-12-31 00:21
+
+
+
+
+EMA自己发了个自己填词的歌（[https://www.youtube.com/watch?v=FTSjIugg7Uk](https://www.youtube.com/watch?v=FTSjIugg7Uk)），
+
+与歌词欠揍的LAZY，粉丝听完都摇头的ruined相比，就还好，丧且平淡，ema最近低潮期是不是就是看到了自己的能力局限啊。
+
+
+省一楼，郡道真的去看电影了，回来之后发了个推，
+
+【プペル前評判見てから行こうとして調べるとげんなりしちゃうと思うので、何も見ずに見に行って自分で感じたことを他人に惑わされず大事にするのが良いと思います，郡道は良い映画だなと思ったよ〜！見てよかった】
+
+教什么做人啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，不过有精神比什么都好
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27444#       发表于 2020-12-31 00:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/004858ymki1qqjjcqmi1w7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eqc6rUiUcAEElAE.jpg</strong> (185.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 00:48 上传
+
+
+
+
+
+[https://twitter.com/fbctwit/status/1344107771797544960](https://twitter.com/fbctwit/status/1344107771797544960)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|艺术...|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27445#       发表于 2020-12-31 01:06
+
+
+
+ 本帖最后由 lhawp 于 2020-12-31 01:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49893871&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-31 00:07</a>
+
+放了JK组卫星；
+
+随笔内含自己去医院做检查的事，但离发售估计还挺远；
+
+放了fes要卖的四格中的一页；</blockquote>
+特意回去确认了一下，她说的是自己有“那个”导致难以保持专注，并且有医院的诊断结果证明，自己还把这事写进了尚未出版的书里
+
+应该十有八九是指ADHD吧……真就现实版Asahi啊
+
+顿时觉得她会咕掉美兔电台这样的企划也不是什么不能接受的事了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27446#       发表于 2020-12-31 01:23
+
+
+
+
+木口新歌说好的摸余c位呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27447#       发表于 2020-12-31 01:28
+
+
+
+
+さいね三姐妹不是关系不错的么，更可能是被露露通讯录摇去彩虹下一期了吧。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27448#       发表于 2020-12-31 01:37
+
+
+
+
+郡：就算你们说比较喜欢以前的老师，我也不在意，我会一直都这样的，比起以前更喜欢现在的自己
+
+把睿智优雅大小姐郡道老师还给我<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27449#       发表于 2020-12-31 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894167&amp;ptid=1969498" target="_blank">lhawp 发表于 2020-12-31 01:06</a>
+特意回去确认了一下，她说的是自己有“那个”导致难以保持专注，并且有医院的诊断结果证明，自己还把这事 ...</blockquote>
+刚好jk组也是三人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我看她说出来这个状态还好，应该没什么大问题吧，应该，
+美兔radio我一直觉得是月之邀不到嘉宾惹<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27450#       发表于 2020-12-31 01:55
+
+
+
+ 本帖最后由 lhawp 于 2020-12-31 01:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894328&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-31 01:47</a>
+
+刚好jk组也是三人吗，我看她说出来这个状态还好，应该没什么大问题吧，应该，
+
+美兔radio我一直觉 ...</blockquote>
+纯口胡而已，只是觉得如果那个猜测是真的那作为观众对一些东西也没必要那么执着了，本人播得开心就好，毕竟她之前就说过vtuber已经差不多是她坚持做最久的一件事了
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 27451#       发表于 2020-12-31 03:37
+
+
+
+
+yyut算v吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前迎新年30小时耐久直播第10小时，时值日本半夜，突然偶尔接到陌生人电话
+
+第一个是个讲英语的他听不懂挂了
+
+第二个日语说不利索（观众们怀疑是外国人），yyut问了下他是谁然后那人含糊了几句sex sex就被挂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
