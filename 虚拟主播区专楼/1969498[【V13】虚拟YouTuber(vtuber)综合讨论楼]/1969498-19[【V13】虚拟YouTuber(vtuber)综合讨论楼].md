@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 16:02** 
+> ## **本文件最后更新于2020-12-30 20:05** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_uk4nX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_ap5pa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6381,4 +6381,840 @@ bilibili: 12/30 23:00~
 
 
 
-                                      
+
+
+-----
+
+####  OldGlory  
+##### 27333#       发表于 2020-12-30 16:25
+
+
+
+[https://twitter.com/shirakamifubuki/status/1090106687497728000](https://twitter.com/shirakamifubuki/status/1090106687497728000)
+
+放送ではしませんが東方の楽曲やキャラクターは大好きですよー(^・ω・^§)ﾉ玉米穗
+
+看来狐皇19年就在蹭车万了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 27334#       发表于 2020-12-30 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49884110&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2020-12-30 00:53</a>
+
+当然是支持支持中国，或者支持至少不反对中国的公司或个人势
+
+落后腐朽的杏奴应进行思想上的自我改 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱坦白，咱还在看面包狗，不要杀咱
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 27335#       发表于 2020-12-30 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889869&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2020-12-30 16:29</a>
+
+咱坦白，咱还在看面包狗，不要杀咱</blockquote>
+你还在笑，很光荣吗
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 27336#       发表于 2020-12-30 16:31
+
+
+
+
+快进到狐皇不知道幽幽子是谁
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27337#       发表于 2020-12-30 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889840&amp;ptid=1969498" target="_blank">OldGlory 发表于 2020-12-30 16:25</a>
+https://twitter.com/shirakamifubuki/status/1090106687497728000
+
+放送ではしませんが東方の楽曲やキャラ ...</blockquote>
+我特指她这个唐突开一班打原作easy这事，她老生主肯定是懂东方的，但是打原作是另一说，她真好好练过或者之后还有第二期当我放屁<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27338#       发表于 2020-12-30 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889999&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-30 16:42</a>
+
+我特指她这个唐突开一班打原作easy这事，她老生主肯定是懂东方的，但是打原作是另一说，她真好好练过或者 ...</blockquote>
+怎么车万粉和手游粉一样不练还不能打的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 27339#       发表于 2020-12-30 16:50
+
+
+
+
+哔哩哔哩跑去东南亚占市场了？去日本直接把niconico击碎不好吗。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 27340#       发表于 2020-12-30 16:57
+
+
+
+
+其实主要是一般通过觉得爱看反华公司女主播的观众还要打的一地鸡毛就很奇怪……
+
+以及最早黑crew的不是天狗吗？原来野兔子=玉米=天狗，李菊福，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27341#       发表于 2020-12-30 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889553&amp;ptid=1969498" target="_blank">空集 发表于 2020-12-30 15:56</a>
+狐皇跑去蹭车万了，实属差不多得了
+这种打easy肯定是不练下打，蹭一波走人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">当初朝圣zun的可是狐船两人，一味差不多得了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27342#       发表于 2020-12-30 17:01
+
+
+
+[https://www.youtube.com/watch?v= ... 6%E3%81%86%E3%81%9F](https://www.youtube.com/watch?v=14acTQte-zs&amp;ab_channel=%E9%88%B4%E6%9C%A8%E3%82%86%E3%82%86%E3%81%86%E3%81%9F)
+
+
+yyut开弹了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27343#       发表于 2020-12-30 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 当年还是小狐狸的时候，夸狐狸东方亲传的是你们，
+
+
+现在人家变成老狐狸了，也不能否认当初她做的功绩阿，
+
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 27344#       发表于 2020-12-30 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49890241&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-30 17:01</a>
+
+当年还是小狐狸的时候，夸狐狸东方亲传的是你们，
+
+
+现在人家变成老狐狸了，也不能否认当初她做的功 ...</blockquote>
+那我倒是在白女士跟傻希搞百合营业的时候就讨厌她了，算从一而终了吧？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27345#       发表于 2020-12-30 17:34
+
+
+
+
+叶的新衣服，梅丽莎都说好，长文：
+
+叶先輩の新衣装、幼少期に初恋した近所のお兄さんが十数年経った現在も同じ姿で図書館に現れて、話しかけてみると最近ここにきたからよくわからないって話を聞いてあれ？人違いだったかなって思うけど、その後引っ越したばかりで〜ってオススメの買い物とか近道の話で交流する機会があるんだけど、
+
+そういえばお兄さん名前聞いてなかったですよね〜〜って顔あげると消えてたり、昔自分の記憶のお兄さんの家に向かうともうアパート？自体が売却されてて取り壊しのため住民いなかったりしてこっそり忍び込んで、記憶を頼りにお兄さんの部屋に行くと鍵はあいてて、入ってみると外から物音が聞こえ、
+
+見つかったらやばいって思って部屋の押し入れに隠れるんだけど、押し入れの天井に頭をぶつけたときガコッて天井の板がズレて白骨化した遺体が見つかって欲しい。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27346#       发表于 2020-12-30 17:38
+
+
+
+
+东南亚不早就神仙打架打完了吗，p站过去捡剩的吃吗
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 27347#       发表于 2020-12-30 17:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/174058szoxx4eytuz94une.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201230173825.png</strong> (147.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 17:40 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27348#       发表于 2020-12-30 17:56
+
+
+
+
+去东南亚宣传日本文化吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27349#       发表于 2020-12-30 18:06
+
+
+
+
+叶星又是mc恐怖地图，好！
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 27350#       发表于 2020-12-30 18:09
+
+
+
+
+除了整带家庭，我对狐狸是一点梁木都没有诶，不管是rp水平还是联动水平工商水平救场水平都好pro，又不养gachi小众的甚至有点猎奇的爱好也随便展示，不过我从没推过夏吹，毕竟那营业味太浓，也没把她当成什么“可爱小狐狸”，一直都只觉得她是个成熟敬业的职场女强人。
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 27351#       发表于 2020-12-30 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889013&amp;ptid=1969498" target="_blank">撕叁 发表于 2020-12-30 15:05</a>
+
+爱嘴画师就嘴呗，只是这都能话锋一转扯上黑黑解绑怕不是黑黑深柜</blockquote>
+有点搞笑吧，我期待黑黑解散可不是一天两天了，看看我过往发言就知道，而且我是三个话题放在一个楼里，话题之间有没有关联无所谓吧，更何况还是有关联的，画师不磕黑黑能干出来这事？我想从源头解决不可以？
+
+而且看你发言发了半天没一点再讨论我说的内容的，你要觉得我说的不对你倒是说哪里不对啊，你想发言就发言，不爽我就不爽我，一对一行吗，我是叶队，叶队可不只是我，扯什么楼里叶队微博的，我这么大的靶子在这里，非要带别人才会讲话？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27352#       发表于 2020-12-30 18:13
+
+
+
+
+点进去看了下笑了 狐皇你这搞无限续关只为反正过一次e就不该选风这种续关重当前面的。。
+以及热知识，车万的续关次数计数器是分数的个位数
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27353#       发表于 2020-12-30 18:22
+
+
+
+
+郡道明年三四月有个超重大发表，
+毕业啊<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">？
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 27354#       发表于 2020-12-30 18:27
+
+
+
+
+先手上来套个大家看起来不太好的标签，然后一顿不明意义地嘲讽，占据制高点，反正我不是这样的人，是不是觉得自己特别厉害啊？我好歹还百度了毒唯的含义，我那段发言是有污蔑葛叶还是咋的了？除了黑黑阿叶其他组合我可没啥意见，毒唯含义我是占了哪一点啊？还是说凡是不喜欢一个组合希望解散就算毒唯啊？
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 27355#       发表于 2020-12-30 18:34
+
+
+
+ 本帖最后由 帕克桑 于 2020-12-30 18:37 编辑 
+
+做彩虹翻唱周刊的 刚居然做了一期虹杏一起的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遗尿  
+##### 27356#       发表于 2020-12-30 18:42
+
+
+
+
+逛了下发现飯田ぽち今天10万粉了。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27357#       发表于 2020-12-30 18:47
+
+
+
+ 本帖最后由 winda 于 2020-12-30 18:49 编辑 
+
+今天的＊ASTERISK2020准备云了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+https://live.bilibili.com/blackboard/activity-JoJYgB6tQ.html?url_from_h5=1&amp;native.theme=1&amp;is_live_full_webview=1&amp;foreground=pink&amp;background=white
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27358#       发表于 2020-12-30 18:52
+
+
+
+
+美大生明晚6点开始Jump King耐久
+
+1月1号结束前能通关吗
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 27359#       发表于 2020-12-30 19:02
+
+
+
+
+一组阿夸一马当先，三组应该大脸猫，二组嘛……
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27360#       发表于 2020-12-30 19:07
+
+
+
+
+能不能不要玩壶男跳王这种阴间游戏，阿葵我恨你
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27361#       发表于 2020-12-30 19:09
+
+
+
+[https://www.youtube.com/watch?v=uw9SUSvWBN0&amp;feature=youtu.be](https://www.youtube.com/watch?v=uw9SUSvWBN0&amp;feature=youtu.be)
+
+全部risu<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27362#       发表于 2020-12-30 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891111&amp;ptid=1969498" target="_blank">帕克桑 发表于 2020-12-30 18:34</a>
+
+做彩虹翻唱周刊的 刚居然做了一期虹杏一起的https://www.youtube.com/watch?v=CPz6O9S33go&amp;t=396s
+
+ ...</blockquote>
+做这个是想说葛叶粉丝恐怖如斯，月增压了第二名全社之力holo摇100w播放量吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27363#       发表于 2020-12-30 19:24
+
+
+
+
+Towa的马车抽选1w8,感觉正赛主视角会被兔皇阿夸这种个人视角给橄榄啊
+
+
+
+
+
+
+
+-----
+
+####  花二货  
+##### 27364#       发表于 2020-12-30 19:28
+
+
+
+<blockquote>撕叁 发表于 2020-12-30 13:54
+原来泥潭也有微博毒唯型叶队啊，真哈人</blockquote>
+一直都有啦，看他们发言也挺乐的，不要拆穿嘛
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27365#       发表于 2020-12-30 19:31
+
+
+
+
+郡道为了跑去看电影把直播切了，
+等着晚上看月之年末杂谈了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27366#       发表于 2020-12-30 19:32
+
+
+
+
+手帳ホロライブ討伐どりゃあああああああああああああああああああああああああ<img src="https://p.sda1.dev/0/48bbfc1dd55f7f8478454a565bc3c284/IMG_E1FC994FA28C6E84D8AE13E079A5CF5E.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/00cff37882ba33ede868713171e1bc1e/IMG_06B6B599D309B61ACBB4A2A3D7E626C4.jpeg" referrerpolicy="no-referrer">
+总结白皮不行
+
+syl,<img src="https://p.sda1.dev/0/d41778a014c63ac44d7d23406c560340/IMG_AC25F93620AF6A28AFC645E82AE71425.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 27367#       发表于 2020-12-30 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你虹加你杏那可太配了，德不配位的双壁
+
+19年还有人做认为你虹是内容创作者的手书呢，现在想想真是有够恶心的<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|别尬黑，德不配位这词最德不配位.|
+| 墨玄i| + 1|很难不滋磁|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kamen  
+##### 27368#       发表于 2020-12-30 19:37
+
+
+
+
+既然她要玩那还是先祈祷下这阴间游戏它没过气吧，鬼畜游戏跨年＋家族联动连击也救不了同接的话什么sololive也别办了，赶紧嫁了当夫人去<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一年到头把节日全拿来直播的屑
+
+
+
+
+
+
+
+-----
+
+####  石破天  
+##### 27369#       发表于 2020-12-30 19:46
+
+
+
+
+不要滥用毒唯这个词了好吗，在叶的所有cp中只有唯一特定的一个不喜欢并不叫毒唯，就算是所有的cp都不喜欢只喜欢单人直播的只要不去辱骂相方也不叫毒唯，就是普普通通的单粉
+
+
+相反只喜欢某cp互动而看不惯任何一方的单粉不来待见她的唯一指定cp还管别人叫毒唯的，可以叫做cp毒唯，这么爱扣帽子自己先尝尝
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 27370#       发表于 2020-12-30 19:48
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/194752hl0px9lanle12zv9.png" referrerpolicy="no-referrer">
+
+
+<strong>`K0_`1X)2TVP)]XNQJ]~X@7.png</strong> (5.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 19:47 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/194752yhrrn8kpdvxphbrd.png" referrerpolicy="no-referrer">
+
+
+<strong>PW]2}2)[}5}`[V0CK23}9I3.png</strong> (69.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 19:47 上传
+
+
+
+
+
+
+萝莉和萝莉控只有一次和无数次
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 27371#       发表于 2020-12-30 19:52
+
+
+
+
+这也没法怪阿葵，在阿葵送她jump king之前她就已经做好封面准备播这个了…感觉播魔界村都比播这个要好一点
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27372#       发表于 2020-12-30 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阳光虹人笑死了，也不看看人家多少个100w金盾大物了，
+
+
+比数据能不能去隔壁楼比比阿，
+
+
+
+
+
+
+
+-----
+
+####  空露露森晓  
+##### 27373#       发表于 2020-12-30 19:55
+
+
+
+
+虽然但是吧，我觉得直接说u助磕黑黑也太过了，感觉她除了叶亲妈的身份上也就一普通管人观众。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27374#       发表于 2020-12-30 19:58
+
+
+
+
+德不配位也要看谁来说，一个吉卜力厨说鬼灭之刃德不配位没问题，喜欢看bb小剧场和垃圾轻改的也有立场说鬼灭德不配位吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 27375#       发表于 2020-12-30 20:02
+
+
+
+
+光看点击白皮很行的，那个统计应该没算en，rip月增比holo摇高的
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27376#       发表于 2020-12-30 20:03
+
+
+
+<blockquote>ポップコーン 发表于 2020-12-30 19:52
+这也没法怪阿葵，在阿葵送她jump king之前她就已经做好封面准备播这个了…感觉播魔界村都比播这个要好一点 ...</blockquote>
+如龙之后就再也没玩过主机正经点的游戏了，都是一些沙雕类小游戏，有些失望
+
+
+
+
+
+                                     
