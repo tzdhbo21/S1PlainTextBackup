@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 20:05** 
+> ## **本文件最后更新于2020-12-30 22:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_ap5pa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_M0f1r" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7217,4 +7217,1084 @@ syl,<img src="https://p.sda1.dev/0/d41778a014c63ac44d7d23406c560340/IMG_AC25F936
 
 
 
-                                     
+
+
+-----
+
+####  墨玄i  
+##### 27377#       发表于 2020-12-30 20:11
+
+
+
+
+厕所文
+
+切り抜きチャンネル「にじ歌で救える命がある」の悪行
+・ランキング動画を作成したことで再生数ガイガイを表に巻き起こす
+・毎週最低でも1度は謝罪動画(という名のKING宣伝のための釣り動画)を投稿し再生数を稼ぐ
+・ランキングの範囲をオリ曲にまで広げようとしていちからに止められる
+・にじホロ合算の再生数ランキング動画を作り箱単位で対立を煽る
+うーん、ツーアウトか？？
+
+にじさんじ没落三大戦犯 
+
+俺ら…企画をすればブッ叩き、男女で絡めばブッ叩き、数字が出なければブッ叩き、ライバーのモチベを削り活動を萎縮させた 
+
+俺ら…「コーンは害悪」と見当違いの妄言を並べ貴重なカオナシを追い出しカネナシの巣窟に変えた 
+
+俺ら…ここが持ち出しやアフィだらけになっても捏造や揚げ足取りで適当のことを言って風評被害・サジェスト汚染を続けライバーにストレスをかけ続けている 
+
+俺ら…自分が嫌いと言うだけのことをあたかもライバーが悪いかのように吹聴し、その意見が持ち出され結果としてにじライバーの質が悪いと界隈に広める役割をこなしている
+
+syl,
+这么久没看v了，2k还是那味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27378#       发表于 2020-12-30 20:11
+
+
+
+
+郡道最近不是老是炎上嘛，所以最近杂谈的时候聊到炎上相关也多，蛮有趣的，
+今天谈到一部正在上映的叫烟囱城的普佩尔的电影，听说挺好看，但上推一查基本上都是和争议比较大的原绘本家西野亮广相关的恶评，虽然想了解相关消息，但搜推出来的几乎都是与电影无关的事，郡道就觉得这样被单方面灌输印象不行，下播跑去看了（大概），下播前还说感觉现在这个环境作品真的和作者的关系好大，要是以前有推特，以前几个大文豪绝对会炎上的啊。
+说到炎上，不得不提郡道之前去断食道场做针灸，有一个项目是把针扎进身体后点着，但是趴着看不见嘛，就有如下对话：
+郡（对针灸师）：我在烧吗？我真的有在烧吗？（焦急）
+针灸师：别担心郡道さん！有在好好地烧着的！
+
+笑死，
+这个是剪辑（[https://youtu.be/ni0abhJ7xj0](https://youtu.be/ni0abhJ7xj0)）
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27379#       发表于 2020-12-30 20:12
+
+
+
+
+苏姐要毕业了...
+
+
+
+
+
+
+
+-----
+
+####  tyccc  
+##### 27380#       发表于 2020-12-30 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891733&amp;ptid=1969498" target="_blank">空露露森晓 发表于 2020-12-30 19:55</a>
+
+虽然但是吧，我觉得直接说u助磕黑黑也太过了，感觉她除了叶亲妈的身份上也就一普通管人观众。 ...</blockquote>
+其实吧，u助是个彻彻底底的黑黑贴贴人，葛叶是她的推，推特上提到黑黑的次数可能多于单独提到叶的次数，也会点赞黑黑腐向的同人，自己也亲口说了是黑黑オタク
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27381#       发表于 2020-12-30 20:19
+
+
+
+<blockquote>icecry 发表于 2020-12-30 20:03
+如龙之后就再也没玩过主机正经点的游戏了，都是一些沙雕类小游戏，有些失望 ...</blockquote>
+好像感觉最近挺多露信都提到了这件事，破防的也不少，原来露信游戏民这么多的么，沙雕小游戏不也挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27382#       发表于 2020-12-30 20:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/201913eegoveq2zos5tfvv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqcukhoVgAEbD74-min.jpg</strong> (321.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:19 上传
+
+
+
+
+
+[https://twitter.com/ugume3732/status/1344094292952764416](https://twitter.com/ugume3732/status/1344094292952764416)
+
+<img src="https://img.saraba1st.com/forum/202012/30/201914imbmhrk0chih0hvm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqdzQ5pVgAAnqu5.jpg</strong> (909.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:19 上传
+
+
+
+
+
+[https://twitter.com/DokkoiMigu/status/1344169929235304455](https://twitter.com/DokkoiMigu/status/1344169929235304455)
+
+<img src="https://img.saraba1st.com/forum/202012/30/201914j38vqqonb0y6ckb6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqcDHYFUYAAnSyc.jpg</strong> (883.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:19 上传
+
+
+
+
+
+[https://twitter.com/rits_meg/status/1344046747736162304](https://twitter.com/rits_meg/status/1344046747736162304)
+
+<img src="https://img.saraba1st.com/forum/202012/30/201914e1gn41q9797gqkqf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eqe3TMcVEAE_mSb.jpg</strong> (743.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:19 上传
+
+
+
+
+
+[https://twitter.com/abara/status/1344244752477089792](https://twitter.com/abara/status/1344244752477089792)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 27383#       发表于 2020-12-30 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891797&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-30 20:03</a>
+
+如龙之后就再也没玩过主机正经点的游戏了，都是一些沙雕类小游戏，有些失望 ...</blockquote>
+希望她能来年能早点抽到ps5吧，这样就能看恶魂了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27384#       发表于 2020-12-30 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 说了你们可能不爱听，说白了不就是这些甜品小游戏同接低嘛，
+
+
+到时候播恶魂re、2077等还是这个同接，还是会有人喷，要是播个JK有五万同接，那你们自然会觉得有趣的
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27385#       发表于 2020-12-30 20:28
+
+
+
+<blockquote>Suny08 发表于 2020-12-30 20:19
+好像感觉最近挺多露信都提到了这件事，破防的也不少，原来露信游戏民这么多的么，沙雕小游戏不也挺有意思 ...</blockquote>
+我不知道其他人怎么样，我入坑是当她游戏主播看的，之前播的很多游戏跟我都兴趣相投，魂系列，魔界村，空洞等等都是我喜欢的arpg和横版act..偶尔穿插一些小游戏当调剂品也不错...但最近的游戏选择真的有点一言难尽，说白了要不是露露播，这些游戏我压根就不会去正眼看一眼，毫无兴趣...
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27386#       发表于 2020-12-30 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891859&amp;ptid=1969498" target="_blank">icecry 发表于 2020-12-30 20:12</a>
+
+苏姐要毕业了...</blockquote>
+虽然有点不基德……
+
+但是经历过19年那一批明明有能力但是突然毕业后来转生的一群人以后……
+
+现在看这样的情况总感觉会转生……
+
+但是苏姐我记得是自费了强强机体来着？应该确实是做腻了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 27387#       发表于 2020-12-30 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891733&amp;ptid=1969498" target="_blank">空露露森晓 发表于 2020-12-30 19:55</a>
+
+虽然但是吧，我觉得直接说u助磕黑黑也太过了，感觉她除了叶亲妈的身份上也就一普通管人观众。 ...</blockquote>
+我是没想明白为啥设计理念要说裤子的黑色配合葛叶衣服的颜色调整一下，毕竟是单人新衣装，如果有人认真讨论这个，解释解释，说什么可能是表述不太好，为了防止跟别人撞色啥的，把阿叶凸显出来，只是刚好那个人是葛叶而已，我还能想想不是没有道理，目前我就只能推测u助妈妈磕黑黑咯，要不然为啥多此一举，直接说调整颜色就完事，非要加葛叶。
+
+
+syl 本来上论坛就是为了扩展思维，有啥说啥的，不像微博经常隔空对线，有时候想上去说说理又怕别人说是人家个人微博别来哔哔赖赖，没想到楼里还有什么看破不说破党的，你倒是说出个所以然呗，让你说又不说，搞得别人迫害你一样，精神胜利法倒是玩得挺溜的
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27388#       发表于 2020-12-30 20:32
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-12-30 20:28
+虽然有点不基德……
+
+但是经历过19年那一批明明有能力但是突然毕业后来转生的一群人以后……
+
+现在看这样的 ...</blockquote>
+感觉有点突然，她是企业势吧，自己好像也有技术力，不晓得会不会转生，感觉现在也确实基本瓶颈了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27389#       发表于 2020-12-30 20:39
+
+
+
+
+苏姐会转生吗。。。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 27390#       发表于 2020-12-30 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">苏虽然不温不火但也吃得上饭吧，难道杏六期吗？猜这算不算不积德
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27391#       发表于 2020-12-30 20:45
+
+
+
+
+我记得露露休完一个月刚回来播good job？的时候好像说准备好播的另外一个游戏不能播了所以改播这个；那么可能是啥不能播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27392#       发表于 2020-12-30 20:46
+
+
+
+
+熊猫人到此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27393#       发表于 2020-12-30 20:46
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/204619mtoy0jqdfoyodff2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201230204608.png</strong> (298.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:46 上传
+
+
+
+
+
+
+是异色瞳，
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 27394#       发表于 2020-12-30 20:47
+
+
+
+
+？？？满头问号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27395#       发表于 2020-12-30 20:48
+
+
+
+
+熊猫人到此草
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27396#       发表于 2020-12-30 20:48
+
+
+
+ 本帖最后由 FCCHua 于 2020-12-30 20:51 编辑 
+
+熊猫人这个衣服？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不是亲妈画的，怪不得
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27397#       发表于 2020-12-30 20:49
+
+
+
+
+熊猫人？？？？
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27398#       发表于 2020-12-30 20:49
+
+
+
+
+乍一看还以为四个袖子
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27399#       发表于 2020-12-30 20:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/204912rxpyxzz2gw5qd472.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201230204855.png</strong> (417.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:49 上传
+
+
+
+
+
+
+
+过年当然是要和唯一指定皇太子一起过阿，顺带笹木新衣服不是亲妈yasumo画的
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 27400#       发表于 2020-12-30 20:50
+
+
+
+
+草，彩虹里有内鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27401#       发表于 2020-12-30 20:51
+
+
+
+
+熊猫人这个瞳色，有没有破坏口了的魔界世界观啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27402#       发表于 2020-12-30 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 说到异色瞳，我一时间竟然只能想到某女仆
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27403#       发表于 2020-12-30 20:53
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-12-30 20:59 编辑 
+
+普通的可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202012/30/205251izuv3atu1taeam1e.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #笹木咲3周年記念衣装 】みんなが考えてくれた新衣装をおひろめ。【にじさんじ:笹.png</strong> (718.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:52 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/205619gp80c84lhf44c070.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #笹木咲3周年記念衣装 】みんなが考えてくれた新衣装をおひろめ。【にじさんじ:笹.png</strong> (731.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:56 上传
+
+
+
+
+
+
+
+唱了
+
+<img src="https://img.saraba1st.com/forum/202012/30/205907md535dw5bz70dl60.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #笹木咲3周年記念衣装 】みんなが考えてくれた新衣装をおひろめ。【にじさんじ:笹.png</strong> (710.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 20:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27404#       发表于 2020-12-30 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好 跟roa打起来 连郡道さん的账一起算 
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27405#       发表于 2020-12-30 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 懂了，这一切都是pst给口了设的局，派金鱼主动撩口了，然后让金鱼和口了自爆，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27406#       发表于 2020-12-30 20:59
+
+
+
+
+好啊！愿意赶年内公开新皮的都是好liver！
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27407#       发表于 2020-12-30 21:01
+
+
+
+
+熊猫人，你不是和口了挺熟的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27408#       发表于 2020-12-30 21:02
+
+
+
+
+别尬黑，熊猫人是roa派的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kamen  
+##### 27409#       发表于 2020-12-30 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">就是熟才把她的一部分戴身上啊，就像千岁的两件装饰分别在口了跟小夜身上一样，当时我都被感动了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27410#       发表于 2020-12-30 21:05
+
+
+
+
+星川的封面用的是叶的小辫子发型加新衣服和新的嫌弃脸表情，很有眼光！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27411#       发表于 2020-12-30 21:05
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm66p4vhlhj20xo0j0dim.jpg" referrerpolicy="no-referrer">
+
+
+到2066年就是我考拉独占鳌头啦桀桀<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27412#       发表于 2020-12-30 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 这才是好姐妹阿，当初熊猫人引退，自己的衣服还被姐妹拿出来了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 27413#       发表于 2020-12-30 21:06
+
+
+
+
+chima搞影分身和声越来越熟练了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 27414#       发表于 2020-12-30 21:07
+
+
+
+
+旗木卡卡西是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 27415#       发表于 2020-12-30 21:07
+
+
+
+
+还真有年末播ppt总结的啊 草
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27416#       发表于 2020-12-30 21:08
+
+
+
+
+这兔子把SUN听成了SON<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27417#       发表于 2020-12-30 21:13
+
+
+
+
+youre my son  in my moonlight. 
+
+it's very very beutiful girl 
+
+our two haerts entwined
+
+but it's hell
+
+Ringht now it's you and I
+
+Once a pont time moona and pekora fiting endadoragon
+
+after the ender die
+
+i'm asking you
+
+because bueti and beast 
+
+
+这塑料英语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27418#       发表于 2020-12-30 21:16
+
+
+
+
+熊猫人的新歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空露露森晓  
+##### 27419#       发表于 2020-12-30 21:16
+
+
+
+<blockquote>tyccc 发表于 2020-12-30 20:13
+其实吧，u助是个彻彻底底的黑黑贴贴人，葛叶是她的推，推特上提到黑黑的次数可能多于单独提到叶的次数， ...</blockquote>
+我个人来看的话，她推上提到阿叶次数还是蛮多的，当然你也说可能，就是不确定，我也是不确定，就不多说了。至于葛叶是她推，是有证据还是什么吗？还是推上有说过，至少我没见过，我反而在叶的会限里见过她几次，她也画了挺多叶的图今年还出单人本来着。点赞黑黑腐向也是没见过，毕竟腐向这种不应该都是小号锁号并且还屏蔽相关小号吗？或者是我太少刷推了，所以没见过。当然u助喜欢黑黑还是看得出来的，不过目前我觉得还算正常那种?也可能是我不反感有滤镜所导致吧。
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 27420#       发表于 2020-12-30 21:20
+
+
+
+
+僵尸熊猫，道士大福，贴贴
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27421#       发表于 2020-12-30 21:20
+
+
+
+ 本帖最后由 lhawp 于 2020-12-30 21:23 编辑 
+
+芙莲这翻唱愣是把人声修成了Vocaloid<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27422#       发表于 2020-12-30 21:20
+
+
+
+
+蓝狗的年终回顾真好啊，笑得停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27423#       发表于 2020-12-30 21:23
+
+
+
+[https://youtu.be/n28nm0P0lvY](https://youtu.be/n28nm0P0lvY) <blockquote>にじさんじ、100万回以上再生された配信アーカイブまとめ</blockquote>
+有种虹箱推在强化集体感，
+
+还是说斗虫民的欲望忍不住了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27424#       发表于 2020-12-30 21:27
+
+
+
+
+熊猫人这致死量的我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空露露森晓  
+##### 27425#       发表于 2020-12-30 21:31
+
+
+
+<blockquote>netwof2008 发表于 2020-12-30 20:31
+我是没想明白为啥设计理念要说裤子的黑色配合葛叶衣服的颜色调整一下，毕竟是单人新衣装，如果有人认真讨 ...</blockquote>
+和朋友讨论了一下，感觉就是没多想，随意提了一句吧。当然也有可能是你前面说的那样，突然想起来，刚好也是葛叶。反正具体怎么样也只有本人才知道。
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27426#       发表于 2020-12-30 21:41
+
+
+
+ 本帖最后由 pansherry 于 2020-12-30 21:43 编辑 
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1ly1gm67q966zxj20qb0f4gzk.jpg" referrerpolicy="no-referrer">
+
+卡住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://tva1.sinaimg.cn/large/771ca9d1ly1gm67saj8yqj20q30ew7by.jpg" referrerpolicy="no-referrer">
+
+SYL
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 27427#       发表于 2020-12-30 21:45
+
+
+
+
+这波不用末影珍珠就很迷惑
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 27428#       发表于 2020-12-30 21:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/215205ijvktqvmtzyyjh9a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ6kiHSVcAEitYD.jpg</strong> (224.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 21:52 上传
+
+
+
+
+
+[https://twitter.com/soranakidayo/status/1269633054911287296](https://twitter.com/soranakidayo/status/1269633054911287296)
+
+
+
+
+
+                                   
