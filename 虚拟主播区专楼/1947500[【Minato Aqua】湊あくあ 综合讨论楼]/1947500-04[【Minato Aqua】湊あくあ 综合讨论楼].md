@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-28 00:01** 
+> ## **本文件最后更新于2020-12-31 00:01** 
 
 
 
@@ -1637,4 +1637,563 @@ Type Wild，这神奇宝贝第五个ED，我在电视上看的辽艺版好像都
 
 
 
-                                              
+
+
+-----
+
+####  nevp  
+##### 4593#       发表于 2020-12-28 21:45
+
+
+
+
+虽然老说mc不行，但是这一段还挺好看的
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4594#       发表于 2020-12-28 21:49
+
+
+
+
+说了还想和船长一起建些什么，加上AKUKIN建設的企划和地下帝国扩建的预订。。。。。你这放的怎么全是MC的卫星啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4595#       发表于 2020-12-28 22:00
+
+
+
+
+なにこれ！
+
+すげぇえええ！
+
+なにこれ！
+
+すげぇえええ！
+
+なにこれ！
+
+すげぇえええ！
+
+
+
+虚無
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4596#       发表于 2020-12-28 23:26
+
+
+
+
+塔诺西就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4597#       发表于 2020-12-29 00:19
+
+
+
+
+该练马车了妹啊
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4598#       发表于 2020-12-29 17:15
+
+
+
+
+くしゃみ x
+
+あくび    x
+
+鳴き声    x
+
+泣き声    √
+
+
+损失了啥，钻石套+鞘翅？
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4599#       发表于 2020-12-29 17:17
+
+
+
+ 本帖最后由 Kanchiki 于 2020-12-29 17:29 编辑 
+
+麻烦的也就鞘翅了，钻石套附魔啥的有交易所和小黑塔都不是问题SYL，其实鞘翅也可以去chunkbase网站输入种子编号直接查坐标的
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4600#       发表于 2020-12-29 17:43
+
+
+
+
+死法还挺高端的，骑着猪上浮被夹死。。
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4601#       发表于 2020-12-30 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我有时候就在想，这同接也才1W3，从哪里突然跑出来2000人点订阅
+
+SYL 突然说要拿10次第一<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4602#       发表于 2020-12-30 00:51
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-30 00:57 编辑 
+
+改成5回了 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4603#       发表于 2020-12-30 00:58
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-30 01:12 编辑 
+
+“去年马车杯我顶着流感练了一晚上”
+
+“结果年末颁奖时心想‘这奖要发给我吗的’时候放了腹部坦拿第二的画面”
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">夸宝，怎么这么记仇
+
+
+
+深夜2:11的闹钟<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">要叫香香鸡吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|欢乐多，yygq夸宝|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4604#       发表于 2020-12-30 02:40
+
+
+
+ 本帖最后由 乌鸦绅士 于 2020-12-30 06:13 编辑 
+
+[https://www.youtube.com/channel/UCoVIj7tBv71L49aTeawBnKA](https://www.youtube.com/channel/UCoVIj7tBv71L49aTeawBnKA)
+
+湊あくあ切り抜きCH
+[https://twitter.com/nanashi_0413/with_replies](https://twitter.com/nanashi_0413/with_replies)
+
+[https://twitter.com/toripuru_3/with_replies](https://twitter.com/toripuru_3/with_replies)
+[https://www.youtube.com/channel/UClcMHz6g52n0tmZ8QFt8uCA](https://www.youtube.com/channel/UClcMHz6g52n0tmZ8QFt8uCA)
+
+画风有趣的手书
+
+
+最近个人喜欢的MV与MMD：
+[https://www.youtube.com/watch?v=U77PHZRGYUw&amp;feature=youtu.be](https://www.youtube.com/watch?v=U77PHZRGYUw&amp;feature=youtu.be)    【3D MV】 湊あくあ／丸の内サディスティック【ホロライブ】  
+[https://www.nicovideo.jp/watch/sm37817464](https://www.nicovideo.jp/watch/sm37817464)                                        【ホロライブMMD】湊あくあで天才ロック【Minatoaqua/あくあーと】
+[https://www.nicovideo.jp/watch/sm37756544](https://www.nicovideo.jp/watch/sm37756544)                                        【MMDホロライブ】あくしおでポジティブ☆ダンスタイム【1080p / 60fps】
+[https://www.nicovideo.jp/watch/sm38007405](https://www.nicovideo.jp/watch/sm38007405)                                        【MMDホロライブ】とある事務所の仲良しな隣人(ry【MMD杯ZERO3】
+[https://www.nicovideo.jp/watch/sm37998639](https://www.nicovideo.jp/watch/sm37998639)                                        【MMDホロライブ】湊あくあ ロストワンの号哭【1080p】
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4605#       发表于 2020-12-30 15:37
+
+
+
+
+今年夸宝不会又想着争第一吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">虽然我觉得以她的实力可能还没争就第一了
+不安desu
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4606#       发表于 2020-12-30 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还有选择吗，不拿第一，放水，打假赛，不尊重对手，拿第一，不温暖，不大家庭（请选择你的帽子）
+
+不如拿第一，有本事再来个最努力奖第一啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4607#       发表于 2020-12-30 16:07
+
+
+
+
+你说得对<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">夸宝还真没得选
+狐坦再来一次以后每场直播车车必赏给她
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4608#       发表于 2020-12-30 19:25
+
+
+
+
+刚抽签马车，进a组，A组9人，不过确实没啥能打的，余俗余俗
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4609#       发表于 2020-12-30 21:25
+
+
+
+
+上次在夸宝这里听到ark这个名字是什么时候了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4610#       发表于 2020-12-30 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">2020年除了炎上和休止还有什么好事么
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4611#       发表于 2020-12-30 21:30
+
+
+
+
+还在ARK个没完，快翻页吧
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4612#       发表于 2020-12-30 21:32
+
+
+
+
+ARK2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4613#       发表于 2020-12-30 22:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我信nmlgb
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4614#       发表于 2020-12-30 22:51
+
+
+
+ 本帖最后由 mengnvpu 于 2020-12-30 22:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我慢の一年
+
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4615#       发表于 2020-12-30 22:58
+
+
+
+
+夸宝这么努力，明年肯定会起飞的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4616#       发表于 2020-12-30 23:03
+
+
+
+
+你们懂什么，这是隐忍三年，夸神归位，😏
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4617#       发表于 2020-12-30 23:07
+
+
+
+
+先把天天就那几样游戏换着玩这个问题解决了再考虑起飞吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4618#       发表于 2020-12-30 23:22
+
+
+
+
+隐忍啊，希望你努力有回报吧，<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">自己选择的，哎
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4619#       发表于 2020-12-30 23:23
+
+
+
+
+起飞是指偶像事业<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4620#       发表于 2020-12-30 23:35
+
+
+
+
+不会吧不会吧，我以为erer姐贵消失后，不会再有游戏民了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4621#       发表于 2020-12-30 23:37
+
+
+
+
+游戏民的命握在弱智cover的手里，怕是已经死透了吧
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4622#       发表于 2020-12-30 23:43
+
+
+
+
+骗人看存档了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                             
