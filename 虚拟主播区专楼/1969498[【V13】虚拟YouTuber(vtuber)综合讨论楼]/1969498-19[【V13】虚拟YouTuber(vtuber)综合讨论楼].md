@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 14:03** 
+> ## **本文件最后更新于2020-12-31 18:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_A0FPN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_Hh8Et" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,6 +9451,25 @@ You are king
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 格林卡罗尔| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9505,4 +9524,974 @@ You are king
 
 
 
-                                 
+
+
+-----
+
+####  墨玄i  
+##### 27482#       发表于 2020-12-31 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49554157&amp;ptid=1969498" target="_blank">墨玄i 发表于 2020-11-29 08:29</a>
+虹11月同接</blockquote>
+虹12月同接
+<img src="https://p.sda1.dev/0/1e55c2101e892d304fc5a01525d36791/IMG_B528763DC5F697D55C5C9CEA7F9ECFE1.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 27483#       发表于 2020-12-31 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898646&amp;ptid=1969498" target="_blank">墨玄i 发表于 2020-12-31 14:23</a>
+
+虹12月同接</blockquote>
+这是推特上的还是5ch上人发的？能来个链接么
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27484#       发表于 2020-12-31 14:35
+
+
+
+
+郡道vtb生涯唯一一次同接数据比口了好的，
+194除了病休那个都是在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27485#       发表于 2020-12-31 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898681&amp;ptid=1969498" target="_blank">aptx318 发表于 2020-12-31 14:27</a>
+这是推特上的还是5ch上人发的？能来个链接么</blockquote>
+5ch上看到的
+参照[https://2434**ytics.com/](https://2434**ytics.com/)
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27486#       发表于 2020-12-31 14:46
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-31 14:47 编辑 
+<blockquote>　とにかく面白い配信やツイートをしようという意思を捨てていない開拓者。全盛期より劣化したという感想も見かけるが、動画再生数トップ10の大半は過去一年以内のものであり、にじさんじの中で一番面白いライバーは今も彼女のままだろうと感じる。彼女がやりたい企画、やりたい仕事を叶えられている間は、にじさんじという箱にもまだ価値があると俺は思う。</blockquote>这也太铁血了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27487#       发表于 2020-12-31 14:50
+
+
+
+
+愿意说真话的单推罢了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27488#       发表于 2020-12-31 15:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 等一手无观众fes，彻底摧毁你虹
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27489#       发表于 2020-12-31 15:01
+
+
+
+
+19年后半的中坚竟然是尼哥
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 27490#       发表于 2020-12-31 15:03
+
+
+
+
+yhm费拉不堪，希望楼友都来看嘉然<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+棒妹也可以
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27491#       发表于 2020-12-31 15:18
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-31 15:20 编辑 
+
+给楼友猜对了，阿夸确实是要冲KPI
+
+
+看了下差50W到1KW SC，应该比较稳。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 27492#       发表于 2020-12-31 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 27493#       发表于 2020-12-31 15:25
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-12-31 15:28 编辑 
+
+是不是可以对着这张表从下往上排查，猜测下一个被选中b限的孩子是谁了？？
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 27494#       发表于 2020-12-31 15:31
+
+
+
+
+b限没有意义了，不如猜哪个会被迫开english only讨好白皮
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27495#       发表于 2020-12-31 15:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是都有红迪发帖舔白皮了么？有的人批站进出这么久，甚至没发过本人亲手发的动态，，
+
+
+“他们红迪真的太棒啦！”
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 27496#       发表于 2020-12-31 15:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁放出的B站年度统计，杏仁遍地
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27497#       发表于 2020-12-31 15:35
+
+
+
+ 本帖最后由 caupollen 于 2020-12-31 15:38 编辑 
+
+红迪发过入驻视频的现在目前有那几位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27498#       发表于 2020-12-31 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">小肥妹都能500w 夸神600w轻轻松松吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27499#       发表于 2020-12-31 15:36
+
+
+
+
+看了一眼虹迪，还是B站进出吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27500#       发表于 2020-12-31 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">别乱贷款黑屁惹，到时候不够的你来补上阿，
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27501#       发表于 2020-12-31 15:39
+
+
+
+ 本帖最后由 pansherry 于 2020-12-31 15:41 编辑 
+
+<img src="https://tvax3.sinaimg.cn/large/771ca9d1ly1gm72y18s8tj20cd0hvgna.jpg" referrerpolicy="no-referrer">
+
+
+哦看过一次炎上后的B限<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1|乐|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 27502#       发表于 2020-12-31 15:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/153930kymmiwmyw8y6myao.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20201231_152641.JPG</strong> (73.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 15:39 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27503#       发表于 2020-12-31 15:45
+
+
+
+
+去红迪发小视频的男人怎么只有一个免费
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27504#       发表于 2020-12-31 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49899330&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-31 15:34</a>
+不是都有红迪发帖舔白皮了么？有的人批站进出这么久，甚至没发过本人亲手发的动态，，
+
+
+“他们红迪 ...</blockquote>
+那还是b站有转播号，连报道视频都不发，跑去红迪发视频的比较厉害<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27505#       发表于 2020-12-31 16:06
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-31 16:17 编辑 
+
+不知道明年是葛叶先超车兔头还是EN神抽虹鲨皇直接全秒了。
+
+SYL：
+
+今年后半开始虹好多高同接都扔官号了，而且以后这种做法应该会越来越多，这个同接榜会变得有待商榷。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 27506#       发表于 2020-12-31 16:15
+
+
+
+[https://www.youtube.com/watch?v=iY__oc6m5bU](https://www.youtube.com/watch?v=iY__oc6m5bU)
+
+2020年ヒットソングメドレーカバー！(香水-夜に駆ける-炎-猫-Make you happy-他)【歌ってみた】
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27507#       发表于 2020-12-31 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 有虹kr的先例，虹en当然是出道日语直播啦：“jp虹箱推真的是太棒啦！然后继续内卷”
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27508#       发表于 2020-12-31 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897141&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-31 11:46</a>
+
+本月暂时v圈sc前十，第一切茜娅，第二润润，第三蝗，第四兔皇，第五亲华团长，第六船长，第七三枝，第八夸 ...</blockquote>
+更新一下，夸皇apex抽卡已经80w+了，千万且超过船长大概没有问题，兔皇暂时也集金60w+，但是和tskk差距较大，大概无法反超，现在排名。
+
+第一切茜娅，第二润润，第三蝗，第四兔皇，第五亲华团长，第六夸皇，第七船长，第八三枝，第九咩粟，第十呜米
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27509#       发表于 2020-12-31 16:44
+
+
+
+<blockquote>IDIDIDID 发表于 2020-12-31 16:06
+不知道明年是葛叶先超车兔头还是EN神抽虹鲨皇直接全秒了。
+
+SYL：
+
+今年后半开始虹好多高同接都扔官号了，而 ...</blockquote>
+你虹要给liver发工资吗，不发不上官号会员
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27510#       发表于 2020-12-31 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900007&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-31 16:44</a>
+
+你虹要给liver发工资吗，不发不上官号会员</blockquote>
+那咋办嘛。
+
+运营有能----运营强势-----运营主导的活动放官号。相对的liver主催的活动在liver号。你虹往后哪个多明摆着的。
+
+
+只能说everything costs.
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 27511#       发表于 2020-12-31 16:52
+
+
+
+
+抽成后团长应该稳第一吧，好奇个人势的税和企业势的税有什么差别
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 27512#       发表于 2020-12-31 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900081&amp;ptid=1969498" target="_blank">ylssb10438 发表于 2020-12-31 16:52</a>
+
+抽成后团长应该稳第一吧，好奇个人势的税和企业势的税有什么差别</blockquote>
+不一定，这里的YT收入没算订阅收入。。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27513#       发表于 2020-12-31 16:58
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gm7554a9f1j20xq0j40uh.jpg" referrerpolicy="no-referrer">
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm755q2d9sj20xw0iyac6.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gm755zh03dj20xt0j540s.jpg" referrerpolicy="no-referrer">
+
+
+
+事实证明，MC在手，天下我有<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27514#       发表于 2020-12-31 17:12
+
+
+
+
+
+君には見せない - Tok10 / Covered by 理芽 / RIM 【歌ってみた】
+[https://www.youtube.com/watch?v=VXXzr01OtKE](https://www.youtube.com/watch?v=VXXzr01OtKE)
+
+
+喜欢，好听。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27515#       发表于 2020-12-31 17:13
+
+
+
+
+晚上holo官台节目是多人3d，起码兔子部分肯定是，应该挺有趣的
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/171301g7d02qldz80kr762.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqjYNPoUwAEW2_m.jpg</strong> (688.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 17:13 上传
+
+
+
+
+
+[https://twitter.com/Itumade3/status/1344562465980305410](https://twitter.com/Itumade3/status/1344562465980305410)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27516#       发表于 2020-12-31 17:13
+
+
+
+
+nayuta Live !! なまゆた＃04 ～2020年ありがとう！今年を振り返る～
+
+[https://www.youtube.com/watch?v= ... p;ab_channel=nayuta](https://www.youtube.com/watch?v=SIdt7ExqkZM&amp;feature=youtu.be&amp;ab_channel=nayuta)
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27517#       发表于 2020-12-31 17:15
+
+
+
+<img src="https://tvax1.sinaimg.cn/large/771ca9d1ly1gm75nypxppj21hc0u07ig.jpg" referrerpolicy="no-referrer">
+
+[twitter](https://twitter.com/ordan/status/1344567749222170625?s=20)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27518#       发表于 2020-12-31 17:17
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gm75qqkjmyj20yd0ld0xp.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/p3ZMiDrPSCg](https://youtu.be/p3ZMiDrPSCg)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27519#       发表于 2020-12-31 17:17
+
+
+
+
+だれや！
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/171732rv8c5k5rclou79nn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqjbVAkUUAIoLoy.jpg</strong> (520.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 17:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 27520#       发表于 2020-12-31 17:19
+
+
+
+
+为什么要斗这么无聊的虫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不把b站舰长部分去掉单纯斗SC
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27521#       发表于 2020-12-31 17:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/171929gx788r79l9pqc6er.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201231171912.jpg</strong> (65.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 17:19 上传
+
+
+
+
+
+
+
+力一就算了，不破怎么回事
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 27522#       发表于 2020-12-31 17:26
+
+
+
+<img src="https://i.loli.net/2020/12/31/WnCBJRfmjqThvip.png" referrerpolicy="no-referrer">
+
+EVE频道被ban了，不过撑的也有够久
+
+新号↓
+[https://www.youtube.com/channel/UCjU5ItIqNBz2qWLLpGDVAJA/featured](https://www.youtube.com/channel/UCjU5ItIqNBz2qWLLpGDVAJA/featured)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27523#       发表于 2020-12-31 17:27
+
+
+
+<blockquote>qq845629713 发表于 2020-12-31 17:20
+力一就算了，不破怎么回事</blockquote>
+上次就是这个组合，不破和尊的关系很好呗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 27524#       发表于 2020-12-31 17:30
+
+
+
+ 本帖最后由 某穆克拉 于 2020-12-31 17:31 编辑 
+
+系数平台抽成系数企业抽成系数收入系数流水收入b站企业势10.50.50.25885,619221404.8b站个人势10.500.5885,619442809.5404个人势10.300.7885,619619933.3404企业势10.30.50.35885,619309966.7平台抽成企业抽成收入流水收入b站企业势0.50.50.251771238442809.5b站个人势0.500.5885619442809.5404个人势0.300.7632585442809.5404企业势0.30.50.351265170442809.5倒是可以以赤神为基数算一下相关数据。
+
+b站斗虫可以统计到全部直播收入，包括SC，礼物，舰长。无论是否开播都可以统计到。
+
+404斗虫目前只能统计到短期待机间和直播中的SC收入；会员收入、free chat room 收入、会限直播收入和视频点击广告收入统计不到。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 27525#       发表于 2020-12-31 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900467&amp;ptid=1969498" target="_blank">NBXX 发表于 2020-12-31 17:26</a>
+EVE频道被ban了，不过撑的也有够久
+
+新号↓
+
+https://www.youtube.com/channel/UCjU5ItIqNBz2qWLLpGDVAJA/fe ...</blockquote>
+前阵子另一个魅魔的收益化也被取消了，又回到以前的日子
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 27526#       发表于 2020-12-31 17:34
+
+
+
+
+没意义啊，工商以及其他譬如魂账号，tc，sl，饭盒收入也还是统计不到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27527#       发表于 2020-12-31 17:42
+
+
+
+
+鱼头哥已经彻底🥜😈了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 27528#       发表于 2020-12-31 17:50
+
+
+
+
+两个可爱天使🥰
+[https://twitter.com/yoruyoru108/status/1344546330132156419](https://twitter.com/yoruyoru108/status/1344546330132156419)
+
+<img src="https://img.saraba1st.com/forum/202012/31/175044pargj2fk7j44zvqo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eqh_m-0VEAA3Haa.jpg</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 17:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27529#       发表于 2020-12-31 17:55
+
+
+
+
+跨年夜还看管，大家没有自己的生活吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">。
+有自己生活的妈宝女郡道估计不会播了，该看月之皇女玩游戏了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27530#       发表于 2020-12-31 18:01
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm76zqj79vj20xv0iy784.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                
