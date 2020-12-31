@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 16:00** 
+> ## **本文件最后更新于2020-12-31 22:00** 
 
 
 
@@ -2380,4 +2380,543 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 
 
 
-                                             
+
+
+-----
+
+####  lightingwolf  
+##### 54125#       发表于 2020-12-30 16:18
+
+
+
+
+转自泥潭网友
+
+[https://bbs.saraba1st.com/2b/for ... 17&amp;pid=49889751](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1980317&amp;pid=49889751)
+
+微博上有海贼粉丝找出一段央视和4v电视台共同报道的一段视频，说这个旗子恰恰是支持92共识的标志。还有另一伙人说，日版实体发行里根本没那个旗子 是4v那边自己加的
+
+央视采访视频：[http://t.cn/A6qHmo84](http://t.cn/A6qHmo84)
+
+
+
+
+
+
+
+-----
+
+####  vivuhz  
+##### 54126#       发表于 2020-12-30 16:26
+
+
+
+
+加速加速<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54127#       发表于 2020-12-30 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49888335&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2020-12-30 14:02</a>
+ 趁着这次的烂瓜，我给群里大半弃坑的网友科普了一下和之国有多烂…… 顶上战争赤犬说的对啊，难怪赤 ...</blockquote>
+赤犬都怕和之国武士
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 54128#       发表于 2020-12-30 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49890306&amp;ptid=98922" target="_blank">cdfjg 发表于 2020-12-30 17:07</a>
+
+赤犬都怕和之国武士</blockquote>
+那得亏赤犬不知道和之国是一群有眼无珠的人……
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54129#       发表于 2020-12-30 18:02
+
+
+
+
+看洗地比和之国有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+比起现实，给和之国篇洗的难度更大
+
+
+
+
+
+
+
+-----
+
+####  zcm7000  
+##### 54130#       发表于 2020-12-30 18:07
+
+
+
+
+很久没看了 和之国篇大概是个什么样的 或者私信我说下剧情
+
+
+
+
+
+
+
+-----
+
+####  chenffluy  
+##### 54131#       发表于 2020-12-30 18:19
+
+
+
+
+说起来半天过去到现在好像都没大一点的媒体或yhx发过相关报道，连上帝之鹰发的都是洗白的，小马哥出手了？
+
+
+
+
+
+
+
+-----
+
+####  Bruce33  
+##### 54132#       发表于 2020-12-30 18:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49890984&amp;ptid=98922" target="_blank">chenffluy 发表于 2020-12-30 18:19</a>
+ 说起来半天过去到现在好像都没大一点的媒体或yhx发过相关报道，连上帝之鹰发的都是洗白的，小马哥出手了？ ...</blockquote>
+要挣钱的嘛，不管真的假的假的真的，之前华为都屁事没有，米忽悠也没事，核弹这种也就欺负欺负没背景没资本或者中国没过审的东西，你要是b站投个视频有点擦边球那举报是一举一个准，你要是外国游戏有用词不当那举报是tb立马下架
+
+
+
+
+
+
+
+-----
+
+####  Bruce33  
+##### 54133#       发表于 2020-12-30 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891134&amp;ptid=98922" target="_blank">Bruce33 发表于 2020-12-30 18:37</a>
+ 要挣钱的嘛，不管真的假的假的真的，之前华为都屁事没有，米忽悠也没事，核弹这种也就欺负欺负没背景没资 ...</blockquote>
+ 不过那种恶意作死我是抵制的而且谁都救不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Acatv  
+##### 54134#       发表于 2020-12-30 18:41
+
+
+
+
+什么 赵丹都海贼王无效？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 54135#       发表于 2020-12-30 18:49
+
+
+
+
+赵丹到底有没有效还是要看握枪的手是谁
+
+
+
+
+
+
+
+-----
+
+####  FBIwarning  
+##### 54136#       发表于 2020-12-30 19:34
+
+
+
+
+这事比海贼王剧情有趣多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54137#       发表于 2020-12-30 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889788&amp;ptid=98922" target="_blank">lightingwolf 发表于 2020-12-30 16:18</a>
+转自泥潭网友
+
+
+https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1980317&amp;pid=498 ...</blockquote>
+刚翻了下，日文单行本里面是有的
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 54138#       发表于 2020-12-31 01:07
+
+
+
+
+能有这么多人洗而不是大义独轮车，说明海贼粉丝德匹下，甚至不如杏奴<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  lightingwolf  
+##### 54139#       发表于 2020-12-31 02:45
+
+
+
+ 本帖最后由 lightingwolf 于 2020-12-31 02:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891575&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-30 19:34</a>
+
+刚翻了下，日文单行本里面是有的
+
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+那么后来的说明原文说的是国家还是国家及地区？
+
+毕竟有旗不是问题各种地区选择比如苹果的地区选择不少都有该旗
+
+
+
+
+
+
+
+-----
+
+####  lightingwolf  
+##### 54140#       发表于 2020-12-31 02:52
+
+
+
+ 本帖最后由 lightingwolf 于 2020-12-31 02:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894174&amp;ptid=98922" target="_blank">敖轩 发表于 2020-12-31 01:07</a>
+
+能有这么多人洗而不是大义独轮车，说明海贼粉丝德匹下，甚至不如杏奴
+
+
+—— 来自 HUAWEI ANA ...</blockquote>
+不然 也可能是普通大众不像粉圈容易被煽动当枪做出极端行为
+
+证据: 
+
+按泥潭之前已经删除的讨论，叫封叫的凶的大部分是想搞扩大化的反串黑
+
+连上帝之鹰发的都是洗白的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 54141#       发表于 2020-12-31 04:01
+
+
+
+
+大部分看op的人入坑的时候看的都不是航海王吧，对这敏感才奇怪了
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 54142#       发表于 2020-12-31 13:18
+
+
+
+
+所谓饭圈是不是前明朋党类似的东西？
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54143#       发表于 2020-12-31 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894461&amp;ptid=98922" target="_blank">lightingwolf 发表于 2020-12-31 02:45</a>
+那么后来的说明原文说的是国家还是国家及地区？
+
+毕竟有旗不是问题各种地区选择比如苹果的地区选择不少都有 ...</blockquote>
+能告诉我是哪一话后面的sbs吗
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  lightingwolf  
+##### 54144#       发表于 2020-12-31 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898718&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-31 14:32</a>
+
+能告诉我是哪一话后面的sbs吗
+
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+我也不知道了 原贴已删除
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54145#       发表于 2020-12-31 16:57
+
+
+
+
+终于找到了，均出自日文单行本
+<img src="https://p.sda1.dev/0/09fe08b6b33c4d77f877d6aae16b7400/IMG_CMP_31715080.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8ec5d668eabfeada7c9f3c08cab26c21/IMG_CMP_129841067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  坏未来  
+##### 54146#       发表于 2020-12-31 17:03
+
+
+
+
+外野的傻逼流入的多了，楼里的讨论氛围就差了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 54147#       发表于 2020-12-31 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900156&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-31 16:57</a>
+
+终于找到了，均出自日文单行本</blockquote>
+我非常奇怪的一点是为什么表里没有大陆？这个时间点大陆应该有正版引进了吧？
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54148#       发表于 2020-12-31 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901895&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2020-12-31 20:16</a>
+我非常奇怪的一点是为什么表里没有大陆？这个时间点大陆应该有正版引进了吧？ ...</blockquote>
+查了下wiki，op引进国内是07年的事情了
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 54149#       发表于 2020-12-31 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902030&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-31 20:29</a>
+
+查了下wiki，op引进国内是07年的事情了
+
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+但这是790话的单行本啊，就几年前而已.....
+
+你一个15、16年的单行本放个十年前的海外出版情况这不有病吗？就算没有4v这是照样也是伤害这之后引进了漫画的国家的感情啊，日本人不是最会读空气吗？不知道这么做很傻逼？
+
+
+
+
+
+
+
+-----
+
+####  麻里奈命  
+##### 54150#       发表于 2020-12-31 20:36
+
+
+
+ 本帖最后由 麻里奈命 于 2020-12-31 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902069&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2020-12-31 20:33</a>
+
+但这是790话的单行本啊，就几年前而已.....
+
+你一个15、16年的单行本放个十年前的海外出版情况这不有病吗 ...</blockquote>
+SBS那张是26卷，02年出的单行本
+
+而且下面写了预计2003年之后会出的有哪些国家这段，不知道是第几卷也能看出是03年之前的单行本
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 54151#       发表于 2020-12-31 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902098&amp;ptid=98922" target="_blank">麻里奈命 发表于 2020-12-31 20:36</a>
+
+SBS那张是26卷，02年出的单行本
+
+而且下面写了预计2003年之后会出的有哪些国家这段，不知道是第几卷也能看 ...</blockquote>
+哦，我还以为是同一本单行本的图......
+
+那确实没必要，翻02年的旧帐就太蠢了......
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 54152#       发表于 2020-12-31 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887579&amp;ptid=98922" target="_blank">chenffluy 发表于 2020-12-30 12:56</a>
+
+这事记得当时就有人提了，不过只在小圈子內，现在被再次提起是因为和之国太垃粉丝看不下去转黑举报吗[f:067 ...</blockquote>
+可能是有一部分真爱粉对2年后越来越无聊很不满，并且睿站逼乎等年轻人平台又都被脑残粉控场，容不得说作品不好。于是不满越堆越高终于应爱生恨使用天地同寿杀招<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+（纯属瞎说概不负责<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+                                            

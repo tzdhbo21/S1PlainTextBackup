@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 12:09** 
+> ## **本文件最后更新于2020-12-31 22:11** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_jkiM2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Ay7Jy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -8296,10 +8296,11 @@ B0FF5D5F1626F6C3AF75531B8AD0BEBA.jpg
 
 
 
- 参与人数 11战斗力 +13
+ 参与人数 12战斗力 +14
 
 |昵称|战斗力|理由|
 |----|---|---|
+| newbe63| + 1|好评加鹅|
 | 海底铁锚| + 1|生哭立拔|
 | qw945| + 1|好评加鹅|
 | 与太郎| + 1|呜呜呜|
@@ -8669,4 +8670,546 @@ V8和s1赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 
 
-                                  
+
+
+-----
+
+####  临界点  
+##### 454#       发表于 2020-12-31 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49896552&amp;ptid=1974517" target="_blank">Mr.shelter 发表于 2020-12-31 11:00</a>
+
+为什么要在嘉然动态下开团泥哥啊，去别的地方不行吗，刷了1200多条了 ...</blockquote>
+拦不住的  过段时间就好了
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 455#       发表于 2020-12-31 14:15
+
+
+
+
+半天没看，隔壁专楼已经100页了
+不过也就前面还算能看，到100页的时候已经完全是垃圾场了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 456#       发表于 2020-12-31 14:20
+
+
+
+
+有些人就不配去看美好的东西。而某些人的品性甚至连下水道的老鼠都不如。
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 457#       发表于 2020-12-31 14:29
+
+
+
+
+尼哥主持v圈正义的样子真是恶臭至极，但我相信nga里也有想认真讨论的人
+希望今晚团体直播别拉跨，这回放开膀子博明白后能再开一栋asoul专楼
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 458#       发表于 2020-12-31 14:35
+
+
+
+
+虚无的汴京，在绝对的实力面前都会碾过去的
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 459#       发表于 2020-12-31 14:53
+
+
+
+<blockquote>poipanchao 发表于 2020-12-31 14:35
+虚无的汴京，在绝对的实力面前都会碾过去的</blockquote>
+我喜欢这一句。看到嘉然连跳20分钟，还有一字马的切片时，我就知道这个企划有东西。
+
+后续的发展也符合我的预测，asoul和B站上其他90%以上的v，观感就领先几个世代。
+
+
+
+
+
+
+
+-----
+
+####  hanshanwulu  
+##### 460#       发表于 2020-12-31 14:57
+
+
+
+
+珈乐，救救我的珈乐，呜呜呜。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 461#       发表于 2020-12-31 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898899&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-31 14:53</a>
+
+我喜欢这一句。看到嘉然连跳20分钟，还有一字马的切片时，我就知道这个企划有东西。
+
+后续的发展也符合我 ...</blockquote>
+有一说一，千万不要入脑，之前看你打的那个“能100……就能300……”SC，不知道你是有意还是无意的，我反正是怕了😅
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 462#       发表于 2020-12-31 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49899031&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-31 15:05</a>
+
+有一说一，千万不要入脑，之前看你打的那个“能100……就能300……”SC，不知道你是有意还是无意的，我反 ...</blockquote>
+那是搞笑用，我知道是xz梗，故意的。昨天晚上不还有星咏者作文（不是我写的），一个心思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 463#       发表于 2020-12-31 15:36
+
+
+
+ 本帖最后由 Lucio 于 2020-12-31 16:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49899031&amp;ptid=1974517" target="_blank">与太郎 发表于 2020-12-31 15:05</a>
+
+有一说一，千万不要入脑，之前看你打的那个“能100……就能300……”SC，不知道你是有意还是无意的，我反 ...</blockquote>
+在花园猫45万粉的那天晚上，nga有人推荐过去看我就去了，直播感官一般，当时她在唱歌，我等两首歌的间隙打了sc点歌，点的还是她发过视频的“勾指起誓”——选这首歌是因为她既然放在空间里边，那么肯定是自觉唱得好有效果，我从来不会强人所难。
+
+sc打出去到消失，歌点不到就算了，连句“谢谢sc”都没有，我看着SC消失，她开始唱另一首歌之后，我就出门夜跑了。
+
+回头去讨论楼提了一嘴，本来也就当交流交流，没什么太大的想法，结果话一说出来就几个人讲“要理解她”“顺着她性格”什么的，我当时就恼了。心里的第一反应是“就这？这就是头部的日v？”
+
+我给自己的定位是观众，给v的定位是表演者，活好我就赏，活烂我就喷。我没兴趣去当v的爸爸给对方管天管地。
+
+我第一次看asoul的直播是向晚的二播，然后看了贝拉首播，当时提了意见冷落sc。原本以为运营要放上好几天，把现有的节目安排都播完之后才会做调整，结果在贝拉首播的第2天，团体演出那晚，每个人都是飞速答复sc，我感觉运营尊重了我，把我当爹，v也尊重我。
+
+两相比较，我怎么能不支持她们橄榄flbk的🌸妹
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 464#       发表于 2020-12-31 15:44
+
+
+
+
+评论区1400+看麻了
+S1在任何时候发挥不了任何作用（黄豆流汗脸）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 465#       发表于 2020-12-31 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49899352&amp;ptid=1974517" target="_blank">Lucio 发表于 2020-12-31 15:36</a>
+
+在花园猫45万粉的那天晚上，nga有人推荐过去看我就去了，直播感官一般，当时她在唱歌，我等两首歌的间隙 ...</blockquote>
+花园猫本来就不是头部日v
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 466#       发表于 2020-12-31 16:18
+
+
+
+
+在比开始还开始的时候（看我在这个楼的最早发言），五人直播确实很拉胯，运营不清楚他们究竟要直播什么，Liver也在尬玩游戏，镜头也不知道怎么摆的，一切都很无聊。
+
+但是在她们跳舞之后，我觉得这个企划一定可行。上面的问题都不是问题，她们有能火的因素，这就足够了。
+
+现在看到这样的直播，对比一开始，只能感慨仅仅一个月就能刮目相看，这个世界上又多了值得期待的东西。
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 467#       发表于 2020-12-31 16:27
+
+
+
+
+又看了一遍录播，然然太甜了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰海风  
+##### 468#       发表于 2020-12-31 16:52
+
+
+
+
+然然就是天使！
+
+
+
+
+
+
+
+-----
+
+####  honeybrain  
+##### 469#         楼主| 发表于 2020-12-31 17:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898947&amp;ptid=1974517" target="_blank">hanshanwulu 发表于 2020-12-31 14:57</a>
+珈乐，救救我的珈乐，呜呜呜。</blockquote>
+不基德<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 470#       发表于 2020-12-31 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900513&amp;ptid=1974517" target="_blank">honeybrain 发表于 2020-12-31 17:31</a>
+
+不基德</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">楼主你变了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 471#       发表于 2020-12-31 18:16
+
+
+
+
+楼主已经不是珈乐子人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 472#       发表于 2020-12-31 20:24
+
+
+
+
+说出来大家都相信，这是3w人气直播间的弹幕
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/202159ye4103i330xzw9xm.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201231-202030.png</strong> (1018.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 20:21 上传
+
+
+
+
+
+
+毕竟一个人两个小时也才发了1400条弹幕
+
+<img src="https://img.saraba1st.com/forum/202012/31/202159r90len0z3tvz3zt0.png" referrerpolicy="no-referrer">
+
+
+<strong>1609387591562.png</strong> (251.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 20:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 473#       发表于 2020-12-31 20:39
+
+
+
+
+什么独轮车<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人间开花  
+##### 474#       发表于 2020-12-31 20:40
+
+
+
+ 本帖最后由 人间开花 于 2020-12-31 20:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901989&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2020-12-31 20:24</a>
+
+说出来大家都相信，这是3w人气直播间的弹幕
+
+毕竟一个人两个小时也才发了1400条弹幕</blockquote>
+专业暖场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 475#       发表于 2020-12-31 20:51
+
+
+
+
+嘉然回复下面有发情小作文
+
+嘉然：你看过他们发的那个吗？
+
+向晚：看过啊？他们都是抄的
+
+嘉然：也有原创的
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 476#       发表于 2020-12-31 21:04
+
+
+
+
+光速下班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我人傻了
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 477#       发表于 2020-12-31 21:09
+
+
+
+
+震惊！贝拉一上场，人气就从5.7w掉到5.6w
+
+<img src="https://img.saraba1st.com/forum/202012/31/210832go1hk6dhdvdloxz0.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20201231-210614.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 21:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 478#       发表于 2020-12-31 21:30
+
+
+
+
+开始走流程了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 479#       发表于 2020-12-31 21:34
+
+
+
+
+珈乐支棱起来了
+
+
+
+
+
+
+
+-----
+
+####  芸芸提不起劲  
+##### 480#       发表于 2020-12-31 21:34
+
+
+
+
+贝拉珈乐合舞不错欸
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 481#       发表于 2020-12-31 21:52
+
+
+
+
+为什么唱歌的时候这么软？要变成珈人惹<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
