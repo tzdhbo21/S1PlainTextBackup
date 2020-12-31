@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 12:10** 
+> ## **本文件最后更新于2020-12-31 12:09** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_BFxvV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_jkiM2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -2403,7 +2403,7 @@ A 小伙伴你好！目前暂无计划哦。
 
 
 
- 本帖最后由 SuperCK 于 2020-12-26 23:35 编辑 
+ 本帖最后由 SuperCK 于 2020-12-30 18:36 编辑 
 
 嘉然表情包收集
 <img src="https://p.sda1.dev/0/0ef4d7df346fad2fedac18b623a19e90/IMG_CMP_39346719.png" referrerpolicy="no-referrer">
@@ -2413,6 +2413,7 @@ A 小伙伴你好！目前暂无计划哦。
 <img src="https://p.sda1.dev/0/356090ba54a1e9455bb197607ce1bc4d/IMG_CMP_62120767.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/0/955600b8617d6e8edf747966e01f0f84/1608996860744.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/0/4c7919ac4e507de3c74d3e426df82e5e/IMG_CMP_67871614.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7f4a5a89c0cdb2346e87d68a00255b08/IMG_CMP_93317495.jpeg" referrerpolicy="no-referrer">
 
 
 
@@ -8082,6 +8083,25 @@ B0FF5D5F1626F6C3AF75531B8AD0BEBA.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -8118,4 +8138,535 @@ B0FF5D5F1626F6C3AF75531B8AD0BEBA.jpg
 
 
 
-                                   
+
+
+-----
+
+####  午餐女仆  
+##### 426#       发表于 2020-12-30 20:09
+
+
+
+
+开播了，速来
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 427#       发表于 2020-12-30 20:16
+
+
+
+
+嘉然百舰了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 428#       发表于 2020-12-30 20:16
+
+
+
+
+鼠鼠们月底电子厂发工资了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 429#       发表于 2020-12-30 20:33
+
+
+
+
+作文打分也太草了
+
+—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 430#       发表于 2020-12-30 21:13
+
+
+
+
+好
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  honeybrain  
+##### 431#         楼主| 发表于 2020-12-30 21:33
+
+
+
+
+今天怪文书有b综楼友投的？  听说还是高分 有没有截图 来点
+
+
+
+
+
+
+
+-----
+
+####  DDDog  
+##### 432#       发表于 2020-12-30 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49892624&amp;ptid=1974517" target="_blank">honeybrain 发表于 2020-12-30 21:33</a>
+
+今天怪文书有b综楼友投的？  听说还是高分 有没有截图 来点</blockquote>
+贾布加布等切片吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+给嘉然整破防了
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 433#       发表于 2020-12-30 21:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/215927xq4itbczo6mkcynm.png" referrerpolicy="no-referrer">
+
+
+<strong>嘉然小作文.png</strong> (54.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 21:59 上传
+
+
+
+
+
+
+其实我刷贴吧多一点，b综只是偶尔上上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 11战斗力 +13
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海底铁锚| + 1|生哭立拔|
+| qw945| + 1|好评加鹅|
+| 与太郎| + 1|呜呜呜|
+| plllllum| + 1|好评加鹅|
+| zaku11ku| + 2||
+| Lucio| + 2|鼠鼠落泪|
+| 苍浅°| + 1|老哥加油|
+| honeybrain| + 1|不错 味挺足|
+| SuperCK| + 1||
+| seki_m| + 1|不输猫狗鼠|
+| フミさん| + 1|呜呜呜看哭了，祝老哥安好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  脑瘫辅助  
+##### 434#       发表于 2020-12-30 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49892847&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-30 21:59</a>
+其实我刷贴吧多一点，b综只是偶尔上上</blockquote>
+V8和s1赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 435#       发表于 2020-12-30 22:31
+
+
+
+
+嘉然这次直播舰长和提督都翻了一倍，嘉然真要成团里的顶梁柱了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 436#       发表于 2020-12-30 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49892784&amp;ptid=1974517" target="_blank">DDDog 发表于 2020-12-30 21:50:46</a>
+贾布加布等切片吧
+
+给嘉然整破防了</blockquote>草，切片这就出来了，半小时不到
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 437#       发表于 2020-12-30 22:35
+
+
+
+
+给然然发私信没两分钟就回我了，然然然然然<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 438#       发表于 2020-12-30 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49893121&amp;ptid=1974517" target="_blank">齐桓公 发表于 2020-12-30 22:31</a>
+
+嘉然这次直播舰长和提督都翻了一倍，嘉然真要成团里的顶梁柱了
+
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+本来就是她播得最多  表现得也最好   
+
+
+
+
+
+
+
+-----
+
+####  剑魔独孤求败  
+##### 439#       发表于 2020-12-30 22:43
+
+
+
+
+我第一次管人入脑了😰
+
+
+
+
+
+
+
+-----
+
+####  zxc5175011  
+##### 440#       发表于 2020-12-30 22:44
+
+
+
+
+嘉然她太会了
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 441#       发表于 2020-12-30 23:11
+
+
+
+[整挺好](https://www.bilibili.com/video/BV1kV411b7sT?p=3)
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 442#       发表于 2020-12-31 01:00
+
+
+
+
+呜呜呜，8u嗯偷的定型文可以被选上，我好气啊
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 443#       发表于 2020-12-31 01:03
+
+
+
+
+另外泥哥能不能（）啊
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 444#       发表于 2020-12-31 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49892847&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2020-12-30 21:59</a>
+
+其实我刷贴吧多一点，b综只是偶尔上上</blockquote>
+今晚，你就是鼠王！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 445#       发表于 2020-12-31 09:19
+
+
+
+
+嘉然这才是第三次直播吧，光看直播间不得虚拟区前两页(后台互动人数可是前三)
+
+昨天晚上慕名看了自我介绍视频，真是只要我不尴尬尴尬的就是观众。
+
+国V最大优势就是可以无门槛放后台当广播听，听到有意思的再切回页面看。所以只要业务能力差强人意，也能听个响，更别说嘉然这种top。
+
+不行，已经有戒断反应了。。。
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 446#       发表于 2020-12-31 09:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49895439&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2020-12-31 09:19</a>
+
+嘉然这才是第三次直播吧，光看直播间不得虚拟区前两页(后台互动人数可是前三)
+
+昨天晚上慕名看了自我介绍视 ...</blockquote>
+看昨天的数据的话，昨晚v区能进前五的水平，就是路人粉少了点，舰长不多，人气也有点被压
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 447#       发表于 2020-12-31 09:43
+
+
+
+
+然然粉丝怎么就卡在1.4万了，每次直播效果那么好，热度那么高，昨天更是凭一己之力引爆整个V8和NGA的女人，怎么就是不涨粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 448#       发表于 2020-12-31 10:08
+
+
+
+<blockquote>王一唯不傲娇 发表于 2020-12-31 09:33
+看昨天的数据的话，昨晚v区能进前五的水平，就是路人粉少了点，舰长不多，人气也有点被压 ...</blockquote>
+我还翻来覆去刷新了好几次，人气从10w蜗牛到14w就不动了，看了后台数据总感觉怪怪的。
+
+就算抛去签约SC舰长等各种加成，阿B也压的稍微有点狠了。
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 449#       发表于 2020-12-31 10:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">泥哥终于开asoul专楼了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 450#       发表于 2020-12-31 11:00
+
+
+
+
+为什么要在嘉然动态下开团泥哥啊，去别的地方不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，刷了1200多条了
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 451#       发表于 2020-12-31 11:04
+
+
+
+
+昨晚有营收有互动，人气那么低应该是给a团的人气算法不同
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 452#       发表于 2020-12-31 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49896552&amp;ptid=1974517" target="_blank">Mr.shelter 发表于 2020-12-31 11:00</a>
+
+为什么要在嘉然动态下开团泥哥啊，去别的地方不行吗，刷了1200多条了 ...</blockquote>
+贴吧日常开不过路人也看不到，nga专楼开着开着就muted了，s1热度低鼠人又舍不得￥5，只有睿站评论区门槛最低
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 453#       发表于 2020-12-31 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49896596&amp;ptid=1974517" target="_blank">pllllum 发表于 2020-12-31 11:04</a>
+昨晚有营收有互动，人气那么低应该是给a团的人气算法不同</blockquote>
+其实就是正常的未签约数据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，主要是绝对人数不算多
+
+
+
+
+
+                                  
