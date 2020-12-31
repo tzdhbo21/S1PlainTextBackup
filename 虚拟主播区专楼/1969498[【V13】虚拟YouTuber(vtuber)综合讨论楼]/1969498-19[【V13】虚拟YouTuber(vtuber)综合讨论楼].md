@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 00:03** 
+> ## **本文件最后更新于2021-01-01 02:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_vhD75" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_MjFnO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12298,4 +12298,652 @@ t台关闭，妈宝滚啊！
 
 
 
-                             
+
+
+-----
+
+####  alcoholic1000  
+##### 27629#       发表于 2021-1-1 00:05
+
+
+
+
+新年快乐！！来年继续一起阴湿
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27630#       发表于 2021-1-1 00:06
+
+
+
+
+黑黑一走同接直线下降，天皇……
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27631#       发表于 2021-1-1 00:07
+
+
+
+
+新年新气象<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+好了，凑完热闹了，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27632#       发表于 2021-1-1 00:07
+
+
+
+
+哈....我的新年是跟郡道一起过的啊...
+
+难道我2021年也是管人痴...？
+
+郡道快点抽沉船吧！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27633#       发表于 2021-1-1 00:10
+
+
+
+
+新的一年我宣布2020年最不体面的人找到了，差了900粉还要去红迪讨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://www.reddit.com/comments/knqvf7](https://www.reddit.com/comments/knqvf7)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 27634#       发表于 2021-1-1 00:10
+
+
+
+
+祝2000早日泡到棒妹
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27635#       发表于 2021-1-1 00:11
+
+
+
+
+啊？？？
+
+郡道一把出了两个五星<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">，你谁啊？？？？
+
+高兴到猪叫还行
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27636#       发表于 2021-1-1 00:11
+
+
+
+
+兔头，惊愕的2434倒闭宣言！（in桃铁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 27637#       发表于 2021-1-1 00:23
+
+
+
+
+因为黑客年末年初几天不播所以今年还是红白和J跨一起过的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+新的一年马上就有挑染看，好耶~
+
+不知道2021三人和官方愿不愿意多营业一下这个组合，果然虽然退了J家坑但还是想看组合互动啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27638#       发表于 2021-1-1 00:25
+
+
+
+
+郡道歪三个了，给老子沉！
+
+这也许是郡道今年最高的同接了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 27639#       发表于 2021-1-1 00:27
+
+
+
+
+新年好！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27640#       发表于 2021-1-1 00:32
+
+
+
+
+因为月姬的消息完全已经不是管人痴的状态跨年了 。
+
+希望新的一年能慢慢脱坑，追管人太耗精神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 27641#       发表于 2021-1-1 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904736&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 00:25</a>
+
+郡道歪三个了，给老子沉！
+
+这也许是郡道今年最高的同接了</blockquote>
+你这嘴....
+
+真沉了啊！（直播）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27642#       发表于 2021-1-1 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904831&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-1 00:33</a>
+
+你这嘴....
+
+真沉了啊！（直播）</blockquote>
+笑喷了，上次nijiholo人狼，这回fgo抽卡，每次都掉线，
+
+郡道也许被同接之神诅咒了吧！
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27643#       发表于 2021-1-1 00:37
+
+
+
+
+祝大家早日脱管
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27644#       发表于 2021-1-1 00:39
+
+
+
+
+草啊！抽到五星saber还歪！
+
+你郡一辈子别抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 27645#       发表于 2021-1-1 00:42
+
+
+
+
+一年的成果
+<img src="https://p.sda1.dev/0/5a8cfdffde8ed75b553d5359c5e667f4/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/00dfac6206a7c526f3aa0a770805a48b/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27646#       发表于 2021-1-1 00:49
+
+
+
+
+新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 27647#       发表于 2021-1-1 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904881&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 00:39</a>
+
+草啊！抽到五星saber还歪！
+
+你郡一辈子别抽卡了</blockquote>
+哭喊着再充一万再充一万，我真的想要士郎的郡道好可爱
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 27648#       发表于 2021-1-1 00:55
+
+
+
+
+楼友们新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27649#       发表于 2021-1-1 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904991&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-1 00:51</a>
+
+哭喊着再充一万再充一万，我真的想要士郎的郡道好可爱</blockquote>
+说十连沉船画面是guro图像看来精神确实不太行了，
+
+这是歪了多少次啊！！！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27650#       发表于 2021-1-1 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904991&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-1 00:51</a>
+
+哭喊着再充一万再充一万，我真的想要士郎的郡道好可爱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 士郎厨郡道  粉了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27651#       发表于 2021-1-1 01:02
+
+
+
+
+社
+<img src="https://p.sda1.dev/0/f91540c63e84c25e2dc39466acf062c8/IMG_BA822F1EDE43E735A6E5E81C0093017C.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27652#       发表于 2021-1-1 01:05
+
+
+
+
+郡道想装樱来诱骗士郎，多次怒吼私はさくら，大姐怎么还さくら啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+好好过年别巨魔了！
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27653#       发表于 2021-1-1 01:10
+
+
+
+ 本帖最后由 十四洲 于 2021-1-1 02:02 编辑 
+
+叶这逆凸迫真个人势石锤
+
+星川！yyds！是你拯救了叶虹人的身份！
+吐槽一句，星川很多地方看得出来真的很感激叶这个前辈，星川在合唱曲百万达成的时候还特地发推庆祝了，今天年终回顾的时候也提到了叶
+
+
+但是叶师真的是个大猪蹄子，总是刻意保持距离，一直坚持用敬语，对星川的印象跟bosna相提并论说是马车，还说什么除了葛叶没和人双人合唱过，好家伙你那次被炎上得主动抹除记忆了吗？忘了半夜推特连发的是谁？
+
+
+星宝，叶师不值得<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">梁木了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27654#       发表于 2021-1-1 01:11
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-1 01:55 编辑 
+
+您要叛逃了，终于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/01/012453thp8zkeekhv6838j.png" referrerpolicy="no-referrer">
+
+
+<strong>年越しゲーム配信 ｜色んなゲーム納め→年越し同時視聴→新年のあいさつ【にじさんじ:.png</strong> (484.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 01:24 上传
+
+
+
+
+
+
+这波，这波是带着星川夜逃
+
+星叶贴贴！
+
+
+最终逆凸名单：
+
+渋谷ハル 、リテおじ 、あどみん 、かわせさん 、エイムん 、ポドカさん 
+
+狮子神レオナさん、にゃんたこさん 、モスラメソさん 、星川さん 
+
+ボスナさん 、そらるさん 、なるせちゃん 、まんちゃん
+
+
+包含职业战队、唱见、个人势VTB好友...和星川，这是和2434成员大不仲啊
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27655#       发表于 2021-1-1 01:11
+
+
+
+
+美大生这边太绝望了，打了五六个小时还在相同的地方
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27656#       发表于 2021-1-1 01:13
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-1 01:19 编辑 
+
+郡道开始轮番模仿樱凛saber来引诱士郎，被观众说过于不像真的要炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+惹这一抽出了三女主，士郎再不出就是homo石锤了
+
+
+又歪了，郡道算了算了（歪了切嗣w）
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27657#       发表于 2021-1-1 01:16
+
+
+
+ 本帖最后由 Ketestrait 于 2021-1-1 01:27 编辑 
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm7jmh8ya0g20es08cnpg.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm7jfadzs5g20es08cnph.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm7jg8jc0sg20es08cx6p.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm7jhxgr1zg20es08cx6t.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm7jq0o14pg20eu08cnpf.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm7jiyx1ipg20eu08c7wl.gif" referrerpolicy="no-referrer">
+
+
+兔头特辑，从摸头安慰到流放边陲，是人性的扭曲还是道德的沦丧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|欢乐多兔|
+| rzrbtk| + 1|好评加兔|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27658#       发表于 2021-1-1 01:27
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-1 01:36 编辑 
+
+气得唱起了幻想嘉年华主题曲，
+
+草在做梦王子给她送钱抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+ 耻辱下播！！！！
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27659#       发表于 2021-1-1 01:37
+
+
+
+
+你叶师傅又放卫星，新的一年能回收几个呢拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27660#       发表于 2021-1-1 02:03
+
+
+
+
+葛给职业哥教练，联动过的同事都发了新年祝福啊，真好
+想到我列表统一样式的群发祝福，破防了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            

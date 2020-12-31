@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-30 18:06** 
+> ## **本文件最后更新于2021-01-01 02:05** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_K8ppC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_qfeWE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16021,4 +16021,953 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 
 
 
-                   
+
+
+-----
+
+####  Dualist彩  
+##### 6904#       发表于 2020-12-30 18:16
+
+
+
+
+将所有人的性格特征都降低一个层级的话，故事就没有那么美好了吧 
+
+                         
+
+父母有洁癖=家里人得体干净
+
+咩宝不洗澡=咩宝不能洗澡，生活环境很糟糕
+
+自己去便利店=父母出门
+
+坐到了父母的床上=趁着家里没人带着对正常生活的向往进到了家中本不属于她的地方
+
+被骂了一小时=毒打欺侮不知多久
+
+想回来=想逃出来
+
+          
+
+或许根本没有什么麻酱在东京大都市一个人住，有的只是暗无天日的地下室中一个被锁着的只有在新年才能出来看看外面世界的小女孩
+
+               
+
+她讲述的故事是多么的奇幻美好
+
+                       ——《少女咩的奇幻漂流》
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫| + 1|欢乐多|
+| Mr.shelter| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 6905#       发表于 2020-12-30 18:33
+
+
+
+
+草
+
+
+
+
+
+
+QQ图片20201230183326.jpg
+(194.55 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-30 18:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/183346q5kw4qqoh5805b09.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20201230183330.jpg
+(219.17 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-30 18:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/183349n5sr1ex1r1u3c43w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6906#       发表于 2020-12-30 18:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/185706sf4zifh4pfhx4kv3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3AA5E57E-5175-4625-9F63-B33F14B944CA.jpeg</strong> (394.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 18:57 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/30/185707ywyx2xi6br6xciyi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1D65938F-7756-427D-88A6-1FE53915914E.jpeg</strong> (352.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-30 18:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6907#       发表于 2020-12-31 10:46
+
+
+
+
+卡古拉咩啊一动不动<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6908#       发表于 2020-12-31 11:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我要好好当mmr
+
+再也不到处出去巨魔了
+
+我要改邪归正重新人做人
+
+再见了巨魔的我！
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 6909#       发表于 2020-12-31 11:21
+
+
+
+
+今年限定是吧，明年继续巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6910#       发表于 2020-12-31 12:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/120028nq89zp4zzfr1pef4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DD214559-452F-48BB-87DC-91CA5AA00659.jpeg</strong> (295.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 12:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 6911#       发表于 2020-12-31 12:05
+
+
+
+
+这个排序是怎么算的 小麻火腿怎么排第二了 我就看了几次啊(我看奶油面包拳的次数都比这多) 
+
+
+
+
+
+
+Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
+(36.36 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-12-31 12:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/120156mrqdhc4dcd1cd2cf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 6912#       发表于 2020-12-31 12:13
+
+
+
+<img src="https://p.sda1.dev/0/7e45602e5055586f6695c67668ea8c93/IMG_CMP_9188947.png" referrerpolicy="no-referrer">
+居然不是官组
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6913#       发表于 2020-12-31 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6914#       发表于 2020-12-31 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49896791&amp;ptid=1973472" target="_blank">sw11133 发表于 2020-12-31 11:19:44</a>
+我要好好当mmr
+
+再也不到处出去巨魔了
+
+我要改邪归正重新人做人
+
+再见了巨魔的我！ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">改邪归正给麻酱赎罪是吧，很难不当mmr
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6915#       发表于 2020-12-31 12:39
+
+
+
+
+今年就不对meaqua阴湿了，祝愿两人贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6916#       发表于 2020-12-31 12:40
+
+
+
+ 本帖最后由 Dualist彩 于 2020-12-31 12:41 编辑 
+
+呜呜呜，小麻你听得见吗
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/123929riswih6li6ijlbis.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>6ec34fb02b1066112018674ab87c79ad.jpeg</strong> (401.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 12:39 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6917#       发表于 2020-12-31 13:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/134354hhffizyzi069goot.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FAEBFC45-C092-49E8-A9B4-7902B7D9AF54.jpeg</strong> (340.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 13:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6918#       发表于 2020-12-31 15:11
+
+
+
+
+发了个万档饭盒还行，今天这个点了还干活的吗（
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 6919#       发表于 2020-12-31 15:54
+
+
+
+
+敬业先锋神乐咩
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6920#       发表于 2020-12-31 15:59
+
+
+
+
+所以什么时候TC
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6921#       发表于 2020-12-31 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6922#       发表于 2020-12-31 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 6923#       发表于 2020-12-31 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6924#       发表于 2020-12-31 18:57
+
+
+
+
+现在开启岚的live就能跟阿咩一起同步试听了，而且等到有nino出场的画面，还可以很轻松的脑补到阿咩兴奋的尖叫声（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6925#       发表于 2020-12-31 22:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/223530ocu2uq2w1cg1mmrt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4D5DE4A9-A9C3-47CA-B78C-840D38834C76.jpeg</strong> (834.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 22:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6926#       发表于 2020-12-31 23:08
+
+
+
+
+新年快乐啊咩咩，希望今年你也能有很多开心的事情<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6927#       发表于 2020-12-31 23:10
+
+
+
+
+20岁啊，小麻要长大了，等一个振袖和服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6928#       发表于 2021-1-1 00:01
+
+
+
+
+新年快乐，希望新的一年你能快快乐乐的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6929#       发表于 2021-1-1 00:03
+
+
+
+
+2020.12+年度总结
+
+<img src="https://img.saraba1st.com/forum/202101/01/000304ihk8h8hz9moo3b0k.png" referrerpolicy="no-referrer">
+
+
+<strong>12a.png</strong> (117.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 00:03 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/000309e4fvzc662c1vfbac.png" referrerpolicy="no-referrer">
+
+
+<strong>12b.png</strong> (143.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 00:03 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/000315as8mqmq8z6qgapp3.png" referrerpolicy="no-referrer">
+
+
+<strong>12c.png</strong> (65.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 00:03 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/000319tvz4sgfmsyvg6z96.png" referrerpolicy="no-referrer">
+
+
+<strong>2020sum.png</strong> (104.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 00:03 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 2|辛苦了兄弟|
+| A2014720| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6930#       发表于 2021-1-1 00:06
+
+
+
+
+又是新的一年啊
+<img src="https://p.sda1.dev/0/defff2f53a48e71b4a94866030040990/IMG_CMP_163171262.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 6931#       发表于 2021-1-1 00:14
+
+
+
+
+21年，希望她能平稳吧
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 6932#       发表于 2021-1-1 00:15
+
+
+
+
+ 各位新年快乐
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6933#       发表于 2021-1-1 00:21
+
+
+
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6934#       发表于 2021-1-1 00:22
+
+
+
+
+楼友新年快乐(*'▽'*)♪
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 6935#       发表于 2021-1-1 00:23
+
+
+
+
+新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6936#       发表于 2021-1-1 00:28
+
+
+
+
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  A-Wie  
+##### 6937#       发表于 2021-1-1 00:28
+
+
+
+
+新年快乐
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6938#       发表于 2021-1-1 00:39
+
+
+
+
+各位楼友新年快乐
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6939#       发表于 2021-1-1 00:41
+
+
+
+
+大半夜娃发烧
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 6940#       发表于 2021-1-1 00:42
+
+
+
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6941#       发表于 2021-1-1 00:43
+
+
+
+ 本帖最后由 时雨rain 于 2021-1-1 01:14 编辑 
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 6942#       发表于 2021-1-1 01:43
+
+
+
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 6943#       发表于 2021-1-1 01:50
+
+
+
+
+新年快乐，准备再听一次这吊人的憂、燦々就睡了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                  
