@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 02:03** 
+> ## **本文件最后更新于2021-01-01 04:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_MjFnO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_pS3pg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12739,18 +12739,13 @@ t台关闭，妈宝滚啊！
 
 
 
- 本帖最后由 十四洲 于 2021-1-1 02:02 编辑 
+ 本帖最后由 十四洲 于 2021-1-1 02:25 编辑 
 
 叶这逆凸迫真个人势石锤
 
-星川！yyds！是你拯救了叶虹人的身份！
-吐槽一句，星川很多地方看得出来真的很感激叶这个前辈，星川在合唱曲百万达成的时候还特地发推庆祝了，今天年终回顾的时候也提到了叶
+星川！yyds！是你拯救了叶虹人的身份！对着这份名单，我宣布叶星szd
 
 
-但是叶师真的是个大猪蹄子，总是刻意保持距离，一直坚持用敬语，对星川的印象跟bosna相提并论说是马车，还说什么除了葛叶没和人双人合唱过，好家伙你那次被炎上得主动抹除记忆了吗？忘了半夜推特连发的是谁？
-
-
-星宝，叶师不值得<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">梁木了
 
 
 
@@ -12938,12 +12933,114 @@ t台关闭，妈宝滚啊！
 
 
 
+ 本帖最后由 黑之和 于 2021-1-1 02:05 编辑 
 
-葛给职业哥教练，联动过的同事都发了新年祝福啊，真好
+葛给职业哥教练，个人势朋友，联动过的同事都发了新年祝福啊，真好
 想到我列表统一样式的群发祝福，破防了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
 
 
 
 
-                            
+
+
+-----
+
+####  乌鸦绅士  
+##### 27661#       发表于 2021-1-1 02:04
+
+
+
+
+诗音深夜突然开始的性癖的话题<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 27662#       发表于 2021-1-1 02:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/021156x5qww1815iw21mw8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210101013706.png</strong> (119.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 02:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27663#       发表于 2021-1-1 03:20
+
+
+
+
+叶师在会限唱KING，没投稿翻唱真的太好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 27664#       发表于 2021-1-1 03:39
+
+
+
+
+月灵居然是给那个拍舞高校軽音部搞的动捕，这玩意不是个管人企划吗，弄个web动画居然找别人做动捕然后配音的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这什么路数啊，太v了
+
+<img src="https://p.sda1.dev/0/cbabeb2dbff2ba6a6fcd544738de3716/Screenshot_20201231-134439_YouTube~01.jpg" referrerpolicy="no-referrer">
+
+有点惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 27665#       发表于 2021-1-1 03:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905639&amp;ptid=1969498" target="_blank">Mafise 发表于 2021-1-1 03:39</a>
+
+月灵居然是给那个拍舞高校軽音部搞的动捕，这玩意不是个管人企划吗，弄个web动画居然找别人做动捕然后配音 ...</blockquote>
+管人企划吗？当动画看就行了。但怎么拉来了这么多踩
+
+
+
+
+
+                           
