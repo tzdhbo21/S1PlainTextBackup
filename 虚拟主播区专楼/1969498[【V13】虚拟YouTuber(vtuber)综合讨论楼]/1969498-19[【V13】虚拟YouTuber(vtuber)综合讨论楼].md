@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 20:02** 
+> ## **本文件最后更新于2021-01-01 00:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_cdCXN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_vhD75" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11224,4 +11224,1078 @@ zsyl，叶不搞凸待搞逆凸还行
 
 
 
-                              
+
+
+-----
+
+####  FCCHua  
+##### 27572#       发表于 2020-12-31 20:23
+
+
+
+
+珊瑚好惨，名字被弄错<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+ptr:？？？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27573#       发表于 2020-12-31 20:38
+
+
+
+
+尊这嗜酒又好色，不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27574#       发表于 2020-12-31 20:53
+
+
+
+
+不破的愿望好朴素，去冲绳<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 27575#       发表于 2020-12-31 20:55
+
+
+
+
+你们在看V在看晚会而我在看东方漫才
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 27576#       发表于 2020-12-31 21:02
+
+
+
+
+b站这M1漫才直播居然还有官方中文的，可以。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27577#       发表于 2020-12-31 21:04
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm7callm2sj20xv0iwq64.jpg" referrerpolicy="no-referrer">
+
+
+你虹CEO跨年夜带头撒狗粮，这社不亡还有王法吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 27578#       发表于 2020-12-31 21:13
+
+
+
+
+VTuber58名のコメントが集合 2020年の思い出と2021年の目標は？
+
+2020年のMoguLiveの締めくくりとなる企画は、VTuberからの特別コメント記事です。「Q1：2020年のご自身の活動を振り返って、印象的だった出来事など」と「Q2：2021年にやってみたいこと、抱負、読者へのメッセージ」の2つの質問に回答していただきました。
+[https://www.moguravr.com/vtuber-comment-2020-2021/](https://www.moguravr.com/vtuber-comment-2020-2021/)
+
+
+（无虹无杏）
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 27579#       发表于 2020-12-31 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902367&amp;ptid=1969498" target="_blank">stedckk 发表于 2020-12-31 21:02</a>
+
+b站这M1漫才直播居然还有官方中文的，可以。</blockquote>
+来个地址？
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 27580#       发表于 2020-12-31 21:15
+
+
+
+
+ikura真的好稳<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27581#       发表于 2020-12-31 21:15
+
+
+
+
+走姐唱的孤儿泪还是这么棒<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27582#       发表于 2020-12-31 21:16
+
+
+
+
+看完arashi和白坂，准备和月之跨年了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 27583#       发表于 2020-12-31 21:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902552&amp;ptid=1969498" target="_blank">a37356205 发表于 2020-12-31 21:15</a>
+
+来个地址？</blockquote>
+[https://live.bilibili.com/22708311](https://live.bilibili.com/22708311)
+
+错过一周目了，已经二周目
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| a37356205| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27584#       发表于 2020-12-31 21:50
+
+
+
+ 本帖最后由 Ketestrait 于 2020-12-31 22:02 编辑 
+
+走姐solo版vtl<img src="https://static.saraba1st.com/image/smiley/carton2017/051.png" referrerpolicy="no-referrer">
+
+
+syl
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gm7dyxxe0nj20ym0mjq8e.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/qadzLrOGVqY](https://youtu.be/qadzLrOGVqY)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27585#       发表于 2020-12-31 22:09
+
+
+
+
+就你杏今天这表现，跨年被虹吊打，该。
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27586#       发表于 2020-12-31 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27587#       发表于 2020-12-31 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">杏奴随着你主子爬吧，大过年的就别跳出来恶心人了。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27588#       发表于 2020-12-31 22:24
+
+
+
+
+想听阿菜唱sp的歌<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27589#       发表于 2020-12-31 22:25
+
+
+
+
+阿菜<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27590#       发表于 2020-12-31 22:32
+
+
+
+[https://youtu.be/Mny5V3w2K8o](https://youtu.be/Mny5V3w2K8o)
+
+
+【作業用BGM】お正月30分耐久【町田ちま/にじさんじ】
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27591#       发表于 2020-12-31 22:33
+
+
+
+
+11岁<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27592#       发表于 2020-12-31 22:45
+
+
+
+
+yyut最后15分钟！这次没有19w了
+
+[https://www.youtube.com/watch?v= ... 6%E3%81%86%E3%81%9F](https://www.youtube.com/watch?v=14acTQte-zs&amp;ab_channel=%E9%88%B4%E6%9C%A8%E3%82%86%E3%82%86%E3%81%86%E3%81%9F)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27593#       发表于 2020-12-31 22:47
+
+
+
+
+太多窗看不过来，我还是去看肉村和光头吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27594#       发表于 2020-12-31 22:49
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm7fbl4kiyj20xt0j1ae4.jpg" referrerpolicy="no-referrer">
+
+
+syl
+
+
+SC for chima<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gm7fc65zqlj20an05bwev.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27595#       发表于 2020-12-31 22:56
+
+
+
+
+本来想看月之皇女打情骂俏，突然蹦出来郡道t台通知，点进去，”我妈出去玩了~“，
+
+t台关闭，妈宝滚啊！
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27596#       发表于 2020-12-31 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 草，事故了，没声音
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27597#       发表于 2020-12-31 22:58
+
+
+
+
+草 台 班 子
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27598#       发表于 2020-12-31 22:59
+
+
+
+
+你虹这跨年特别节目开场静音事故，还行不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27599#       发表于 2020-12-31 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开局爆炸 半年都没有了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27600#       发表于 2020-12-31 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">90分钟还行，60分钟的机台，这节目至于这样么？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27601#       发表于 2020-12-31 23:04
+
+
+
+
+新的一年，你虹也要，
+
+英语禁止！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 墨玄i| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27602#       发表于 2020-12-31 23:05
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gm7fs7dim0j210b0mqq56.jpg" referrerpolicy="no-referrer">
+
+
+感动日本，天照大神必为彩虹续一年！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kanchiki| + 1|好评加鹅|
+| admentus| + 1|好评加鹅|
+| 墨玄i| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 27603#       发表于 2020-12-31 23:06
+
+
+
+
+英语禁止！！！！！！好！！
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27604#       发表于 2020-12-31 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹杏高下立判
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 27605#       发表于 2020-12-31 23:08
+
+
+
+
+可以，彩虹，正道的光！
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27606#       发表于 2020-12-31 23:09
+
+
+
+
+不愧是声优，口条就是好
+真给信长弄了个3d啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27607#       发表于 2020-12-31 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还蹭鬼灭热度 德不配位你虹也配？
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27608#       发表于 2020-12-31 23:13
+
+
+
+
+这英语禁止还要整两回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27609#       发表于 2020-12-31 23:14
+
+
+
+
+アイドル→偶像，没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27610#       发表于 2020-12-31 23:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/232044i4m7s7rnmd48cqec.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201231232021.png</strong> (256.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 23:20 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27611#       发表于 2020-12-31 23:21
+
+
+
+
+迫真电视购物节目
+
+
+
+
+
+
+
+-----
+
+####  Ronso  
+##### 27612#       发表于 2020-12-31 23:21
+
+
+
+
+月灵姐姐新年快乐了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27613#       发表于 2020-12-31 23:24
+
+
+
+
+熊猫人到此！
+
+感觉明年也要强推机台啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27614#       发表于 2020-12-31 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904014&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-31 23:24</a>
+
+熊猫人到此！
+
+感觉明年也要强推机台啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 你葵提了口了了，看来口了是和生主集团对抗的命运之天选之人了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27615#       发表于 2020-12-31 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904036&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-31 23:26</a>
+
+你葵提了口了了，看来口了是和生主集团对抗的命运之天选之人了</blockquote>
+不破老早就号召观众等待口了回归了，
+
+不破你葵一起守护口了，开心吗
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27616#       发表于 2020-12-31 23:28
+
+
+
+<img src="https://p.sda1.dev/0/a79cad018f17aacef9ecc9fd84571fd0/IMG_CMP_51956890.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27617#       发表于 2020-12-31 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904067&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-31 23:28</a>
+
+不破老早就号召观众等待口了回归了，
+
+不破你葵一起守护口了，开心吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 口了回归的第一场命运之战就是和其他人相扑大战，
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27618#       发表于 2020-12-31 23:30
+
+
+
+
+草
+信长3d幻视绝望老师
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27619#       发表于 2020-12-31 23:31
+
+
+
+
+信长换上3D模型就开始演起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27620#       发表于 2020-12-31 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49904083&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-31 23:29</a>
+
+口了回归的第一场命运之战就是和其他人相扑大战，</blockquote>
+刚好昨天郡道又聊起门牙笑话，这回就让口了把郡道门牙打到下水道吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">，
+
+你虹3D真的不太行啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27621#       发表于 2020-12-31 23:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/233236fo991fugpu7lf91f.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20201231233217.png</strong> (426.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 23:32 上传
+
+
+
+
+
+
+子安还行
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27622#       发表于 2020-12-31 23:36
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm7gojr2ekj20y7085my5.jpg" referrerpolicy="no-referrer">
+
+
+そのタイトル、権利大丈夫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 27623#       发表于 2020-12-31 23:37
+
+
+
+
+口了复归赶紧上3D来一波打拳直播啊
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27624#       发表于 2020-12-31 23:37
+
+
+
+
+信长这3d可以啊，考虑彩虹出道吗（
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27625#       发表于 2020-12-31 23:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 高情商：有考虑过转会木口星么
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27626#       发表于 2020-12-31 23:46
+
+
+
+ 本帖最后由 rzrbtk 于 2020-12-31 23:48 编辑 
+
+郡道出来新年FGO抽卡了，还聊到之前问STF抽卡王工商为什么会找她，没想到stf说是郡道运气超差很有效果，郡道就很不服，就开了这次直播，决心让这次抽卡成为新年新开始！
+
+
+不过吧，说实话，从选FGO这个游戏开始就输了。
+
+省一楼，你虹新年新头像，
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/234831lzmlgz4lgslxa2qa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2434.jpg</strong> (32.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 23:48 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27627#       发表于 2020-12-31 23:56
+
+
+
+
+郡道准备抽阿比了，抽前唱了那首黑猫的歌，
+
+正巧一起ina也唱过，高下立判<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">！！！
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27628#       发表于 2021-1-1 00:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 新年快乐阿，今年也要继续虹杏大战
+
+
+
+
+
+                             
