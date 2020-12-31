@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 04:02** 
+> ## **本文件最后更新于2020-12-31 14:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_A8iqv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_A0FPN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6023,7 +6023,7 @@ SYL：
 <img src="https://img.saraba1st.com/forum/202012/30/140727zyn0uqyyyqrl3vsn.jpg" referrerpolicy="no-referrer">
 
 
-<strong>f551328d87326d3e31ba84281aeacd9b4ebfb441.jpg@518w.jpg</strong> (80.37 KB, 下载次数: 0)
+<strong>f551328d87326d3e31ba84281aeacd9b4ebfb441.jpg@518w.jpg</strong> (80.37 KB, 下载次数: 2)
 
 下载附件
 
@@ -8817,4 +8817,692 @@ yyut算v吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 
 
-                                  
+
+
+-----
+
+####  IDIDIDID  
+##### 27452#       发表于 2020-12-31 07:44
+
+
+
+
+喷了，起床刷个油管wtm读了9个小时SC至于吗
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 27453#       发表于 2020-12-31 08:20
+
+
+
+
+读SC是培养付费认知厨的特色，不得不尝
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 27454#       发表于 2020-12-31 10:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/101209bgu2bm55m523b0r8.png" referrerpolicy="no-referrer">
+
+
+<strong>er2f69h0wd861.png</strong> (567.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 10:12 上传
+
+
+
+
+
+
+
+AME: 老娘现实中也是二次元美少女
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 27455#       发表于 2020-12-31 10:23
+
+
+
+ 本帖最后由 noHentai 于 2020-12-31 10:31 编辑 
+
+以自然年算的最后数据，2020年结束了。
+<img src="https://p.sda1.dev/0/313d0be2c4e943adfba8894f0013a400/无标题.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f2148705711c63f60f12e32f6d25df61/image.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| free| + 2||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27456#       发表于 2020-12-31 11:14
+
+
+
+
+【1年振り返り】視聴者が選ぶ！2020年にあったニュイのRPGで人気だったシリーズランキング【ニュイ・ソシエール/にじさんじ】
+
+[https://youtu.be/t8ODllr3V4I](https://youtu.be/t8ODllr3V4I)
+
+
+牛姨的观众投票2020年直播过的rpg人气排行榜，又到了参观11区群众喜好的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27457#       发表于 2020-12-31 11:46
+
+
+
+ 本帖最后由 真飞鸟i 于 2020-12-31 11:52 编辑 
+
+本月暂时v圈sc前十，第一切茜娅，第二润润，第三蝗，第四兔皇，第五亲华团长，第六船长，第七三枝，第八夸皇，第九咩粟，第十呜米。三枝之前包括三枝都在千万以上。今天还没结束，所以还有可能变动，但也就亲华团长和夸皇有可能再进一步了。本月holo总sc突破2e，b站营收也再创新高，v圈是越来越好了吗？syl，正说着夸皇就开了年终直播间，能突破千万吗？
+
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 27458#       发表于 2020-12-31 11:48
+
+
+
+
+原神要大杀特杀了？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27459#       发表于 2020-12-31 11:54
+
+
+
+
+狼羊这么猛？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27460#       发表于 2020-12-31 12:03
+
+
+
+
+株式会社Brave group所属キャラクターをいつも応援くださり、誠にありがとうございます。
+
+
+急なお知らせにはなってしまいますが、この度、弊社が運営する
+
+
+・ゲーム部プロジェクト
+
+・YUIKA’S ROOM
+
+・あやひなチャンネル
+
+
+
+におきまして、2021年以降の活動について、運営とキャラクター両者で話し合いを重ねた結果、
+
+
+▼ゲーム部プロジェクト
+
+・夢咲楓
+
+・道明寺晴翔
+
+・風見涼
+
+
+▼ YUIKA’S ROOM
+
+・風見唯花
+
+
+▼あやひなチャンネル
+
+・柊彩香
+
+・朝倉日向
+
+
+の6名の活動を終了することとなりました。
+
+
+[https://bravegroup.co.jp/news/331](https://bravegroup.co.jp/news/331)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27461#       发表于 2020-12-31 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897256&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-31 11:54</a>
+
+狼羊这么猛？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊58w4人民币（924w日元），狼55w8人民币（882w日元）。这月国v很猛的，突飞猛进，日v倒是有点退潮，ccll里这月好像只有nano的收益和上月比是增加的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27462#       发表于 2020-12-31 12:04
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-12-31 12:08 编辑 
+
+88burden（指reso部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+A8/ENTUM/brave，下一个可以是VIC吗？快点端上来吧，已经等不及了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 27463#       发表于 2020-12-31 12:05
+
+
+
+ 本帖最后由 free 于 2020-12-31 12:17 编辑 
+
+[https://bravegroup.co.jp/news/331](https://bravegroup.co.jp/news/331)
+
+弊社所属キャラクターに関してのお知らせをHPに掲載致しました。
+
+
+二代梦咲枫、道明寺晴翔、风见凉、风见唯花、柊彩香、朝仓日向毕业
+
+二代米莉亚还将继续活动
+
+
+现在旗下剩下的还有二代米莉亚，青桐高校，英语老师克蕾雅，riot的5个人
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27464#       发表于 2020-12-31 12:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">等游戏部这个结局已经等了一年多……结果真发生之后也没什么感觉了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27465#       发表于 2020-12-31 12:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+EJYN(@BGXJT1QKUF@MM%5`0.png
+(22.47 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-12-31 12:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/31/121943wtnr4h4otr8y5ryc.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27466#       发表于 2020-12-31 12:30
+
+
+
+
+现在游戏部正统在青桐了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 27467#       发表于 2020-12-31 12:31
+
+
+
+
+乐府鲨疯了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27468#       发表于 2020-12-31 12:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像彩虹订阅二把手换人了嘛
+You are king
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 27469#       发表于 2020-12-31 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897141&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2020-12-31 11:46</a>
+
+本月暂时v圈sc前十，第一切茜娅，第二润润，第三蝗，第四兔皇，第五亲华团长，第六船长，第七三枝，第八夸 ...</blockquote>
+切茜娅 是有石油佬么？付费人数被亲华团长吊打10倍。。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 27470#       发表于 2020-12-31 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">那12月b站SC榜要怎么做？没法精神胜利了啊
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27471#       发表于 2020-12-31 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897703&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-31 12:39</a>
+
+切茜娅 是有石油佬么？付费人数被亲华团长吊打10倍。。</blockquote>
+勒夫的大手<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 27472#       发表于 2020-12-31 12:44
+
+
+
+
+别尬黑，批站石油佬无论数量质量都比吊打404好吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27473#       发表于 2020-12-31 12:48
+
+
+
+
+搞个《纯净版虚拟主播SC榜》呗
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 27474#       发表于 2020-12-31 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897788&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2020-12-31 12:48</a>
+
+搞个《纯净版虚拟主播SC榜》呗</blockquote>
+把holo也去了多好（
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27475#       发表于 2020-12-31 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897816&amp;ptid=1969498" target="_blank">smy20011 发表于 2020-12-31 12:51</a>
+
+把holo也去了多好（</blockquote>
+就是把holo勒夫维阿等等只要不是新时代的都去了啊
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27476#       发表于 2020-12-31 12:58
+
+
+
+
+别尬黑，404打钱有水分的，lga科研组已经石锤猴楼莱舞买sc了，就tskk的直播质量配得上高sc吗？
+
+反观团长本身过硬的直播素质，平易近人且如沐春风的待人态度，使得观者都不由自主的阳光了起来，打钱上舰也分外起劲。这种良性的直播内循环产生的收益才是真实的可持续的，在团长两个月的经营下，现在直播间已经形成了牢固且自发壮大的观众群体，虽然本月直播时间不到20h，但依旧创造了最高的营收，让人不得不佩服团长个人魅力和ccll优于虹杏的经营模式，充分开采了bilibili这个蓝海市场，未来属于ccll和阳光新时代人。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96|-1|定型文回血|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27477#       发表于 2020-12-31 13:00
+
+
+
+
+这些都无所谓啦，还是当初第一次知道维阿全箱一个月才150W比较震惊，这还开着干嘛关门算了。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27478#       发表于 2020-12-31 13:17
+
+
+
+
+牛姨的rpg直播年终总结观众投票（参与投票总人数为2120人）
+
+
+首先是直播的rpg里观众也玩过的比例：
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm6yjahrrzj20xt0iydja.jpg" referrerpolicy="no-referrer">
+
+
+最低的是格兰蒂亚HD，目测因为过于古老并且是2D的，所以玩过的观众少。
+
+
+============================================
+
+
+然后是播过的rpg投票排行（注：投票包括对牛姨直播效果的评价，并非单纯的游戏排名）
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm6ynqzy3dj20hs1o4aja.jpg" referrerpolicy="no-referrer">
+
+
+1. 异度之刃2  （绝对优势领先第二名，472票，得票率高达22.2%）
+
+2. 风花雪月   （得票率14.5%）
+
+3. FF9
+
+4. DQ11S
+
+5. 格兰蒂亚
+
+6. 上古卷轴  （仅比第5名少7票）
+
+7. 异度之刃DE
+
+8. FF10
+
+9. 时空之轮
+
+10. 巫师3
+
+11. 天穗的咲名姬
+
+12. 圣剑传说3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27479#       发表于 2020-12-31 13:22
+
+
+
+
+毕竟唯一指定JPRG，就是**剑2开播准备太麻烦了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27480#       发表于 2020-12-31 13:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=COLtzhWZ8Dk](https://www.youtube.com/watch?v=COLtzhWZ8Dk)
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 27481#       发表于 2020-12-31 13:41
+
+
+
+ 本帖最后由 RedBaby 于 2020-12-31 13:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">按照某些舅舅的说法，这个对照表还是要出的，公会魔女也要算上。反正是展示给不知猫腻的外行人甚至是外国人看的流水数据，只要还在上升就能吸引更多的人来。
+
+羊狼吊石油王有一手的，好几个红地毯团建了
+
+
+
+
+
+                                 
