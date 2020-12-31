@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 18:03** 
+> ## **本文件最后更新于2020-12-31 20:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_Hh8Et" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_cdCXN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9459,10 +9459,11 @@ You are king
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| tankai| + 1|这个胸真的过份.|
 | 格林卡罗尔| + 1|好评加鹅|
 
 
@@ -10458,6 +10459,25 @@ https://www.youtube.com/channel/UCjU5ItIqNBz2qWLLpGDVAJA/fe ...</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10494,4 +10514,714 @@ https://www.youtube.com/channel/UCjU5ItIqNBz2qWLLpGDVAJA/fe ...</blockquote>
 
 
 
-                                
+
+
+-----
+
+####  ひびき  
+##### 27531#       发表于 2020-12-31 18:06
+
+
+
+
+阿批年度报告循环最多的视频是月灵的恐山<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+奇怪我怎么感觉美丽之物要听的更多来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 27532#       发表于 2020-12-31 18:06
+
+
+
+
+等着看23点半的3D信长，在此之前今年再也不看管人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 27533#       发表于 2020-12-31 18:20
+
+
+
+
+德龙……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27534#       发表于 2020-12-31 18:21
+
+
+
+
+来斗最新收入啦！德龙说自己没钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 27535#       发表于 2020-12-31 18:26
+
+
+
+
+这就是2434的主流进出吗？真是有够可笑的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27536#       发表于 2020-12-31 18:26
+
+
+
+
+露露的声音很asmr，但依然唤起了我的PTSD<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27537#       发表于 2020-12-31 18:28
+
+
+
+
+老板娘来凸了！好罕见！
+省一楼，月之皇女听到没钱的时候都还蛮震惊的，德龙是不是私下有什么勾当瞒着大家啊（玩笑）
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27538#       发表于 2020-12-31 18:32
+
+
+
+
+狐皇搞啥啊，没练过乱蹭玩风神录非要耐久通关，年末硬撞木口跨年活动，看来2021是要决心做木口凛姨了?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 27539#       发表于 2020-12-31 18:33
+
+
+
+
+德龙收入下降还行（
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27540#       发表于 2020-12-31 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 喷子们别尬黑嗷，隔壁阳光虹人说了，音声无敌高收入，一定是德龙花钱太大手大脚了，她们已经和东京一般社员一样高收入了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27541#       发表于 2020-12-31 18:37
+
+
+
+
+看月之皇女开跟舞元有关的男女玩笑还是挺开心的，虽然独角兽要死，但是我好喜欢这种啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+来了个感觉精神失常通篇拟声词的stf投稿，是3D班的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27542#       发表于 2020-12-31 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 青长的烦恼应该是如何跳槽成功吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27543#       发表于 2020-12-31 18:45
+
+
+
+
+猜都不用猜，想多睡觉的绝对是西西啊，
+记得以前月下樱集合的时候还被称作床的妖精
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27544#       发表于 2020-12-31 18:53
+
+
+
+
+柴卡跑来一姐面前逼宫要东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+不过我也很喜欢机甲柴卡
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27545#       发表于 2020-12-31 18:58
+
+
+
+
+本来以为原神氪爆赌马也输的大小姐也要上来哭穷（你虹liver前面好多想要钱的），结果是日常梦桐人，人设不倒啊
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 27546#       发表于 2020-12-31 18:59
+
+
+
+
+你虹老社区都垮完了还有”价值“<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+你虹的偶像粉能不能给文化民一点活路。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27547#       发表于 2020-12-31 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 可能天皇和皇太子看liver来信这种是真正的艺术、文化吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27548#       发表于 2020-12-31 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901211&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2020-12-31 18:59</a>
+你虹老社区都垮完了还有”价值“
+
+你虹的偶像粉能不能给文化民一点活路。 ...</blockquote>
+搞文化赚不到啊，你虹连stf都来哭穷了（指想要5000兆）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27549#       发表于 2020-12-31 19:06
+
+
+
+
+月之皇女开安洁玩笑说葛叶和贝叔是贴贴对象，是一姐和继承人在敲打king吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">（玩笑）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27550#       发表于 2020-12-31 19:10
+
+
+
+
+德比上来吓人，说“老子才是你们的烦恼嗷”，被皇女月之一顿吸，发出了女人的声音，hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 27551#       发表于 2020-12-31 19:17
+
+
+
+
+ホロライブプ        ゆくホロくるホロ2020        [https://www.youtube.com/watch?v=CBTwb8jqJM8&amp;feature=youtu.be](https://www.youtube.com/watch?v=CBTwb8jqJM8&amp;feature=youtu.be)        18時半
+
+いろどり芸能郵便社        年越しそば配信        [https://www.youtube.com/watch?v=2guLpBx3OmE&amp;feature=youtu.be](https://www.youtube.com/watch?v=2guLpBx3OmE&amp;feature=youtu.be)        20時
+
+のりプロ        のりプロ年越し桃鉄        [https://t.co/Dfc8a1JcMZ?amp=1](https://t.co/Dfc8a1JcMZ?amp=1)        21時
+
+ハニスト        年越しメアパト        [https://www.youtube.com/watch?v=0KjrJrNvb_w&amp;feature=youtu.be](https://www.youtube.com/watch?v=0KjrJrNvb_w&amp;feature=youtu.be)        23時
+
+あにまーれ        年越しあにまーれ        [https://www.youtube.com/watch?v=qadzLrOGVqY&amp;feature=youtu.be](https://www.youtube.com/watch?v=qadzLrOGVqY&amp;feature=youtu.be)        23時30分
+
+シュガリリ        2021年をしっぽり迎える        [https://www.youtube.com/watch?v=NxpsQvYKo9w&amp;feature=youtu.be](https://www.youtube.com/watch?v=NxpsQvYKo9w&amp;feature=youtu.be)        23時30分
+
+にじさんじ        年またぎにじさんじ        [https://www.youtube.com/watch?v=AoFnsVUzVbE&amp;feature=youtu.be](https://www.youtube.com/watch?v=AoFnsVUzVbE&amp;feature=youtu.be)        23時58分
+
+
+
+统计了下今晚有跨年节目的日V团体
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27552#       发表于 2020-12-31 19:18
+
+
+
+
+ssk发了个什么斩击一刀流啥啥的，
+一眼看下去以为是左左人投稿<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27553#       发表于 2020-12-31 19:19
+
+
+
+
+喷了狐皇半小时之前还录了个小视频，效率论拉满了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27554#       发表于 2020-12-31 19:22
+
+
+
+
+你虹stf很难啊，没钱没时间睡觉，有的连人话都说不出了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">（夸张）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27555#       发表于 2020-12-31 19:25
+
+
+
+
+狗啊，你们虹liver人人哭穷，小偶像上来说钱包里没现金，月之银行卡限额，郡道每天晚上都后悔自己没及时用优惠卷
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 27556#       发表于 2020-12-31 19:27
+
+
+
+
+月灵在b动态发新年祝福了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27557#       发表于 2020-12-31 19:29
+
+
+
+
+啊stf好像给月之皇女点了外卖寿司！
+给天皇及继承人献宝<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27558#       发表于 2020-12-31 19:30
+
+
+
+ 本帖最后由 qq845629713 于 2020-12-31 19:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 看错了，但虹男一边和女liver快乐联动打游戏，还赚大钱，真的非常真实
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27559#       发表于 2020-12-31 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901488&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-31 19:30</a>
+油男还好意思要钱阿，虹男一边和女liver快乐联动打游戏，还赚大钱，真的非常真实 ...</blockquote>
+明明是牛姨要石油王打钱<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27560#       发表于 2020-12-31 19:37
+
+
+
+<blockquote>qq845629713 发表于 2020-12-31 19:30
+看错了，但虹男一边和女liver快乐联动打游戏，还赚大钱，真的非常真实 ...</blockquote>
+你虹男粉在给虹男打钱，女粉也在给虹男打钱，他们收入会不高吗？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27561#       发表于 2020-12-31 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901551&amp;ptid=1969498" target="_blank">Suny08 发表于 2020-12-31 19:37</a>
+
+你虹男粉在给虹男打钱，女粉也在给虹男打钱，他们收入会不高吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 但她们有高级寿司吃阿
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 27562#       发表于 2020-12-31 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹男确实香
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27563#       发表于 2020-12-31 19:43
+
+
+
+
+liver穷的好地方在于给点小奖赏就会很开心，
+看着寿司kyakya叫的月之皇女可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+然后就想到了一天一和牛的拉米，有钱真好<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27564#       发表于 2020-12-31 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901606&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2020-12-31 19:43</a>
+
+liver穷的好地方在于给点小奖赏就会很开心，
+
+看着寿司kyakya叫的月之皇女可爱，
+
+然后就想到了一天一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 虽然吃的不是和牛，但她们可以和男liver一起打游戏阿，精神上的满足＞物欲上的满足
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27565#       发表于 2020-12-31 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901615&amp;ptid=1969498" target="_blank">qq845629713 发表于 2020-12-31 19:45</a>
+虽然吃的不是和牛，但她们可以和男liver一起打游戏阿，精神上的满足＞物欲上的满足 ...</blockquote>
+然后叫高收入男人买东西，都满足<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+月之大谈ryona，可惜你虹最适合ryona的人已经<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27566#       发表于 2020-12-31 19:51
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gm7a6az92sj20yj0l2adr.jpg" referrerpolicy="no-referrer">
+
+
+看看人家的跨年直播<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27567#       发表于 2020-12-31 19:52
+
+
+
+
+这么说又有男人又有钱的狐坦岂不是世界上最幸福的人？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27568#       发表于 2020-12-31 19:54
+
+
+
+
+露露投稿“想玩游戏✖️N”，
+皇女之前问怎样激怒露露，答案是把游戏夺走，
+露露这也太梦幻了吧，歌舞力高的美颜游戏宅<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27569#       发表于 2020-12-31 19:55
+
+
+
+ 本帖最后由 十四洲 于 2020-12-31 19:58 编辑 
+
+管人跨年直播谈恋爱还能赚钱，气不气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，看年度报告发现自己管人浓度并没有想象中高安心了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+zsyl，叶不搞凸待搞逆凸还行
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27570#       发表于 2020-12-31 19:57
+
+
+
+
+啊！！！！！！！！！
+月之社筑停一停啊！！！！！！
+给我去加班<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 27571#       发表于 2020-12-31 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">一边听着露露的asmr同时看兔头皇女的节目别样享受（喂
+
+
+
+
+
+                              
