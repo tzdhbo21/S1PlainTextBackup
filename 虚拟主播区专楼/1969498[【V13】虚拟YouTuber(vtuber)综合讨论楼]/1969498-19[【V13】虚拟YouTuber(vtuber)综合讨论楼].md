@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 12:02** 
+> ## **本文件最后更新于2021-01-01 14:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_XDz9g" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_j6hkY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12728,6 +12728,25 @@ t台关闭，妈宝滚啊！
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|草|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12832,6 +12851,25 @@ t台关闭，妈宝滚啊！
 
 又歪了，郡道算了算了（歪了切嗣w）
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -13665,4 +13703,546 @@ inui最恐怖的不是明明不怎么念人名但依然大把人投钱吗，这�
 
 
 
-                          
+
+
+-----
+
+####  Ketestrait  
+##### 27699#       发表于 2021-1-1 12:04
+
+
+
+ 本帖最后由 Ketestrait 于 2021-1-1 12:10 编辑 
+
+playboard这榜看了一眼
+
+
+2. 润姨
+
+3. 兔皇
+
+4. 船长
+
+8. 阿火
+
+15. 日南
+
+
+三期最强！<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+
+
+syl
+
+
+阿希依然高居第16<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27700#       发表于 2021-1-1 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907532&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-1 12:00</a>
+你要知道郡道这没算茶爆
+
+郡道不是说茶爆比sc多吗
+
+那不就是4000w了</blockquote>
+我觉得郡道那个“t台收入比油管高”不是讲全年，应该是炎上之后大跳水那段时间的，不然4000w也太猛了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">，怕不是比家里还有钱。
+郡d可以是高收入底边
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 27701#       发表于 2021-1-1 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907604&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 12:08</a>
+
+我觉得郡道那个“t台收入比油管高”不是讲全年，应该是炎上之后大跳水那段时间的，不然4000w也太猛了[f:1 ...</blockquote>
+我也觉得不至于真的比sc多
+
+但是想想这一年t台数量和每次t台都念爆的茶爆
+
+不会差太多
+
+贵贵会员也的确不少
+
+早就说过比爹富了
+
+
+真心富婆
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27702#       发表于 2021-1-1 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907637&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-1 12:12</a>
+我也觉得不至于真的比sc多
+
+但是想想这一年t台数量和每次t台都念爆的茶爆
+
+不会差太多</blockquote>
+这就是你虹上位的末路，播爆-高收入-满足了物质需求-决定以后自己开心就好-玩鸡掰游戏做鸡掰事-flop（当然还有被ickr抓去榨干这条路），
+学学杏女学学king<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 27703#       发表于 2021-1-1 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907685&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 12:18</a>
+
+这就是你虹上位的末路，播爆-高收入-满足了物质需求-决定以后自己开心就好-玩鸡掰游戏做鸡掰事-flop（当 ...</blockquote>
+想想真狡猾
+
+把收入藏相当一部分到t台
+
+让人误以为自己并没有那么多sc<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl
+
+口了要是周年回归
+
+郡道周年不贼尴尬
+
+我要花生恶魔了！
+
+（然后郡gachi万事一转郡道为什么不爱口了）
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 27704#       发表于 2021-1-1 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907568&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-1-1 12:04</a>
+
+playboard这榜看了一眼
+
+
+2. 润姨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希现在还是这么放肆没有一个祭丝是无辜的。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27705#       发表于 2021-1-1 12:43
+
+
+
+
+昨天哭穷，粉丝觉得好苦好苦，今天一看，千万收入，啥啊？
+周年回归就回归吧！葵三枝贝叔不破夹道欢迎，你郡就独自一人低同接开播，称呼口了为梦月さん然后炎爆吧！谁叫郡道不爱口了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">（其实在我心中mrra掰还有一个原因是口了逼得太紧，这回金鱼其实也是逼得太紧的表现之一）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27706#       发表于 2021-1-1 12:44
+
+
+
+
+towa露出度好低，能不能分点布给龙<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27707#       发表于 2021-1-1 12:46
+
+
+
+<blockquote>スタッフさんありがとう！
+
+※夏場からスタッフさんに何度もテストしていただき、
+
+安全な環境で相撲させていただきました！感謝…！
+
+
+ローション師匠　ミミック
+[https://www.youtube.com/channel/UCjbt...](https://www.youtube.com/channel/UCjbt...)
+
+
+★メンバー★
+
+@アルス・アルマル -ars almal- 【にじさんじ】 
+
+@夜見れな/yorumi rena【にじさんじ所属】 
+
+@笹木咲 / Sasaki Saku 
+
+@本間ひまわり - Himawari Honma - 
+[@椎名唯華](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=519337) / Shiina Yuika 
+[@月ノ美兎](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=515412) 
+
+
+ていあん(夏頃)：@夢月ロア🌖Yuzuki Roa </blockquote>
+看了下葵中堂开的窗下面的说明文
+
+
+1. 你虹staff还要挺身为liver先行反复测试滑不唧溜相扑的安全性，虹人能如此放肆，压榨员工的无良ceo田角要负第一责任
+
+
+2. 口了提出这个企划的时候是夏天……
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27708#       发表于 2021-1-1 12:53
+
+
+
+
+towa新皮这个短发造型，是否侵犯了粽子的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27709#       发表于 2021-1-1 12:54
+
+
+
+
+露露这直播的英语同传也是头铁娃..
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27710#       发表于 2021-1-1 12:54
+
+
+
+
+啥时候童田推特名后面加了个休养中<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">....
+新年还播的liver（如えらちゃん）确实是没有自己的生活
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 27711#       发表于 2021-1-1 12:55
+
+
+
+
+露露也太可怕了，这游戏之前也看夸熬过，真有这么上头吗，关键时不时点进去语调基本没怎么变化，这是不通关不下播么
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27712#       发表于 2021-1-1 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908048&amp;ptid=1969498" target="_blank">斗斗一号 发表于 2021-1-1 12:55</a>
+
+露露也太可怕了，这游戏之前也看夸熬过，真有这么上头吗，关键时不时点进去语调基本没怎么变化，这是不通关 ...</blockquote>
+通不了了，3个小时后要跟亲爹亲姐玩桃铁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27713#       发表于 2021-1-1 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908048&amp;ptid=1969498" target="_blank">斗斗一号 发表于 2021-1-1 12:55</a>
+
+露露也太可怕了，这游戏之前也看夸熬过，真有这么上头吗，关键时不时点进去语调基本没怎么变化，这是不通关 ...</blockquote>
+叶师之前24小时熬通关，而且好像正好生日前通关，不知道是不是精准控制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 27714#       发表于 2021-1-1 13:18
+
+
+
+
+露露这语调完全没变化我以为我看的是录播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27715#       发表于 2021-1-1 13:22
+
+
+
+
+嗯拖到七万是吧😓
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27716#       发表于 2021-1-1 13:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/133335qxe3aweipzpxxwxg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqkOs0DUwAAKkKc.jpg</strong> (729.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 13:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27717#       发表于 2021-1-1 13:34
+
+
+
+
+叶师说自己可以不坚持每天播，想出去旅游的时候，支持的同时我其实担心像他的棉花糖一样，体会到了关掉的爽快感后就变身摸鱼怪…
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27718#       发表于 2021-1-1 13:36
+
+
+
+
+下播了，完了，苦呀西了，这阴间游戏后面还要播
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 27719#       发表于 2021-1-1 13:37
+
+
+
+
+结果嗯拖到8W，踩还没有去年夸多，赢了
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 27720#       发表于 2021-1-1 13:41
+
+
+
+
+希望这个耳朵永远不会用到
+<img src="https://p.sda1.dev/0/8b359d3360fa6d1e23ce25f6e2c17154/IMG_CMP_232540482.jpeg" referrerpolicy="no-referrer">
+https://twitter.com/oshio_dayo/status/1344879042168639494?s=19
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27721#       发表于 2021-1-1 13:41
+
+
+
+
+小天使才是pua大师吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|不如说你才发现吗？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27722#       发表于 2021-1-1 13:49
+
+
+
+
+？梅丽莎把老歌的评论栏都关了？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27723#       发表于 2021-1-1 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905167&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 01:13</a>
+
+郡道开始轮番模仿樱凛saber来引诱士郎，被观众说过于不像真的要炎上了，
+
+惹这一抽出了三女主，士郎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，是会限么，我好想看录播
+
+
+
+
+
+                         
