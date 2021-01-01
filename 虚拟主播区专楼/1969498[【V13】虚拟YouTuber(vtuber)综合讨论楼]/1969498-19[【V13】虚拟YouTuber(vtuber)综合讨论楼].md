@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 04:02** 
+> ## **本文件最后更新于2021-01-01 12:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_pS3pg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_XDz9g" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13043,4 +13043,626 @@ t台关闭，妈宝滚啊！
 
 
 
-                           
+
+
+-----
+
+####  獅白ぼたん  
+##### 27666#       发表于 2021-1-1 08:35
+
+
+
+
+管人动画ptsd
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27667#       发表于 2021-1-1 08:41
+
+
+
+
+睡着时挂着露露直播 一觉起来发现直播间关着非常的安心！露露她没熬夜休息了！结果洗漱完后发现露露只是是十一个半小时jumpking后又开了个新窗，而且还在我睡着前的位置没动过，我要疯了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27668#       发表于 2021-1-1 08:58
+
+
+
+
+葛不愧是乾殿gachi
+发的dm都比别人的要长而且认真<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d533c5fb9a05bc142c1b4a668b027198/IMG_20210101_085725.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27669#       发表于 2021-1-1 09:05
+
+
+
+
+银憨憨这个只狼是不是可以一直玩到毕业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27670#       发表于 2021-1-1 09:45
+
+
+
+
+我要是露皇的医生的话现在就一个病历拍过去怎么把眼球消耗在跳跳王这阴间游戏上<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27671#       发表于 2021-1-1 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">作孽
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 27672#       发表于 2021-1-1 10:32
+
+
+
+
+查了下叶师jk快24小时才通的，露皇折磨到桃铁也不一定能过。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27673#       发表于 2021-1-1 10:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">在这种阴间游戏上折磨我，我梁木了，打算批判性观赏杏奴新衣服了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27674#       发表于 2021-1-1 10:45
+
+
+
+
+新年玩这种阴间游戏，晦气啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27675#       发表于 2021-1-1 10:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">本间桑，这就是你橄榄同社竞争对手的计策么
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 27676#       发表于 2021-1-1 10:55
+
+
+
+
+昨晚在哪今早还在那，甚至哼的调子都差不多，别折磨自己玩jk了……本来就有青光眼，要是搞到失明就再也没露露看了啊，服了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27677#       发表于 2021-1-1 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">不看了，我的露露肯定美美的睡了一觉在准备五小时后的桃铁
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 27678#       发表于 2021-1-1 11:00
+
+
+
+
+露露这她不急我看的要暴毙了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27679#       发表于 2021-1-1 11:11
+
+
+
+
+西西：我们月下樱好像已经结成一周年了耶！
+油：我二月才出道呢。
+#关系很好的月下樱
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 27680#       发表于 2021-1-1 11:12
+
+
+
+
+为什么要看，把露皇的jk放后台当asmr我已经早上好好睡了一觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27681#       发表于 2021-1-1 11:14
+
+
+
+ 本帖最后由 墨玄i 于 2021-1-1 11:17 编辑 
+
+24時以降配信 
+
+制作：スタッフさん
+メンバー：
+笹木/アルス/夜見/月ノ/椎名/本間
+企画：<strong>ロア</strong>ちゃん
+<img src="https://p.sda1.dev/0/9941e07211460ad14e631cbbdbe6e7f6/IMG_0C593DC87ACC8FE563B03FE54C34BA11.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 27682#       发表于 2021-1-1 11:14
+
+
+
+
+刷视频无意中刷出阿希的カタオモイ
+
+结果一看下面评论一票新年快乐，小丑竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 27683#       发表于 2021-1-1 11:17
+
+
+
+
+葵皇太阴湿了吧<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 27684#       发表于 2021-1-1 11:20
+
+
+
+
+我现在信2000是葵熊了……
+
+什么样的……就有什么样的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27685#       发表于 2021-1-1 11:28
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm817hq9kgj20f60j076n.jpg" referrerpolicy="no-referrer">
+
+
+anmr犬科新年联动日程
+
+
+附：黄兔姨亲笔谨贺新年
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm81915lvhj213o1zwq6l.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27686#       发表于 2021-1-1 11:31
+
+
+
+
+看来roa周年回归希望挺大，不错。
+怕大家不知道，还有一周就是红白笨蛋周年，还有两周就是mrra周年了，恭喜啊！
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27687#       发表于 2021-1-1 11:32
+
+
+
+ 本帖最后由 Suny08 于 2021-1-1 11:34 编辑 
+
+原来roa还在，我哭了
+
+
+syl，夜见棒球最后一年把二游捏成了柴卡和西西冲击最后一年，反抗军的羁绊啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27688#       发表于 2021-1-1 11:34
+
+
+
+
+蝗是有说好开直播之前不准打钱吗？怎么早漏SC和拉米差这么多
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 27689#       发表于 2021-1-1 11:36
+
+
+
+
+liver哭穷也不是没有道理的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+2020年スパチャランキング（playboard参照）
+※350万円以下はランキング外のため集計なし
+
+<img src="https://p.sda1.dev/0/5253f309f05463c00d654da8878037f8/IMG_486B55CA592A92EF26E82599491731D7.png" referrerpolicy="no-referrer">
+注：
+<img src="https://p.sda1.dev/0/6cff346eea174147873feeb42e748ed4/IMG_0EDA57E54832312454F4425BB72EEEED.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27690#       发表于 2021-1-1 11:40
+
+
+
+
+你虹liver没过300w的，昨天的投稿基本上是不能再做赌狗了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27691#       发表于 2021-1-1 11:41
+
+
+
+
+虹男第一牛逼
+
+女同第二牛逼
+
+当然这么看阿床最牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 27692#       发表于 2021-1-1 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907235&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-1-1 11:28</a>
+
+anmr犬科新年联动日程
+
+
+附：黄兔姨亲笔谨贺新年</blockquote>
+黄兔子这字写得不错呀
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27693#       发表于 2021-1-1 11:49
+
+
+
+
+inui最恐怖的不是明明不怎么念人名但依然大把人投钱吗，这是京都女的天赋吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">，
+郡道凭着昨天的同接和sc数据可以勉强装个一军（一日限定），然后就可以享受惨淡的2021底边之年了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27694#       发表于 2021-1-1 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907384&amp;ptid=1969498" target="_blank">stedckk 发表于 2021-1-1 11:44</a>
+
+黄兔子这字写得不错呀</blockquote>
+毕竟是自称V界书法第二人<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27695#       发表于 2021-1-1 11:51
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-1 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907350&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-1 11:41</a>
+
+虹男第一牛逼
+
+女同第二牛逼
+
+当然这么看阿床最牛逼</blockquote>
+补一下PB全年SC数据：
+[https://playboard.co/en/youtube- ... in-worldwide-yearly](https://playboard.co/en/youtube-ranking/most-superchated-all-channels-in-worldwide-yearly)
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/115051vxslsszx6sbo4p3a.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #019 - 'Most Super Chatted Channels in Worldwid.png</strong> (802.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 11:50 上传
+
+
+
+
+
+
+
+
+disclaimer：SC不代表liver所有收入
+
+
+
+（看这个表其实最强的是女主角
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27696#       发表于 2021-1-1 11:53
+
+
+
+
+不愧是杏
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27697#       发表于 2021-1-1 11:55
+
+
+
+
+京都女人pua力恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl，不知道别人会限sc咋样，不过inui每次会限都是一片红，有钱真好<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 27698#       发表于 2021-1-1 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907431&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 11:49</a>
+
+inui最恐怖的不是明明不怎么念人名但依然大把人投钱吗，这是京都女的天赋吗，
+
+郡道凭着昨天的同接和 ...</blockquote>
+你要知道郡道这没算茶爆
+
+郡道不是说茶爆比sc多吗
+
+那不就是4000w了
+
+再加上贵的要死的会员
+
+
+
+
+
+
+                          
