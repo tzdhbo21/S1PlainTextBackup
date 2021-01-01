@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 00:01** 
+> ## **本文件最后更新于2021-01-01 20:00** 
 
 
 
@@ -2196,4 +2196,557 @@ ARK2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 
 
-                                             
+
+
+-----
+
+####  Kanchiki  
+##### 4623#       发表于 2020-12-31 00:07
+
+
+
+
+其实除了2018太过早期的还有任天堂以外，B站还保有着大量的游戏档
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 乌鸦绅士| + 1|有时间我去找找|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4624#       发表于 2020-12-31 09:00
+
+
+
+
+哎。。。夸宝，做个游戏主播吧求你惹砰砰砰
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4625#       发表于 2020-12-31 16:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+apex100连
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4626#       发表于 2020-12-31 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">讲话了讲话了 
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4627#       发表于 2020-12-31 23:30
+
+
+
+
+阿委阿葵联动...有点意外
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4628#       发表于 2020-12-31 23:32
+
+
+
+ 本帖最后由 离魂仙 于 2020-12-31 23:36 编辑 
+
+1月5 桃铁联动
+月之 本间 宝钟 洋葱 
+
+夸宝跟月之同框尬聊的场景我是真得从来都没想过
+但是这个兔夸，我同意<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 乌鸦绅士| + 1|兔!?兔夸！？！？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4629#       发表于 2021-1-1 00:13
+
+
+
+
+新年新气象
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4630#       发表于 2021-1-1 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新年快乐，希望2021年越来越好吧
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4631#       发表于 2021-1-1 04:57
+
+
+
+
+希望能好好对待自己吧阿夸，哎
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4632#       发表于 2021-1-1 11:20
+
+
+
+
+桃铁这种只要能打出节摸效果，尬聊什么夸夸不怕的<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4633#       发表于 2021-1-1 11:34
+
+
+
+
+记得以前夸说过经常看兔头的节目的吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 4634#       发表于 2021-1-1 12:03
+
+
+
+
+阿葵，月之都有看吧，我记得那次偶像大师抽卡还发推提到月之了吧
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4635#       发表于 2021-1-1 12:17
+
+
+
+ 本帖最后由 面具13 于 2021-1-1 12:20 编辑 
+
+夸宝应该是真的喜欢看阿委的，不过两个人能不能聊起来不好说，不过好在有船长当润滑剂，还有一点点德龙的话题可以聊聊。
+
+本间的话直播内容上面更接近一点，但感觉早期的互动更像是夸宝硬蹭，估计只能聊聊西西了。
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 4636#       发表于 2021-1-1 18:16
+
+
+
+ 本帖最后由 Medling 于 2021-1-1 18:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">这是在给crew画饼吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">主人喊上瘾了是吧
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4637#       发表于 2021-1-1 18:18
+
+
+
+ 本帖最后由 面具13 于 2021-1-1 18:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2nd sololive，想屁吃
+
+
+要直播做饭养gachi了吗？
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 4638#       发表于 2021-1-1 18:23
+
+
+
+
+看了两年第一次在直播中听到喊观众主人
+
+这是什么新设定吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4639#       发表于 2021-1-1 18:26
+
+
+
+
+夸宝是不是喝醉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主人叫起来没完了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4640#       发表于 2021-1-1 18:28
+
+
+
+
+新的一年打算用更多的耐久熬die更多的crew
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4641#       发表于 2021-1-1 18:28
+
+
+
+
+游戏排到这么后面<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4642#       发表于 2021-1-1 18:28
+
+
+
+
+画饼还是夸宝会画，当个管人可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4643#       发表于 2021-1-1 18:33
+
+
+
+
+马车杯，夸宝考虑要不要再来yygq一下？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4644#       发表于 2021-1-1 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起练马车，还是练哭更实际点
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4645#       发表于 2021-1-1 18:35
+
+
+
+
+yygq来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4646#       发表于 2021-1-1 18:53
+
+
+
+
+这是什么活<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 4647#       发表于 2021-1-1 18:58
+
+
+
+
+除了料理，和去年有区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4648#       发表于 2021-1-1 19:02
+
+
+
+
+快点养gachi我等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4649#       发表于 2021-1-1 19:40
+
+
+
+
+今天夸宝yy了马车杯的事，这么勇？不懂日语只能来问问老哥了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4650#       发表于 2021-1-1 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我听到了啥，新年快la？
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4651#       发表于 2021-1-1 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">夸宝新年快乐
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4652#       发表于 2021-1-1 19:50
+
+
+
+
+夸宝新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4653#       发表于 2021-1-1 19:51
+
+
+
+
+夸宝新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            

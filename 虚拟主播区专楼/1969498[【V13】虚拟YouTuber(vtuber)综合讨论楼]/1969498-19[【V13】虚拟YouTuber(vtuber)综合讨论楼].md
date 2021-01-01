@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 18:03** 
+> ## **本文件最后更新于2021-01-01 20:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_awfww" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_Om478" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14759,10 +14759,13 @@ ickr自厂牌第一张CD就充分达到了商业CD的制作水平，开了个好
 
 
 
- 参与人数 16战斗力 +18
+ 参与人数 19战斗力 +21
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|好评加鹅|
+| winda| + 1|好评|
+| -rm7-| + 1|好评加鹅|
 | katern| + 1|我的超人|
 | ylssb10438| + 1|好评加鹅|
 | stedckk| + 1|好评加鹅|
@@ -15044,6 +15047,25 @@ noH哥还是不是0人了，真0人在听コールボーイ和悪魔の踊り方
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15114,4 +15136,873 @@ syl，inui说今年想尝试些新事情，看她样子也不像是会做企划�
 
 
 
-                        
+
+
+-----
+
+####  katern  
+##### 27760#       发表于 2021-1-1 18:05
+
+
+
+
+坦克可不是真坦克，平衡力都很差的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27761#       发表于 2021-1-1 18:09
+
+
+
+
+我就像一个毒唯，满心期待形婚夫妇dustcell光速解绑，
+但其实人家感情好得不行说不定未来就带到家里看爱猫了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">，
+绑也就绑了吧，希望以后多出好歌...
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27762#       发表于 2021-1-1 18:10
+
+
+
+
+虽然都喜欢把0和梅丽莎放在一起提，但我对0完全不感冒但是很吃梅丽莎……
+
+syl，我很好奇叶师是不是你虹最多歌回的(那批)男v（人_瘾_)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我听着最大的感受只有生草
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27763#       发表于 2021-1-1 18:14
+
+
+
+
+W O R L D W I D E H O L O L I V E
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/181403qs0bttte1spt440f.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #020 - '【#ホロライブ正月衣装】お正月衣装で新年.png</strong> (58.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 18:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27764#       发表于 2021-1-1 18:15
+
+
+
+
+人生赢家社筑<img src="https://p.sda1.dev/0/f377a719c4e631c612926170a2a0b9d0/IMG_CMP_217523003.jpeg" referrerpolicy="no-referrer">
+[https://twitter.com/mi0w0im/status/1344658712741310466](https://twitter.com/mi0w0im/status/1344658712741310466)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|不也挺好吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27765#       发表于 2021-1-1 18:20
+
+
+
+
+我也想让小少爷和阿胜左拥右抱<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27766#       发表于 2021-1-1 18:22
+
+
+
+<blockquote>qq845629713 发表于 2021-1-1 17:59
+这个其实挺暴露体重的，上盘重下盘轻就容易滑倒，可以发散体重了， ...</blockquote>
+这个相扑比赛除了阿花都是坦，不用发散的
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27767#       发表于 2021-1-1 18:50
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-1-1 18:58 编辑 
+
+<img src="https://p.sda1.dev/0/8ffcb4c41e9d7e5d5f5dc24600bf37fc/6f4a014a43639a61.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/1df632f0f375ca873f8b6150eaf6716c/-6f00979e5e1cbcd0.png" referrerpolicy="no-referrer">
+19年的木口，20年的木口，但木口昨晚跨年的表现是真的拉垮，设计失败浪费兔皇元素的第三环节，没有沟通事故拖后二十分钟的第四环节，完全配不上这个同接，希望2021年能够机械降神，替换掉现在的cover运营管理层。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27768#       发表于 2021-1-1 18:54
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-1 19:04 编辑 
+
+很少有人提到哈哥唱歌，跟风贴一下发在SeNeS（センス）频道的两首：
+[【歌ってみた】打上花火／DAOKO×米津玄師 cover【渋谷ハジメ×ギン×よつは】](https://www.youtube.com/watch?v=IB_mMukQBEU)
+[虹／福山雅治 (Cover)【にじさんじ/渋谷ハジメ】](https://www.youtube.com/watch?v=g2dyJ0Yt4iU&amp;t=116s)
+
+哈哥的歌虽然技巧很差，但可能因为中学乐队主唱经历，很放得开。声音比较低，如果选对曲还挺耐听的，brave heart这首结合他个人经历，意外的感人。哈哥会限偶尔也会唱歌，老二次元选曲挺对我胃口的，与其说歌唱上的好听，更多是下班后KTV充满感染力的氛围。
+
+
+noh老哥给翔哥的评价太高了，虽然他也是我最喜欢听的男v之一。
+
+翔哥翻唱Alexandros的[ワタリドリ](https://www.youtube.com/watch?v=kuuOPdJnGUU)非常非常合适，可能是作为一般社畜选择叛经离道vliver出道唱歌，情感上意外符合（甚至一度让兔头以为是梦追原创曲）。翔哥特别喜欢JPOP，金曲确实也比V曲更适合唱，会限只做先行披露，歌回基本上全部公开，大概还挺认真做singer的。
+
+除此之外就是假声，[にじさんじ歌リレー中公然の秘密](https://www.youtube.com/watch?v=WQw-_nul4sA&amp;t=463s)，前八美肉唱苹果很有味道，充满个人特色。（除此之外好投稿还有很多，不多做赘述）
+
+
+三枝会限唱歌中气十足，不知道为什么一到正式场合就拉垮...他最好听的还是第一次にじロック时翻唱的[andymori的1984](https://www.youtube.com/watch?v=s55qCAiZLHY&amp;t=1271s)，他称自己唱歌受到andymori影响（或许也是因此年轻时组建了乐队），这首歌情感特别充沛，大概也是这个原因。新发的[テレキャスタービーボーイ](https://www.youtube.com/watch?v=7kGGhprf064)还不错，SOLO版[蜜ノ味](https://www.youtube.com/watch?v=Xn8vVasKDOs)也很好听。
+
+
+社长唱歌是很强，但稍微有点get不到，我认为生歌&gt;投稿，3D初披露的完全感覚Dreamer（和翔哥完全不同的表现方式）、罠和[決闘 (PENGUIN RESEARCH)](https://www.youtube.com/watch?v=pgbe6rzkDZo&amp;t=1196s)听过很多遍，气氛远胜于一切。
+
+
+葛皇的KING可能有数字加成，充满了「KING」的感觉，唱歌方式我也挺喜欢的，投稿基本上都在线（被社长夸赞过的天赋），[歌ってみた 悪魔の踊り方](https://www.youtube.com/watch?v=4ifsnGEtX_E)PV可以说是社内最高水准级别。黑黑无论原创曲还是翻唱投稿成品质量之高——我愿称之为金钱的暴力。
+
+
+三小只中長尾景的[フ景罪-番凩](https://www.youtube.com/watch?v=HFxIHwVvgEw&amp;list=PLXuGkVLvpfdpcSKTh6BTjqcy3rTOVCoY8&amp;index=173)挺不错的，虽然比不上我心中BGCP翻唱投稿巅峰郡神Amigo。長尾景Rap意外还可以，期待后续投稿。免费听得不多，弹唱都蛮好的。
+
+弦月藤士郎——粉丝虽然不喜欢他被称为工具人实际上2434铁工具人出道半年MIX40多曲能演奏能作曲会限却在讲英语语法劝导观众好好学习——三只小中我听得最多的一位。翻唱投稿不知道为什么感觉还不如生歌，前P主唱歌是ボカロ，钢琴竖笛口琴吉他也在演奏ボカロ，最推荐是他的[钢琴术曲回](https://www.youtube.com/watch?v=xKe4KeXEOhk)。
+
+三小只的三人原创[浮世の演舞](https://www.youtube.com/watch?v=3mTTZuvhdHI)，在出道披露非常惊艳，MIX完整版反而挺一般，有点可惜。
+
+
+刀也，rap很棒。和森中三世的一系列投稿成品质量都不错，充满青涩感。にじRAP搞快点
+
+
+不破和铲，两个人歌力感觉上都很高，翻唱投稿比较少但成品都非常精致，[MONSTER / ましろ](https://www.youtube.com/watch?v=hcU9Y02JkPk&amp;list=PLXuGkVLvpfdpcSKTh6BTjqcy3rTOVCoY8&amp;index=102) 和 [Call Boy / Fuwa Minato](https://www.youtube.com/watch?v=EemGzICNTkw&amp;list=PLXuGkVLvpfdpcSKTh6BTjqcy3rTOVCoY8&amp;index=240) 我个人都挺喜欢。
+
+
+柴卡和西西的[瞬き](https://www.youtube.com/watch?v=0y5q7wnO7qY&amp;list=PLXuGkVLvpfdpcSKTh6BTjqcy3rTOVCoY8&amp;index=76)，非常喜欢。柴社绿的JO曲也不错，阿柴帅气的样子很顶。
+
+
+最后说一下那谁，翻唱投稿在暴力MIX下大部分还算及格，会限生歌非常精分。掐嗓子装可爱很讨厌，但偶尔认真放开唱非常帅气，在这方面很希望能有所进步。2020年一直在和唱见玩耍，不知道歌力能不能通过键鼠传播呢...
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27769#       发表于 2021-1-1 19:04
+
+
+
+
+说到通风口，虽然我没事就爱批着玩，但是我对这个歌力杂谈游戏全0的真·白板能爬到哪个地方很感兴趣，按照现在的进度她今年应该要去tie个动画什么的了。
+
+
+
+SYL：
+
+【にじさんじお年玉企画！】 Road to 東京リベンジ公演
+[https://www.youtube.com/watch?v=fEU9GTSg-Qk&amp;feature=youtu.be](https://www.youtube.com/watch?v=fEU9GTSg-Qk&amp;feature=youtu.be)
+
+👆开始了都去看
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27770#       发表于 2021-1-1 19:04
+
+
+
+
+虹演唱会剪辑在倒数了，
+郡道当时到底怎么蹭上的啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27771#       发表于 2021-1-1 19:09
+
+
+
+
+虽然是录音但是通风口这不管啥歌都是一个铁T唱法真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 27772#       发表于 2021-1-1 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吼就完事了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 27773#       发表于 2021-1-1 19:14
+
+
+
+
+唱的咋样不管，声音一定是我最大
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27774#       发表于 2021-1-1 19:16
+
+
+
+
+香肠传奇被ban了还行。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 27775#       发表于 2021-1-1 19:17
+
+
+
+
+哈哥跟朝之琉璃的那首革命二元论太震撼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听到我都惊了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27776#       发表于 2021-1-1 19:17
+
+
+
+
+月之，最好的偶像<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27777#       发表于 2021-1-1 19:18
+
+
+
+
+叶师傅这3D看一次草一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27778#       发表于 2021-1-1 19:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 黑黑一来，同接就坐火箭了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 27779#       发表于 2021-1-1 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49910917&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-1-1 18:54</a>
+很少有人提到哈哥唱歌，跟风贴一下发在SeNeS（センス）频道的两首：
+
+【歌ってみた】打上花火／DAOKO×米津 ...</blockquote>
+我也很期待有人能不能搞个にじhiphop，你虹hiphop爱好者挺多的，比如翡翠、不破、葛叶，还有刀也这种rap经验者，啥时候能来个rap选手权之类的，还可以把ぶぎぼ带上<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 27780#       发表于 2021-1-1 19:20
+
+
+
+
+这两人衣服上台也太搞笑了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27781#       发表于 2021-1-1 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 赶快插队新3D吧，那些个cylx的3D就别来了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27782#       发表于 2021-1-1 19:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/192635d7wb17gm7i7b1gmw.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 19:26 上传
+
+
+
+
+
+
+拿了3w压岁钱马上来直播抽卡的拉拉人（
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27783#       发表于 2021-1-1 19:28
+
+
+
+
+第二个3D是按30w顺序吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27784#       发表于 2021-1-1 19:30
+
+
+
+
+郡道，新年新不快，
+
+父方の祖母から電話かかってきたんだけど、「新年明けましておめでとうございますは表現が重複してるからダメやり直せ」「謹賀新年みたいな賀詞は男性以外使っちゃダメなのよ女性がはしたない」とか言ってきたので電波悪いフリして切っちゃった
+
+虽然我个人认为挺好玩就是了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27785#       发表于 2021-1-1 19:35
+
+
+
+
+ひまさん…
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27786#       发表于 2021-1-1 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">葵宝
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27787#       发表于 2021-1-1 19:37
+
+
+
+
+说起来葵宝要有新3d了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27788#       发表于 2021-1-1 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 人陆士和修女至少同接是增长的，到您这儿就光速下降，毕业吧，做好的第二套3D就由好姐妹sakuyui代播吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27789#       发表于 2021-1-1 19:39
+
+
+
+
+阿葵这唱歌，和阿叶出同门啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27790#       发表于 2021-1-1 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">害好姐妹呢 阴湿的ssk早就在联动的时候当面挑明葵西不仲了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27791#       发表于 2021-1-1 19:41
+
+
+
+
+你虹真舞王柴柴
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27792#       发表于 2021-1-1 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 当时笹木的游戏服也是由不仲的葉子和不仲的你葵披露的阿，
+
+
+椎名发布仇家失败退场留下的战利品——第二套3D又怎么了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27793#       发表于 2021-1-1 19:47
+
+
+
+
+同接！劲增！暴增！最帅最强！
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27794#       发表于 2021-1-1 19:49
+
+
+
+
+剑持好帅，不过怎么选这首啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27795#       发表于 2021-1-1 19:49
+
+
+
+
+草
+田角把这首放出来了，太功利了
+被钓了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27796#       发表于 2021-1-1 19:49
+
+
+
+
+刚才这台下女粉的声浪太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 27797#       发表于 2021-1-1 19:50
+
+
+
+
+和社长的模放在一起简直就是处刑，黑黑2个人在一起都不行就还行，一旦有一个对比…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27798#       发表于 2021-1-1 19:51
+
+
+
+
+这是女粉的叫声吗？这事福泽谕吉的叫声啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27799#       发表于 2021-1-1 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 别急，马上还有个不破继续处刑黑黑的3D，
+
+
+田角的男团计划，还缺一个不破，就成型了，
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 27800#       发表于 2021-1-1 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是算了吧 万一葵宝气不过跑回来葵嫌我可不想听
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27801#       发表于 2021-1-1 19:54
+
+
+
+
+新晋最强sc王油男竟没被2000放在眼里，
+有一说一我们月下樱三个男人也很顶的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 27802#       发表于 2021-1-1 19:56
+
+
+
+
+草，想起来一个朋友因为信长补昨天虹的那个视频，看完还问我说这2个人（指黑黑）模怎么…
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27803#       发表于 2021-1-1 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911498&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-1 19:54</a>
+
+新晋最强sc王油男竟没被2000放在眼里，
+
+有一说一我们月下樱三个男人也很顶的好吧 ...</blockquote>
+阿油不唱不跳算个毛男团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑客也不唱不跳啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27804#       发表于 2021-1-1 19:57
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-1 20:01 编辑 
+
+227东京组复仇战
+
+赫国是真的亲女儿
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27805#       发表于 2021-1-1 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911514&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-1-1 19:56</a>
+阿油不唱不跳算个毛男团黑客也不唱不跳啊</blockquote>
+……漫才天团。
+JK组掉同接真的太虹了，虹男虽好，虹女也不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">！
+
+
+
+
+
+                       
