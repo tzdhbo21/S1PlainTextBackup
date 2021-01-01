@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 02:05** 
+> ## **本文件最后更新于2021-01-01 22:04** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_qfeWE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_RqbnN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16723,10 +16723,12 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 
 
 
- 参与人数 2战斗力 +3
+ 参与人数 4战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 缺陷电气杨永信| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
 | jhouo8989| + 2|辛苦了兄弟|
 | A2014720| + 1|好评加鹅|
 
@@ -16970,4 +16972,438 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 
 
 
-                  
+
+
+-----
+
+####  シルフィエット  
+##### 6944#       发表于 2021-1-1 03:00
+
+
+
+
+草生
+
+<img src="https://img.saraba1st.com/forum/202101/01/030030swub6xuonqvx0uq2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210101025951.png</strong> (64.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 03:00 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 6945#       发表于 2021-1-1 13:47
+
+
+
+
+草 看同好会评论还真有因为乐子人宣传 然后入咩坑的新人么
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6946#       发表于 2021-1-1 13:53
+
+
+
+
+黑流量也是流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6947#       发表于 2021-1-1 14:09
+
+
+
+
+什么，还有新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 6948#       发表于 2021-1-1 14:37
+
+
+
+
+什么，还有人
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6949#       发表于 2021-1-1 14:45
+
+
+
+
+什么，还有流量？
+
+
+
+
+
+
+
+-----
+
+####  游山赫乃丈丶  
+##### 6950#       发表于 2021-1-1 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908524&amp;ptid=1973472" target="_blank">hwlzdjbrs 发表于 2021-1-1 13:47</a>
+
+草 看同好会评论还真有因为乐子人宣传 然后入咩坑的新人么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">肯定有的啊 孙狗变孙哥 流量时代 黑流量也是流量 
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6951#       发表于 2021-1-1 16:20
+
+
+
+ 本帖最后由 路人庚 于 2021-1-1 16:25 编辑 
+
+话说官组居然会定期删掉之前翻译的fleet，这可太忠于推特设定了吧
+
+
+虽然可以猜到这应该是问过你咩姐之后的做法
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6952#       发表于 2021-1-1 17:04
+
+
+
+
+想回看也不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6953#       发表于 2021-1-1 17:05
+
+
+
+
+之前想找鲜血王座那个fleet时就发现了
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 6954#       发表于 2021-1-1 17:20
+
+
+
+
+鲜血王座草生
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6955#       发表于 2021-1-1 17:30
+
+
+
+
+巧了，我今天也是想去找鲜血王座那个fleet结果发现官号没了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 6956#       发表于 2021-1-1 18:54
+
+
+
+
+新年快乐
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 6957#       发表于 2021-1-1 19:07
+
+
+
+
+新年新气象
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 6958#       发表于 2021-1-1 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908524&amp;ptid=1973472" target="_blank">hwlzdjbrs 发表于 2021-1-1 13:47</a>
+
+草 看同好会评论还真有因为乐子人宣传 然后入咩坑的新人么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">我这种算吗，10月份冲蝗事件开始DD，上了4个舰长，mea是其中之一，因为觉得她的歌回声音很清楚又比较安静，是可以挂在后台听的类型
+
+
+11月7号那次确实有点生气，然后anti们挖的黑料越来越多越来越离谱，就去翻了好多以前的录像，想了解下她到底是什么样的人~
+
+现在已经26级牌子了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/01/195300h1qj5ajajcffwzqe.png" referrerpolicy="no-referrer">
+
+
+<strong>牌子2.png</strong> (31.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 19:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6959#       发表于 2021-1-1 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911577&amp;ptid=1973472" target="_blank">平半高水 发表于 2021-1-1 20:02</a>
+我这种算吗，10月份冲蝗事件开始DD，上了4个舰长，mea是其中之一，因为觉得她的歌回声音很清楚又 ...</blockquote>
+“声音清楚又比较安静”
+比 较 安 静，认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 6960#       发表于 2021-1-1 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911605&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-1-1 20:05</a>
+
+“声音清楚又比较安静”
+
+比 较 安 静，认真的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">因为我看的那次就是比较安静，一直在唱歌，不怎么说话，唱的都是很抒情的歌
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6961#       发表于 2021-1-1 20:25
+
+
+
+
+现在确实除了偶尔吹台风、玩玩阴间变声器，确实比较安静了
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 6962#       发表于 2021-1-1 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911577&amp;ptid=1973472" target="_blank">平半高水 发表于 2021-1-1 20:02</a>
+我这种算吗，10月份冲蝗事件开始DD，上了4个舰长，mea是其中之一，因为觉得她的歌回声音很清楚又 ...</blockquote>
+草，老哥我跟你经历好像，牌子等级都一样的，但我是20年3月Vtuber吧炸时入咩坑的，当时就过了几天吧里咩黑料就有一大堆，我人看傻了，很多发散的贼离谱，搞的我把以前的直播录像补了些，然后接受了，就一直看下去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  平半高水  
+##### 6963#       发表于 2021-1-1 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911835&amp;ptid=1973472" target="_blank">WhiteAvalon 发表于 2021-1-1 20:28</a>
+
+草，老哥我跟你经历好像，牌子等级都一样的，但我是20年3月Vtuber吧炸时入咩坑的，当时就过了几天吧里咩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">嗯嗯，翻了各种录像以后，自己大概能想象她是什么性格的人，在什么场景下说出这些话的，有些是被断章取义了，有些是年轻犯下的错
+
+
+对于这些仔细想了下，自己17岁时是什么样的，就接受了
+
+
+然后最重要的是：她的直播确实很有趣
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6964#       发表于 2021-1-1 21:09
+
+
+
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 6965#       发表于 2021-1-1 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49912152&amp;ptid=1973472" target="_blank">平半高水 发表于 2021-1-1 21:01</a>
+嗯嗯，翻了各种录像以后，自己大概能想象她是什么性格的人，在什么场景下说出这些话的，有些是被 ...</blockquote>
+很多“黑料”切片节目效果就很好，可惜大🔥不爱听真话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                 

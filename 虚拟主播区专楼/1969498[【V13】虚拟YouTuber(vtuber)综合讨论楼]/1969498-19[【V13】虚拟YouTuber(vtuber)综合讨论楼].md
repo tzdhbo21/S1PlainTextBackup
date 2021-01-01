@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 20:02** 
+> ## **本文件最后更新于2021-01-01 22:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_Om478" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_EyFBB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14759,10 +14759,11 @@ ickr自厂牌第一张CD就充分达到了商业CD的制作水平，开了个好
 
 
 
- 参与人数 19战斗力 +21
+ 参与人数 20战斗力 +22
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Dank_Memes| + 1|好评加鹅|
 | 空集| + 1|好评加鹅|
 | winda| + 1|好评|
 | -rm7-| + 1|好评加鹅|
@@ -15977,11 +15978,29 @@ SYL：
 
 
 
- 本帖最后由 IDIDIDID 于 2021-1-1 20:01 编辑 
+ 本帖最后由 IDIDIDID 于 2021-1-1 20:09 编辑 
 
 227东京组复仇战
 
 赫国是真的亲女儿
+
+
+
+SYL：
+
+<img src="https://img.saraba1st.com/forum/202101/01/200937usbg70mpoqaamosu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqkADYJVkAUF5nL.jpg</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 20:09 上传
+
+
+
+
+
 
 
 
@@ -16005,4 +16024,549 @@ JK组掉同接真的太虹了，虹男虽好，虹女也不错啊<img src="https
 
 
 
-                       
+
+
+-----
+
+####  空集  
+##### 27806#       发表于 2021-1-1 20:06
+
+
+
+<img src="https://p.sda1.dev/0/428ff39c056514050c03c588f9496d78/-46a5d316a687dd24.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 27807#       发表于 2021-1-1 20:12
+
+
+
+
+社长模也被一个妈的律可吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你虹什么时候快点给黑黑做套不生草的模
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 27808#       发表于 2021-1-1 20:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/201303oseef2z9x0h9zxqx.png" referrerpolicy="no-referrer">
+
+
+<strong>211223.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 20:13 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|kanna！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27809#       发表于 2021-1-1 20:20
+
+
+
+
+486这次香肠拉来了狐狸狮子和35来对战。真的安利出去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27810#       发表于 2021-1-1 20:24
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gm8grcmv0dj20ym0lnwlb.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/zfVmqU3-dxU](https://youtu.be/zfVmqU3-dxU)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27811#       发表于 2021-1-1 20:34
+
+
+
+
+兔皇真皇...
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27812#       发表于 2021-1-1 20:37
+
+
+
+
+GBR最近吃了什么药，看了一眼在播底特律<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27813#       发表于 2021-1-1 20:38
+
+
+
+
+宫皇是真的喜欢这个门松
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27814#       发表于 2021-1-1 20:38
+
+
+
+
+兔皇怎么在玩pcr<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27815#       发表于 2021-1-1 20:40
+
+
+
+
+这可是兔皇传统专武，PCR抽卡，无人可敌<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27816#       发表于 2021-1-1 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔皇这抽卡6w7，只能说v圈第一人确实是这样吧。如果一直抽下去的话。。。。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27817#       发表于 2021-1-1 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只抽不玩，我先劈一句蹭热度
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27818#       发表于 2021-1-1 20:50
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-1-1 20:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兔皇蹭pcr，486蹭gbf，en有szb和pcr的工商。。。。木口之心，路人皆知。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27819#       发表于 2021-1-1 20:55
+
+
+
+
+第二回VTuber最協決定戦
+
+
+社築（@846kizuQ ）
+
+夜見れな（@rena_yorumi）
+
+椎名唯華（@yuika_siina）
+
+
+の３人出場します(出るとは言ってない）
+
+がんばるぞ～～～～～！(・ω・)ノ
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27820#       发表于 2021-1-1 20:57
+
+
+
+
+兔子就实诚在老实承认自己是抽卡玩家，不过至少知道角色要注意RANK，也还行了
+
+之前船长想拉兔子玩GBF，直接说自己转盘玩家推掉了
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 27821#       发表于 2021-1-1 21:01
+
+
+
+
+泳装黑骑都能new那确实现在玩的不多了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27822#       发表于 2021-1-1 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49912151&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2021-1-1 21:01</a>
+
+泳装黑骑都能new那确实现在玩的不多了</blockquote>
+泳装七七香啊，她又不抽常驻的
+
+
+瞟了眼现在106所持，她又不加公会的，休闲呗
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27823#       发表于 2021-1-1 21:05
+
+
+
+
+当个抽卡玩家不是挺好，至少不用脑溢血<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27824#       发表于 2021-1-1 21:14
+
+
+
+
+猫猫自制运势占卜gif（[https://twitter.com/nekokan_chu/status/1344985051159691264?s=21](https://twitter.com/nekokan_chu/status/1344985051159691264?s=21)），
+本人一发大吉，看来今年必能脱离管人痴状态！
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27825#       发表于 2021-1-1 21:20
+
+
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1ly1gm8idpzo3sj20ha09y462.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 27826#       发表于 2021-1-1 21:21
+
+
+
+
+绯惺的first take
+[【恭賀新春】「神居謡 - solareca」THE FIRST TAKE Covered by 緋惺【VTuber】](https://www.youtube.com/watch?v=Rcj5XUjMBW8)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27827#       发表于 2021-1-1 21:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/212138twqc4ewqcb88gw89.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210101212116.png</strong> (214.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 21:21 上传
+
+
+
+
+
+
+
+真谢谢你了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27828#       发表于 2021-1-1 21:26
+
+
+
+
+虹杏桃铁是阿葵拉的找的船 ，船说这次是她第一次和美兔桑联动很紧张。感觉阿葵这种积极拉联动的性格还是挺好的。
+虽然又会有人不开心了就是了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27829#       发表于 2021-1-1 21:34
+
+
+
+<blockquote>CAserlumos 发表于 2021-1-1 20:55
+第二回VTuber最協決定戦
+
+
+社築（@846kizuQ ）
+</blockquote>
+辛苦阿社了，这两个burden可是很难带的啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27830#       发表于 2021-1-1 21:47
+
+
+
+
+草啊，郡道在看雀魂的角色正月音声，脑补了一对强独占欲loli✖️大姐姐，还说了一会儿什么长大后再百合的おねロリ桥段，
+新年禁止巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 27831#       发表于 2021-1-1 21:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔组aki组组长算本楼相关吗
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27832#       发表于 2021-1-1 21:50
+
+
+
+<img src="https://p.sda1.dev/0/f0e3ad962809939f51fa079bfb618bf5/IMG_CMP_184168160.jpeg" referrerpolicy="no-referrer">
+鲨皇退步好大，哈弟原来这么强啊
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27833#       发表于 2021-1-1 21:52
+
+
+
+
+有个角色会喊玩家是旦那様，
+郡：牙白呀，这家伙突然就喊人旦那，像搞不清距离的阿宅一样，绝对是menhera吧，可怕
+
+禁止！！！
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27834#       发表于 2021-1-1 22:01
+
+
+
+<blockquote>真飞鸟i 发表于 2021-1-1 20:50
+兔皇蹭pcr，486蹭gbf，en有szb和pcr的工商。。。。木口之心，路人皆知。</blockquote>
+木口即位后要搞五胡乱日吗？
+
+
+
+
+
+                      
