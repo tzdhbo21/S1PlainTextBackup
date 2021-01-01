@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 14:03** 
+> ## **本文件最后更新于2021-01-01 18:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_j6hkY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_awfww" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14245,4 +14245,873 @@ https://twitter.com/oshio_dayo/status/1344879042168639494?s=19
 
 
 
-                         
+
+
+-----
+
+####  rzrbtk  
+##### 27724#       发表于 2021-1-1 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908601&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-1 13:57</a>
+，是会限么，我好想看录播</blockquote>
+你郡昨天的部分遭遇，
+最后一抽（其实后面又氪了）出了剑阶，大欢呼村正果然很懂，结果出了个迪尓姆德，气得叫人去自残（还原fatezero），
+激寒自演伊利亚连喊数声お兄さん结果出了士郎礼装，
+连呼想要卫宫结果招来了卫宫爹，
+喊着我是sakura抽卡，自我催眠自己发型跟sakura很像所以自己真是sakura，虽然很不愿意但被观众拱火模仿凛最后还是学了，后面还喊了ex咖喱棒，没出，
+作为测试的一次十连抽来了樱凛saber，说这样加上自己就是四女主绝对会出，没出，
+自立flag要是抽不到就发幻想嘉年华翻唱视频，结果真就没出，
+大氪金抽到最后一张五星都没有，感觉作为新年运气测试来说过于糟糕了，怀疑自己今年会死（玩笑），最后高喊花Q下播。
+
+就通常直播，可以去郡道频道康康
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅，待会去补补|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27725#       发表于 2021-1-1 14:28
+
+
+
+
+希望她没看贝叔抽卡
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27726#       发表于 2021-1-1 15:16
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-1 16:01 编辑 
+
+菈米太实诚了，真就藏都不藏直接放出来了
+
+<img src="https://img.saraba1st.com/forum/202101/01/160136olparxrujdo8j4xz.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロライブ正月衣装】お正月衣装で新年あけおめ🎍今年もたくさんよろしくね🎍【獅.png</strong> (535.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 16:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27727#       发表于 2021-1-1 16:00
+
+
+
+
+五号那个虹杏桃铁，安规格虹这边出兔葵杏这边应该是狐夸，结果是船夸是不是说明狐狐正式传位了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27728#       发表于 2021-1-1 16:00
+
+
+
+
+nene不会放过你们的
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 27729#       发表于 2021-1-1 16:03
+
+
+
+
+虹出虹女订阅一二人，杏出本社同接二三人
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27730#       发表于 2021-1-1 16:05
+
+
+
+
+野猫德龙这是在德龙家吗，好像听到德龙家喂猫粮机器的声音了，
+猫好像新衣服也在排队了，说原本的设计被马内甲驳回，德龙看了一眼看笑了，反而很期待诶
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27731#       发表于 2021-1-1 16:07
+
+
+
+
+没什么问题
+曾经的核心与顶梁柱：虹之美兔，杏阿夸
+永远滴太子：本间桑，78岁bba
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27732#       发表于 2021-1-1 16:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 订阅1、2人应该是月丿和葛叶，，可惜没有月丿葛叶+船夸
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27733#       发表于 2021-1-1 16:08
+
+
+
+
+狐皇这几天的表现 我建议以后归到养老位。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 27734#       发表于 2021-1-1 16:10
+
+
+
+
+姐原 好温柔的声音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27735#       发表于 2021-1-1 16:10
+
+
+
+
+我怎么觉得大姨子不年轻了啊，30后半了吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27736#       发表于 2021-1-1 16:15
+
+
+
+
+我的理解是话事人：兔狐
+
+曾经的红花双棍：葵夸
+
+
+至于为什么是曾经的，因为现任打手葛兔联动会导致世界毁灭。
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 27737#       发表于 2021-1-1 16:17
+
+
+
+
+姐原声音还可以，可以出道
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27738#       发表于 2021-1-1 16:18
+
+
+
+
+露爹声音也还可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27739#       发表于 2021-1-1 16:31
+
+
+
+
+19年12月的船长：很难受得去医院，出租车太贵，只能一步步走着去了。
+20年7月的船长：一有机会就要叫出租车，离家五分钟的麦当劳也要叫外卖
+所以日本出租车到底多贵？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27740#       发表于 2021-1-1 16:47
+
+
+
+
+上午：本周开始就是麻将强化周啦<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">，
+下午：打apex打到晚饭时间<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">，
+
+郡道新年健脑吗
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27741#       发表于 2021-1-1 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49909745&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-1-1 16:31</a>
+
+19年12月的船长：很难受得去医院，出租车太贵，只能一步步走着去了。
+
+20年7月的船长：一有机会就要叫出租车 ...</blockquote>
+动不动就是几千日元的，基本都是大老板才会坐的，杏女现在的收入也和大老板差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 27742#       发表于 2021-1-1 16:49
+
+
+
+ 本帖最后由 noHentai 于 2021-1-1 16:51 编辑 
+
+<strong>2020年NIJISANJI歌动画个人观后笔记</strong>
+
+
+本楼使用了表格功能，一些移动客户端和页面可能无法正确查看，请使用PC端。
+
+
+为什么说只是“笔记”，因为我并不具备那些指导的专业知识及技术水平，同时彩虹的诸位liver的水平基本也很难达到歌势V的推荐门槛，所以下面的歌曲和附言都只是作为普通观众的个人感想而非推荐，甚至可能一些出现的作品我是持批判的态度。
+
+正因如此，选择时更多的是考虑数量而非质量，以及我个人及其他虹观众可能共通的感受。
+
+
+首先介绍几个虹歌动画相关好用的网站及频道：
+
+1.非公式wiki“歌唱まとめ”页面
+[https://wikiwiki.jp/nijisanji/%E6%AD%8C%E5%94%B1%E3%81%BE%E3%81%A8%E3%82%81](https://wikiwiki.jp/nijisanji/%E6%AD%8C%E5%94%B1%E3%81%BE%E3%81%A8%E3%82%81)
+
+JP本部V的更新可以说是非常及时快速的，海外势的可能会稍慢些，非常齐全，查缺补漏时主力使用。
+
+
+2.NIJISANJI配信Schedule，“歌ってみた・カバー”分类视频档页面
+[https://nijisanji.net/videos/videocategories/cover/](https://nijisanji.net/videos/videocategories/cover/)
+
+用于快速查找最新更新的歌动画用，仅收录JP本部。由于并非实时更新而是每天在3个固定时间点抓取数据，所以没有开待机间直接投稿的歌动画不会及时收录，但由于多数liver都会提前开待机间，所以基本不会错过新视频。
+
+
+3.N站“にじさんじ最新歌ってみた動画まとめ”系列视频
+[https://www.nicovideo.jp/series/111123](https://www.nicovideo.jp/series/111123)
+
+有能UP根据非公式wiki做的每月歌动画合集，可以用作每月查缺补漏和及时试听。
+
+
+4.油管“にじ歌で救える命がある”频道下的“にじ歌週間ランキング”系列
+[https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/videos](https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/videos)
+
+斗虫用，每周虹歌动画点击涨势排行榜，有pick up部分，类似当年的V家周刊。
+
+
+<strong>先说说本年度的个人最佳</strong>
+
+<strong>年度最佳原创：地獄屋八丁荒らし ／ 戌亥とこ</strong>
+[https://www.youtube.com/watch?v=XwZZeMNanKw](https://www.youtube.com/watch?v=XwZZeMNanKw)
+
+毫无疑问的年度最佳原创曲。liver个人主导创作的原创曲，比起演唱者歌力或歌曲制作水平，更加看重的是否契合这位liver，是否融合进其人设、性格乃至长久以来的直播内容给予观众的感受，是否是为其量身打造，不再有第二个人更加适合唱这首歌。
+
+inui这首曲子无论是在歌词还是歌曲风格上都能够让人感受到非她莫属，结合其本人的演绎水平加上majiko优秀的作曲质量辅以吉他手藤本大貴锦上添花的编曲，使其成为了本年度无可超越的liver个人原创曲。
+
+live上的现场乐队演奏更是让其表现力上了一个层次，强烈推荐大家去听听。
+
+<strong>年度最佳翻唱：サマータイムレコード /じん （covered by AXF）</strong>
+[https://www.youtube.com/watch?v=ccz4yLqlzPA](https://www.youtube.com/watch?v=ccz4yLqlzPA)
+
+理由详见下表。
+
+<strong>年度最佳CD：《SMASH The PAINT!!》</strong>
+[https://www.youtube.com/playlist?list=OLAK5uy_lhRjqwJPJdYu1DLphjKhKG479Fxef9wmI](https://www.youtube.com/playlist?list=OLAK5uy_lhRjqwJPJdYu1DLphjKhKG479Fxef9wmI)
+
+同样是毫无疑问的最佳CD。全明星作曲阵容+大人气liver组合+全原创专，更加难能可贵的是，这些作曲者不少都是liver的粉丝，所有的原创曲可以说是淋漓尽致的厨力释放。
+
+STP作为ickr自社制作、发行的第一张CD，无论是歌曲质量、制作质量还是最后的商业水平都达到了商业CD的合格线，站在音乐Label的角度可以说是一个漂亮的开门红，积攒了正确的经验。
+
+
+<strong>NIJISANJI JP</strong>
+
+本部今年的音乐作品可谓应接不暇，一方面是liver数量达到了新的高度，另一方面是虹整体确定了音乐作为发展战略之一。
+
+同时，自社打造以及主流厂牌出道成员的CD接连发行，贡献了一批达到唱片工业门槛的合格商业作品。今年也开始招募专门负责音乐这块的人员，直接要求有5年以上主流厂牌工作经验，希望这些人才、经验和氛围能够让你虹的音乐水平再上一个台阶。
+
+
+正如开头所说，以下充其量只是笔记，不过标红的可以称得上是个人推荐，是我偶尔会想起去听一听的作品。
+
+当然部分没标红但是附言里说了推荐的曲子，一般是因为歌曲本身不是我非常喜欢的类型，所以不会去偶尔捡起循环，但本身我个人觉得也是不错的。
+
+
+翻唱、原创、商业CD由于性质原因分开列表。
+
+<strong>翻唱</strong>
+
+翻唱曲目量大管饱，几乎都听完花了我很长时间，选择上也比较困难……
+视频名翻唱者链接一言【#にじさんじ1期生出身】僕たちはひとつの光 /μ's 【2周年記念/歌ってみた】エルフのえる、静凛、渋谷ハジメ、鈴谷アキ、月ノ美兎、モイラ、勇気ちひろ、樋口楓[https://www.youtube.com/watch?v=pMI8wD9Di-k](https://www.youtube.com/watch?v=pMI8wD9Di-k) 德龙选的歌不太合适，情怀入选サイレントマジョリティー /欅坂46 ₍covered by Nijisanji₎月ノ美兎、樋口楓、静凛、夕陽リリ、赤羽葉子、本間ひまわり、鈴原るる[https://www.youtube.com/watch?v=ZQ0U6oJBSmY](https://www.youtube.com/watch?v=ZQ0U6oJBSmY)很多人觉得唱的不行，不过我个人挺喜欢的，作为一个新兴行业的开创者之一来说，歌词蛮适合她们，本间MV水平OKチュルリラ・チュルリラ・ダッダッダ！／和田たけあき(くらげP) coverd by 月ノ美兎月ノ美兎[https://www.youtube.com/watch?v=p9-HvT7neew](https://www.youtube.com/watch?v=p9-HvT7neew)V生第二首solo翻唱，选曲OK輪!Moon!dass!cry! / coverd by JK組（月ノ美兎・樋口楓・静凛）月ノ美兎、樋口楓、静凛[https://www.youtube.com/watch?v=DUWbqT2CEYg](https://www.youtube.com/watch?v=DUWbqT2CEYg)JK组的翻唱不多，选曲非常适合【歌ってみた】かくしん的☆めたまるふぉ～ぜっ！【にじさんじ/勇気ちひろ】勇気ちひろ[https://www.youtube.com/watch?v=n8tkeIU3f9Q](https://www.youtube.com/watch?v=n8tkeIU3f9Q)选曲OK【ゾンビランドサガOP】徒花ネクロマンシー/フランシュシュ(cover)【#にじサガ】リゼ・ヘルエスタ、雪城眞尋、レヴィ・エリファ、相羽ういは、早瀬走、エルフのえる[https://www.youtube.com/watch?v=iXirbYtXqfs](https://www.youtube.com/watch?v=iXirbYtXqfs)撇撇自己不行的话多搞点这种啊【けいおん!】ふわふわ時間　歌ってみた【童田明治＆樋口楓】童田明治、樋口楓[https://www.youtube.com/watch?v=nLczfir8z1s](https://www.youtube.com/watch?v=nLczfir8z1s)阿菜从来不会被人高估，但也绝不应该低估【歌ってみた】冬がくれた予感【 i's - 樋口楓 / リゼ・ヘルエスタ / 竜胆尊 cover】樋口楓、リゼ・ヘルエスタ、竜胆尊[https://www.youtube.com/watch?v=Ny9AWX4SWQk](https://www.youtube.com/watch?v=Ny9AWX4SWQk)i's无条件推荐，三种风格完全不同的声音方能承载多样的偶像曲，且制作水平都十分到位【歌ってみた】一度だけの恋なら【とこ尊楓リゼるる】戌亥とこ、竜胆尊、リゼ・ヘルエスタ、鈴原るる、樋口楓[https://www.youtube.com/watch?v=zokUrGt0iuc](https://www.youtube.com/watch?v=zokUrGt0iuc)一神带……【歌ってみた】Angelic Angel【i's（樋口楓/竜胆尊/リゼ・ヘルエスタ）cover】樋口楓、リゼ・ヘルエスタ、竜胆尊[https://www.youtube.com/watch?v=xx5nWoEvhuk](https://www.youtube.com/watch?v=xx5nWoEvhuk)i's!【歌ってみた】LONELIEST BABY【 i's - 樋口楓 / リゼ・ヘルエスタ / 竜胆尊 cover】樋口楓、リゼ・ヘルエスタ、竜胆尊[https://www.youtube.com/watch?v=0IsUxWIvk8E](https://www.youtube.com/watch?v=0IsUxWIvk8E)i's!【歌ってみた】Mermaid festa vol.1 【 i's - 樋口楓 / リゼ・ヘルエスタ / 竜胆尊 cover】樋口楓、リゼ・ヘルエスタ、竜胆尊[https://www.youtube.com/watch?v=n-pzxnFPtDk](https://www.youtube.com/watch?v=n-pzxnFPtDk)i's!【歌ってみた】ダイヤモンドプリンセスの憂鬱【 i's - 樋口楓 / リゼ・ヘルエスタ / 竜胆尊 cover】樋口楓、リゼ・ヘルエスタ、竜胆尊[https://www.youtube.com/watch?v=Gjk5cBIxRRk](https://www.youtube.com/watch?v=Gjk5cBIxRRk)i's!【歌ってみた】MOON PRIDE / ももいろクローバーZ【朝ノ瑠璃×戌亥とこ×白上フブキ×樋口楓×宝鐘マリン】美少女戦士セーラームーンCrystal OPテーマ / SailorMoon朝ノ瑠璃、戌亥とこ、白上フブキ、樋口楓、宝鐘マリン[https://www.youtube.com/watch?v=axZ9LYMvrPo](https://www.youtube.com/watch?v=axZ9LYMvrPo)琉璃姐老是搞这种神带坑的组合，上推荐总是要纠结一下【歌ってみた】Trouble Busters【i’s（樋口楓/竜胆尊/リゼ・ヘルエスタ）cover】樋口楓、リゼ・ヘルエスタ、竜胆尊[https://www.youtube.com/watch?v=_H_XydaVCsk](https://www.youtube.com/watch?v=_H_XydaVCsk)i's!【3DMV版】MapleDancer【樋口楓オリジナル曲】樋口楓[https://www.youtube.com/watch?v=23WKqaeVOhQ](https://www.youtube.com/watch?v=23WKqaeVOhQ)有请彩虹老害入场【歌ってみた】ボッカデラベリタ by 静凛静凛[https://www.youtube.com/watch?v=SnG9sbZBd3I](https://www.youtube.com/watch?v=SnG9sbZBd3I)甚至是V生唯一一首solo翻唱【歌ってみた】brave heart / デジモンアドベンチャー【Covered by 渋谷ハジメ】渋谷ハジメ[https://www.youtube.com/watch?v=hWR7bzsl9fc](https://www.youtube.com/watch?v=hWR7bzsl9fc)泪，冲了出来。不过哈哥第一首solo翻唱不是这首，而且发在别的频道……黒猫/赤髪（covered by 鈴谷アキ）鈴谷アキ[https://www.youtube.com/watch?v=ST3_N-ayVjw](https://www.youtube.com/watch?v=ST3_N-ayVjw)合适泥中に咲く/針原翼（HarryP）（covered by 鈴谷アキ）鈴谷アキ[https://www.youtube.com/watch?v=eE8yDpMQ6io](https://www.youtube.com/watch?v=eE8yDpMQ6io)aki虽然挺菜的，但这声音有时候挺有感觉的flos/R Sound Design（covered by 剣持刀也・鈴谷アキ）剣持刀也、鈴谷アキ[https://www.youtube.com/watch?v=sWDZghAERnk](https://www.youtube.com/watch?v=sWDZghAERnk)老害CP【替え歌】『腐日』（腐女子の白日（hakujitsu）/King Gnu）【にじさんじ/鈴鹿詩子】parody for geek girl (cover)With English subtitles鈴鹿詩子[https://www.youtube.com/watch?v=PU0exaFoGJQ](https://www.youtube.com/watch?v=PU0exaFoGJQ)推不推荐诗子，这是一个问题ダーリン【宇志海いちご/森中花咲】cover宇志海いちご、森中花咲[https://www.youtube.com/watch?v=SqNDlghaRt0](https://www.youtube.com/watch?v=SqNDlghaRt0)只要够可爱……サマータイムレコード/じん【coverd by エルセ＆をとは＆宇志海いちご】エルセ、をとは、宇志海いちご[https://www.youtube.com/watch?v=r_knT1-Ykok](https://www.youtube.com/watch?v=r_knT1-Ykok)只要够可爱……不过海牛的交际圈也是蛮有意思的物述有栖宇志海莓四曲连唱《将手》、《天之弱》、《Dance Robot Dance》、《让其响彻》电力拉满！【BML-VR2020】物述有栖、宇志海いちご[https://www.bilibili.com/video/BV1GA411s7ZD](https://www.bilibili.com/video/BV1GA411s7ZD)推荐第一首，所谓物述Pro，大概是生涯最强现场效果踊る恐竜さん 歌ってみた【夕陽リリ/にじさんじ】夕陽リリ[https://www.youtube.com/watch?v=UThPd2eNd3w](https://www.youtube.com/watch?v=UThPd2eNd3w)riri的声音也是我的心头爱波に飲まれる前に(feat.flower)/Guiano ‐ cover by 夕陽リリ夕陽リリ[https://www.youtube.com/watch?v=SG3gooZ0I5Q](https://www.youtube.com/watch?v=SG3gooZ0I5Q)my riri~おどりゃんせ ｰユリイ・カノン cover【出雲霞/夕陽リリ】出雲霞、夕陽リリ[https://www.youtube.com/watch?v=3MI6LRhs1Q4](https://www.youtube.com/watch?v=3MI6LRhs1Q4)你们彩虹人都有毕业后补刀的习惯吗二周年動画★文野環[https://www.youtube.com/watch?v=Fi7EofYc5Xg](https://www.youtube.com/watch?v=Fi7EofYc5Xg)不评价，无法评价ユアハイネス☆マイプリンセス / ぱんたんず (covered by 緑仙、伏見ガク、夢追翔、叶)緑仙、伏見ガク、夢追翔、叶[https://www.youtube.com/watch?v=LdzXm93GnAg](https://www.youtube.com/watch?v=LdzXm93GnAg)排了排了アブソリュート ギルザレンⅢ世×剣持刀也×カザキ様 coverギルザレンⅢ世、剣持刀也、森中花咲[https://www.youtube.com/watch?v=1WzMAcRqZLc](https://www.youtube.com/watch?v=1WzMAcRqZLc)三世刀也花妈的年货是必须推荐的，插画MV棒极了光るなら／翔花咲明那サラ刀也とこ(cover)【#にじさんじアオハル部】森中花咲、夢追翔、戌亥とこ、三枝明那、星川サラ、剣持刀也[https://www.youtube.com/watch?v=uJa1eS1utjg](https://www.youtube.com/watch?v=uJa1eS1utjg)阳角之声浮遊感／森中花咲×三枝明那(cover)森中花咲、三枝明那[https://www.youtube.com/watch?v=z4wgAzKQCBw](https://www.youtube.com/watch?v=z4wgAzKQCBw)森枝怎么就退版本了呢エイリアンズ ／森中花咲(cover)森中花咲[https://www.youtube.com/watch?v=ZmFuqKZRvyU](https://www.youtube.com/watch?v=ZmFuqKZRvyU)花妈今年这么高产，意外的喜欢的不多い〜やい〜やい〜や叶、メリッサ・キンレンカ[https://twitter.com/Kanae_2434/status/1249882546139095040](https://twitter.com/Kanae_2434/status/1249882546139095040)当初看到这个组合的时候可以说是非常惊讶了，看到梅丽莎对叶的欧巴新衣装的感想又不奇怪了ベッドタイムヒーロー/歌わせていただきました叶[https://www.youtube.com/watch?v=ym20OM1p4vQ](https://www.youtube.com/watch?v=ym20OM1p4vQ)原本是粉丝作的印象曲，是否符合大家对叶的印象呢？【歌ってみた】 チューリングラブ ／ ナナヲアカリ 【叶＆星川サラ/にじさんじ】叶、星川サラ[https://www.youtube.com/watch?v=VFic9D2cEgI](https://www.youtube.com/watch?v=VFic9D2cEgI)某种意义上，这两个人是十分相似的ワンルームシュガーライフ covered by 赤羽葉子赤羽葉子[https://www.youtube.com/watch?v=yThC2-BwkmE](https://www.youtube.com/watch?v=yThC2-BwkmE)V生第一首solo翻唱，唱的好烂，但是她好可爱夜に駆ける / さくゆい Cover 【笹木咲・椎名唯華】笹木咲、椎名唯華[https://www.youtube.com/watch?v=X1XcjB7Ycf0](https://www.youtube.com/watch?v=X1XcjB7Ycf0)考虑到珍惜度入选，不是sakuyui厨真没必要听委員長おめでとうの歌笹木咲、椎名唯華[https://www.youtube.com/watch?v=XsWKqTqS988](https://www.youtube.com/watch?v=XsWKqTqS988)深夜情绪誇張しすぎた香水 / 笹木咲　（Full version）笹木咲[https://www.youtube.com/watch?v=ImS_CEAbqac](https://www.youtube.com/watch?v=ImS_CEAbqac)笹【歌ってみた】チャイナアドバイス / 笹木咲 cover笹木咲[https://www.youtube.com/watch?v=mTHSsKzphbA](https://www.youtube.com/watch?v=mTHSsKzphbA)很可爱，熊猫人唱歌比大福强多了ダダダダ天使 / ナナヲアカリ (covered by 本間ひまわり)本間ひまわり[https://www.youtube.com/watch?v=KcpX00ag8U8](https://www.youtube.com/watch?v=KcpX00ag8U8)我是坚信选曲高于唱功等其他硬实力要素的听众：没有不行的人，只有不合适的选曲チューリングラブ / ナナヲアカリ Cover 本間ひまわり/葛葉本間ひまわり、葛葉[https://www.youtube.com/watch?v=Ek840SVER7c](https://www.youtube.com/watch?v=Ek840SVER7c)这首歌确实适合双人合唱，谁来效果都不会差【】歌ってみた 悪魔の踊り方 葛葉【】葛葉[https://www.youtube.com/watch?v=4ifsnGEtX_E](https://www.youtube.com/watch?v=4ifsnGEtX_E)葛皇的声音表现力真不是盖的，而且很会选曲，并且从几次现场的表现来看，个人认为葛皇唱功是高于叶的……【】歌ってみた KING 葛葉 【】葛葉[https://www.youtube.com/watch?v=oPAcjv__fbc](https://www.youtube.com/watch?v=oPAcjv__fbc)从点击涨势、赞踩数、评论数来看，这版本翻唱有丶出圈サマータイムレコード /じん （covered by AXF）桜凛月、三枝明那、アルス・アルマル、天宮こころ、ラトナ・プティ、ルイス・キャミー、不破湊、葛葉[https://www.youtube.com/watch?v=ccz4yLqlzPA](https://www.youtube.com/watch?v=ccz4yLqlzPA)个人认为这首歌的象征意义比多数人想象的要大，AXF是单纯从ARK中诞生的组合，并且终结于ARK，再没有任何其他交往和要素，可是却单纯因为这一个游戏的直播内容让这个组合人气如此之高，我想主播、V和管人观众的醍醐味就在其中【Lilly Crown】私、アイドル宣言(Cover) / 夜見れな・天宮こころ・椎名唯華・鷹宮リオン夜見れな、天宮こころ、椎名唯華、鷹宮リオン[https://www.youtube.com/watch?v=ygXQXbOCAU0](https://www.youtube.com/watch?v=ygXQXbOCAU0)都可爱，都可爱Snow halation (Cover)│♔Lilly Crown（夜見れな・鷹宮リオン・天宮こころ・椎名唯華）#りりくら夜見れな、天宮こころ、椎名唯華、鷹宮リオン[https://www.youtube.com/watch?v=jc7T8ce5-vQ](https://www.youtube.com/watch?v=jc7T8ce5-vQ)同上神のまにまに / れるりり (covered by cresc.)緑仙、シスター・クレア、ドーラ[https://www.youtube.com/watch?v=g614Xgz0iQ0](https://www.youtube.com/watch?v=g614Xgz0iQ0)还行EVERYBODY (Backstreet's back)～ド葛本社～口ぱくドーラ、社築[https://www.youtube.com/watch?v=Dr8j7pI4l3I](https://www.youtube.com/watch?v=Dr8j7pI4l3I)虽说ド葛本社这么火，但龙社单独贴贴要素可以说是非常少了バーチャルねこ音楽コラボ月間#07 / As Usual feat. ドーラドーラ[https://www.youtube.com/watch?v=l27rI2mcZLw](https://www.youtube.com/watch?v=l27rI2mcZLw)12.9时点0踩唉【#にじさんじSEEDs1期生出身】Paintër【2周年記念/歌ってみた】安土桃、出雲霞、卯月コウ、シスター・クレア、鈴木勝、ドーラ、轟京子、花畑チャイカ、社築、緑仙[https://www.youtube.com/watch?v=bay4TC0iQZ0](https://www.youtube.com/watch?v=bay4TC0iQZ0)彩虹再没有比SEEDs一期生更适合唱这种团体曲的人，无论是18年的Connecting还是这首都是无比适合这个满溢个性又无比团结、从最初的无人问津至今从未停止前进的小团体Reset / ドーラ（cover）ドーラ[https://www.youtube.com/watch?v=7Tqnc4ltwHA](https://www.youtube.com/watch?v=7Tqnc4ltwHA)好【歌ってみた】終端の王と異世界の騎士 〜The Endia &amp; The Knights〜 ／ Sound Horizon【朝ノ瑠璃／戌亥とこ／奏みみ／白上フブキ／ドーラ／富士葵】朝ノ瑠璃、戌亥とこ、奏みみ、白上フブキ、ドーラ、富士葵[https://www.youtube.com/watch?v=AW7HXLmSdQA](https://www.youtube.com/watch?v=AW7HXLmSdQA)所以琉璃姐别搞这种组合了……【おなえどし】『打上花火』歌ってみた【出雲霞/卯月コウ/鈴木勝/にじさんじ】出雲霞、卯月コウ、鈴木勝[https://www.youtube.com/watch?v=ws7f55ABWjE](https://www.youtube.com/watch?v=ws7f55ABWjE)OD组的纪念『花に亡霊』歌ってみた - 出雲霞出雲霞[https://www.youtube.com/watch?v=0ZvTO6mbR-8](https://www.youtube.com/watch?v=0ZvTO6mbR-8)故人的纪念【合唱コラボ】Hail Holy Queen【にじさんじ/レヴィ・エリファ】シスター・クレア、でびでび・でびる、レヴィ・エリファ、早瀬走、健屋花那、メリッサ・キンレンカ、長尾景、弦月藤士郎、轟京子[https://www.youtube.com/watch?v=BZv18yiPaNA](https://www.youtube.com/watch?v=BZv18yiPaNA)其实我不太懂为啥这歌点击这么高，从评论数和赞踩数来看应该有丶出圈果てぬミライのその先へ / たべっこ (シスター・クレアcover)シスター・クレア[https://www.youtube.com/watch?v=TdIIQgdtq10](https://www.youtube.com/watch?v=TdIIQgdtq10)是天使啊【オリジナルMV】ファンサ／mona(CV：夏川椎菜) - シスター・クレアcoverシスター・クレア[https://www.youtube.com/watch?v=Pp0aLRxt-7U](https://www.youtube.com/watch?v=Pp0aLRxt-7U)是天使フタリボシ (covered by いのるぱんだ)緑仙、シスター・クレア[https://www.youtube.com/watch?v=0UuAmgo2CJ4](https://www.youtube.com/watch?v=0UuAmgo2CJ4)挺好テレビアニメ日常ED　Zzz/佐咲紗花 covered by シスター・クレアシスター・クレア[https://www.youtube.com/watch?v=WIJa1p-kV5U](https://www.youtube.com/watch?v=WIJa1p-kV5U)治愈ジョジョ その血の記憶～end of THE WORLD～ / Jo✫Stars (covered by 緑仙、花畑チャイカ、社築)緑仙、花畑チャイカ、社築[https://www.youtube.com/watch?v=1Phzcf1T-U8](https://www.youtube.com/watch?v=1Phzcf1T-U8)オラオラオラオラッ!ロメオ / 夢追翔＆加賀美ハヤト with 緑仙 (Cover)夢追翔、加賀美ハヤト、緑仙[https://www.youtube.com/watch?v=V654oSE_yhE](https://www.youtube.com/watch?v=V654oSE_yhE)le jouet挺好Vinyl / King Gnu (covered by 緑仙)緑仙[https://www.youtube.com/watch?v=S8b61tQUkR8](https://www.youtube.com/watch?v=S8b61tQUkR8)没去数绿仙今年发了多少歌，但她如果说是你虹第二喜欢唱歌的，应该没人敢说第一月のワルツ / 諌山実生 (covered by 緑仙)緑仙[https://www.youtube.com/watch?v=nHWe-m95w_o](https://www.youtube.com/watch?v=nHWe-m95w_o)估计很多人不知道绿仙靠着庞大的歌动画数量让频道视频总点击位居你虹前列ヴィラン / てにをは (covered by 緑仙)緑仙[https://www.youtube.com/watch?v=Yh6hMer3h-k](https://www.youtube.com/watch?v=Yh6hMer3h-k)虽然我个人不是很喜欢绿仙唱歌，但肯定也谈不上菜，只是她也挺吃选曲的ディアハイヒール / 中島健人 (covered by 緑仙)緑仙[https://www.youtube.com/watch?v=1C7hyuDntfE](https://www.youtube.com/watch?v=1C7hyuDntfE)挺好【歌ってみた】ススメ→トゥモロウ【ひなちなちま】遠北千南、飛鳥ひな、町田ちま[https://www.youtube.com/watch?v=NrOJUJwVf7Y](https://www.youtube.com/watch?v=NrOJUJwVf7Y)唤醒了记忆……点描の唄 - Mrs. GREEN APPLE feat.井上苑子 / 飛鳥ひな × ぴろぱる (Cover)飛鳥ひな、ぴろぱる[https://www.youtube.com/watch?v=2jaui7yLNuY](https://www.youtube.com/watch?v=2jaui7yLNuY)书法哥不知道什么水平，hinaP生唱印象里是接近音痴的……这首很努力了【歌ってみた】猫猫的宇宙論【春崎エアル/にじさんじ】春崎エアル[https://www.youtube.com/watch?v=rJJi1XPO2Jk](https://www.youtube.com/watch?v=rJJi1XPO2Jk)19年一首，20年再来一首，都很可爱深海のリトルクライ cover by 雨森小夜雨森小夜[https://www.youtube.com/watch?v=E4kRDlsMLNM](https://www.youtube.com/watch?v=E4kRDlsMLNM)和声里有做视频的那个人的声音，2月听到这首歌的时候我有一种去年夏天终于结束的感觉，这大概就是她们自己说的“終着点”吧【#でびリオン イメージソング】Honey Devil【でびでび・でびる/鷹宮リオン】でびでび・でびる、鷹宮リオン[https://www.youtube.com/watch?v=-_2KK4p3iJE](https://www.youtube.com/watch?v=-_2KK4p3iJE)粉丝制debirion印象曲翻唱【歌ってみた】エイリアンエイリアン【にじさんじ / 桜凛月】(cover)桜凛月[https://www.youtube.com/watch?v=dTrT2glzCEo](https://www.youtube.com/watch?v=dTrT2glzCEo)你不唱这首谁唱啊www【歌ってみた】ワタシノテンシ【にじさんじ / 桜凛月】(cover)桜凛月[https://www.youtube.com/watch?v=1ij0OnZ0ppU](https://www.youtube.com/watch?v=1ij0OnZ0ppU)可爱哦【歌ってみた】 hikari 【にじさんじ / 桜凛月】(cover)桜凛月[https://www.youtube.com/watch?v=V2MaK2_o02o](https://www.youtube.com/watch?v=V2MaK2_o02o)公主有时候挺帅的，3D时来这么一首颇为意外【歌ってみた】ラプンツェル/n-buna【町田ちま】町田ちま[https://www.youtube.com/watch?v=XlUhsBX2bLY](https://www.youtube.com/watch?v=XlUhsBX2bLY)chima很强，但她的唱法也注定了她无法平A应对一切，对各种网红曲的解释大概率达不到网红腔选手的水平，简单来说就是比很多人想象的还吃选曲【歌ってみた】-ERROR【町田ちま/にじさんじ】町田ちま[https://www.youtube.com/watch?v=eIYdsLWkc-o](https://www.youtube.com/watch?v=eIYdsLWkc-o)就像这首歌一样，要给她这种唱法发挥、并超过其他人的余地，因为大概率其他人会选择同样的唱法Caro mio ben (covered by 町田ちま)町田ちま[https://www.youtube.com/watch?v=5z39--ZYaes](https://www.youtube.com/watch?v=5z39--ZYaes)这种就是听一听图一乐了，反正我也不懂她唱的算不算好Lilium - Elfen Lied / 町田ちま(Chima Machita) Cover町田ちま[https://www.youtube.com/watch?v=sQY5nx8y3JA](https://www.youtube.com/watch?v=sQY5nx8y3JA)同上Silent Night - きよしこの夜 / 町田ちま町田ちま[https://www.youtube.com/watch?v=c_fcOicINmk](https://www.youtube.com/watch?v=c_fcOicINmk)不过谁能想到当初复归时目标定在年末银盾的chima，如今已经25万订阅了呢。只是唱得好是没用的，关键还是她也挺能整活【歌ってみた】雨き声残響 / Orangestar【町田ちま/にじさんじ】町田ちま[https://www.youtube.com/watch?v=4J3fle10EcA](https://www.youtube.com/watch?v=4J3fle10EcA)橙星喜欢写不给人唱的歌，所以能够尽量少依靠后期来hold住是难能可贵的あゝオオサカdreamin' night / どついたれ本舗 (Covered by 遠北千南)【歌ってみた】遠北千南[https://www.youtube.com/watch?v=TO40I8ACaw0](https://www.youtube.com/watch?v=TO40I8ACaw0)你虹很多人喜欢留遗产这种东西，但是能够让遗产如此淋漓尽致地展现自己、打出生涯巅峰甚至还有所出圈并收获认可，作为低人气V甚至放眼绝大多数V都可以说是非常少见的daze / じんfeat.メイリアfromGARNiDELiA (covered by ヒモと財布)【歌ってみた】遠北千南、矢車りね[https://www.youtube.com/watch?v=3OG0sutK_3U](https://www.youtube.com/watch?v=3OG0sutK_3U)纪念ドリームレス・ドリームス / はるまきごはん (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=YiPvzpzdf5Y](https://www.youtube.com/watch?v=YiPvzpzdf5Y)我始终认为翔哥是你虹最好的男Vocalプロトディスコ / nulut (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=Sw6Ca9EkfpU](https://www.youtube.com/watch?v=Sw6Ca9EkfpU)同上unravel / TK from 凛として時雨 (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=bCcx2qJ5GwA](https://www.youtube.com/watch?v=bCcx2qJ5GwA)同上正義 / ずっと真夜中でいいのに。 (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=yEzdVDU4zC8](https://www.youtube.com/watch?v=yEzdVDU4zC8)同上【男性が原キーで】たぶん / YOASOBI (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=UN_luor-1rY](https://www.youtube.com/watch?v=UN_luor-1rY)自肃归来后真的沉下来找回初心了UNION / OxT (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=eUBi80MXDeA](https://www.youtube.com/watch?v=eUBi80MXDeA)棒クリスマスソング / back number (Covered by 夢追翔)【歌ってみた】【にじさんじ】夢追翔[https://www.youtube.com/watch?v=KoIgJ5Nx4n4](https://www.youtube.com/watch?v=KoIgJ5Nx4n4)翔哥基本可以全推荐クリスマス？なにそれ？おいしいの？ covered by #SKB部アンジュ・カトリーナ、郡道美玲、鈴鹿詩子、竜胆尊[https://www.youtube.com/watch?v=Cak-CmGBr9Y](https://www.youtube.com/watch?v=Cak-CmGBr9Y)Single好啊，Single有什么不好的吗？！KING-Kanaria / covered by 黒井しば黒井しば[https://www.youtube.com/watch?v=Jz3A8fTcE6Q](https://www.youtube.com/watch?v=Jz3A8fTcE6Q)完全是因为这MV插画选上【1周年記念】けいおん!!のU＆I　歌ってみた【童田明治】童田明治[https://www.youtube.com/watch?v=QRh3vH0QMH8](https://www.youtube.com/watch?v=QRh3vH0QMH8)摸的透彻啊，我的菜【歌ってみた】シークレットプリンセス【夢月ロア】夢月ロア[https://www.youtube.com/watch?v=vYMXExIosB0](https://www.youtube.com/watch?v=vYMXExIosB0)这会成为你的绝唱吗？话说回来，当初两国时其实小惊艳了一下，包括本音在内可爱还是很可爱的……【初投稿/歌ってみた】いろは /CooRie/びんちょうタン/主題歌(Covered by 小野町春香)【にじさんじ】小野町春香[https://www.youtube.com/watch?v=8P5TZ9f7LGg](https://www.youtube.com/watch?v=8P5TZ9f7LGg)挺好的，挺二次元【歌って踊ってみた】おねがいダーリン（3Dお披露目配信より）【御伽原江良/にじさんじ】御伽原江良[https://www.youtube.com/watch?v=_kdhdzXKvU8](https://www.youtube.com/watch?v=_kdhdzXKvU8)综合来看gbr绝对算得上你虹奇人之一，不过今年最让我感叹也出乎我意料的是，她原来是一个会去努力做一件事的人，也确实取得了进步雨とカプチーノ／ヨルシカ　covered by 戌亥とこ戌亥とこ[https://www.youtube.com/watch?v=QLWczt8aBtk](https://www.youtube.com/watch?v=QLWczt8aBtk)好好的孩子，怎么就喜欢唱yorushikaノーチラス／ヨルシカ　covered by 戌亥とこ戌亥とこ[https://www.youtube.com/watch?v=bgWpXcbmQDY](https://www.youtube.com/watch?v=bgWpXcbmQDY)可是真的唱得很好さようなら、花泥棒さん／covered by 戌亥とこ戌亥とこ[https://www.youtube.com/watch?v=xYXGfzgjEoE](https://www.youtube.com/watch?v=xYXGfzgjEoE)inui全部推荐没有问题靴の花火／ヨルシカ covered by 戌亥とこ戌亥とこ[https://www.youtube.com/watch?v=CT7tJZwWLdQ](https://www.youtube.com/watch?v=CT7tJZwWLdQ)同上Valkyrie「今宵月の館にて」 / 戌亥とこ × 星街すいせい(Cover)戌亥とこ、星街すいせい[https://www.youtube.com/watch?v=vhmFj1owmuk](https://www.youtube.com/watch?v=vhmFj1owmuk)这俩声音挺合的fine「Holy Angel's Carol」/ 戌亥とこ × 星街すいせい(Cover)戌亥とこ、星街すいせい[https://www.youtube.com/watch?v=m-demdSHuYI](https://www.youtube.com/watch?v=m-demdSHuYI)同上【歌ってみた】**音頭【アンジュ・カトリーナ／愛園愛美／ニュイ・ソシエール】アンジュ・カトリーナ、愛園愛美、ニュイ・ソシエール[https://www.youtube.com/watch?v=HkTui1Rtsek](https://www.youtube.com/watch?v=HkTui1Rtsek)洁宝你在干什么啊洁宝Hand in Hand／リゼ・ヘルエスタ【Cover】リゼ・ヘルエスタ[https://www.youtube.com/watch?v=h5ewNeJPDxM](https://www.youtube.com/watch?v=h5ewNeJPDxM)Prismatic Colors 收录曲，MV看完，我的生涯一片无悔心做し(cover) - 三枝明那三枝明那[https://www.youtube.com/watch?v=Svh7zl8PTTo](https://www.youtube.com/watch?v=Svh7zl8PTTo)其实录音挺好的，就是孩子不怎么发テレキャスタービーボーイ(cover) - 三枝明那三枝明那[https://www.youtube.com/watch?v=7kGGhprf064](https://www.youtube.com/watch?v=7kGGhprf064)可惜现场菜了点，3D披露回虚成啥了……【歌ってみた】ビードロ模様 / 愛園愛美【にじさんじ】愛園愛美[https://www.youtube.com/watch?v=k9IBUJmBsaM](https://www.youtube.com/watch?v=k9IBUJmBsaM)唱起歌来倒是有虹人少有的轻柔感，甚至是本人直播和剪辑里都感受不到……【歌って踊ってみた】恋（3Dお披露目LIVE　ダンスVer）【にじさんじ/鈴原るる】鈴原るる[https://www.youtube.com/watch?v=RzvG2Lw_z18](https://www.youtube.com/watch?v=RzvG2Lw_z18)lulu的歌动画不是看她唱【歌って踊ってみた】恋愛サーキュレーション（3Dお披露目LIVE）【にじさんじ/鈴原るる】鈴原るる[https://www.youtube.com/watch?v=akDFz4EafzQ](https://www.youtube.com/watch?v=akDFz4EafzQ)同上「そばかす」short ver. -IMAGINATION vol.3 収録-鈴原るる[https://www.youtube.com/watch?v=6vgqnQdEETQ](https://www.youtube.com/watch?v=6vgqnQdEETQ)lulu真没啥好说的，看就完事了【Dearさいねママ】Happy Birthday to you 歌ってみた【#さいね姉妹】鈴原るる[https://www.youtube.com/watch?v=OG6DhRBl9as](https://www.youtube.com/watch?v=OG6DhRBl9as)长时间休止后的首秀愿意放在这里，是天使啊【アナと雪の女王2】Into the Unknown イントゥ・ジ・アンノウン～心のままに / 鈴代ここね＆レヴィ・エリファ【歌ってみた】レヴィ・エリファ[https://www.youtube.com/watch?v=xt_e7c4gv48](https://www.youtube.com/watch?v=xt_e7c4gv48)虽然我不是很喜欢levi，但不可否认的强僕が死のうと思ったのは (Covered by レヴィ・エリファ)【歌ってみた /カバー】【にじさんじ/レヴィ・エリファ】レヴィ・エリファ[https://www.youtube.com/watch?v=sC_wOjOcRss](https://www.youtube.com/watch?v=sC_wOjOcRss)毫无疑问也是吃选曲的选手IN MY DREAM(Covered by レヴィ・エリファ)【歌ってみた /カバー】【にじさんじ/レヴィ・エリファ】レヴィ・エリファ[https://www.youtube.com/watch?v=EaMz2mwz6uM](https://www.youtube.com/watch?v=EaMz2mwz6uM)建议大家去搜一下levi这首的生唱版，期待有一天她能在大舞台上生唱这首ないものねだり (cover）【夢追翔/レヴィ・エリファ】【歌ってみたカバー】【にじさんじ】夢追翔、レヴィ・エリファ[https://www.youtube.com/watch?v=vMHDHV7f_yU](https://www.youtube.com/watch?v=vMHDHV7f_yU)意外的组合，意外的相性吉原ラメント (cover) / ニュイ・ソシエールニュイ・ソシエール[https://www.youtube.com/watch?v=fRfEPAvsBqU](https://www.youtube.com/watch?v=fRfEPAvsBqU)nui属于那种第一次听她录音完全出乎我意料的类型，不是说多好，而是竟然和直播时完全两种声音和感觉……【歌って踊ってみた】Lamb 【にじさんじニュイ・ソシエール】ニュイ・ソシエール[https://www.youtube.com/watch?v=d4v3cQ0o8SM](https://www.youtube.com/watch?v=d4v3cQ0o8SM)而且意外的能跳【歌って踊ってみた】**音頭【にじさんじニュイ・ソシエール】ニュイ・ソシエール[https://www.youtube.com/watch?v=YrK9veoB-3w](https://www.youtube.com/watch?v=YrK9veoB-3w)你不唱谁唱啊www【アイドルマスター ミリオンライブ！】dear... ／馬場このみ ( CV.高橋未奈美 )【クリスマスに歌ってみた】【葉山舞鈴】葉山舞鈴[https://www.youtube.com/watch?v=vSQyNcy9u5k](https://www.youtube.com/watch?v=vSQyNcy9u5k)可爱【歌ってみた】シュガーソングとビターステップ【にじさんじ/加賀美ハヤト/葉加瀬冬雪/夜見れな】加賀美ハヤト、葉加瀬冬雪、夜見れな[https://www.youtube.com/watch?v=MpBnxbMzaXA](https://www.youtube.com/watch?v=MpBnxbMzaXA)你虹2020年最成功的男女组合，从各自属性到相性超出意料的好到爆【歌ってみた】君じゃなきゃダメみたい/SMC組(Cover)加賀美ハヤト、葉加瀬冬雪、夜見れな[https://www.youtube.com/watch?v=PTWIlO4MtHc](https://www.youtube.com/watch?v=PTWIlO4MtHc)同上【歌ってみた】金木犀/葉加瀬冬雪（Cover)葉加瀬冬雪[https://www.youtube.com/watch?v=3iTMDvLs8MA](https://www.youtube.com/watch?v=3iTMDvLs8MA)喜欢雪宝录音的人应该是她的翻唱都会喜欢，虽然她生唱实在是……【歌ってみた】flos/葉加瀬冬雪(Cover)葉加瀬冬雪[https://www.youtube.com/watch?v=RojuyooRCwg](https://www.youtube.com/watch?v=RojuyooRCwg)同上【歌ってみた】群青/葉加瀬冬雪(Cover)葉加瀬冬雪[https://www.youtube.com/watch?v=Z-UJbyLqioM](https://www.youtube.com/watch?v=Z-UJbyLqioM)不过雪宝中间应该改过一次唱法，喜欢以前的还是现在的就见仁见智了グレゴリオ /古川本舗 　covered by アルス・アルマルアルス・アルマル[https://www.youtube.com/watch?v=XyL6bhHsNhQ](https://www.youtube.com/watch?v=XyL6bhHsNhQ)这首让我意识到了ars是真的不会唱歌【相羽ういは/健屋花那】ハッピーシンセサイザ歌ってみた #くまいさん【にじさんじ】相羽ういは、健屋花那[https://www.youtube.com/watch?v=rumx2dpdu08](https://www.youtube.com/watch?v=rumx2dpdu08)声音挺好【オリジナルMUSIC VIDEO】すきっ！歌ってみた ときめき♡宣伝部【相羽ういは/にじさんじ】相羽ういは[https://www.youtube.com/watch?v=WvFFCu9oMq4](https://www.youtube.com/watch?v=WvFFCu9oMq4)uiha挺可爱的，就是唱下来有些千篇一律了，也没有抓耳的作品生命線　歌ってみた【緑仙/相羽ういは/にじさんじ】緑仙、相羽ういは[https://www.youtube.com/watch?v=4hFhBA5W3tg](https://www.youtube.com/watch?v=4hFhBA5W3tg)挺好的【#ぽさんけ】『STEP by STEP UP↑↑↑↑』をデビュー1周年記念に歌ってみたみゃはわぷて【#にじさんじ】天宮こころ、エリー・コニファー、ラトナ・プティ[https://www.youtube.com/watch?v=XDytuM3MiJI](https://www.youtube.com/watch?v=XDytuM3MiJI)呐，民那桑，二次元，带suki【マイク破壊妖精】ANTI THE∞HOLiCでとんでもない声を出すエリー・コニファー【生配信リミックス】#エリーコニファー/#にじさんじエリー・コニファー[https://www.youtube.com/watch?v=dUS-ecKafok](https://www.youtube.com/watch?v=dUS-ecKafok)my eli的一绝就是从直播里截下来就能投稿，大概是你虹听过最高的音，这样搞麦克风hold不住啊~【分身合唱】『瑠璃色の地球』を3人に分身して歌うエリー・コニファー【#エリーコニファー/#にじさんじ】エリー・コニファー[https://www.youtube.com/watch?v=ri_E_XmrMoU](https://www.youtube.com/watch?v=ri_E_XmrMoU)eli的整数订阅纪念歌回一直都是我最期待的直播之一，总能看到她很用心准备的活【歌ってみた】オートファジー【早瀬走/にじさんじ】早瀬走[https://www.youtube.com/watch?v=TJZDMf9IjG4](https://www.youtube.com/watch?v=TJZDMf9IjG4)走姐意外的没怎么发歌【歌ってみた】インタビュア by健屋花那/にじさんじ【半年&amp;15万人ありがとう】健屋花那[https://www.youtube.com/watch?v=fxzBmLVfLOw](https://www.youtube.com/watch?v=fxzBmLVfLOw)健屋这样的声音应该也是有一些人会很喜欢，也挺喜欢发歌的【健屋花那/星弥Hoshimi】シリョクケンサ 歌ってみた【にじさんじ/VirtuaReal】健屋花那、星弥Hoshimi[https://www.youtube.com/watch?v=DsaFfyCtKkA](https://www.youtube.com/watch?v=DsaFfyCtKkA)她意外的还跟海外交往颇多【歌ってみた】ECHO by ZEA Cornelia&amp;健屋花那【にじさんじ/NIJISANJI ID】ZEA Cornelia、健屋花那[https://www.youtube.com/watch?v=Q3unv8bSGms](https://www.youtube.com/watch?v=Q3unv8bSGms)同上【#Crossick】ピニャコラーダ歌ってみた【白雪巴・健屋花那/にじさんじ】白雪巴、健屋花那[https://www.youtube.com/watch?v=jmpCiKKcRco](https://www.youtube.com/watch?v=jmpCiKKcRco)我知道很多人喜欢这个【#Crossick】Snow halation歌ってみた【白雪巴・健屋花那/にじさんじ】白雪巴、健屋花那[https://www.youtube.com/watch?v=mCsHw1FLvXQ](https://www.youtube.com/watch?v=mCsHw1FLvXQ)冬日金曲【歌って踊ってみた】Tulip【健屋花那/にじさんじ】健屋花那[https://www.youtube.com/watch?v=Kf0CmsrNBCM](https://www.youtube.com/watch?v=Kf0CmsrNBCM)你虹舞王是不是有点多，不过模型真的可以再修一下，用liver的说法就是加根骨头【オリジナル振付】蝶々結び歌って踊ってみた【健屋花那/にじさんじ】健屋花那[https://www.youtube.com/watch?v=Kjoe1vXlmxQ](https://www.youtube.com/watch?v=Kjoe1vXlmxQ)同上【初！歌！】フィクサー歌ってみたんですけど！！！！！【聞いてほしい】シェリン/にじさんじシェリン・バーガンディ[https://www.youtube.com/watch?v=_keov9CotK4](https://www.youtube.com/watch?v=_keov9CotK4)唯一一首自频道投稿solo歌动画，这谐星当初一开腔可以说是震惊所有人【歌ってみた】番凩【フミ・長尾景/フ景罪/にじさんじ】フミ、長尾景[https://www.youtube.com/watch?v=HFxIHwVvgEw](https://www.youtube.com/watch?v=HFxIHwVvgEw)你虹又一对意外走红的男女组合，虽然这两人我都不是很感冒，但这首确实有感觉【歌ってみた】「DISCOTHEQUE」 / 水樹奈々 【にじさんじワ―ルド】Cover朝日南アカネ、ZEA Cornelia、ヌン・ボラ、イ・ロハ[https://www.youtube.com/watch?v=1Rn8EDmql3k](https://www.youtube.com/watch?v=1Rn8EDmql3k)非常意外的跨三国合作翻唱，非常棒的各色声音【cover】きらめきカフェタイム【にじさんじ/織姫星/星川サラ/山神カルタ/フミ】星川サラ、山神カルタ、フミ[https://www.youtube.com/watch?v=DkfrYUZY3vM](https://www.youtube.com/watch?v=DkfrYUZY3vM)织姬星是个蛮有意思的组合，平常少有交集，但纪念日却几乎都会一起过，星川3D也全程陪同，这大概就是真正的“她们线下关系很好”ヒロイン育成計画／ 星川サラ cover【HoneyWorks】星川サラ[https://www.youtube.com/watch?v=3C1iJ0-cP2E](https://www.youtube.com/watch?v=3C1iJ0-cP2E)你不唱HoneyWorks谁唱www【オリジナルMV】おじゃま虫／星川サラ cover【DECO*27】星川サラ[https://www.youtube.com/watch?v=ZbLF3rjEANk](https://www.youtube.com/watch?v=ZbLF3rjEANk)她这声音就是用来唱这种的ダーリンダンス♡星川サラ cover【かいりきベア】星川サラ[https://www.youtube.com/watch?v=cMGV-vdhhcU](https://www.youtube.com/watch?v=cMGV-vdhhcU)然后有时也能在其他类型的歌曲中演绎出自己的感觉【歌って踊ってみた】ダダダダ天使／ナナヲアカリ【星川サラ/にじさんじ】星川サラ[https://www.youtube.com/watch?v=TzVPSPRa8Vc](https://www.youtube.com/watch?v=TzVPSPRa8Vc)星川3D证明了一件事：在婆姨遍地的你届，年轻就是本钱，青春就是无敌！【歌って踊ってみた】今好きになる。／HoneyWorks【星川サラ/にじさんじ】星川サラ[https://www.youtube.com/watch?v=YSAVCJ1ke-o](https://www.youtube.com/watch?v=YSAVCJ1ke-o)同上【歌って踊ってみた】病名恋ワズライ♡HoneyWorks【星川サラ/にじさんじ】星川サラ[https://www.youtube.com/watch?v=PFs9QOtvvVE](https://www.youtube.com/watch?v=PFs9QOtvvVE)同上【歌ってみた】夜行 coverd by 山神カルタ 【にじさんじ】山神カルタ[https://www.youtube.com/watch?v=pZcQzocrlY0](https://www.youtube.com/watch?v=pZcQzocrlY0)或许也会有人喜欢这种声音？虽然挺菜的，插画不错【10万人記念】 Fly Me to the Moon 歌ってみた。【えま★おうがすと/にじさんじ所属】えま★おうがすと[https://www.youtube.com/watch?v=Us1dzOiKrXc](https://www.youtube.com/watch?v=Us1dzOiKrXc)选曲小天才，emma挺有意思一个人，几乎不和人联动，以前只给人一个绑定森中的印象，分开后听说杂谈什么的还挺有货的【赤の組織】Happy Halloween歌ってみた【一周年記念】ルイス・キャミー、魔使マオ、えま★おうがすと[https://www.youtube.com/watch?v=WgVHmMZ1q7s](https://www.youtube.com/watch?v=WgVHmMZ1q7s)赤组就真的是营业组合了233コールボーイ / 不破湊 Cover不破湊[https://www.youtube.com/watch?v=EemGzICNTkw](https://www.youtube.com/watch?v=EemGzICNTkw)自频道唯一一首solo歌动画，看点击就知道了，也是明明有一手却不喜欢发歌的人【歌ってみた】デッドラインサーカス【#夜王国/グウェル・オス・ガール/白雪巴/不破湊】グウェル・オス・ガール、白雪巴、不破湊[https://www.youtube.com/watch?v=TQsY-rEPofo](https://www.youtube.com/watch?v=TQsY-rEPofo)夜王国能走下来多亏了gwelu的转变以及另外两个人的成熟，话说回来，夜王国每次组合曲翻唱都能惊艳到我也是蛮神奇的，三人的歌声有着意料之外的良好相性【歌ってみた】SNOBBISM/Neru &amp; z’5(covered by 夜王国)グウェル・オス・ガール、白雪巴、不破湊[https://www.youtube.com/watch?v=iZLpkk35KKE](https://www.youtube.com/watch?v=iZLpkk35KKE)合理猜测夜王国以后的所有组合曲都能推荐【オリジナルMV】月光/白雪 巴白雪巴[https://www.youtube.com/watch?v=SDIKmPKMCwQ](https://www.youtube.com/watch?v=SDIKmPKMCwQ)白雪巴也是一位开腔出乎我意料的选手，或许是以前的声优经历让她有些基础，不管什么曲子总是能让声音变出相应的感觉【cover】RESISTANCE/中島美嘉【白雪巴/にじさんじ】白雪巴[https://www.youtube.com/watch?v=CV86FvQvNyo](https://www.youtube.com/watch?v=CV86FvQvNyo)意外的杂食，所以几乎都能推荐【歌ってみた】夜咄ディセイブ/じん (covered by 白雪 巴)白雪巴[https://www.youtube.com/watch?v=380sgirfz5w](https://www.youtube.com/watch?v=380sgirfz5w)同上【生演奏】Alchemy / Girls Dead Monster(Angel Beats!) covered by 白雪巴【#Vtuberバンド企画】白雪巴[https://www.youtube.com/watch?v=wtk2M_6XMa0](https://www.youtube.com/watch?v=wtk2M_6XMa0)#Vtuberバンド企画 这个系列有点意思星川サラの「ふんふんふんァ！」を聞きながらWe will rock you を歌う【にじさんじ/グウェル・オス・ガール】グウェル・オス・ガール[https://www.youtube.com/watch?v=naxhYTUIsNU](https://www.youtube.com/watch?v=naxhYTUIsNU)将整活进行到底的男人猫の食卓 / ましろ〈歌ってみた〉ましろ[https://www.youtube.com/watch?v=3FukEgcaifY](https://www.youtube.com/watch?v=3FukEgcaifY)铲宝这第一弹歌动画至少排得进20年你虹震撼我妈翻唱前三，没细想，可能会是第一。我从未想过有人能在翻唱曲上，无论是选曲还是演绎都如此契合自己，跟原创曲似的あの夏が飽和する。 / ましろ〈歌ってみた〉ましろ[https://www.youtube.com/watch?v=L5sbzUFHot8](https://www.youtube.com/watch?v=L5sbzUFHot8)我想会有很多人喜欢这种【歌ってみた】創傷イノセンス【奈羅花】奈羅花[https://www.youtube.com/watch?v=vECNxLQbFtQ](https://www.youtube.com/watch?v=vECNxLQbFtQ)2434内田真礼【歌ってみた】Realize【奈羅花】奈羅花[https://www.youtube.com/watch?v=rUAmDtSJw2s](https://www.youtube.com/watch?v=rUAmDtSJw2s)nrk也是今年开腔录音震惊我的选手，孩子今年过的也太倒霉了，希望来年多发点歌【オリジナルMV】放課後ストライド 歌ってみた【フレン・E・ルスタリオ】フレン・E・ルスタリオ[https://www.youtube.com/watch?v=IS-8eupGP_I](https://www.youtube.com/watch?v=IS-8eupGP_I)真正的阳光虹人，无论是直播还是歌声都如此充满元气【歌ってみた】 快晴 (Orangestar)【フレン・E・ルスタリオ/にじさんじ】フレン・E・ルスタリオ[https://www.youtube.com/watch?v=S9sd_HvFB9k](https://www.youtube.com/watch?v=S9sd_HvFB9k)如果不是这样的话这首哪能点击这么高エバ/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=aH0SdgEfoIc](https://www.youtube.com/watch?v=aH0SdgEfoIc)19第一组有0，20第一组有melissa，我一度怀疑你虹每年的第一批卡是不是都会有这种转生好几次、心理状态不太行但是声音毒的一笔的歌手夜に駆ける/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=Qb46Hy8ygeY](https://www.youtube.com/watch?v=Qb46Hy8ygeY)仅从歌动画点击上看，melissa已经是你虹不可动摇的第一歌姬，而且如此看来即便0还在也无法毒到如此ボッカデラベリタ/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=y5oMGon8O5A](https://www.youtube.com/watch?v=y5oMGon8O5A)我个人不喜欢melissa的生唱，听过第一次歌回就再也没听了，在专业人士眼里她也是属于那种声音条件不错但需要扔到声乐班狠草个把月学习正确发声姿势的业余歌手，不然只是自毁喉咙シニカルナイトプラン/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=8eQxRL5Lqgw](https://www.youtube.com/watch?v=8eQxRL5Lqgw)但不可否认的是她的声音确实很毒，属于那种不喜欢就是不喜欢，喜欢的人会喜欢到无法自拔的类型，在后期的帮助下可以控制住无谓的随性，所以她的录音我个人挺喜欢的，也能几乎全部推荐ヒステリックナイトガール / メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=F0CnOI5d1DI](https://www.youtube.com/watch?v=F0CnOI5d1DI)虽然我不看好她的生唱表现，不过好在你虹上舞台大多都是录音就是了，这样的话她应该也能让台下观众疯狂一把エンドロール / メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=ZArPzQu_cXE](https://www.youtube.com/watch?v=ZArPzQu_cXE)另外，melissa也是很吃选曲的选手，但好在她很清楚这一点，是个选曲小天才，每一首都很适合自己就寝御礼/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=StA3_Nc5dzM](https://www.youtube.com/watch?v=StA3_Nc5dzM)好像没啥好说的了KING / メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=X5VEzYA1C-8](https://www.youtube.com/watch?v=X5VEzYA1C-8)King不是什么好曲子，所以仅从歌唱角度出发的话，本家我只推荐melissa和葛叶的两个版本メビウス/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=h2YDbhEURZA](https://www.youtube.com/watch?v=h2YDbhEURZA)不管怎么样，还是少点柊キライ吧……レッド・パージ！！！/ メリッサ・キンレンカ Coverメリッサ・キンレンカ[https://www.youtube.com/watch?v=3JU6I12H5WU](https://www.youtube.com/watch?v=3JU6I12H5WU)以上，就是这位歌动画平均再生250万+回，但无法单纯的评价好或不好，略显复杂的你虹歌姬【A3!(エースリー)】「MANKAI☆開花宣言」 歌ってみた ～弾き語りアレンジ(Cover)～【甲斐田晴/にじさんじ】甲斐田晴[https://www.youtube.com/watch?v=1zm2DD63NvA](https://www.youtube.com/watch?v=1zm2DD63NvA)严格来说VΔLZ三位的歌声我都不太喜欢，晴算是比较能接受的了。【弾き語りアレンジ】青いベンチ / サスケ (cover) 歌ってみた【甲斐田晴/にじさんじ】甲斐田晴[https://www.youtube.com/watch?v=cuHZUlLqLW0](https://www.youtube.com/watch?v=cuHZUlLqLW0)当初蛮意外你虹一抽仨男人还都点了音乐系的技能，不过有一技之长好歹不会碌碌无为，甚至都愿意做箱内交往当工具人，结合最初的人气三人年内都拿下银盾还是出乎我意料的Henceforth / Orangestar 【Covered by 朝日南アカネ / にじさんじ】朝日南アカネ[https://www.youtube.com/watch?v=Uok9rHgsauc](https://www.youtube.com/watch?v=Uok9rHgsauc)上一批仨男人，这一批直接五女人也是震撼我，可惜直播一开腔还是有些小失望的，看来田角抽卡爆率是没多高裸の心 / あいみょん 【Covered by 朝日南アカネ / にじさんじ】TBS系 火曜ドラマ「私の家政夫ナギサさん」主題歌朝日南アカネ[https://www.youtube.com/watch?v=r84n7i2M7sQ](https://www.youtube.com/watch?v=r84n7i2M7sQ)但总的来说五绝录音也都说的过去，Akane是发歌最勤的，liver评价是表里如一的真阳角，所以推荐了上一首【歌ってみた】甲賀忍法帖【Covered by BOOGEY VOXX＆北小路ヒスイ /にじさんじ】BOOGEY VOXX、北小路ヒスイ[https://www.youtube.com/watch?v=zgqG7Vmv9Ek](https://www.youtube.com/watch?v=zgqG7Vmv9Ek)藏牛很久，不过只能说还可以〖君の名は。〗なんでもないや / RADWIMPS〖cover 西園チグサ〗西園チグサ[https://www.youtube.com/watch?v=s7RDplTKz40](https://www.youtube.com/watch?v=s7RDplTKz40)从以前到现在都没变过：人_瘾大。什么？我说的是撇撇啦，你以为我说的是谁。但话说回来她声音蛮适合这首歌的感觉。【歌ってみた】Mela! / 緑黄色社会 (cover)【東堂コハク / にじさんじ】東堂コハク[https://www.youtube.com/watch?v=Y98vM_pWsJE](https://www.youtube.com/watch?v=Y98vM_pWsJE)要说讨论度，小黄绝对是五绝最低，唱功也平平无奇，但这首mela翻唱着实惊艳了很多人一把，给后期加鸡腿，对她个人来说绝对算“出圈”的热度了，硬生生拉起了她的订阅没有五绝垫底
+
+
+<strong>原创</strong>
+
+原创曲的入选门槛比翻唱低，毕竟对于V本人来说愿意去费心做一首自己的原创曲就已经是难能可贵的事了。
+视频名演唱者链接一言Moon‼ full ver. / 月ノ美兎 【新3D衣装お披露目/オリジナルソング】月ノ美兎[https://www.youtube.com/watch?v=qHnRdR3CKyI](https://www.youtube.com/watch?v=qHnRdR3CKyI)没啥好说的【オリジナルソング】BraveMagic【にじさんじ/勇気ちひろ】勇気ちひろ[https://www.youtube.com/watch?v=NABSNwfCsw8](https://www.youtube.com/watch?v=NABSNwfCsw8)唯一一首solo原创，她的直播经历倒挺符合这名字的【オリジナル曲】Will you marry me? -Patra Remix- Utako Suzuka【鈴鹿詩子/にじさんじ】鈴鹿詩子[https://www.youtube.com/watch?v=01sBCkJN1XA](https://www.youtube.com/watch?v=01sBCkJN1XA)我还是在STP DJ Party上第一次听这个版本，带感哦Peaceful【伏見ガク】伏見ガク[https://www.youtube.com/watch?v=GG_CFxB2ORQ](https://www.youtube.com/watch?v=GG_CFxB2ORQ)Peace!【MV】ヘテロスタシス / ChroNoiR【オリジナル曲】叶、葛葉[https://www.youtube.com/watch?v=sTcvNTQS86s](https://www.youtube.com/watch?v=sTcvNTQS86s)CNR的组合曲全部推荐，有钱、有自己的创作团队就是猛【オリジナルMV】Ice breaker / ChroNoiR　【cover】叶、葛葉[https://www.youtube.com/watch?v=uexq0h89LNs](https://www.youtube.com/watch?v=uexq0h89LNs)同上【オリジナル】常夏★スカイスクレイパー【ChroNoiR】叶、葛葉[https://www.youtube.com/watch?v=bJD2wtXcIRA](https://www.youtube.com/watch?v=bJD2wtXcIRA)同上【オリジナル】LET IT BURN【ChroNoiR feat.加賀美ハヤト】叶、葛葉、加賀美ハヤト[https://www.youtube.com/watch?v=kkHLnRSCCec](https://www.youtube.com/watch?v=kkHLnRSCCec)同上，加倍排！【オリジナル】Geminids【ChroNoiR】叶、葛葉[https://www.youtube.com/watch?v=l93ewtB1ipU](https://www.youtube.com/watch?v=l93ewtB1ipU)同上，V红白上放了这首，也给两人涨了一波粉P.F.M. / le jouet (Official Video)夢追翔、加賀美ハヤト、緑仙[https://www.youtube.com/watch?v=7nzeZYlZVFs](https://www.youtube.com/watch?v=7nzeZYlZVFs)帅哦イツライ / 緑仙 (Official Video)緑仙[https://www.youtube.com/watch?v=sH5MVf7o_NQ](https://www.youtube.com/watch?v=sH5MVf7o_NQ)MV不错哦エヴァーグリーン 2020 ver. / 緑仙 (Official Video)緑仙[https://www.youtube.com/watch?v=Yw_x4BwzzGk](https://www.youtube.com/watch?v=Yw_x4BwzzGk)最新最in的Ayase担当的原创曲2020版，可是听着真土……【オリジナル曲】L♡ファンファーレ【▽▲TRiNITY▲▽】鷹宮リオン、葉加瀬冬雪、フレン・E・ルスタリオ[https://www.youtube.com/watch?v=Iv_yUMO6PaA](https://www.youtube.com/watch?v=Iv_yUMO6PaA)可爱和憨度成正比？！夢追翔 MV「僕のあたまから出ていけ」（Kakeru Yumeoi - Get Out Of My Head)夢追翔[https://www.youtube.com/watch?v=oyD227oJmzI](https://www.youtube.com/watch?v=oyD227oJmzI)能唱能作，还要什么自行车。话说这首是不是zutomayo听多了写的スターチス / 花伏しほ花伏しほ[https://www.youtube.com/watch?v=gFMXP6Y0YiI](https://www.youtube.com/watch?v=gFMXP6Y0YiI)阿柴挺能整的【オリジナルMV】ハッピーエンドをはじめから【にじさんじ/リゼ・ヘルエスタ】リゼ・ヘルエスタ[https://www.youtube.com/watch?v=vMQwODQ3kKE](https://www.youtube.com/watch?v=vMQwODQ3kKE)作为V个人的原创曲，有时候追求的真的不是唱的多厉害，而是这首歌风格是否合适、是否足够让人感受到量身定做程度的用心，皇女这首就是一个代表【MV】地獄屋八丁荒らし／戌亥とこ戌亥とこ[https://www.youtube.com/watch?v=XwZZeMNanKw](https://www.youtube.com/watch?v=XwZZeMNanKw)毫无争议的2020你虹最佳原创曲【オリジナルMV】ハーフ・エルアール【にじさんじ/レヴィ・エリファ】レヴィ・エリファ[https://www.youtube.com/watch?v=6mMi1VE7ahI](https://www.youtube.com/watch?v=6mMi1VE7ahI)录音感觉怪怪的，期待一下生唱这首【オリジナルソング】Ocean Meets Girl!!【葉山舞鈴/にじさんじ】葉山舞鈴[https://www.youtube.com/watch?v=EFLSZysFbro](https://www.youtube.com/watch?v=EFLSZysFbro)粉丝印象曲转正，叶山挺可爱的，就是真的蛮菜的【MV】加賀美ハヤト - WITHIN【にじさんじ】加賀美ハヤト[https://www.youtube.com/watch?v=fGvYwVW38mc](https://www.youtube.com/watch?v=fGvYwVW38mc)待望的完整版MV，虽然我认为翔哥是最好的男Vocal，但不可否认的是社长在现场更能调动气氛【MV】笑顔の花言葉 / エリー・コニファー【オリジナル】#にじさんじエリー・コニファー[https://www.youtube.com/watch?v=c4sYDns0JBg](https://www.youtube.com/watch?v=c4sYDns0JBg)不瞒你们说，eli是我第一个直播打SC的V【オリジナル曲】ゲッカビジン【#フルトイ/作詞作曲すこっぷ】フミ、ルイス・キャミ―、白雪巴[https://www.youtube.com/watch?v=AUlwYPQ_-Bk](https://www.youtube.com/watch?v=AUlwYPQ_-Bk)哎哟不错哦，有感觉ましろ[https://www.youtube.com/watch?v=4FcBWgi4nBg](https://www.youtube.com/watch?v=4FcBWgi4nBg)就是无题，就是任性，就是如此适合自己，点击就是这么高，这就是铲宝【オリジナルMV】haze / メリッサ・キンレンカメリッサ・キンレンカ[https://www.youtube.com/watch?v=hhXeNNxovSE](https://www.youtube.com/watch?v=hhXeNNxovSE)出道第三个歌动画就是自作原创曲当初还是震惊到我了，尽管编曲不是自己。这首歌的实际水平暂且不论，个人是喜欢这种感觉的【オリジナルMV】胎生/ メリッサ・キンレンカメリッサ・キンレンカ[https://www.youtube.com/watch?v=dlVWaAQZPag](https://www.youtube.com/watch?v=dlVWaAQZPag)这首个人就觉得比较一般了【オリジナル曲】神様の願いを叶えた歌【長尾景/にじさんじ】長尾景[https://www.youtube.com/watch?v=kT_Jg-v6hAo](https://www.youtube.com/watch?v=kT_Jg-v6hAo)能整活挺好的【オリジナルMV】ヒスイ色のミライ【北小路ヒスイ/にじさんじ】北小路ヒスイ[https://www.youtube.com/watch?v=CAi7rJcXw0E](https://www.youtube.com/watch?v=CAi7rJcXw0E)憋了很久的原创曲，不过制作用心了，挺好
+
+
+<strong>商业CD</strong>
+
+商业CD全部都能推荐，就不标红了。
+视频名/CD名演唱者链接一言それゆけ！学級委員長月ノ美兎YouTube Music 全曲：[https://www.youtube.com/playlist?list=OLAK5uy_mvCt5o7w9txtDS2Tmi4Z7zNPpVdRZN1hk](https://www.youtube.com/playlist?list=OLAK5uy_mvCt5o7w9txtDS2Tmi4Z7zNPpVdRZN1hk) 
+
+ それゆけ！学級委員長：[https://www.youtube.com/watch?v=mkGN7jTRwfI](https://www.youtube.com/watch?v=mkGN7jTRwfI)1单主打曲编得不错，MV很多人喜欢，虽然歌词上来说可能没有那么量身打造「SMASH The PAINT!!」収録曲　【『アンチグラビティ・ガール』月ノ美兎】公式フルMV月ノ美兎[https://www.youtube.com/watch?v=L0X1fDI5PJA](https://www.youtube.com/watch?v=L0X1fDI5PJA)比起1单主打曲，更喜欢这首，更符合我对她的印象，MV做的用心SMASH The PAINT!!にじさんじYouTube Music 全曲：[https://www.youtube.com/playlist?list=OLAK5uy_lhRjqwJPJdYu1DLphjKhKG479Fxef9wmI](https://www.youtube.com/playlist?list=OLAK5uy_lhRjqwJPJdYu1DLphjKhKG479Fxef9wmI)群星云集，从创作者到演唱者都把“人气”二字诠释的淋漓尽致，
+
+而人气创作者们也不负众望，厨力溢出，
+
+ickr自厂牌第一张CD就充分达到了商业CD的制作水平，开了个好头Prismatic Colorsにじさんじ本体盘试听：[https://www.youtube.com/watch?v=nHRPsX_QdLY](https://www.youtube.com/watch?v=nHRPsX_QdLY) 
+
+ 特典盘试听：[https://www.youtube.com/watch?v=d23NV5ZGGWg](https://www.youtube.com/watch?v=d23NV5ZGGWg)STP是“人气”的象征，PC就是“实力”的象征，
+
+人选噱头拉满，结合彩虹大半年整体的人气上升，达到了更高的销量水平シナスタジアRain Drops全曲试听：[https://www.youtube.com/watch?v=Aww1Kn-BfEk](https://www.youtube.com/watch?v=Aww1Kn-BfEk) 
+
+ VOLTAGE：[https://www.youtube.com/watch?v=JNCMXcP6AYE](https://www.youtube.com/watch?v=JNCMXcP6AYE) 
+
+ 蜜ノ味：[https://www.youtube.com/watch?v=OtkyRFUEWas](https://www.youtube.com/watch?v=OtkyRFUEWas) 
+
+ セルフィーDimension：[https://www.youtube.com/watch?v=vn919wbETgc](https://www.youtube.com/watch?v=vn919wbETgc)RD一专，尽管RD人选公布时令大家匪夷所思，
+
+但在合适的曲子加商业化的营销下拿到了意想不到的成绩オントロジーRain Drops全曲试听：[https://www.youtube.com/watch?v=P_sRa286_9c](https://www.youtube.com/watch?v=P_sRa286_9c) 
+
+ オントロジー：[https://www.youtube.com/watch?v=Thf5mhiBVrc](https://www.youtube.com/watch?v=Thf5mhiBVrc) 
+
+ 雨言葉：[https://www.youtube.com/watch?v=GhlUnZdyo5Q](https://www.youtube.com/watch?v=GhlUnZdyo5Q)个人比起一专，更喜欢二专première fleurspetit fleurs全曲试听：[https://www.youtube.com/watch?v=W9sHXNZ-jOo](https://www.youtube.com/watch?v=W9sHXNZ-jOo) 
+
+ ミラフル**：[https://www.youtube.com/watch?v=mDNGi5h-D0A](https://www.youtube.com/watch?v=mDNGi5h-D0A) 
+
+ プリンセス・モード!：[https://www.youtube.com/watch?v=JU6SAyyWN5E](https://www.youtube.com/watch?v=JU6SAyyWN5E) 
+
+ プリンシパル：[https://www.youtube.com/watch?v=Kt63ogODeEI](https://www.youtube.com/watch?v=Kt63ogODeEI)之前我说gbr意外是一个会努力的人，
+
+指的就是对待pf这个组合。live前每天5小时的歌舞练习，最后取得了显著的进步，单纯的有付出有收获MARBLE樋口楓全曲试听：[https://www.youtube.com/watch?v=JznYzZMj2uQ](https://www.youtube.com/watch?v=JznYzZMj2uQ) 
+
+ MARBLE：[https://www.youtube.com/watch?v=oZPHldP_mis](https://www.youtube.com/watch?v=oZPHldP_mis)德龙的实力一直是一个尴尬的点，好在她的风格在舞台上还是能调动气氛的，她开心就好AIM樋口楓全曲试听：[https://www.youtube.com/watch?v=_tcTcXGdtSw](https://www.youtube.com/watch?v=_tcTcXGdtSw) 
+
+ アンサーソング：[https://www.youtube.com/watch?v=rQN6mQpTAog](https://www.youtube.com/watch?v=rQN6mQpTAog) 
+
+ FRONTIER：[https://www.youtube.com/watch?v=AwHTmrSZh-Y](https://www.youtube.com/watch?v=AwHTmrSZh-Y)全原创专，德龙还能亲女儿多久呢
+
+
+<strong>NIJISANJI ID、IN、KR</strong>
+
+仅就音乐来说，ID简直是一个宝库。印尼不愧是日本二次元浓度数一数二的国家之一，创作者的风格水平都可以说是在线。
+
+仅就虹来说，目前KR和IN都是差ID不少的，期待以后的作品。
+
+
+尽管门槛低一些，不过海外上表的基本还是可以全都推荐，就不标红了。
+
+由于数量较少，所以翻唱和原唱也不分开了。
+|视频名演唱者链接一言NIJISANJI ID - into reality [Official Music Video]NIJISANJI ID[https://www.youtube.com/watch?v=BR-aIzE3QI0](https://www.youtube.com/watch?v=BR-aIzE3QI0)ID依靠众筹作出的一周年纪念原创曲和MV，出自REDSHiFT之手，非常优秀的团体曲，出乎意料的拿到了百万点击新宝島 / Shin Takarajima Cover【Taka Radjiman】Taka Radjiman[https://www.youtube.com/watch?v=N34673PQ8O4](https://www.youtube.com/watch?v=N34673PQ8O4)印尼男人老性感了。话说回来，千万不要小看印尼在二次元方面的造诣，仅就ID来说有不少不逊于本部的宝藏獣ゆく細道 / Kemono Yuku Hosomichi Cover feat. Adidkh (Vibetronic) 【Taka Radjiman | Nara Haramaung】Taka Radjiman、Nara Haramaung[https://www.youtube.com/watch?v=wRhb2E-PmS0](https://www.youtube.com/watch?v=wRhb2E-PmS0)ID不知为何很喜欢重编，不少remix老带感了【歌ってみた】長く短い祭 / Nagaku Mijikai Matsuri 【Nara Haramaung x Taka Radjiman】Nara Haramaung、Taka Radjiman[https://www.youtube.com/watch?v=ZWsE5z14TnE](https://www.youtube.com/watch?v=ZWsE5z14TnE)带感哦~ロキ / Roki Cover【Taka Radjiman | Suha Min】Taka Radjiman、Suha Min[https://www.youtube.com/watch?v=bsU4t4sWqak](https://www.youtube.com/watch?v=bsU4t4sWqak)来自两位海外男人的roki乙女解剖 / Otome Kaibou (TeddyLoid Alllies Remix) Cover【Taka Radjiman】Taka Radjiman[https://www.youtube.com/watch?v=dir6-2jrwJU](https://www.youtube.com/watch?v=dir6-2jrwJU)我一直不喜欢乙女解剖这首歌，但是重编可以拯救一切！【Arrangement】Shiny Happy Days Riksa mix (Full Vocal ver.) 【NIJISANJI ID】Hana Macchia、ZEA Cornelia、Taka Radjiman、Amicia Michella、Miyu Ottavia、Riksa Dhirendra、Rai Galilei、Azura Cecillia、Layla Alstroemeria、Nara Haramaung[https://www.youtube.com/watch?v=oMfPxyLnTOY](https://www.youtube.com/watch?v=oMfPxyLnTOY)有原初彩虹味了〖Cover〗愛に出会い恋は続く / Ai ni Deai Koi wa Tsuzuku 【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=aKtuOlu0yY4](https://www.youtube.com/watch?v=aKtuOlu0yY4)my Zea可爱！有的歌曲很适合她〖Cover〗私へ / To Me (Acapella) 【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=2ruZjQ9QG8s](https://www.youtube.com/watch?v=2ruZjQ9QG8s)棒〖Cover〗カワキヲアメク / Crying for Rain 【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=T4MckTKK7jo](https://www.youtube.com/watch?v=T4MckTKK7jo)有些奇妙的日语咬字别有一番风味〖Cover〗O-Ku-Ri-Mo-No Sunday! (Pyon't Remix)【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=uLaCPTPwvQM](https://www.youtube.com/watch?v=uLaCPTPwvQM)可爱~〖Cover〗ドリームレス・ドリームス / Dreamless Dreams【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=ZXmEWVzVn7c](https://www.youtube.com/watch?v=ZXmEWVzVn7c)感觉Zea要全推荐了〖Cover〗Switch (JKT48)【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=W9zA5q7QmIA](https://www.youtube.com/watch?v=W9zA5q7QmIA)就要全推荐！〖Cover〗I LOVE... - Official髭男dism【ZEA】ZEA Cornelia[https://www.youtube.com/watch?v=TWNPD3681U0](https://www.youtube.com/watch?v=TWNPD3681U0)I Love…【Hana Macchia】言って。 / Say It.〖cover〗Hana Macchia[https://www.youtube.com/watch?v=fpeXeUCpw6w](https://www.youtube.com/watch?v=fpeXeUCpw6w)ID天皇，唯一支柱，如果说拿银盾还有日本人助力，那么在下半年ID分部N站热门剪辑减少的情况下仍然涨了接近10万订阅，可以说真正的自力更生硬实力冠军【Hana Macchia】Ame to Cappuccino / 雨とカプチーノ〖cover〗Hana Macchia[https://www.youtube.com/watch?v=PahV5CwJB6M](https://www.youtube.com/watch?v=PahV5CwJB6M)my Hana也算是很多人看ID的初心，美日混血，流利的日英印三语，只听讲话yhm那感觉【Cover】Your Reality (Doki Doki Literature Club)【NIJISANJI ID || Hana Macchia】Hana Macchia[https://www.youtube.com/watch?v=T-o-cZp4d8Y](https://www.youtube.com/watch?v=T-o-cZp4d8Y)害怕YOASOBI - 夜に駆ける / Yoru ni Kakeru (Ecky's city pop remix) 【Miyu Ottavia | Cover】Miyu Ottavia[https://www.youtube.com/watch?v=06FKQDbR9qM](https://www.youtube.com/watch?v=06FKQDbR9qM)被人翻烂的歌，可年度最佳来自ID这一手city pop remixMiyu is cute - the Mischief Musicians ft. Azura Cecillia [Music Video]Miyu Ottavia[https://www.youtube.com/watch?v=wq54g3wSREc](https://www.youtube.com/watch?v=wq54g3wSREc)哈哈哈哈哈【Cover】公然の秘密 / Kouzen no Himitsu 【Nara Haramaung 歌ってみた】Nara Haramaung[https://www.youtube.com/watch?v=evNwoerUeKw](https://www.youtube.com/watch?v=evNwoerUeKw)我虎姐不锤爆那些假苹果？【歌ってみた】KING - Kanaria // Versi Koplo【Nara Haramaung】Nara Haramaung[https://www.youtube.com/watch?v=bqGmrZaUe0Y](https://www.youtube.com/watch?v=bqGmrZaUe0Y)如果要我从所有彩虹的King里推荐一首，那必然是这首，什么葛叶梅丽莎还是往后稍稍〖Cover〗KING - Kanaria (Koplo Version di Warung Bakso)【Layla Alstroemeria | NIJISANJI ID】Layla Alstroemeria[https://www.youtube.com/watch?v=I3a_lKhA67A](https://www.youtube.com/watch?v=I3a_lKhA67A)同版本重编，更可爱的vocal【歌ってみた】Rapsodi - JKT48【Nara Haramaung】Nara Haramaung[https://www.youtube.com/watch?v=euHCKxgy04E](https://www.youtube.com/watch?v=euHCKxgy04E)虎姐即便拿去本部都排的上号，我的超人【Original Song】A Cup of Tea 【Layla Alstroemeria x Zen Gunawan】Layla Alstroemeria、Zen Gunawan[https://www.youtube.com/watch?v=Ijp47OBuPCI](https://www.youtube.com/watch?v=Ijp47OBuPCI)将Layla的鸡汤推文改编成原创曲，非常动人的Vocal〖Cover〗Teshima Aoi - Hikari / 光【Layla Alstroemeria | NIJISANJI ID】Layla Alstroemeria[https://www.youtube.com/watch?v=gHCCSslWo2M](https://www.youtube.com/watch?v=gHCCSslWo2M)我正式宣布Layla是2020年度2434最宝藏女孩【Cover song】Baka mitai / 馬鹿みたい【NIJISANJI ID | Bonnivier Pranaja】Bonnivier Pranaja[https://www.youtube.com/watch?v=Mv4f0XEsfy4](https://www.youtube.com/watch?v=Mv4f0XEsfy4)男人，男人！【Arrangement】Virtual to LIVE (Funkot Remix | CloverMcOver Cover) 【NIJISANJI ID】Amicia Michella、 Miyu Ottavia、 Rai Galilei、Riksa Dhirendra[https://www.youtube.com/watch?v=9P7q951BnQk](https://www.youtube.com/watch?v=9P7q951BnQk)Riksa的VtL重编，ID人才济济【ORIGINAL】Mimpi【Reza Avanluna】Reza Avanluna[https://www.youtube.com/watch?v=EpYkYKABml4](https://www.youtube.com/watch?v=EpYkYKABml4)ID新男人出道上来就秀了一手，看好以后的作品【ORIGINAL】Lullaby【Reza Avanluna】Reza Avanluna[https://www.youtube.com/watch?v=3Gq6EgiQ1xM](https://www.youtube.com/watch?v=3Gq6EgiQ1xM)好哥哥摩多摩多【歌ってみた】カタオモイ(Kataomoi)｜짝사랑 【NIJISANJI KR｜Suha】Suha Min[https://www.youtube.com/watch?v=18pKeNz8iJk](https://www.youtube.com/watch?v=18pKeNz8iJk)虹海外最强男Vocal的有力竞争人选（不含VR），当初偶然点进这首初翻唱震惊到我【歌ってみた】少女レイ(Short version)\｜소녀레이 【NIJISANJI KR\｜Suha】Suha Min[https://www.youtube.com/watch?v=3H_yRPm6wiQ](https://www.youtube.com/watch?v=3H_yRPm6wiQ)来自男人的少女Ray【歌ってみた】煌めく浜辺 / Cover by NagiNagi So[https://www.youtube.com/watch?v=sHgLTuvvBg8](https://www.youtube.com/watch?v=sHgLTuvvBg8)Nagi可爱소녀 레이(少女レイ) Cover by AraAra Chae[https://www.youtube.com/watch?v=jFDDztmjUNU](https://www.youtube.com/watch?v=jFDDztmjUNU)来自美少女的少女Ray，Ara挺不错的The beast. / Cover by Ara (채아라)Ara Chae[https://www.youtube.com/watch?v=RfakkHKcpvo](https://www.youtube.com/watch?v=RfakkHKcpvo)虹KR在音乐上就差ID一些了，但可爱的妹子多다메다네(ばかみたい) cover by AraAra Chae[https://www.youtube.com/watch?v=cwWjc9Qn0QE](https://www.youtube.com/watch?v=cwWjc9Qn0QE)虽然看不懂，但至少是整活恋愛サーキュレーション( Cover Song) [이로하LeeRoHa]Roha Lee[https://www.youtube.com/watch?v=lJ0oRZWDUO8](https://www.youtube.com/watch?v=lJ0oRZWDUO8)可爱，话说回来my Roha的一手钢琴技能是全虹不能及的|
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 16战斗力 +18
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|我的超人|
+| ylssb10438| + 1|好评加鹅|
+| stedckk| + 1|好评加鹅|
+| argaregeasr| + 1|好评加鹅|
+| IDIDIDID| + 2|0人好可怕。|
+| OldGlory| + 1||
+| 璎酪| + 1|好评加鹅|
+| Paisley| + 1|好评加鹅|
+| Hachimanhiki| + 1|好评加鹅|
+| alcoholic1000| + 1|太牛了|
+| Aminor| + 1|好评加鹅|
+| free| + 2|好评加鹅|
+| CAserlumos| + 1|好评加鹅|
+| Suny08| + 1|好评，不过葵皇的thriller是不是漏了.|
+| 真飞鸟i| + 1|好强，真的投入了很多热情。|
+| admentus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27743#       发表于 2021-1-1 17:03
+
+
+
+
+【にじさんじお年玉企画！】 Road to 東京リベンジ公演
+[https://www.youtube.com/watch?v=fEU9GTSg-Qk&amp;feature=youtu.be](https://www.youtube.com/watch?v=fEU9GTSg-Qk&amp;feature=youtu.be)
+
+
+
+【#にじさんじJAPANTOUR 一部特別公開！】
+
+にじさんじからのサプライズお年玉企画！
+
+「Road to 東京リベンジ公演」！
+
+
+にじさんじアニバーサリーフェスティバル2021で開催される
+
+「にじさんじ JAPAN TOUR 2020 Shout in the Rainbow! リベンジ公演」に向け、
+
+Shout in the Rainbowの各公演の一部を特別に公開！
+
+配信後、アーカイブは残らないのでお見逃しなく！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27744#       发表于 2021-1-1 17:03
+
+
+
+
+你虹这是拼了啊，新年第一天同接怎么可以被对手超过啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27745#       发表于 2021-1-1 17:07
+
+
+
+
+相扑来了，美兔真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27746#       发表于 2021-1-1 17:10
+
+
+
+
+我在想一个很严肃的问题，这个企划原定是夏天对吧……说到夏天就得是泳装对吧……
+
+当然穿模就是另一件事了，但是一想到这样的可能性被抹杀了，阿万恶的……<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27747#       发表于 2021-1-1 17:14
+
+
+
+
+这就是退役横冈的实力吗……
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27748#       发表于 2021-1-1 17:17
+
+
+
+
+今天0点的同接不是赢了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27749#       发表于 2021-1-1 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这企划要是有男女对抗，就算是彩虹，我可是真的要破防的，真的嗷
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27750#       发表于 2021-1-1 17:26
+
+
+
+
+新年第一天被歌力和sc双双重拳痛击脸部
+
+noH哥还是不是0人了，真0人在听コールボーイ和悪魔の踊り方不是第一反应是不如0吗，居然还没推童田的花与亡灵…
+推花妈没推维纳斯与耶稣，也不可原谅，
+而且竟敢说我小琥珀歌力平平<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，明明之前生唱过mela！而且各方面也能怼的上去，后期有功但本人的素质也是不错的哈！！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27751#       发表于 2021-1-1 17:28
+
+
+
+
+真0人在看完DC 1st live就该死了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27752#       发表于 2021-1-1 17:33
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-1 17:36 编辑 
+
+如果说原创曲的最大优势是“独一无二”的话，那第二大优势就是“量身定做”，结果DC的曲子先不管好不好听，很大一部分0根本驾驭不了，或者不如说有些歌就不是给人唱得。
+
+而最乐的是什么呢？最乐的是根据《银莲花》这首歌的创作记录，是这个锅居然还不归misumi背，就是0自己任性而已。
+
+这首歌两次live里车祸成什么样，看过的都知道。
+
+看看maosasa是怎么给理芽写歌的，送给DC五个大字：差 不 多 得 了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27753#       发表于 2021-1-1 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> “0你能不能去ichikara本社露个面，加下小蜜蜂的line，有丶事情找她”
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27754#       发表于 2021-1-1 17:46
+
+
+
+
+会选择唱道标和甘美的ema是不会有错的，我看还是怪米苏米吧，
+米苏米再作个fake好不好<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27755#       发表于 2021-1-1 17:54
+
+
+
+
+疾倒如风阿露丝，不动如山魔术师，夸张表演疑惑？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gm8c8rtgc5g20eu08cqv8.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm8cbi4zzag20eu08cb2b.gif" referrerpolicy="no-referrer">
+
+
+退役横纲，游刃有余
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gm8cc2tkwzg20eu08c1kz.gif" referrerpolicy="no-referrer">
+
+
+决胜入场，各展英姿
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm8ccafv0fg20eu08cx6t.gif" referrerpolicy="no-referrer">
+
+
+激烈？而不失风度？？的比赛过程
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gm8cczbsc3g20eu08cx6t.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gm8cdn5a0ig20eu08ckjp.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27756#       发表于 2021-1-1 17:55
+
+
+
+ 本帖最后由 CAserlumos 于 2021-1-1 17:57 编辑 
+
+新年新气象，说不定今年就不拉胯了呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl，inui说今年想尝试些新事情，看她样子也不像是会做企划之类的，不知道是哪方面的事<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不过您能多唱点多参加些团建我就谢天谢地了，什么时候来个弹唱回（如果还没忘的话）<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27757#       发表于 2021-1-1 17:58
+
+
+
+
+不过话说回来，0做主播的天赋是小蜜蜂的1000倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27758#       发表于 2021-1-1 17:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这个其实挺暴露体重的，上盘重下盘轻就容易滑倒，可以发散体重了，
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 27759#       发表于 2021-1-1 18:00
+
+
+
+
+这还要发散吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
