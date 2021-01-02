@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-02 00:03** 
+> ## **本文件最后更新于2021-01-02 12:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_b8q83" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_ij22L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7046,8 +7046,9 @@ syl,<img src="https://p.sda1.dev/0/d41778a014c63ac44d7d23406c560340/IMG_AC25F936
 
 
 
+ 本帖最后由 kamen 于 2021-1-2 01:47 编辑 
 
-既然她要玩那还是先祈祷下这阴间游戏它没过气吧，鬼畜游戏跨年＋家族联动连击也救不了同接的话什么sololive也别办了，赶紧嫁了当夫人去<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一年到头把节日全拿来直播的屑
+编辑
 
 
 
@@ -14322,7 +14323,7 @@ https://twitter.com/oshio_dayo/status/1344879042168639494?s=19
 <img src="https://img.saraba1st.com/forum/202101/01/160136olparxrujdo8j4xz.png" referrerpolicy="no-referrer">
 
 
-<strong>【#ホロライブ正月衣装】お正月衣装で新年あけおめ🎍今年もたくさんよろしくね🎍【獅.png</strong> (535.59 KB, 下载次数: 0)
+<strong>【#ホロライブ正月衣装】お正月衣装で新年あけおめ🎍今年もたくさんよろしくね🎍【獅.png</strong> (535.59 KB, 下载次数: 1)
 
 下载附件
 
@@ -15205,7 +15206,7 @@ W O R L D W I D E H O L O L I V E
 <img src="https://img.saraba1st.com/forum/202101/01/181403qs0bttte1spt440f.png" referrerpolicy="no-referrer">
 
 
-<strong>FireShot Webpage Screenshot #020 - '【#ホロライブ正月衣装】お正月衣装で新年.png</strong> (58.05 KB, 下载次数: 0)
+<strong>FireShot Webpage Screenshot #020 - '【#ホロライブ正月衣装】お正月衣装で新年.png</strong> (58.05 KB, 下载次数: 1)
 
 下载附件
 
@@ -16644,6 +16645,25 @@ GBR最近吃了什么药，看了一眼在播底特律<img src="https://static.s
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison|-1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -16711,6 +16731,25 @@ Twitterフォロー＆YouTube登録お願いします🌟
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LilMemo| + 1|画的比海苔男好的有点多|
+
+
+
+查看全部评分
 
 
 
@@ -16795,6 +16834,575 @@ cn野兔子身上背负着原罪，要通过单推和打sc的方式来赎罪
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                     
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 27845#       发表于 2021-1-2 00:03
+
+
+
+
+尊妈唱歌到最后大喊亚拉那一卡，我懂，一定是对正在APEX葛叶唱的对吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 27846#       发表于 2021-1-2 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">タピオカ（筒）、竹（索）、汉字（万）、キラキラ（宝牌），大福的麻将用语一股JK味
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 27847#       发表于 2021-1-2 00:11
+
+
+
+
+今天泥哥独轮车好像直接橄榄404会限了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 27848#       发表于 2021-1-2 00:13
+
+
+
+<blockquote>物流大亨常凯申 发表于 2021-1-2 00:11
+今天泥哥独轮车好像直接橄榄404会限了？
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+卡了，2分钟之后就正常了。
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27849#       发表于 2021-1-2 00:17
+
+
+
+
+贝叔怎么也要耐久啊
+pogo36小时之内无法通关就饮酒jumpking
+新年就要从耐久开始吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 27850#       发表于 2021-1-2 00:19
+
+
+
+
+咋又车回CN野兔子了，都2021年了还车不完，直播没看，又有什么瓜？
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27851#       发表于 2021-1-2 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49913791&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2021-1-2 00:19</a>
+咋又车回CN野兔子了，都2021年了还车不完，直播没看，又有什么瓜？</blockquote>
+没，上面自己树靶子罢了
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27852#       发表于 2021-1-2 00:30
+
+
+
+
+看完叶师吃鸡切回去发现夜见直播还开着，一看原来都读了快半小时sc了，作为底边主播粉丝第一次被震撼到了，这可能是她读的最久的一次
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 27853#       发表于 2021-1-2 01:18
+
+
+
+
+sky这凸待好有意思<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27854#       发表于 2021-1-2 01:41
+
+
+
+
+耐久直播是坏文明
+
+
+
+
+
+
+
+-----
+
+####  kopare  
+##### 27855#       发表于 2021-1-2 07:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49913791&amp;ptid=1969498" target="_blank">目力干员leison 发表于 2021-1-2 00:19</a>
+
+咋又车回CN野兔子了，都2021年了还车不完，直播没看，又有什么瓜？</blockquote>
+贴吧人反串野兔子  REPO没你 拉偏架带方向反串聊八卦跳出来  以为别人看不出来吗
+
+
+希望楼里的野兔子们都有良好的辨别能力 
+
+
+
+
+
+
+
+
+-----
+
+####  kopare  
+##### 27856#       发表于 2021-1-2 07:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49913819&amp;ptid=1969498" target="_blank">pansherry 发表于 2021-1-2 00:24</a>
+
+没，上面自己树靶子罢了
+
+
+—— 来自 samsung SM-G9700, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+他就是贴吧人反串野兔子  注意一下就好了
+
+
+
+
+
+
+
+-----
+
+####  人生败犬河大吉  
+##### 27857#       发表于 2021-1-2 08:07
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-1 23:30
+组长妈这么厉害吗，我就记得以前看过个和男友爹睡了的剪辑</blockquote>
+黄兔子不是养gachi的吗？自爆有男友？
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 27858#       发表于 2021-1-2 08:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914607&amp;ptid=1969498" target="_blank">kopare 发表于 2021-1-2 07:45</a>
+
+贴吧人反串野兔子  REPO没你 拉偏架带方向反串聊八卦跳出来  以为别人看不出来吗
+
+
+希望楼里的野兔子们都 ...</blockquote>
+吐了，一觉醒来又被人开除粉籍了，我没在V8开过号好吧，真要说的话我在塔吧混过一阵子
+
+最近忙没咋看直播，你综兔宝相关repo比之前少了一点，就不怎么在你综发言了，咱日语不行还得靠楼里其他野兔子（以及某些兔anti) 的信息呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+更何况现在能给野兔子造成实质性威胁的是泥哥而不是贴吧好吧，谁稀罕反串，也就某些爱拿兔子数据劈夸的人喜欢干这事
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27859#       发表于 2021-1-2 09:25
+
+
+
+
+害怕查成分
+现在国内管人社区就刷刷泥潭，不加群不看nga不看贴吧，我哪知道你们谁是谁
+就事论事罢了，就算发言的是芙宝照样回啊，反正回复别人也看得到
+
+管人粉哪有管人好看
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kopare  
+##### 27860#       发表于 2021-1-2 09:32
+
+
+
+
+装野兔子替野兔子发言 '演者盾'
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 27861#       发表于 2021-1-2 09:45
+
+
+
+
+主要是昨晚上又有人莫名其妙扯到野兔子上，要是傻逼兔组又整烂活我一点也不关心，反正这群人已经永远地被钉在耻辱柱上了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我寻思你翻出去还得表明自己哪边来的吗，这种事只有4V才爱干好吧，西恩观众没资格推兔子？谁tm给你的权力说这话？
+
+咱就一看节目的，有好活就来没好活就去玩别的，可不像某个粉丝群体天天跟个怨妇一样觉得别人欠他们什么。还“背负原罪”，可把你懂完了是吧，要不要再给交个开麦费之类的？
+
+算了不车这屁事了，怪弱智的<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 27862#       发表于 2021-1-2 09:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼哥谭都没人提兔子，为什么这边就一直在编排兔子呢
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27863#       发表于 2021-1-2 09:59
+
+
+
+ 本帖最后由 pansherry 于 2021-1-2 10:02 编辑 
+
+本质论坛撩骚罢了，毕竟潜在野兔子和野兔子渔夫数量比较多，比较容易被搭话，你钓鱼甩半天没人咬也尴尬不是
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27864#       发表于 2021-1-2 10:05
+
+
+
+
+没人提还行 张口大佐闭口大佐，蝗楼数据组天天叫着兔粽数据造假。
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27865#       发表于 2021-1-2 10:11
+
+
+
+
+有怨报怨有仇报仇，谁提了你火了那就去怼谁啊，s1又没有青天大老爷帮你申冤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27866#       发表于 2021-1-2 10:15
+
+
+
+
+从哪开始车的，最开始蹭pcr那说法是俩三期信钓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+fghc那个一直喜欢车兔子野兔子，oldglory老哥就是纯种巨魔了，这种就别上钩啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27867#       发表于 2021-1-2 10:18
+
+
+
+
+葛葉又通宵，还在直播<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">铁人
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27868#       发表于 2021-1-2 10:19
+
+
+
+
+郡道七小时apex打到现在，
+到这个年纪了还是健康作息防早衰吧！
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27869#       发表于 2021-1-2 10:19
+
+
+
+
+尼哥谭哪像你综，有权限的，一句话对不上版主屁股就给你ccq，更不可能吵对不上版主屁股的架...
+
+要是尼哥谭能自由pvp的话也不用待在你综发牢骚了，跑隔壁手刃傻逼尼哥多解压<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27870#       发表于 2021-1-2 10:27
+
+
+
+
+不去看不就得了，以前也就罢了，现在的nga杏版除了满足猎奇心理之外对相关粉丝还有任何价值么，你去一次可以说杏黑疯狂，去两次可以说钓鱼司马，去三次那就只能说是你自找的了啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27871#       发表于 2021-1-2 10:40
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gm95i4pnvej20xt0j1n1h.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 27872#       发表于 2021-1-2 11:06
+
+
+
+
+懒得按回复让你们误会了，我车的兔组组长呢
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27873#       发表于 2021-1-2 11:10
+
+
+
+
+那昨晚你们究竟怎么吵到那么偏的地方的，太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27874#       发表于 2021-1-2 11:39
+
+
+
+
+西西杂谈的时候有人扔sc叫她再来一次侧翻，她说下次3D有机会就搞，我相信西西！
+
+
+
+
+
+                    
