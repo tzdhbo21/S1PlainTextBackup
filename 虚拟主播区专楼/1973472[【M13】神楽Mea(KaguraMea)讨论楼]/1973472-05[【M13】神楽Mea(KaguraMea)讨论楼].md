@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 22:04** 
+> ## **本文件最后更新于2021-01-02 22:05** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_RqbnN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_V66ys" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17406,4 +17406,832 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 
 
 
-                 
+
+
+-----
+
+####  十九号大侠  
+##### 6966#       发表于 2021-1-1 22:27
+
+
+
+
+新年快乐
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 6967#       发表于 2021-1-2 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49911630&amp;ptid=1973472" target="_blank">平半高水 发表于 2021-01-01 20:07:34</a>
+因为我看的那次就是比较安静，一直在唱歌，不怎么说话，唱的都是很抒情的歌 ...</blockquote>你被麻酱脑控了，快跑啊傻孩子<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 6968#       发表于 2021-1-2 12:06
+
+
+
+
+突然想起来今天晚上7点还有live回放
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 6969#       发表于 2021-1-2 12:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这蠢女人摸几天来着？
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6970#       发表于 2021-1-2 14:45
+
+
+
+
+说是四天 但是她那么蠢 说不定算错了
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 6971#       发表于 2021-1-2 16:11
+
+
+
+
+20210102东京16点
+
+<img src="https://img.saraba1st.com/forum/202101/02/161048ayz8n383d31nii8i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2E4CD509-AA03-4458-9420-DD41FDE5A6AB.jpeg</strong> (459.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 16:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 6972#       发表于 2021-1-2 16:57
+
+
+
+
+说起来我也是2月入坑的 经历也差不多 想看完黑料再gachi上的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6973#       发表于 2021-1-2 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">一想到过年每天体重都会up
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 6974#       发表于 2021-1-2 18:46
+
+
+
+
+20210102东京17点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202101/02/184621uawlaf5luc3up5eh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C9D6EAFA-60A4-4152-AB66-DD89E4066E04.jpeg</strong> (544.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 18:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6975#       发表于 2021-1-2 18:56
+
+
+
+
+bls重播开了，7点开始
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 6976#       发表于 2021-1-2 19:03
+
+
+
+
+赞美全熟
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6977#       发表于 2021-1-2 19:07
+
+
+
+
+之前歌词也是有字幕的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6978#       发表于 2021-1-2 19:11
+
+
+
+
+无论多少次，都感觉这个大衣3d是好文明
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 6979#       发表于 2021-1-2 19:12
+
+
+
+
+真全熟了，看来是要卖bd了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6980#       发表于 2021-1-2 19:15
+
+
+
+
+9成熟还行
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 6981#       发表于 2021-1-2 19:32
+
+
+
+
+真想把她按在椅子上强迫她一直看自己3D的各种动作<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6982#       发表于 2021-1-2 19:47
+
+
+
+
+重听才明白mea把“多少钱”唱成了“小姐”
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6983#       发表于 2021-1-2 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">s1也出现路人财布天狗
+
+太惊人了
+
+尼哥谭走廊有个阳光天狗我都快吓尿了
+
+难道法兰西帝国复兴在即？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6984#       发表于 2021-1-2 21:18
+
+
+
+
+他们的话，什么“阳光天狗”，什么“路人天狗”，什么“新人天狗”，在我耳里，竟是一个字也听不懂！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 6985#       发表于 2021-1-2 21:20
+
+
+
+
+我也看不懂
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 6986#       发表于 2021-1-2 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6987#       发表于 2021-1-2 21:30
+
+
+
+
+我是绿光天狗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 6988#       发表于 2021-1-2 21:31
+
+
+
+
+迷彩天狗都有了，天狗电子越共说成立
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6989#       发表于 2021-1-2 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到反攻倒算
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 6990#       发表于 2021-1-2 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">24号同时试听
+
+也就是说bd会贩卖的意思是把
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6991#       发表于 2021-1-2 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼谁说的按着你咩姐的头一起看的？
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 6992#       发表于 2021-1-2 21:48
+
+
+
+
+特报：1月24日同时视听
+
+公开处刑来了
+
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6993#       发表于 2021-1-2 21:48
+
+
+
+
+同步视听它来力
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6994#       发表于 2021-1-2 21:48
+
+
+
+
+三回啊三回
+
+
+1月24日，公开处刑同步视听bls
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 6995#       发表于 2021-1-2 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1月24日小麻公开处刑自己
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 6996#       发表于 2021-1-2 21:49
+
+
+
+
+好耶！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个真不错，比BD什么的实在多了
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 6997#       发表于 2021-1-2 21:49
+
+
+
+ 本帖最后由 缺陷电气杨永信 于 2021-1-2 21:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">公开处刑草
+
+这可太想看了syl
+
+<img src="https://img.saraba1st.com/forum/202101/02/215204wu1qoqtq1qu6w16q.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210102215150.png</strong> (113.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 21:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 6998#       发表于 2021-1-2 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好耶，愿望实现了
+我到要看看到时候她会怎么吐槽自己各种搞怪的动作<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 6999#       发表于 2021-1-2 21:50
+
+
+
+
+原创单曲啥时候发啊，我等memory好久了
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 7000#       发表于 2021-1-2 21:50
+
+
+
+
+不错，公开处刑
+
+
+
+
+
+
+
+-----
+
+####  A-Wie  
+##### 7001#       发表于 2021-1-2 21:50
+
+
+
+
+可以听到咩咩害羞的惨叫了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7002#       发表于 2021-1-2 21:50
+
+
+
+
+写下时间，1月24日北京19点
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 7003#       发表于 2021-1-2 21:50
+
+
+
+
+是的  原创曲还以为演唱会结束就会出了，结果到现在一点消息都没
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7004#       发表于 2021-1-2 21:51
+
+
+
+
+不会得等到24号同时视听结束后才有吧
+
+
+
+
+
+
+
+-----
+
+####  BigLittle1999  
+##### 7005#       发表于 2021-1-2 21:52
+
+
+
+
+同步视听好耶
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 7006#       发表于 2021-1-2 21:52
+
+
+
+
+想知道这个24号同时试听放不放画面，屏蔽不屏蔽海外ip<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">在海外能不能看
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 7007#       发表于 2021-1-2 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">针不戳
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7008#       发表于 2021-1-2 21:54
+
+
+
+
+应该会有画面吧，b站这边就相当于是b限了，nico那边不知道mea会怎么播
+
+
+感觉可能是b限、nico双推流
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7009#       发表于 2021-1-2 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连续性暂停-闭麦-上厕所警告
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7010#       发表于 2021-1-2 21:56
+
+
+
+<blockquote>thisisaspider 发表于 2020-12-26 23:02
+咩啊我知道你在看的，1月2日我们能discord群同步视听吗。1W档也行</blockquote>
+没想到以这种方式暴露了我是mea男友的事实
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 7011#       发表于 2021-1-2 21:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">为什么都预定是哈子卡西，就不能对自己发情吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7012#       发表于 2021-1-2 21:57
+
+
+
+
+好耶
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7013#       发表于 2021-1-2 21:57
+
+
+
+
+对自己发情还行，她对爱丽丝发情的样子我做梦都能梦到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                

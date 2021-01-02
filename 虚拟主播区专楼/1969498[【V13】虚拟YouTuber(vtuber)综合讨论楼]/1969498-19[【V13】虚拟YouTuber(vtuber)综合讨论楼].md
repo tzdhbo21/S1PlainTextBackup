@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-02 20:02** 
+> ## **本文件最后更新于2021-01-02 22:04** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_JP4kN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_ZQJok" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18251,7 +18251,7 @@ Bsyl，
 <img src="https://img.saraba1st.com/forum/202101/02/194011hw29sh35m6z2hdh9.jpg" referrerpolicy="no-referrer">
 
 
-<strong>魔女の初詣。 みんなは神様へ、どんなお願いしましたか？.jpg</strong> (511.94 KB, 下载次数: 0)
+<strong>魔女の初詣。 みんなは神様へ、どんなお願いしましたか？.jpg</strong> (511.94 KB, 下载次数: 2)
 
 下载附件
 
@@ -18284,4 +18284,456 @@ Bsyl，
 
 
 
-                   
+
+
+-----
+
+####  NBXX  
+##### 27917#       发表于 2021-1-2 20:07
+
+
+
+[https://www.youtube.com/watch?v=8lkam88qeZw&amp;feature=youtu.be](https://www.youtube.com/watch?v=8lkam88qeZw&amp;feature=youtu.be)
+
+【#天音かなた3DLIVE​】僕が主役でもいいですか？【ホロライブ】
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27918#       发表于 2021-1-2 20:24
+
+
+
+
+郡道琥珀不会被我奶出来了吧，感觉到了流向！
+
+省一楼，看杏天使小小个以为是偶像型的，没想到居然是歌手型的啊...
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27919#       发表于 2021-1-2 20:42
+
+
+
+
+第一次看杏的live，这运镜一直这样吗……？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27920#       发表于 2021-1-2 20:44
+
+
+
+
+木口运镜就是这么垃圾的
+
+
+
+
+
+
+
+-----
+
+####  s32244153  
+##### 27921#       发表于 2021-1-2 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49920071&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-1-2 20:42</a>
+
+第一次看杏的live，这运镜一直这样吗……？</blockquote>
+这算好的了 平时更拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27922#       发表于 2021-1-2 20:46
+
+
+
+
+要怪就怪当年星街提的要求是手持不是摇臂吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27923#       发表于 2021-1-2 20:51
+
+
+
+
+除了看得眼晕，这四个模型动起来还是很好看的...
+
+星街站姿真好啊
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202101/02/205122nyyybivyppds3med.png" referrerpolicy="no-referrer">
+
+
+<strong>【#天音かなた3DLIVE】僕が主役でもいいですか？【ホロライブ】.png</strong> (856.65 KB, 下载次数: 1)
+
+下载附件
+
+2021-1-2 20:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27924#       发表于 2021-1-2 20:52
+
+
+
+
+船full armor这套是她最好看的 完爆偶像服完爆初3d  所以我对木口live毫无兴趣就是因为不给船用这套  。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27925#       发表于 2021-1-2 21:03
+
+
+
+
+2021年我最想要的彩虹社新人选手权：
+
+Ado のライブ配信（[https://www.youtube.com/watch?v=CxzBf-zQPIs](https://www.youtube.com/watch?v=CxzBf-zQPIs)）
+
+
+基本是做梦
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27926#       发表于 2021-1-2 21:11
+
+
+
+
+等等该看今天真正的霸权窗了👇：
+
+【ガチ親】ママはVTuber志望らしい。【ホロライブ/夏色まつり】
+[https://www.youtube.com/watch?v=MjPtXDAHeOs](https://www.youtube.com/watch?v=MjPtXDAHeOs)
+
+
+母女持刀中路对线，没见过吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27927#       发表于 2021-1-2 21:14
+
+
+
+
+幻想ado还不如幻想96🐱呢，歌差不多配信水平高一大截
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27928#       发表于 2021-1-2 21:15
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 21:17 编辑 
+
+点开露露窗怎么还在我昨天大清早看到的位置<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+掉到下水道了，关了，建议露信多吃点安定。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27929#       发表于 2021-1-2 21:21
+
+
+
+
+白嫖了维阿live以后只有一个想法：黑黑粉丝真的是太好应付了，这种3d居然可以忍受到2021年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 27930#       发表于 2021-1-2 21:24
+
+
+
+[https://www.youtube.com/watch?v=1VcseO1N5CI](https://www.youtube.com/watch?v=1VcseO1N5CI)
+
+新春！YuNiスタジオ生ライブ
+
+这个是不是太子第一次直播歌回，虽然就唱了三首，真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+管人无关，外野帖子：日本出现疫情相关崇拜团体
+[https://bbs.saraba1st.com/2b/thread-1980852-1-1.html](https://bbs.saraba1st.com/2b/thread-1980852-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27931#       发表于 2021-1-2 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49920117&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-2 20:46</a>
+
+要怪就怪当年星街提的要求是手持不是摇臂吧</blockquote>
+应该就没摇臂吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，要是能有她还能不要？
+
+花絮里那个穿过镜头明显是给摇臂用的，结果人抱着晃的要死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27932#       发表于 2021-1-2 21:27
+
+
+
+
+但是摇臂和轨道实现起来要比手持简单多了，就是要3D房面积够大。
+
+算了不要求了，反正她以后也是跑外勤的多。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 27933#       发表于 2021-1-2 21:30
+
+
+
+
+比起面积来说……层高才是大问题吧……。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27934#       发表于 2021-1-2 21:30
+
+
+
+
+一个小时后到了新高度！
+
+<img src="https://img.saraba1st.com/forum/202101/02/213028by47y06m4vo717yv.png" referrerpolicy="no-referrer">
+
+
+<strong>【ジャンプキング】終わらない2020年ｯ…！！！！【鈴原るる:にじさんじ】.png.png</strong> (694.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 21:30 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=ggefSomjW_8](https://www.youtube.com/watch?v=ggefSomjW_8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|又下去了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27935#       发表于 2021-1-2 21:32
+
+
+
+
+我说的面积包括了层高的。
+
+
+
+SYL：
+
+我又把今天izuru的歌回听了下，可怜孩子投错胎了，去隔壁哪能这么委屈。
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 27936#       发表于 2021-1-2 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49920520&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-2 21:21</a>
+白嫖了维阿live以后只有一个想法：黑黑粉丝真的是太好应付了，这种3d居然可以忍受到2021年 ...</blockquote>
+一开始大家都烂就还好
+现在的一个比一个精致漂亮
+早酸疯了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 27937#       发表于 2021-1-2 21:37
+
+
+
+
+杏19年那次全员七夕3D唱K就有摇臂了啊，难道现在还没了？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 27938#       发表于 2021-1-2 22:02
+
+
+
+[https://www.youtube.com/watch?v=3Drh3wqO_7w](https://www.youtube.com/watch?v=3Drh3wqO_7w)
+
+アラン初歌配信「 #拡生希望 」
+
+
+
+
+
+                  
