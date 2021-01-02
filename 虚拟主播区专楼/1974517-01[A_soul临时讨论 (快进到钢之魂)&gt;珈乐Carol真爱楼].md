@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-31 22:11** 
+> ## **本文件最后更新于2021-01-02 16:07** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Ay7Jy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_JdN0E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -9212,4 +9212,627 @@ S1在任何时候发挥不了任何作用（黄豆流汗脸）
 
 
 
-                                 
+
+
+-----
+
+####  物流大亨常凯申  
+##### 482#       发表于 2021-1-1 00:59
+
+
+
+
+输了，今晚和几个老前辈吹了一晚上B
+
+虽说工作上受益匪浅，但是完全没看直播啊
+
+没内味
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 483#       发表于 2021-1-1 08:29
+
+
+
+
+直播时长:4.5小时
+
+付费人数:205人
+
+营收:8148元
+
+互动人数:1700人？(不知道咋算)
+
+弹幕总数:87998条
+
+人气峰值:69926
+
+<img src="https://img.saraba1st.com/forum/202101/01/082831ns23b51wom55rbwb.png" referrerpolicy="no-referrer">
+
+
+<strong>sketch-1609459800350.png</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 08:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/082830em4xdya3jingnnci.png" referrerpolicy="no-referrer">
+
+
+<strong>sketch-1609459714347.png</strong> (36.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 08:28 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 484#       发表于 2021-1-1 08:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/083438hl4alzftgo8zqqoc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>03225EFCD6C594EB12BBF5A44F46BA34.jpg</strong> (151.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 08:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/083439vraz80ysndsz78wk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>AEE8E8D2965B1B9D17B462A225EC6B98.jpg</strong> (69.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 08:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 485#       发表于 2021-1-1 09:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/090007uosxbnbayoo0khac.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210101-085818~01.png</strong> (141.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 09:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 486#       发表于 2021-1-1 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49906170&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-1 09:00</a></blockquote>
+果然有不少人还是lulu的粉，那里的弹幕文化是yhm里最自由和开放的了，不过还是比这边拘谨一些
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 487#       发表于 2021-1-1 09:54
+
+
+
+ 本帖最后由 SuperCK 于 2021-1-1 11:13 编辑 
+
+这次官号传得这么快，震惊
+[A-SOUL 12.31跨年直播合集【直播剪辑】](https://www.bilibili.com/video/BV1mK411g7dY)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 488#       发表于 2021-1-1 11:56
+
+
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=fdbdbfe14eee3d6d22c687c373176d41/b180fd039245d68878bf1ee2b3c27d1ed31b24b0.jpg" referrerpolicy="no-referrer">
+[https://tieba.baidu.com/p/7176210975](https://tieba.baidu.com/p/7176210975)
+
+8u欢乐多。建议转给嘉然。
+
+
+
+
+
+
+
+-----
+
+####  Lucio  
+##### 489#       发表于 2021-1-1 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49899655&amp;ptid=1974517" target="_blank">OldGlory 发表于 2020-12-31 16:06</a>
+
+花园猫本来就不是头部日v</blockquote>
+都进百大营收榜了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+点歌点不到没什么，大v看不过来我很理解，为节目效果不道谢我也就当她太兴奋忘记了。但是一群粉赶着护把我恶心到<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  honeybrain  
+##### 490#         楼主| 发表于 2021-1-1 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49907489&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-1-1 11:56</a>
+https://tieba.baidu.com/p/7176210975
+
+8u欢乐多。建议转给嘉然。</blockquote>
+你倒是转啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 491#       发表于 2021-1-1 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908604&amp;ptid=1974517" target="_blank">honeybrain 发表于 2021-1-1 13:57</a>
+
+你倒是转啊</blockquote>
+V8原偷，再偷必究<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 492#       发表于 2021-1-1 17:46
+
+
+
+
+这运营果然还是拉胯，贝拉发这两个一分钟不到的短视频，还不如剪两段录播上去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 493#       发表于 2021-1-1 18:03
+
+
+
+
+慕名去抖音看了一下，那些短视频可有可无吧
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 494#       发表于 2021-1-1 18:12
+
+
+
+
+？
+
+删了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 495#       发表于 2021-1-1 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49910506&amp;ptid=1974517" target="_blank">与太郎 发表于 2021-1-1 18:12</a>
+？
+
+删了</blockquote>
+asoul 运营真的水平在线，反响不好当机立断<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer"> 这样的小伙子去电子厂也是一把好手
+
+
+
+
+
+
+
+-----
+
+####  a1179349985  
+##### 496#       发表于 2021-1-1 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日v那弹幕和评论区，生怕打个字出来都让v不安，都不知道怎么说了，互动几乎没有，v本人更是啥都看不懂，甚至活动1,2年了一些简单的中文都认不出，还担心弹幕吵起来吗，反正都是她播她的，你发你的
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 497#       发表于 2021-1-1 22:23
+
+
+
+
+我个人建议乐华或者字节可以考虑往手游方向发展<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">抖音那边一堆问是不是游戏的，还有问有没有手游的，二次元最廉价的破圈方式就是做手游，或者搞个联动？换套可爱点的服装，弄个不太肝的活动我是觉得应该反响会还可以。但是乐华和字节有这方面的资源吗。。。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 498#       发表于 2021-1-1 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49912868&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2021-1-1 22:23</a>
+我个人建议乐华或者字节可以考虑往手游方向发展抖音那边一堆问是不是游戏的，还有问有没有手游的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我只能发这个表情，说不定呢。
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 499#       发表于 2021-1-1 22:27
+
+
+
+<blockquote>王一唯不傲娇 发表于 2021-1-1 22:23
+我个人建议乐华或者字节可以考虑往手游方向发展抖音那边一堆问是不是游戏的，还有问有没有手游的， ...</blockquote>
+这种油腻的画风，明显不是纯二次元的，抖音用来吸引路人，出圈代言联动的可能性更大。
+
+坐等黄瓜味鼠片。
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 500#       发表于 2021-1-1 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49912911&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-1 22:27</a>
+
+这种油腻的画风，明显不是纯二次元的，抖音用来吸引路人，出圈代言联动的可能性更大。
+
+坐等黄瓜味鼠片。 ...</blockquote>
+我知道不是纯二次元，但是薯片联动效果肯定远远不如手游
+
+
+
+
+
+
+
+-----
+
+####  奥比斯  
+##### 501#       发表于 2021-1-2 03:51
+
+
+
+
+nga已经形成正确记忆了：不是我们车的嘉然  都是v8去车的 车完就投降了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 502#       发表于 2021-1-2 08:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在开始篡改历史了，怎么会有如此厚颜**之人。
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 503#       发表于 2021-1-2 08:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914643&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-1-2 08:04</a>
+现在开始篡改历史了，怎么会有如此厚颜**之人。</blockquote>
+谁声音大，谁就是真相。
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 504#       发表于 2021-1-2 08:44
+
+
+
+
+原来是枝江大学，一直以为是浙大。
+
+没仔细看过设定，前几次直播也没赶上，有点搞不清哪是哪了。
+
+贝拉应该真有个高中弟弟，嘉然向晚真的近视+散光
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 505#       发表于 2021-1-2 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914402&amp;ptid=1974517" target="_blank">奥比斯 发表于 2021-1-2 03:51</a>
+nga已经形成正确记忆了：不是我们车的嘉然  都是v8去车的 车完就投降了</blockquote>
+……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 506#       发表于 2021-1-2 09:03
+
+
+
+
+应该是v8和泥哥都车了嘉然，然后v8投降了，一部分泥哥还在负隅顽抗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 507#       发表于 2021-1-2 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914824&amp;ptid=1974517" target="_blank">齐桓公 发表于 2021-1-2 09:03</a>
+应该是v8和泥哥都车了嘉然，然后v8投降了，一部分泥哥还在负隅顽抗
+
+  -- 来自 能搜索的 Stage1官方 ...</blockquote>
+v8定型文，泥哥正义春。
+定型文姑且还有直播效果，v玩梗也开心，正义春嘛，呵呵。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪空  
+##### 508#       发表于 2021-1-2 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914402&amp;ptid=1974517" target="_blank">奥比斯 发表于 2021-1-2 03:51</a>
+nga已经形成正确记忆了：不是我们车的嘉然  都是v8去车的 车完就投降了</blockquote>
+V圈没有历史，V圈历史都是新人编出来的，自然想怎么编就怎么编，反正最后大家开心就好
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 509#       发表于 2021-1-2 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49910506&amp;ptid=1974517" target="_blank">与太郎 发表于 2021-1-1 18:12</a>
+？
+
+删了</blockquote>
+一天没看，删了啥？
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 510#       发表于 2021-1-2 15:07
+
+
+
+
+大家觉得有没有必要还是做一个live2d的形象出来，对这个企划来说也是小钱，能显得更“二次元”一点
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 511#       发表于 2021-1-2 15:15
+
+
+
+
+还有就是关于联动的问题，我是觉得可以先找新科联动试试水引引流，相比较的话新科没有黑料形象比较好，先不考虑流量的问题。然后就简简单单的杂谈加游戏？然后给自己点好虚拟偶像的基本调子，这样才算开始面对大众
+
+
+
+
+
+
+
+-----
+
+####  Hchan  
+##### 512#       发表于 2021-1-2 15:52
+
+
+
+
+这几位比起虚拟主播更接近虚拟偶像多一点吧，杜华女士能给她们整点好听的歌嘛
+
+
+镜头前的贝拉真可爱，有点像在长辈面前表演的别人家的小孩，害羞之余不会很扭捏，挺大方的
+
+
+
+
+
+                                
