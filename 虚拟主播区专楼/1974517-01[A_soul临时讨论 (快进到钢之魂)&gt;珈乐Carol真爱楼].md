@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-02 16:07** 
+> ## **本文件最后更新于2021-01-03 02:09** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_JdN0E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_svXni" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -9782,6 +9782,25 @@ V圈没有历史，V圈历史都是新人编出来的，自然想怎么编就怎
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与太郎| + 1|贝拉账号上发了个烂活，评价不好光速删除.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9835,4 +9854,607 @@ V圈没有历史，V圈历史都是新人编出来的，自然想怎么编就怎
 
 
 
-                                
+
+
+-----
+
+####  伊可费斯  
+##### 513#       发表于 2021-1-2 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49917313&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2021-1-2 15:07</a>
+大家觉得有没有必要还是做一个live2d的形象出来，对这个企划来说也是小钱，能显得更“二次元”一点 ...</blockquote>
+没有
+
+
+
+
+
+
+
+-----
+
+####  午餐女仆  
+##### 514#       发表于 2021-1-2 16:33
+
+
+
+
+关于虚拟主播这事思考了一下，觉得现在这圈子小主要还是本地化没做好的原因，就那最基础的名字来说，全是日本名字，如果要出圈，进入大众视野，上地方电视台，要怎么介绍这些虚拟主播？观众只会一头雾水，为什么这些中国人要取日本名字？国内就没有这种认知基础。
+
+但是a soul不一样，名字都很本地化，而且国内对于有英文名字很正常，对于韩式女团的的接受度也很高，对于进入大众视野比其他虚拟主播要方便很多。
+
+比如参加前两天的上海东方卫视跨年晚会的泠鸢，名字就不会太让观众觉得奇怪。
+
+如果真的打算扩大圈子，那么本地化必不可少，a soul这些尝试只会是第一步。
+
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 515#       发表于 2021-1-2 16:40
+
+
+
+
+不是对标维阿，是对标歌姬，要联动找鸟和hanser就不错
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 516#       发表于 2021-1-2 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49917925&amp;ptid=1974517" target="_blank">午餐女仆 发表于 2021-1-2 16:33</a>
+
+关于虚拟主播这事思考了一下，觉得现在这圈子小主要还是本地化没做好的原因，就那最基础的名字来说，全是日 ...</blockquote>
+这个圈子本身就太小众了，哪有什么几个能跟冷鸟比的。。。现在看未来的v圈真有点盲人摸象的味道
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 517#       发表于 2021-1-2 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49917977&amp;ptid=1974517" target="_blank">pllllum 发表于 2021-1-2 16:40</a>
+
+不是对标维阿，是对标歌姬，要联动找鸟和hanser就不错</blockquote>
+这俩流量是挺大的，但是我感觉不太适合初次联动
+
+
+
+
+
+
+
+-----
+
+####  ShiinaYuki  
+##### 518#       发表于 2021-1-2 17:17
+
+
+
+
+泥哥一绝就是编造历史啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 519#       发表于 2021-1-2 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49917925&amp;ptid=1974517" target="_blank">午餐女仆 发表于 2021-1-2 16:33</a>
+关于虚拟主播这事思考了一下，觉得现在这圈子小主要还是本地化没做好的原因，就那最基础的名字来说，全是日 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">维阿确实不行，之前自我介绍名字都是中文加日语，现在有减少，不过味还是去不掉，搞日语名字纯属败笔，不过成立时就是彩虹的外包，也没办法
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 520#       发表于 2021-1-2 17:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/02/175039ax2ugszwnqbbwkgp.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210102-174648~01.png</strong> (71.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 17:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 521#       发表于 2021-1-2 20:04
+
+
+
+
+不是，私·服这么色的吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 522#       发表于 2021-1-2 20:10
+
+
+
+
+爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 523#       发表于 2021-1-2 20:16
+
+
+
+
+开局五星，不会真的光速下播吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 524#       发表于 2021-1-2 20:17
+
+
+
+
+这游戏应该没几个人玩吧。。。
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 525#       发表于 2021-1-2 20:36
+
+
+
+
+玩JC一定要记得套绳啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该扣工资惹
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 526#       发表于 2021-1-2 20:41
+
+
+
+
+ns的评判不行，请xbox
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 527#       发表于 2021-1-2 20:49
+
+
+
+
+这样才对既然本身是3d，就要最大花挥3d的特性。
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 528#       发表于 2021-1-2 20:58
+
+
+
+
+这乳摇也太激烈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，其实把摇晃程度调小一点更自然。
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 529#       发表于 2021-1-2 21:01
+
+
+
+
+这奈子把人都晃晕了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 530#       发表于 2021-1-2 21:04
+
+
+
+
+想起I社，顶不住了
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 531#       发表于 2021-1-2 21:08
+
+
+
+
+贝拉，你这个好女人
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 532#       发表于 2021-1-2 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49920351&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2021-1-2 21:08</a>
+
+贝拉，你这个好女人</blockquote>
+贝拉在v圈有啥替代吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 533#       发表于 2021-1-2 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49920371&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2021-1-2 21:10</a>
+
+贝拉在v圈有啥替代吗</blockquote>
+舞蹈区上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰海风  
+##### 534#       发表于 2021-1-2 21:29
+
+
+
+
+贝拉的哥哥和弟弟都在国家队里，弟弟是乒乓球国家级运动员，哥哥是跆拳道国家级运动员。
+
+
+
+
+
+
+
+-----
+
+####  蓝灯横滨  
+##### 535#       发表于 2021-1-2 21:47
+
+
+
+
+一家全国家队不是马上被特定，应该是rp吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 536#       发表于 2021-1-2 21:51
+
+
+
+
+全家国家队<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">什么武林世家
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 537#       发表于 2021-1-2 21:52
+
+
+
+
+贝拉怎么还玩dota 2的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 538#       发表于 2021-1-2 21:55
+
+
+
+
+《向晚是gamer》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底谁才是啊
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 539#       发表于 2021-1-3 00:17
+
+
+
+
+如果说珈乐需要30勇士训练直播能力，其实贝拉也没好到哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只能说未来可期
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 540#       发表于 2021-1-3 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922096&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-1-3 00:17</a>
+
+如果说珈乐需要30勇士训练直播能力，其实贝拉也没好到哪里去今天晚上感觉除了播前选了游戏就没什么 ...</blockquote>
+跳舞再差也肯定比嗯打游戏强多了。。。珈乐我觉得真的是<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">就经典永流传：三个字，还没有人猜出答案，你们有人猜中了统一一下意见。作为全程观看本场直播的，我都有点ptsd了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 541#       发表于 2021-1-3 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922096&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-1-3 00:17</a>
+
+如果说珈乐需要30勇士训练直播能力，其实贝拉也没好到哪里去今天晚上感觉除了播前选了游戏就没什么 ...</blockquote>
+嘉然有自己的直播节奏，像一台高性能计算机来统合当前弹幕风向编弹幕。心里对自己等下要干什么摸的门清。
+
+贝拉和珈乐就没怎么摸清，看弹幕就容易被带偏，处理器性能又不行，贝拉还好，珈乐直接卡死机。
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 542#       发表于 2021-1-3 00:25
+
+
+
+ 本帖最后由 苍浅° 于 2021-1-3 01:18 编辑 
+
+互动效果看下来还是向晚和然然比较好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+奶0跨年单人那段有点棒读感，期待首播能好点
+syl，有素人感也是不可多得的乐趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 543#       发表于 2021-1-3 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49918217&amp;ptid=1974517" target="_blank">ShiinaYuki 发表于 2021-1-2 20:17</a>
+
+泥哥一绝就是编造历史啊在造神这块给他们拿捏的死死的</blockquote>
+细说,又咋啦
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 544#       发表于 2021-1-3 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922250&amp;ptid=1974517" target="_blank">1I1I1I1I1I1I1I1 发表于 2021-1-3 00:35</a>
+
+细说,又咋啦</blockquote>
+泥哥：当初嘉然动态下面都是v8在发正义春，泥哥看v8在冲就在一旁看乐子不讨论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+泥又赢。
+
+
+
+
+
+
+
+-----
+
+####  Hchan  
+##### 545#       发表于 2021-1-3 00:53
+
+
+
+
+贝拉的设定和皮下的中之人都是走正统偶像那一卦的，缺少主播感是优势也是劣势，很多时候太一板一眼不太好
+
+
+每次团体直播贝拉的表现，让我想起日本综艺里面默默站在一旁看综艺咖们耍宝的新人女偶像，如果不被cue到就没有反应被当成背景板假笑一整集那种
+
+
+不过这都不妨碍我中途开了舰长<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 546#       发表于 2021-1-3 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922383&amp;ptid=1974517" target="_blank">Hchan 发表于 2021-1-3 00:53</a>
+
+贝拉的设定和皮下的中之人都是走正统偶像那一卦的，缺少主播感是优势也是劣势，很多时候太一板一眼不太好
+
+
+ ...</blockquote>
+确实
+
+她和珈乐应该是都是练习生出生，估计之前也没有综艺和直播经验
+
+
+
+
+
+                               
