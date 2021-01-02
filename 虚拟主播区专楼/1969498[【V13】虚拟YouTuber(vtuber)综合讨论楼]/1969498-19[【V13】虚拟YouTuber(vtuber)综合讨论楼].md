@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-02 22:04** 
+> ## **本文件最后更新于2021-01-03 00:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_ZQJok" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_fnj26" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18736,4 +18736,473 @@ SYL：
 
 
 
-                  
+
+
+-----
+
+####  IDIDIDID  
+##### 27939#       发表于 2021-1-2 22:10
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 22:12 编辑 
+
+夏哥：只要我不断拖下去，同接就会不断延伸……
+
+夏哥他妈声线都比有些人年轻<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 27940#       发表于 2021-1-2 22:12
+
+
+
+
+还真有l2d了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+跑了，推什么夏色祭，不如推她妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27941#       发表于 2021-1-2 22:15
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 22:17 编辑 
+
+评论区果然在刷侦探梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+兔皇的这一手“教妈妈认识SC”学过来了，这个月又没法现原形了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 27942#       发表于 2021-1-2 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921043&amp;ptid=1969498" target="_blank">-rm7- 发表于 2021-1-2 22:12</a>
+
+还真有l2d了
+
+跑了，推什么夏色祭，不如推她妈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当初人设刚做好就是附带l2d的 
+
+那时她电脑带不动两个而已
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27943#       发表于 2021-1-2 22:24
+
+
+
+ 本帖最后由 十四洲 于 2021-1-2 22:28 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/02/222421xc872i75w0497cls.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-01-02_22-23-40.png</strong> (50.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 22:24 上传
+
+
+
+
+
+
+syl，夏哥妈妈的声音真的比夏哥好听（很多）<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27944#       发表于 2021-1-2 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921061&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-2 22:15</a>
+
+评论区果然在刷侦探梗
+
+
+兔皇的这一手“教妈妈认识SC”学过来了，这个月又没法现原形了</blockquote>
+承认夏色祭很厉害有这么难么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 27945#       发表于 2021-1-2 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921066&amp;ptid=1969498" target="_blank">えびふらいおん 发表于 2021-1-2 22:15</a>
+当初人设刚做好就是附带l2d的 
+
+那时她电脑带不动两个而已</blockquote>
+这样嘛<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">mmz是真敬业啊
+
+Syl，怎得唱巴拉拉一卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27946#       发表于 2021-1-2 22:38
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 22:42 编辑 
+
+露露不认识“曝し”怎么读<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+建议夏色祭换中之人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 27947#       发表于 2021-1-2 22:47
+
+
+
+
+连弟弟一起带上还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 27948#       发表于 2021-1-2 22:49
+
+
+
+
+全家桶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+把松彦让给你弟算了
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 27949#       发表于 2021-1-2 22:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弟弟真实诚 “有没有考虑过出道当V”“想是有点想”
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27950#       发表于 2021-1-2 22:53
+
+
+
+
+那夏哥要是还有点良心就让他去隔壁应聘吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27951#       发表于 2021-1-2 22:53
+
+
+
+
+当v的话最好不要进木口星啊
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27952#       发表于 2021-1-2 22:54
+
+
+
+ 本帖最后由 cheatdeath3 于 2021-1-2 22:58 编辑 
+
+叶师什么时候开始玩的塔科夫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+夏弟进了杏星不仅能和最in的杏女贴贴，还能和最爱他的姐姐贴贴，夏哥还能发展自己的势力。反正去虹也是底边，不如利用好自家人的优势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 27953#       发表于 2021-1-2 22:54
+
+
+
+
+给弟弟介绍去苔箱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27954#       发表于 2021-1-2 22:57
+
+
+
+
+月之提到sc了，不知是抽到小糸还是浅仓透，明天会玩吗，我两张都很想云啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 27955#       发表于 2021-1-2 22:57
+
+
+
+
+塔科夫啊，看动作就能看出来是老兵新兵，不过我猜也就是个新兵蛋子
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27956#       发表于 2021-1-2 23:00
+
+
+
+
+可以把露露的「よし」「飛びすぎだ」做成asmr音MAD吗
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27957#       发表于 2021-1-2 23:17
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-2 23:21 编辑 
+
+叶师傅一年前就在摇人EFT了，还教过好几波
+
+不过现在可能也忘得差不多了
+
+（EFT！我就觉得怎么看怎么别扭）
+
+
+
+
+
+
+
+-----
+
+####  蒼島燃灯  
+##### 27958#       发表于 2021-1-2 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921415&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-1-2 22:54</a>
+叶师什么时候开始玩的塔科夫？
+
+
+夏弟进了杏星不仅能和最in的杏女贴贴，还能和最爱他的姐姐贴贴，夏 ...</blockquote>
+跟哪个杏女贴？狐皇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且狐不是叔控吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27959#       发表于 2021-1-2 23:26
+
+
+
+
+别尬黑，喜欢同龄人而已
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27960#       发表于 2021-1-2 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 说起来，这种小弟弟进入全是大姐姐的社团，倒是让我想到某些剧情，
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27961#       发表于 2021-1-2 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921613&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-1-2 23:17</a>
+
+叶师傅一年前就在摇人EFT了，还教过好几波
+
+不过现在可能也忘得差不多了
+
+（EFT！我就觉得怎么看怎么别扭）</blockquote>
+点进去就是叶队上供现场，看来技术生疏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 27962#       发表于 2021-1-2 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921665&amp;ptid=1969498" target="_blank">蒼島燃灯 发表于 2021-1-2 23:24</a>
+
+跟哪个杏女贴？狐皇吗
+
+而且狐不是叔控吗</blockquote>
+可以由夏哥引见一些底边和夏弟联动来实现杏女杏星双赢，但杏女真的有底边吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 27963#       发表于 2021-1-2 23:49
+
+
+
+
+萝卜籽吧，按性的标准
+
+
+
+
+
+                 
