@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-02 12:02** 
+> ## **本文件最后更新于2021-01-02 20:02** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_ij22L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_JP4kN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17405,4 +17405,883 @@ fghc那个一直喜欢车兔子野兔子，oldglory老哥就是纯种巨魔了�
 
 
 
-                    
+
+
+-----
+
+####  stedckk  
+##### 27875#       发表于 2021-1-2 13:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">没看到你车兔组组长，就看到你说兔皇想消除cn的记忆
+
+顺便兔组组长是那个点人吗，事到如今还有什么好车的。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27876#       发表于 2021-1-2 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914650&amp;ptid=1969498" target="_blank">人生败犬河大吉 发表于 2021-1-2 08:07</a>
+黄兔子不是养gachi的吗？自爆有男友？</blockquote>
+不是组长本人，是组长的妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27877#       发表于 2021-1-2 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916607&amp;ptid=1969498" target="_blank">stedckk 发表于 2021-1-2 13:27</a>
+没看到你车兔组组长，就看到你说兔皇想消除cn的记忆
+
+顺便兔组组长是那个点人吗，事到如今还有什么好 ...</blockquote>
+https://www.bilibili.com/read/cv9088774
+https://www.bilibili.com/read/cv9091757
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27878#       发表于 2021-1-2 14:04
+
+
+
+
+才发现bloom在nijifes之前10天，虹又赢。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27879#       发表于 2021-1-2 15:33
+
+
+
+
+首都圏で新型コロナウイルスの感染が拡大していることをうけて、東京都と埼玉県、千葉県、神奈川県は2日、政府に対して、緊急事態宣言を発出するよう要請します。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27880#       发表于 2021-1-2 15:49
+
+
+
+
+搞线下死路一条ver2021要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 27881#       发表于 2021-1-2 15:52
+
+
+
+
+日本疫情愈加严重的话，管人行业又要繁荣了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27882#       发表于 2021-1-2 16:07
+
+
+
+
+等一个经典头铁日本人，只要我fes办的快，病毒就追不上我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27883#       发表于 2021-1-2 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">东京昨天确诊783人，现在虹fes开了整死彩虹的几率怕是比不开还高
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 27884#       发表于 2021-1-2 16:21
+
+
+
+
+https://www.tv-asahi.co.jp/douga_mv/iroha210102/
+<img src="https://p.sda1.dev/0/8921c369e81871665f1abc0325ec3c59/IMG_CMP_107012527.png" referrerpolicy="no-referrer">
+现在比的就是一个速度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27885#       发表于 2021-1-2 16:23
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 16:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49917790&amp;ptid=1969498" target="_blank">winda 发表于 2021-1-2 16:15</a>
+
+东京昨天确诊783人，现在虹fes开了整死彩虹的几率怕是比不开还高</blockquote>
+<img src="https://img.saraba1st.com/forum/202101/02/154136u02r04hi404h6r8l.png" referrerpolicy="no-referrer">
+
+
+
+那也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+顺便要看乐子这个紧急宣言还早了点，虹杏两个活动都是2月办，我不信鬼子敢lock down两个月。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27886#       发表于 2021-1-2 16:32
+
+
+
+ 本帖最后由 十四洲 于 2021-1-2 16:33 编辑 
+
+1/4　16時～
+
+桃铁接力队伍成员（是工商？）
+
+
+夜見/三枝/叶
+
+天宮/不破/本間
+
+鹰宫/黛灰/笹木咲
+
+椎名/イブラヒム/葛葉
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27887#       发表于 2021-1-2 16:48
+
+
+
+
+葵皇整活第二弹5点放送：[https://www.youtube.com/watch?v=DjeMkmIqb7A](https://www.youtube.com/watch?v=DjeMkmIqb7A)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27888#       发表于 2021-1-2 17:05
+
+
+
+
+西西怎么这么会跳，侧手翻我信了好吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27889#       发表于 2021-1-2 17:06
+
+
+
+
+大福舞蹈动作可爱度把阿花秒了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 27890#       发表于 2021-1-2 17:14
+
+
+
+
+你楼有没有哪位杏奴说下怎么杏最近好几个都在gbf  我看都没看过杏这油管又给我推送萝卜子<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 27891#       发表于 2021-1-2 17:14
+
+
+
+ 本帖最后由 Suzutsuki 于 2021-1-2 17:17 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27892#       发表于 2021-1-2 17:16
+
+
+
+
+当代宅女大学生的身体素质。。。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27893#       发表于 2021-1-2 17:29
+
+
+
+
+补了跳舞视频，ささ和夜见都跳的好看啊……就算是坦也无所谓了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27894#       发表于 2021-1-2 17:42
+
+
+
+
+传染，都可以传染。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27895#       发表于 2021-1-2 17:52
+
+
+
+[https://twitter.com/dotdelphi/status/1345288393618456577?s=21](https://twitter.com/dotdelphi/status/1345288393618456577?s=21)
+
+相扑fanart，AMAZING
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27896#       发表于 2021-1-2 17:55
+
+
+
+
+杏啥时候能有大相扑啊，我要看小粥一个打一百个。
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 27897#       发表于 2021-1-2 18:03
+
+
+
+
+日南一个打五个应该问题不大
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27898#       发表于 2021-1-2 18:12
+
+
+
+
+台<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">本？
+
+
+<img src="https://img.saraba1st.com/forum/202101/02/181112doqq6lj7oajg75a5.png" referrerpolicy="no-referrer">
+
+
+<strong>【#にじクイ 1月号】「お正月」クイズで名勝負！珍解答もあるよ【にじさんじ】.png.png</strong> (653.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 18:11 上传
+
+
+
+
+
+
+这个节目意外的有趣啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27899#       发表于 2021-1-2 18:15
+
+
+
+
+听了一会一弦的relay，评论栏已经90%是英语惹。不过第一次听管人翻mr children声音那么合适，点个👍
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 27900#       发表于 2021-1-2 18:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/02/181503mesgcecccrak77ei.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210102163706.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 18:15 上传
+
+
+
+
+
+
+好像没人发过？
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 27901#       发表于 2021-1-2 18:40
+
+
+
+
+所以有时会想鬼灭顶着这个特殊年份开创的票房奇迹还真无法容易认为是喜是悲了。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27902#       发表于 2021-1-2 18:54
+
+
+
+
+这配信时长表最上面的羊和阿火都是念SC高手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27903#       发表于 2021-1-2 19:13
+
+
+
+
+不破湊这歌投稿...太有风格了
+[https://www.youtube.com/watch?v=ke6NyI18SmY](https://www.youtube.com/watch?v=ke6NyI18SmY)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27904#       发表于 2021-1-2 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49918475&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-2 17:55</a>
+
+杏啥时候能有大相扑啊，我要看小粥一个打一百个。</blockquote>
+看不起宫皇狮皇mega？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27905#       发表于 2021-1-2 19:17
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 19:36 编辑 
+
+应该是本人去录音室录了，混得比你圈90%的翻唱投稿都好，牛郎声线也很适合。
+
+
+但是最可怕的还是评论发大水，感觉比葛叶那儿还过分<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+👆应该可以比较快百万
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 27906#       发表于 2021-1-2 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 粉丝发大水就算了，就怕有女liver上头、上钩了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27907#       发表于 2021-1-2 19:24
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-2 19:26 编辑 
+
+夜之国两个顶级打钱一个比seeds还seeds的整活哥，19组是真的可怕。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2000别酸了，葵皇随手discord一摇就能让黑黑不破当陪玩简直七彩斑斓玛丽苏剧本，你应该为她高兴。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 27908#       发表于 2021-1-2 19:26
+
+
+
+ 本帖最后由 asdhai 于 2021-1-2 19:28 编辑 
+
+发大水啥意思。
+
+啊，懂了，没事了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27909#       发表于 2021-1-2 19:27
+
+
+
+
+白皮确实喜欢这个腿
+
+<img src="https://img.saraba1st.com/forum/202101/02/192724amboom8qqdp77i8o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>photo_2021-01-02_18-57-27.jpg</strong> (162.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 19:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27910#       发表于 2021-1-2 19:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/02/192738dn188zc1z8k7plq8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqtgjyuUYAIRQHY.jpg</strong> (406.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 19:27 上传
+
+
+
+
+
+[https://twitter.com/ist_lei_mikan/status/1345275087381954560](https://twitter.com/ist_lei_mikan/status/1345275087381954560)
+
+<img src="https://img.saraba1st.com/forum/202101/02/192749b8k8m99ykx93k9k4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EquRn1MUwAEpx9N-min.jpg</strong> (354.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 19:27 上传
+
+
+
+
+
+[https://twitter.com/magowasabi/status/1345329133069373441](https://twitter.com/magowasabi/status/1345329133069373441)
+
+<img src="https://img.saraba1st.com/forum/202101/02/192738ciiweil9wawffwea.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eqt71CoVEAANnFx.jpg</strong> (364.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 19:27 上传
+
+
+
+
+
+[https://twitter.com/hikosan333/status/1345305867285975040](https://twitter.com/hikosan333/status/1345305867285975040)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27911#       发表于 2021-1-2 19:31
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gm9kue2dv5j20xs0j176b.jpg" referrerpolicy="no-referrer">
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gm9kuiqvyqj20xv0ivacs.jpg" referrerpolicy="no-referrer">
+
+[【 #小森めと新衣装 】キミの瞳のセンターだにょ~ん【小森めと / ブイアパ】](https://youtu.be/4Z6p4ki9SOA)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 27912#       发表于 2021-1-2 19:35
+
+
+
+
+要是虹女最后能和虹男在一起也算是人生赢家了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27913#       发表于 2021-1-2 19:35
+
+
+
+
+
+Funtermate LaVo
+
+@Funtermate_LaVo
+
+#VTuBandFest Guitar
+
+＼クラファン事前ページ公開Party popper／
+
+
+1/4(月) 20:00より
+
+生演奏バンドライブ、『VTuBandFest』
+
+クラウドファンディング開始します！
+
+
+Down-pointing red triangle事前公開URLDown-pointing red triangle
+[https://camp-fire.jp/projects/view/319123](https://camp-fire.jp/projects/view/319123)
+
+
+#朝ノ瑠璃 
+
+#アメノセイ 
+
+#かしこまり 
+
+#紡音れい 
+
+#天神子兎音 
+
+#星乃めあ 
+
+#美波七海 
+
+#柚子花 
+
+#樋口楓
+
+
+
+[https://camp-fire.jp/projects/view/319123](https://camp-fire.jp/projects/view/319123)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27914#       发表于 2021-1-2 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">">最高だ
+
+<img src="https://img.saraba1st.com/forum/202101/02/193733c1c8k1w8wk8ma1if.jpg" referrerpolicy="no-referrer">
+
+
+<strong>@20anv#KuzuArt #絵スコート.jpg</strong> (281.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 19:37 上传
+
+
+
+
+
+[https://twitter.com/20anv/status/1338884390168850432](https://twitter.com/20anv/status/1338884390168850432)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27915#       发表于 2021-1-2 19:40
+
+
+
+
+Bsyl，
+
+
+<img src="https://img.saraba1st.com/forum/202101/02/194011hw29sh35m6z2hdh9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>魔女の初詣。 みんなは神様へ、どんなお願いしましたか？.jpg</strong> (511.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-2 19:40 上传
+
+
+
+
+
+[https://twitter.com/KOKO__virtual/status/1345203225821990912](https://twitter.com/KOKO__virtual/status/1345203225821990912)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27916#       发表于 2021-1-2 19:50
+
+
+
+
+伊东life卖标价11000円本子合集卖了快3000份，就这三天，
+要不跟郡道结婚吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
