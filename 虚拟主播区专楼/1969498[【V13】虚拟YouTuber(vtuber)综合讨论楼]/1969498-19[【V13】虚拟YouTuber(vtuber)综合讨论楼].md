@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-03 20:05** 
+> ## **本文件最后更新于2021-01-04 00:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_MsKcy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_yKvj7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19854,10 +19854,13 @@ live新衣大聊漫威，star新衣疯狂发情<img src="https://static.saraba1s
 
 
 
- 参与人数 7战斗力 -2
+ 参与人数 10战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Map-2|-1|发什么病|
+| 目力干员leison| + 1|欢乐多|
+| 石破天|-1|为何唐突发疯|
 | asdhai|-1|三期信差不多得了|
 | thisisaspider|-2|女菩萨 lsp 狐狸 杏星 cover哪个得罪你了.|
 | argaregeasr| + 1|好！|
@@ -19944,10 +19947,11 @@ PS:偷来的诊断
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| CAserlumos| + 1|可爱|
 | admentus| + 1|好评加鹅|
 | argaregeasr| + 1|好评加鹅|
 | nowaki| + 1|希望露露多休息|
@@ -20753,4 +20757,705 @@ Syl，
 
 
 
-               
+
+
+-----
+
+####  Hemis  
+##### 28029#       发表于 2021-1-3 20:06
+
+
+
+
+求人repo月灵魂的SR，难得开了摄像头（在路上不好意思看啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28030#       发表于 2021-1-3 20:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/200853eq9qt559iwqbbhb5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqzkpK3VkAAqcLU.jpg</strong> (261.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 20:08 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/200907cg615z5oz15b6o65.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqzkpN-VgAAJ_W5.jpg</strong> (414.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 20:09 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|这白丝真的可以|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28031#       发表于 2021-1-3 20:11
+
+
+
+
+想把人衣服扒了送给我推，
+虹人也太多了吧还没开始抽啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 28032#       发表于 2021-1-3 20:16
+
+
+
+
+伪娘好可惜
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28033#       发表于 2021-1-3 20:23
+
+
+
+
+这么看来其实伪娘这套才是最好看的。
+
+
+
+おまけ：
+
+<img src="https://img.saraba1st.com/forum/202101/03/202330mvbyi3qkhhkz3vst.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqzUXtSUYAAc7oL.jpg</strong> (793.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 20:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28034#       发表于 2021-1-3 20:36
+
+
+
+
+任天堂版权警告
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28035#       发表于 2021-1-3 20:36
+
+
+
+
+要被告了啊<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28036#       发表于 2021-1-3 20:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/203657sz13py55rez9faff.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210103203617.png</strong> (444.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 20:36 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/203656uyu3tkj64uuudu60.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210103203635.png</strong> (142.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 20:36 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 28037#       发表于 2021-1-3 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928165&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-1-3 20:06</a>
+
+求人repo月灵魂的SR，难得开了摄像头（在路上不好意思看啊</blockquote>
+已经完了？我才看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28038#       发表于 2021-1-3 20:43
+
+
+
+
+啊啊啊啊！
+ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28039#       发表于 2021-1-3 20:43
+
+
+
+
+这抽选笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28040#       发表于 2021-1-3 20:47
+
+
+
+
+嗯.....
+德比再次保送刀也，郡道nrk同桌，
+可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 28041#       发表于 2021-1-3 20:54
+
+
+
+<blockquote>caupollen 发表于 2021-1-3 20:42
+已经完了？我才看到</blockquote>
+我进去就看到她晒别人送的几个游戏，顺便拉了拉健身环
+
+然后就没空看了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28042#       发表于 2021-1-3 20:55
+
+
+
+
+六桌有上次决赛的司会刀也德比和可怜老板娘，
+九桌有葛叶油男，
+抽选机做手脚了吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+郡道这桌，咋办啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28043#       发表于 2021-1-3 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你虹连软件都要玩黑暗上位80底边的套路，真的有够彩虹的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28044#       发表于 2021-1-3 21:02
+
+
+
+
+你们有vr的快去看月之直播，真是别样风味<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28045#       发表于 2021-1-3 21:06
+
+
+
+
+和皇女同桌不错！我喜欢皇女，芙莲博士也喜欢
+
+
+原来夜见日麻很厉害啊，第一次知道...<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28046#       发表于 2021-1-3 21:20
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gmatmmgpvzj20xx0l442w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28047#       发表于 2021-1-3 21:37
+
+
+
+ 本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
+
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_iojFo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Q7ykh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28048#       发表于 2021-1-3 21:40
+
+
+
+<blockquote>alcoholic1000 发表于 2021-1-3 21:06
+和皇女同桌不错！我喜欢皇女，芙莲博士也喜欢
+
+
+原来夜见日麻很厉害啊，第一次知道... ...</blockquote>
+路易斯这么说是因为她上次比赛和夜见一桌没打过……夜见打日麻或者宝可梦这种需要靠脑子的游戏是真看不出来实力怎么样，偶尔非常脑死偶尔又能打出非常合理的操作，她自己也说日麻非常难很多时候会不知道怎么摸切牌，总之就是看不太透她到底实力，练习量上应该是比不过几个种子的，她这组也算比较弱的之一了，不过看西西这练习疯狂自摸看的真的吓人
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|原来是这样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28049#       发表于 2021-1-3 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928898&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-3 21:40</a>
+路易斯这么说是因为她上次比赛和夜见一桌没打过……夜见打日麻或者宝可梦这种需要靠脑子的游戏是真看不出 ...</blockquote>
+上届路易丝和夜见那组有个不稳定点炮机东东东<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加上夜见和小役种速攻的思路很明确，露易丝基本没什么操作空间就输了。（完全的配牌模拟器
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28050#       发表于 2021-1-3 22:07
+
+
+
+ 本帖最后由 十四洲 于 2021-1-3 22:16 编辑 
+
+彩虹上河图
+<img src="https://i0.hdslb.com/bfs/album/bb7590e0b27aab38045b194305991e1df7e99b39.jpg" referrerpolicy="no-referrer">
+
+
+[https://twitter.com/Razwu3/status/1345672131913211904](https://twitter.com/Razwu3/status/1345672131913211904)
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28051#       发表于 2021-1-3 22:10
+
+
+
+
+知道了一些关于小花的情报，好乖好乖
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 28052#       发表于 2021-1-3 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49929132&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-1-3 22:07</a>
+彩虹上河图</blockquote>
+[https://twitter.com/Razwu3/status/1345672131913211904](https://twitter.com/Razwu3/status/1345672131913211904)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1|谢谢，找到了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 28053#       发表于 2021-1-3 22:35
+
+
+
+ 本帖最后由 SuntoryNomu 于 2021-1-3 22:55 编辑 
+
+葵夸兔船桃铁？(本间频道)
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/224100fk605i3klwvnn550.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eq0HU4MVQAgU7zm.jpg</strong> (100.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 22:41 上传
+
+
+
+
+
+[https://twitter.com/YaUmanohoneR/status/1345739938591985664](https://twitter.com/YaUmanohoneR/status/1345739938591985664)
+
+
+
+
+
+
+
+
+以下内容需要积分高于 10000 才可浏览
+
+顺便，
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/225401kb8lm2hdrkox3xht.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eqz3dKrUcAEO5HV.jpg</strong> (132.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 22:54 上传
+
+
+
+
+
+
+
+看到阿委这个头的时候，莫名其妙地唤醒了一些儿时的记忆，
+
+有些童年阴影的东西。
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/225402lh0ws0o72hshjwhl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>hitesuy6066172.jpg</strong> (58.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 22:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28054#       发表于 2021-1-3 22:40
+
+
+
+
+想看这个实装
+
+<img src="https://img.saraba1st.com/forum/202101/03/223943s3ge63teaa6at441.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#ひまあーと.jpg</strong> (505.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 22:39 上传
+
+
+
+
+
+[https://twitter.com/key_999/status/1345722939283410945](https://twitter.com/key_999/status/1345722939283410945)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 28055#       发表于 2021-1-3 22:50
+
+
+
+
+野良猫就这么把多井隆晴晾了5分钟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">变成多井的杂谈直播了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28056#       发表于 2021-1-3 23:37
+
+
+
+
+阿菜还活着啊
+
+
+
+
+
+              
