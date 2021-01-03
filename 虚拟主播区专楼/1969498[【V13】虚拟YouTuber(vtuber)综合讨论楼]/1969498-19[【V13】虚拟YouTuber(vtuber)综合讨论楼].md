@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-03 00:03** 
+> ## **本文件最后更新于2021-01-03 18:04** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_fnj26" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_a2770" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19205,4 +19205,887 @@ Syl，怎得唱巴拉拉一卡<img src="https://static.saraba1st.com/image/smile
 
 
 
-                 
+
+
+-----
+
+####  心垂万刃  
+##### 27964#       发表于 2021-1-3 00:29
+
+
+
+
+2020年p站女角色投稿数top100里木口上榜挺多的啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27965#       发表于 2021-1-3 00:47
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-1-3 10:55 编辑 
+
+鲨皇26，船长24，兔皇21。
+
+鲨皇出道四个多月就有这种成绩，其实算是实质上的第一了。
+
+其他上榜的v，白银诺艾尔100，铃原露露94，tskk90（疑似，楼被抽了看回复是她），夏色祭86，大脸猫62，安吉47，皇女43，润润41，狗皇38，夸皇34，狐皇30。
+
+syl，补个全图<img src="https://p.sda1.dev/0/f7d8695952bbeeb6919be355ee1ed72e/IMG_CMP_33850550.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 27966#       发表于 2021-1-3 01:29
+
+
+
+
+前100及R18率
+
+100、白银诺艾尔 10.69%
+
+94、铃原露露 19.29%
+
+90、桐生可可 6.20%
+
+86、夏色祭 8.59%
+
+62、猫又小粥 4.03%
+
+47、安杰 卡特莉娜 5.32%
+
+43、莉泽·赫露艾斯塔 9.12%
+
+41、润羽露西娅 5.68%
+
+38、戌神沁音 3.86%
+
+34、湊阿库娅 6.11%
+
+30、白上吹雪 5.31%
+
+26、噶呜·古拉 5.16%
+
+24、宝钟玛琳 9.17%
+
+21、兔田佩克拉 5.20%
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27967#       发表于 2021-1-3 01:35
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-3 02:10 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/021021ofo2wq6sze408jv8.png" referrerpolicy="no-referrer">
+
+
+<strong>【ジャンプキング】終わらない2020年ｯ…！！！！【鈴原るる:にじさんじ】-4.png.png</strong> (551.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 02:10 上传
+
+
+
+
+
+
+终于...<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27968#       发表于 2021-1-3 01:37
+
+
+
+
+Nyanners粉猫1m订阅了。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 27969#       发表于 2021-1-3 01:50
+
+
+
+<img src="https://p.sda1.dev/0/a678d19fb3ba5000a22d4956afd1c63f/-7df74937ded79335.png" referrerpolicy="no-referrer">
+vtb好起来了？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27970#       发表于 2021-1-3 01:53
+
+
+
+
+得补充下一个老生长谈的问题就是这个数据在分类上还是有些猫腻的比如实际特定作品同人被分到更大的分类里比如男性向女性向，不过管人现在有一定影响力是可以看出来的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 27971#       发表于 2021-1-3 02:18
+
+
+
+ 本帖最后由 絵生voice 于 2021-1-3 02:21 编辑 
+
+可以想到
+
+のぞむ @Nozo9n
+午前1:06 
+
+体力ついたなあ　今日は水を飲むのも忘れて歌をがんばりました。喉カラカラになりました。歌を歌うたびにやっぱり片耳じゃむりだって思うときがあって悲しくなっちゃうけど、好きだよって言ってくれる人たちのおかげで立っていられる。まだまだがんばれる
+
+Twitter for iPhone
+
+天音かなた💫ホロライブ4期生
+@amanekanatach
+回复 
+@himemoriluna
+😚ちゆ
+上午1:23 · 2021年1月3日·Twitter for iPhone
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 27972#       发表于 2021-1-3 03:08
+
+
+
+
+不得不承认露露这耐久把我看麻了。。
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 27973#       发表于 2021-1-3 07:52
+
+
+
+ 本帖最后由 pansherry 于 2021-1-3 07:54 编辑 
+
+凌晨瞟了眼露露直播，现在醒了再瞟了一眼，画面没变。。。累计时间突破30小时了还行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+哦变了终于变了
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Erikas  
+##### 27974#       发表于 2021-1-3 09:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">还是那个露露
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27975#       发表于 2021-1-3 09:52
+
+
+
+
+月之是要，遨游于天际省<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27976#       发表于 2021-1-3 10:52
+
+
+
+
+说实话很难不支持
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/105224lr23d722xxrd2x2r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ibuyb6t7cu861.jpg</strong> (239.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 10:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 27977#       发表于 2021-1-3 11:03
+
+
+
+
+我麻了，露皇又刷新在苏姐的评论区，能去睡会儿不<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27978#       发表于 2021-1-3 11:08
+
+
+
+
+郡道说了要麻将强化周，结果这三天播了14小时其中apex占了10小时，我直接进行一个麻将强化推的转发嘲讽，
+今晚就抽选，提前预祝郡道抽到贝叔ars社长梦追翔文野环nrk+会问她两师从何人的ky做牌友了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27979#       发表于 2021-1-3 11:30
+
+
+
+
+我觉得大福将是此次麻将赛的优胜候补，实在太狗了（观切片有感）
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27980#       发表于 2021-1-3 16:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/161300i67uz8u7dguv8d77.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装】リレー配信じゃ!【奏手イヅル】.png</strong> (942.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 16:13 上传
+
+
+
+
+
+
+好看
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27981#       发表于 2021-1-3 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49926374&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-1-3 16:13</a>
+
+好看</blockquote>
+木口星的衣服都好花，一弦这个反倒是清爽一点
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 27982#       发表于 2021-1-3 16:20
+
+
+
+
+海带头你好惨啊
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/162046g7clvbix0i104t4o.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210103162036.png</strong> (371.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 16:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 27983#       发表于 2021-1-3 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这位看着还行啊 后面的海带头smjb 
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 27984#       发表于 2021-1-3 16:30
+
+
+
+
+这也太惨了，看笑了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27985#       发表于 2021-1-3 16:31
+
+
+
+
+说起来虹老人那套大正军服风不准备做下去了？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 27986#       发表于 2021-1-3 16:34
+
+
+
+
+感觉有点美漫东方风那味，rwby+降世神通，
+
+如果有不要的星画师可以给虹<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 27987#       发表于 2021-1-3 16:37
+
+
+
+
+这2张衣服一对比…
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27988#       发表于 2021-1-3 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49926535&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-3 16:34</a>
+
+感觉有点美漫东方风那味，rwby+降世神通，
+
+
+如果有不要的星画师可以给虹 ...</blockquote>
+能不能把画师给买断让他们永远不能画星皮<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 27989#       发表于 2021-1-3 16:51
+
+
+
+
+月灵魂 晚八 SR
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27990#       发表于 2021-1-3 16:56
+
+
+
+
+OGA这个大臂有头大，真的猛男<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/165546m2vba7tegicnalee.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装​】魔眼覚醒【荒咬オウガ:ホロスターズ】.png.png</strong> (163.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 16:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27991#       发表于 2021-1-3 16:56
+
+
+
+
+白上吹雪看了根本把持不住
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 27992#       发表于 2021-1-3 17:00
+
+
+
+
+live新衣大聊漫威，star新衣疯狂发情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 27993#       发表于 2021-1-3 17:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 狐差不多让位养老就完事了  
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 27994#       发表于 2021-1-3 17:10
+
+
+
+
+现在萌音女菩萨那么多人喜欢，建议胖狐狸以后直接插着振动棒同时视听杏星新衣服，既能满足自己欲望又能给公司多赚点钱，下次bloom也不至于没钱请编舞，多好啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+| 空集| + 1|好评加鹅|
+| nowaki|-1|不要学一味|
+| 十四洲|-1|差不多得了，基德|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 27995#       发表于 2021-1-3 17:17
+
+
+
+ 本帖最后由 poipanchao 于 2021-1-3 17:19 编辑 
+
+あけましておめでとうございます！！今年は色んなことに挑戦していきたいと思います！皆様今年もよろしくお願いしますっ
+
+<img src="https://img.saraba1st.com/forum/202101/03/171421cdde3lebnnbcncdu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210103171356.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 17:14 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/171421pxwxlw4ymuwyxywx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210103171407.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 17:14 上传
+
+
+
+
+
+
+
+
+PS:偷来的诊断
+
+<img src="https://img.saraba1st.com/forum/202101/03/171657xkbmu5m3lruewoke.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210103171624.png</strong> (101.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 17:16 上传
+
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 1|希望露露多休息|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 27996#       发表于 2021-1-3 17:22
+
+
+
+
+赛博悬脉？！
+
+不过感觉是不是虹膜扩大美瞳啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+Syl，本日最佳？
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/172230cx7ggi3boiz7inhq.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装】その名の通り新衣装です。【ホロスターズ:夕刻ロベル】.png.png</strong> (356.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 17:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27997#       发表于 2021-1-3 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49926703&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-1-3 16:56</a>
+
+OGA这个大臂有头大，真的猛男</blockquote>
+十头身猛男啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 27998#       发表于 2021-1-3 17:41
+
+
+
+ 本帖最后由 katern 于 2021-1-3 17:44 编辑 
+
+【COVER】C.h.a.o.s.m.y.t.h. covered by te’resa
+[https://www.youtube.com/watch?v=ZX3y_lKlVoI](https://www.youtube.com/watch?v=ZX3y_lKlVoI)
+
+oor的歌确实难<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 27999#       发表于 2021-1-3 17:41
+
+
+
+
+店长这个是最好的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28000#       发表于 2021-1-3 17:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/174858z373fdhnx4f54ap7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210103174849.png</strong> (695.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 17:48 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28001#       发表于 2021-1-3 18:01
+
+
+
+
+这套给女人毫无违和感
+
+
+
+
+
+                
