@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-03 18:04** 
+> ## **本文件最后更新于2021-01-03 20:05** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_a2770" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_MsKcy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19854,10 +19854,13 @@ live新衣大聊漫威，star新衣疯狂发情<img src="https://static.saraba1s
 
 
 
- 参与人数 4战斗力 0
+ 参与人数 7战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| asdhai|-1|三期信差不多得了|
+| thisisaspider|-2|女菩萨 lsp 狐狸 杏星 cover哪个得罪你了.|
+| argaregeasr| + 1|好！|
 | 过不了审| + 1|欢乐多|
 | 空集| + 1|好评加鹅|
 | nowaki|-1|不要学一味|
@@ -19941,10 +19944,12 @@ PS:偷来的诊断
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| admentus| + 1|好评加鹅|
+| argaregeasr| + 1|好评加鹅|
 | nowaki| + 1|希望露露多休息|
 
 
@@ -20088,4 +20093,664 @@ oor的歌确实难<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 
 
-                
+
+
+-----
+
+####  IDIDIDID  
+##### 28002#       发表于 2021-1-3 18:06
+
+
+
+
+35没有新衣服的原因找到了
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 28003#       发表于 2021-1-3 18:12
+
+
+
+
+https://www.youtube.com/watch?v=7emSIz2OJD8
+中之牛替换<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28004#       发表于 2021-1-3 18:13
+
+
+
+
+在天际省寻求兔头是否搞错了什么
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/181256x27bc486ijvdqu2y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 653 - 推文 _ Twitter - twitter.com.jpg</strong> (158.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 28005#       发表于 2021-1-3 18:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/181926duzybs3grb1wyyzo.png" referrerpolicy="no-referrer">
+
+
+<strong>snapshot_2021-01-03-18-18-31.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:19 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/181927nrdmtxgheeyyrzby.png" referrerpolicy="no-referrer">
+
+
+<strong>18-18-49-165546m2vba7tegicnalee.png</strong> (123.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:19 上传
+
+
+
+
+
+
+
+近狐者壮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28006#       发表于 2021-1-3 18:21
+
+
+
+
+彩虹社人人高强度学习文化知识，反观________。
+[https://www.youtube.com/watch?v=E59HMWqPGv0](https://www.youtube.com/watch?v=E59HMWqPGv0)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28007#       发表于 2021-1-3 18:21
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-3 18:27 编辑 
+
+配件真多啊...要Live喔
+
+<img src="https://img.saraba1st.com/forum/202101/03/182136w23hy9u5r22nd3k0.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装​】鏡餅かと思ったら…【律可:ホロスターズ】.png.png</strong> (736.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:21 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/182611o3q80w55n5405z3l.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装】鏡餅かと思ったら…【律可:ホロスターズ】-2.png.png</strong> (792.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:26 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/182743dxj46xllrx6ly4xm.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装】鏡餅かと思ったら…【律可:ホロスターズ】-3.png.png</strong> (14.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:27 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28008#       发表于 2021-1-3 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 绿壳差不多得了.jpg
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28009#       发表于 2021-1-3 18:40
+
+
+
+
+戴眼镜这张感觉还行，有种斯文败类的感觉。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28010#       发表于 2021-1-3 18:43
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-3 18:46 编辑 
+
+优十这个还是比不过店长，店长这张各种流行手游男角色要素拉满，建议直接用这个3D
+
+
+但是总的水平都不错，除了蜜瓜头
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28011#       发表于 2021-1-3 18:54
+
+
+
+
+20:00~: #リクム
+
+21:00~: #ルルン・ルルリカ
+
+22:00~: #七星みりり
+
+
+20:00~
+[https://www.youtube.com/watch?v=DsV-EJmbvr8&amp;feature=youtu.be](https://www.youtube.com/watch?v=DsV-EJmbvr8&amp;feature=youtu.be)
+
+【#はあちゃま3D】はあちゃま、動きます。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28012#       发表于 2021-1-3 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">@yuika_siina
+
+おはーーー_(:3」z)_
+
+
+22時→新春桃鉄水蜜桃天開司葛葉
+
+深夜→APEX玩具水枪
+
+
+おはくず争奪戦！新春桃鉄2021！
+
+今年のおはくず使用者が決まる？！
+
+@1
+
+くず募集
+
+
+看到好姐妹涨粉那么快，有丶急了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28013#       发表于 2021-1-3 18:57
+
+
+
+
+还有五分钟就到麻将的时间了，
+比正赛还紧张的抽选环节，麻将不像马车一样可以和对手零交流，要是抽到不该抽到的人会很痛苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，
+还有虹自制抽选机的首次测试，不知道会不会出现漏选liver这样的拉胯事，
+很期待。
+（[https://youtu.be/JFDn3BUuvcw](https://youtu.be/JFDn3BUuvcw)）
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28014#       发表于 2021-1-3 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">第一位声音好姨啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28015#       发表于 2021-1-3 19:09
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-3 19:17 编辑 
+
+2021新年目标，银盾
+
+好可爱...
+
+<img src="https://img.saraba1st.com/forum/202101/03/185517zeapcphf9pve2fpe.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装】夜、暗黒は当然のように天を覆う。【岸堂天真:ホロスターズ.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/185543jcqegw6eefnq7nce.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ホロスタお正月新衣装】夜、暗黒は当然のように天を覆う。【岸堂天真:ホロスターズ.png</strong> (406.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 18:55 上传
+
+
+
+
+
+
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202101/03/190912tfpgrlq1rs8vvzgu.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目配信】これが！俺の！新衣装だ！【アルランディス:ホロスターズ】 #.png</strong> (796.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 19:09 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/191700y88px81rm8oaqi21.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目配信】これが！俺の！新衣装だ！【アルランディス:ホロスターズ】 #.png</strong> (580.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 19:17 上传
+
+
+
+
+
+
+品味真不错..
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28016#       发表于 2021-1-3 19:09
+
+
+
+
+狮子头最强！
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 28017#       发表于 2021-1-3 19:12
+
+
+
+
+点新人声音好沉，甚至有点像声音比较高的男人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28018#       发表于 2021-1-3 19:17
+
+
+
+
+老年琴酒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28019#       发表于 2021-1-3 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49927718&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2021-1-3 19:12</a>
+点新人声音好沉，甚至有点像声音比较高的男人</blockquote>
+<img src="https://p.sda1.dev/0/7ad9e802f98a5d02ec5c4d7e7b0d8628/IMG_CMP_187410610.png" referrerpolicy="no-referrer">
+确实比较适合形容男人的声音<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28020#       发表于 2021-1-3 19:22
+
+
+
+
+奖品是雀魂称号和松坂牛，
+就这都能吸引64个liver啊<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 28021#       发表于 2021-1-3 19:33
+
+
+
+
+补点阿兰<img src="https://p.sda1.dev/0/f3a1653c6334dcb2bdb3cab5a6a9b9b3/IMG_CMP_141137800.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 28022#       发表于 2021-1-3 19:35
+
+
+
+ 本帖最后由 asdhai 于 2021-1-3 19:39 编辑 
+
+草 
+
+星的质量都不错……海带头那是得罪了谁？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28023#       发表于 2021-1-3 19:48
+
+
+
+
+这位大姐是rpg势……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28024#       发表于 2021-1-3 19:49
+
+
+
+
+杏星虽然同接还差点但是sc起来了，脱离杏星的变成了同接四五千的宇宙人狼专业户，大家都有光明的未来。杏星的衣服挺时髦的。
+
+
+
+
+
+
+
+-----
+
+####  Gundamslave  
+##### 28025#       发表于 2021-1-3 19:52
+
+
+
+
+我想明白为什么免费这么受泥哥追捧了，毕竟是杏奴是一家人
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28026#       发表于 2021-1-3 19:53
+
+
+
+ 本帖最后由 古战场亡魂 于 2021-1-3 19:57 编辑 
+
+111
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28027#       发表于 2021-1-3 19:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/03/195545nkyrwlqrrxyw1kyw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EqYn6C1U0AErVKu.jpg</strong> (402.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 19:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28028#       发表于 2021-1-3 20:03
+
+
+
+
+最喜欢奏手的，其次律可和店长，但是店长这身和他“爽朗健谈的酒吧老板”的印象又有点微妙的不合
+
+荒咬和阿兰这个，头身比太小了啊，这都10头身了吧看着太奇怪了
+
+
+
+
+
+               
