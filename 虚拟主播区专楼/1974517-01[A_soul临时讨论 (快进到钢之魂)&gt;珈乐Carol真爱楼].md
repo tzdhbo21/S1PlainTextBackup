@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-03 02:09** 
+> ## **本文件最后更新于2021-01-04 04:06** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_svXni" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Knw88" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -10457,4 +10457,522 @@ syl，有素人感也是不可多得的乐趣啊<img src="https://static.saraba1
 
 
 
-                               
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 547#       发表于 2021-1-3 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922284&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-1-3 03:40</a>
+
+泥哥：当初嘉然动态下面都是v8在发正义春，泥哥看v8在冲就在一旁看乐子不讨论
+
+泥又赢。 ...</blockquote>
+神了.泥哥总是硬.凯申附体么.歼敌一亿虎踞台湾
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 548#       发表于 2021-1-3 18:40
+
+
+
+
+奶0这应该转电台区吧，221分组
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 549#       发表于 2021-1-3 19:47
+
+
+
+
+准备嘉晚饭了
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 550#       发表于 2021-1-3 20:33
+
+
+
+
+俄式土嗨真麻了
+
+笑嘻了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 551#       发表于 2021-1-3 20:38
+
+
+
+
+贝拉武担是真的.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+笑麻了
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 552#       发表于 2021-1-3 21:35
+
+
+
+
+什么儿童节目！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 553#       发表于 2021-1-3 21:53
+
+
+
+
+弹幕太群魔乱舞了，感觉向晚总是分不清开玩笑还是认真的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 554#       发表于 2021-1-3 22:12
+
+
+
+
+阿骚特色:你们刷太快了看不过来
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 555#       发表于 2021-1-3 22:13
+
+
+
+[https://www.bilibili.com/video/BV1nX4y1K7ZP](https://www.bilibili.com/video/BV1nX4y1K7ZP)
+
+贾布加布，中国速度
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 556#       发表于 2021-1-3 22:42
+
+
+
+
+审核也在看直播是吧，秒审<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 557#       发表于 2021-1-3 23:14
+
+
+
+ 本帖最后由 SuperCK 于 2021-1-4 01:34 编辑 
+
+快 快快 快快 快快 💃💃💃大脑在牵引💃💃💃歪 歪歪 歪歪 歪歪💃💃💃疯狂的着迷 荷尔蒙陷阱 请带我逃离💃💃💃
+
+
+
+
+
+
+
+-----
+
+####  Peris  
+##### 558#       发表于 2021-1-3 23:30
+
+
+
+
+被别人一说，我也觉得嘉然有点像了
+
+
+
+
+
+
+
+-----
+
+####  逸yi  
+##### 559#       发表于 2021-1-3 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49929637&amp;ptid=1974517" target="_blank">SuperCK 发表于 2021-1-3 23:14</a>
+-</blockquote>
+啥
+
+
+
+
+
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 560#       发表于 2021-1-3 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49929777&amp;ptid=1974517" target="_blank">逸yi 发表于 2021-1-4 02:35</a>
+
+啥</blockquote>
+懂得都懂.大学,老人.笑
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 561#       发表于 2021-1-4 00:55
+
+
+
+
+quiet要变成v8新的吧歌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 562#       发表于 2021-1-4 00:58
+
+
+
+
+快 快快 快快 快快 💃💃💃大脑在牵引💃💃💃歪 歪歪 歪歪 歪歪💃💃💃疯狂的着迷 荷尔蒙陷阱 请带我逃离💃💃💃
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 563#       发表于 2021-1-4 01:22
+
+
+
+
+害怕，困惑，不安，怎么v8和nga的a骚专楼都发病了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 564#       发表于 2021-1-4 01:26
+
+
+
+
+怎么全疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个懂哥
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 565#       发表于 2021-1-4 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49930398&amp;ptid=1974517" target="_blank">qw945 发表于 2021-01-04 01:26:55</a>
+怎么全疯了 v2.4.3</blockquote>好像是有个8u模仿spade的那个文用quiet水了个贴，然后就复读开来了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 566#       发表于 2021-1-4 01:34
+
+
+
+
+这歌听多了确实上头，我现在脑子里全是快快快快快快<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 567#       发表于 2021-1-4 01:52
+
+
+
+
+为什么quiet只上了网易云不上Q音啊，梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 568#       发表于 2021-1-4 01:57
+
+
+
+
+spade那个emoji加料版的歌词确实魔性
+
+现在spade被妖魔化起码一半归功于这些emoji<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 569#       发表于 2021-1-4 01:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49930473&amp;ptid=1974517" target="_blank">寒星 发表于 2021-1-4 01:52</a>
+
+为什么quiet只上了网易云不上Q音啊，梁木了</blockquote>
+小知识：字节副总怼过腾讯很多次了
+
+
+
+
+
+
+
+-----
+
+####  万圣节～  
+##### 570#       发表于 2021-1-4 02:21
+
+
+
+ 本帖最后由 万圣节～ 于 2021-1-4 02:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49930473&amp;ptid=1974517" target="_blank">寒星 发表于 2021-1-4 01:52</a>
+为什么quiet只上了网易云不上Q音啊，梁木了</blockquote>
+很早之前真的上过q，不过存在时间很短<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经下载下来了，最近电脑登录的时候又发现这首歌没了
+
+syl     spade那个带emoji版的歌词真的是看一次笑一次，真的忍不住，每次看到🏃🏃🏃这个跑路我就笑得不行
+
+
+
+
+
+
+
+-----
+
+####  Qqqmmzizi719  
+##### 571#       发表于 2021-1-4 02:26
+
+
+
+
+没看过，来点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 572#       发表于 2021-1-4 03:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49930546&amp;ptid=1974517" target="_blank">Qqqmmzizi719 发表于 2021-1-4 02:26</a>
+
+没看过，来点
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+清晨🌅阳光攀过窗隙缝🌇
+
+温暖了我的被窝🛌搅醒没做完的好梦🎠🎢🎡
+
+起身🕴手忙脚乱匆匆出门🏃🚪
+
+怕赶不上整点开走的巴士一路狂奔🚃 🏃💨
+
+**🛎唤不动我疲惫眼神😪
+
+怪自己昨夜睡的太沉🛌💤闹钟不够大声⏰
+
+体温😊伴着喘息有点上升😡
+
+窗外吹来了夏天的风🌪🌪🌪
+
+夕阳晚照🌆轻眺余晖🌠
+
+风在背后温柔的吹🚶🌪🌪🌪
+
+看得见的青春体会👧
+
+看不清我究竟是谁🧐🧐🧐
+
+风高夜黑🌃星目剑眉😉
+
+从来不会空手而归🤲
+
+无声的 鬼魅👻❤
+
+行走在🚶 危↑险边缘肆意的怪盗🕴
+
+自由的 跳↑着指尖上的舞蹈💃💃💃
+
+轻盈的 像↑暗影中藏伏的波斯猫🐱🐱🐱
+
+等待下一个目↑标↓🤠
+
+就算会做行动预告💃我的轨迹无法预料🏃💨
+
+一只手套一张黑桃🧤♠属于我的神秘代号➿
+
+休想逃之夭夭💃💃💃快进入我的怀抱🕺🕺🕺
+
+猎人扬起嘴角☺️和骄傲😇
+
+挣扎🏊 已是徒劳🏌️🏌️🏌️
+
+抵抗👼 无可救💊
+
+一张神秘的♠️
+
+我早已🏇🏇🏇逃之夭夭↑↑↑🤡
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 573#       发表于 2021-1-4 03:27
+
+
+
+
+看了一上午嘉然直播切片，对坏女人投降了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
