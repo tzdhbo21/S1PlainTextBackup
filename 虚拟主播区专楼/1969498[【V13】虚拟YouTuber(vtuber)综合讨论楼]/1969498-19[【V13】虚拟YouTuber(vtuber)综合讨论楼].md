@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 18:05** 
+> ## **本文件最后更新于2021-01-04 20:04** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_j6QtX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_LZ7Zz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21157,8 +21157,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_k3Ooj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Cmm16" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_XyEWy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Jz361" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -21956,10 +21956,11 @@ apex抽卡SC一窗400W+
 
 
 
- 参与人数 5战斗力 -1
+ 参与人数 6战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| anwen76| + 1|看抽卡的都是PCR玩家？|
 | 过不了审| + 1|这届观众不行|
 | nowaki|-2|2077很高贵？|
 | UnhappyTails| + 1|回血|
@@ -22421,4 +22422,235 @@ syl，露露今晚继续受苦jk，不过胜利在望了
 
 
 
-             
+
+
+-----
+
+####  Ketestrait  
+##### 28108#       发表于 2021-1-4 18:09
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gmbtlpkvljj20dw07i3z6.jpg" referrerpolicy="no-referrer">
+
+
+终于结束了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28109#       发表于 2021-1-4 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936517&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-1-4 17:58</a>
+再模仿下去的话就会被80了,本社会以这样的理由开除你哦，
+
+在我们彩虹，模仿前辈说话是要开除的 ...</blockquote>
+按出道顺序来看，郡道才是前辈<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，safe
+
+刚看见有人夸郡道教人的时候很温柔，她立刻怒吼一声把我耳朵震碎了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28110#       发表于 2021-1-4 18:11
+
+
+
+
+枝枝枝一直在眯眼，off没戴近视眼镜？
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 28111#       发表于 2021-1-4 18:47
+
+
+
+
+大亏算上批站sc得涨一大截，还是很顶的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28112#       发表于 2021-1-4 18:48
+
+
+
+
+虹（LL）一单真好听啊，杏三单啥时候出啊，yagoo你的_什么时候_啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28113#       发表于 2021-1-4 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936923&amp;ptid=1969498" target="_blank">fghc_h 发表于 2021-1-4 18:47</a>
+
+大亏算上批站sc得涨一大截，还是很顶的</blockquote>
+150w人民币左右，2300w日元吧。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28114#       发表于 2021-1-4 19:37
+
+
+
+
+黑客？黑客？
+
+要怎么跟ssk交代啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/04/193645g5mhj73kmxmyxq9q.png" referrerpolicy="no-referrer">
+
+
+<strong>【桃太郎電鉄】福袋争奪！あけおめ桃鉄2021.png</strong> (838.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 19:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28115#       发表于 2021-1-4 19:37
+
+
+
+
+你虹订阅2345来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 28116#       发表于 2021-1-4 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">椎名明明参加了却被踢到外边跟别人一组 这就是gamers的羁绊吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28117#       发表于 2021-1-4 19:48
+
+
+
+
+首先黑黑一定会放一起，所以其实就是看葵皇挑哪个上台，只能怪你西西惹错人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28118#       发表于 2021-1-4 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> ？这四个人不是葛皇说了算？实质葛皇选妃
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 28119#       发表于 2021-1-4 20:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可饶了葛皇吧 选妃不整点好的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28120#       发表于 2021-1-4 20:02
+
+
+
+<blockquote>qq845629713 发表于 2021-1-4 19:52
+？这四个人不是葛皇说了算？实质葛皇选妃</blockquote>
+西西没有gamers但是有リリくら呀，最近一个月都是高强度夜见西西，很喜欢这对闺蜜
+
+
+
+
+
+            

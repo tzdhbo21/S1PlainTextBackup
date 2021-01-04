@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 11:25** 
+> ## **本文件最后更新于2021-01-04 20:24** 
 
 
 
@@ -21620,10 +21620,11 @@ new了只有士郎 火组长  4把士郎刀qnm
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| DDWarrior| + 1|好评加鹅|
 | jxzeroga0| + 1|好评加鹅|
 
 
@@ -21688,4 +21689,315 @@ AK 1q1z 芬剑
 
 
 
-          
+
+
+-----
+
+####  凌云三才  
+##### 14690#       发表于 2021-1-4 11:29
+
+
+
+ 本帖最后由 凌云三才 于 2021-1-4 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932388&amp;ptid=1158205" target="_blank">yla 发表于 2021-1-4 11:10</a>
+
+这次转盘，让我终于有了暗老王...
+
+那么，暗属性缺奶嘴没情佐，召唤没贝
+
+我能玩哪些套路 ...</blockquote>
+背水宇宙，没贝除了AKX差点意思，其他的基本够用了，奶嘴是我FA的铁板前排，不过没有的话体感也不会差太多，暗不太缺打手
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14691#       发表于 2021-1-4 12:12
+
+
+
+
+200抽3虹搭配5个超级红毛垃圾出产，反正每次200连都是这样，已经开始逐渐习惯了
+
+希望明年多中点普池吧，去年新普池基本都没抽到，抽的量月均0.8井肯定是有的
+
+
+
+
+
+
+
+-----
+
+####  hashire.owl  
+##### 14692#       发表于 2021-1-4 12:13
+
+
+
+
+现在召唤石感觉好挤，肥宅是不是只留两个就行了啊
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 14693#       发表于 2021-1-4 12:22
+
+
+
+
+2021年了我还是没哈迪斯<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+不过金月99个了，要不黑卡换个算了
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  super0395  
+##### 14694#       发表于 2021-1-4 14:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49933054&amp;ptid=1158205" target="_blank">是这样 发表于 2021-1-4 12:22</a>
+2021年了我还是没哈迪斯
+不过金月99个了，要不黑卡换个算了</blockquote>
+黑卡换老王门票，不是暗真爱不要干
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14695#       发表于 2021-1-4 14:34
+
+
+
+
+去年黑卡换哈不亏，我换了我爽了。今年不好说，土崛起的挺明显的，很大程度可以替代暗，能玩土可以不玩哈
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14696#       发表于 2021-1-4 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932973&amp;ptid=1158205" target="_blank">hashire.owl 发表于 2021-1-4 12:13</a>
+
+现在召唤石感觉好挤，肥宅是不是只留两个就行了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太挤了。我觉得甚至只需要一个
+
+
+
+
+
+
+
+-----
+
+####  剑布衣  
+##### 14697#       发表于 2021-1-4 15:18
+
+
+
+
+这次3井下来感想是qks生涯最黑暗的转盘<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+不过圣诞终于抽到了泰坦，5年多了，终于6属老王成了，再农一把方阵武器算我输（flag？）高兴之余换了个石油弓出来打雷，发现神盾主招不能必爆有点憨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  买个pcr凸了泰坦再说吧....
+
+
+去年当了一整年的邓紫棋(等紫骑） 等个屁，水lm毛都没有，放弃了滚吧四字母
+
+
+最后这个周年活动啊，是不是能期待一下整个光贝雅了啊，你瞅瞅这剑坏了三年了吧，赶紧修修整个新卡，戒指已经准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Charizard  
+##### 14698#       发表于 2021-1-4 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928306&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-1-3 20:24</a>
+今天井了菲利做出来一套标准背水**，开ZOE平A一轮测试发现**就比我没法武的暗方多了10W左右伤害，我 ...</blockquote>
+一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">我也是刚井完菲莉，砸了钢和jgj转宇宙**
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14699#       发表于 2021-1-4 17:02
+
+
+
+ 本帖最后由 DDWarrior 于 2021-1-4 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932026&amp;ptid=1158205" target="_blank">404489039 发表于 2021-1-4 10:38</a>
+
+准备砸3jgj 9钢玩突老王
+
+AK 1q1z 芬剑 
+
+除了没肥宅</blockquote>
+个人感觉最好还是加一把嫂子斧吧...从上次土团来看，没嫂子斧的泰坦宇宙不见得能打过配置完整的土方
+
+
+AK和一期一振是土老王的攻刃基底，这个没有异议
+
+嫂子斧提供的神威和进境属攻让土老王FA和攻坚更舒服一点
+
+金骑枪目前看来主要还是在湊必爆的时候有用，还是要搭配神盾短校长刀这些东西才能发挥作用
+
+当然，附带的必杀在打牛和奥义主轴队伍还是有用的，不过全民FA打技伤的环境下，奥义之王老八就显得有点格格不入
+
+至于阿芬剑...只有攻刃小和技炼词条，是一把偏向精进的武器，感觉最好还是搭配塔子哥一起用会比较好的样子
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 14700#       发表于 2021-1-4 18:26
+
+
+
+
+其实200抽抽成什么样我倒无所谓了，我就是现在看着这一礼物盒几百个加蛋低星头疼的要死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 14701#       发表于 2021-1-4 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936741&amp;ptid=1158205" target="_blank">里村紅葉 发表于 2021-1-4 18:26</a>
+
+其实200抽抽成什么样我倒无所谓了，我就是现在看着这一礼物盒几百个加蛋低星头疼的要死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">把要的拿走，然后直接下面的一键分解和喂杯子呗，我今天才知道喂杯子后会吐出加蛋，以前都没敢试
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 14702#       发表于 2021-1-4 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936887&amp;ptid=1158205" target="_blank">yla 发表于 2021-1-4 18:43</a>
+
+把要的拿走，然后直接下面的一键分解和喂杯子呗，我今天才知道喂杯子后会吐出加蛋，以前都没敢试 ...</blockquote>
+可是礼物箱里不能喂杯子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着这近200个R武器血都要吐出来了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 14703#       发表于 2021-1-4 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937382&amp;ptid=1158205" target="_blank">里村紅葉 发表于 2021-1-4 19:35</a>
+
+可是礼物箱里不能喂杯子啊看着这近200个R武器血都要吐出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">礼物箱里最下面2排8个按键不就是武器/召唤对应的一键卖出/分解/杯子/进仓库么
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14704#       发表于 2021-1-4 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937382&amp;ptid=1158205" target="_blank">里村紅葉 发表于 2021-1-4 19:35</a>
+可是礼物箱里不能喂杯子啊看着这近200个R武器血都要吐出来了</blockquote>
+更新过以后已经可以了 往下拉仔细看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 14705#       发表于 2021-1-4 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937526&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-1-4 19:46</a>
+
+更新过以后已经可以了 往下拉仔细看</blockquote>
+我以为不能喂带加蛋的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
