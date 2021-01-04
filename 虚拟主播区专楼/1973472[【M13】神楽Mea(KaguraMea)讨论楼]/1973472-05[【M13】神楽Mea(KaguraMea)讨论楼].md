@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-03 18:05** 
+> ## **本文件最后更新于2021-01-04 18:07** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_HrQAA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_bKW2k" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18381,4 +18381,648 @@ bls重播开了，7点开始
 
 
 
-               
+
+
+-----
+
+####  十九号大侠  
+##### 7023#       发表于 2021-1-3 18:19
+
+
+
+
+新时代乐子看不完呀，麻快播，
+
+
+
+
+
+
+
+-----
+
+####  dark_lemon  
+##### 7024#       发表于 2021-1-3 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49920862&amp;ptid=1973472" target="_blank">caupollen 发表于 2021-1-2 21:52</a>
+
+想知道这个24号同时试听放不放画面，屏蔽不屏蔽海外ip在海外能不能看 ...</blockquote>
+你翻墙出去 然后看能不能购票就知道禁不禁海外IP了 通常禁了是买不了票的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 7025#       发表于 2021-1-3 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49927592&amp;ptid=1973472" target="_blank">dark_lemon 发表于 2021-1-3 18:55</a>
+
+你翻墙出去 然后看能不能购票就知道禁不禁海外IP了 通常禁了是买不了票的 ...</blockquote>
+我人现在就在外面。
+
+不过我已经看到下面写了只提供大陆港澳台了，海外ip能买但也要翻回来看
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7026#       发表于 2021-1-3 19:27
+
+
+
+
+20210103东京19点
+
+<img src="https://img.saraba1st.com/forum/202101/03/192728q5xu5f2lju1omlf5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C72C4283-CD99-4A54-9093-1AA094E2E7B7.jpeg</strong> (490.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-3 19:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7027#       发表于 2021-1-3 19:45
+
+
+
+
+新推，家里饭还是好恰啊
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7028#       发表于 2021-1-3 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7029#       发表于 2021-1-3 21:32
+
+
+
+
+对了，昨天有翻译版本的bls有人录了吗，可不可以求一份<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 7030#       发表于 2021-1-3 22:29
+
+
+
+
+喷了，还卖一次票
+
+太屑了这也
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7031#       发表于 2021-1-3 23:14
+
+
+
+
+怎么叫还卖一次票呢
+
+
+叫还能买票
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7032#       发表于 2021-1-4 00:45
+
+
+
+
+这个我懂，叫边际效应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7033#       发表于 2021-1-4 07:08
+
+
+
+
+小麻要被榨干了，还搭上了如月，叔叔你好恶毒<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7034#       发表于 2021-1-4 09:44
+
+
+
+
+今天要回来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7035#       发表于 2021-1-4 10:47
+
+
+
+
+20210104东京10点
+
+<img src="https://img.saraba1st.com/forum/202101/04/104656idnnhdhbl9wgih1d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7897BE3E-C32A-45A5-8753-E788DC22803F.jpeg</strong> (550.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 10:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7036#       发表于 2021-1-4 10:51
+
+
+
+
+要 秃 了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7037#       发表于 2021-1-4 11:32
+
+
+
+
+怕甚，早就秃过了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 7038#       发表于 2021-1-4 11:37
+
+
+
+
+脑补空丸刘海
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7039#       发表于 2021-1-4 11:47
+
+
+
+
+刘海...我的狗啃刘海...<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7040#       发表于 2021-1-4 14:34
+
+
+
+
+要变大额头了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7041#       发表于 2021-1-4 14:36
+
+
+
+
+20210104东京15点
+
+<img src="https://img.saraba1st.com/forum/202101/04/143556yioqy375foooyig7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>339FB48D-37FF-4E6E-B10E-EBDBC30E643C.jpeg</strong> (366.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 14:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7042#       发表于 2021-1-4 15:18
+
+
+
+
+tc突击
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7043#       发表于 2021-1-4 15:21
+
+
+
+
+好好好好好，不戒断了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7044#       发表于 2021-1-4 15:22
+
+
+
+ 本帖最后由 Mikumiku831 于 2021-1-4 15:23 编辑 
+
+这声音也太肥了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7045#       发表于 2021-1-4 15:24
+
+
+
+
+热乎的咩咩，赶上了赶上了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7046#       发表于 2021-1-4 15:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每逢佳节....等会儿，她这胖了应该不止三斤吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7047#       发表于 2021-1-4 15:31
+
+
+
+
+这才几天啊，坦克民差不多得了，明明声音跟18年差不多甚至更早差不多的(<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7048#       发表于 2021-1-4 17:39
+
+
+
+
+这人貌似刚说到了不二家,然后被人开玩笑说要找到了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7049#       发表于 2021-1-4 17:42
+
+
+
+
+我已经到她公寓楼下了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7050#       发表于 2021-1-4 17:43
+
+
+
+
+很快就到麻家门口
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 7051#       发表于 2021-1-4 17:44
+
+
+
+
+你们来晚了 我已经在床上了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7052#       发表于 2021-1-4 17:46
+
+
+
+
+已经带她去做产检了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7053#       发表于 2021-1-4 17:50
+
+
+
+
+已经抱上我和她的孩子了
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 7054#       发表于 2021-1-4 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">妈的，还是你们等级高
+
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 7055#       发表于 2021-1-4 17:53
+
+
+
+
+是真的 我是接产的医生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7056#       发表于 2021-1-4 17:57
+
+
+
+
+孩子他妈说今天家里人多，让我多买点菜<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7057#       发表于 2021-1-4 18:01
+
+
+
+
+已经和小小麻结婚了
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7058#       发表于 2021-1-4 18:04
+
+
+
+
+20210104东京18点
+
+<img src="https://img.saraba1st.com/forum/202101/04/180348oew1yweuy99bpkak.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>348BB3BA-F32F-4978-8BB0-BC0C1084BEC1.jpeg</strong> (417.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 18:03 上传
+
+
+
+
+
+
+
+
+
+
+              

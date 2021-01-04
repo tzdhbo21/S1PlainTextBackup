@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 16:03** 
+> ## **本文件最后更新于2021-01-04 18:05** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_Li0XW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_j6QtX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21157,8 +21157,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_HI9Yt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_G2hco" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_k3Ooj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Cmm16" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -21923,6 +21923,499 @@ mrr会很伤心的 她和拉米都没联动过，请不要这样会不安的。<
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">兔宝有勇气再战xb么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28083#       发表于 2021-1-4 16:07
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-4 16:08 编辑 
+
+PCR抽卡同接6W+
+
+apex抽卡SC一窗400W+
+
+
+虽然2077拉的很，但是管人观众确实只配吃屎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|这届观众不行|
+| nowaki|-2|2077很高贵？|
+| UnhappyTails| + 1|回血|
+| peh| + 1|苏联笑话|
+| pansherry|-2|PCR玩家惹你了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28084#       发表于 2021-1-4 16:13
+
+
+
+
+黑司会聊起在装修的新房子，被星川盛赞好爹，
+还蛮新鲜的啊这种真实父亲感，最近也蛮多父母出场直播的，想来个真人妻liver啊（葛尊不算的）
+
+星川分不清万和饼，太初心者了吧，还有六天诶<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28085#       发表于 2021-1-4 16:14
+
+
+
+
+管人马车圈第一错觉：エキバは簡単
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28086#       发表于 2021-1-4 16:15
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-4 16:13
+黑司会聊起在装修的新房子，被星川盛赞好爹，
+
+还蛮新鲜的啊这种真实父亲感，最近也蛮多父母出场直播的，想 ...</blockquote>
+这种分不清牌分不清役不知道怎么打的在参赛的里面大概有一半的样子
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28087#       发表于 2021-1-4 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935439&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-4 16:15</a>
+这种分不清牌分不清役不知道怎么打的在参赛的里面大概有一半的样子</blockquote>
+这...酬勤の時間だ<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">，
+不过东风局就是各种魔法啦，说不定乱点都能把老师傅干翻
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28088#       发表于 2021-1-4 16:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你虹这个垃圾桃铁工商真的是认真的么？三组人，一组两个半小时起步，七个小时，折磨观众？
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 28089#       发表于 2021-1-4 16:31
+
+
+
+
+还有只看过天麻就来参赛的呢
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 28090#       发表于 2021-1-4 16:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你虹今年三周年还能有大合作吗，文化民都快死绝了吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28091#       发表于 2021-1-4 16:54
+
+
+
+<blockquote>qq845629713 发表于 2021-1-4 16:30
+你虹这个垃圾桃铁工商真的是认真的么？三组人，一组两个半小时起步，七个小时，折磨观众？ ...</blockquote>
+看的就是大家热热闹闹在一起啊，不是还有你最喜欢的gamers嘛，夜见聊这次联动也说像叶师这种以前和她关系很好后来很久都没联系了，能有这次联动的机会一起玩还挺难得的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28092#       发表于 2021-1-4 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935855&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-4 16:54</a>
+看的就是大家热热闹闹在一起啊，不是还有你最喜欢的gamers嘛，夜见聊这次联动也说像叶师这种以前和她关系 ...</blockquote>
+可能是老叶看不上坦克（）
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 28093#       发表于 2021-1-4 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有人用过reality这个app吗 是不是不支持安卓11啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28094#       发表于 2021-1-4 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935855&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-4 16:54</a>
+
+看的就是大家热热闹闹在一起啊，不是还有你最喜欢的gamers嘛，夜见聊这次联动也说像叶师这种以前和她关系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹也挺聪明的，把四男人最火爆的那组放第二，这个时间刚好是饭点过后黄金时间，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28095#       发表于 2021-1-4 17:04
+
+
+
+
+文化民到底在追求什么，好神秘<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">，打麻算文化吗，
+郡道现在也能好好教人了，我好感动<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 28096#       发表于 2021-1-4 17:06
+
+
+
+
+同接最高应该在第三组吧
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28097#       发表于 2021-1-4 17:21
+
+
+
+ 本帖最后由 十四洲 于 2021-1-4 17:34 编辑 
+
+叶的联动组合隔一段时间换一拨，如果没有发展到私下关系比较好确实难有后续，今天塔科夫的时候提到当初一起玩的剧团pochi了，可是物是人非了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+syl，露露今晚继续受苦jk，不过胜利在望了
+
+(看到有因为jk拉郎的fa，其实我也想看这两人联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28098#       发表于 2021-1-4 17:25
+
+
+
+<blockquote>poipanchao 发表于 2021-1-4 16:58
+可能是老叶看不上坦克（）</blockquote>
+那确实没办法……星川这谁顶的住啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28099#       发表于 2021-1-4 17:31
+
+
+
+
+这话说的，好像老叶就不坦了一样，你看他脸圆的（指模型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到互动多我又要呼唤MC和ARK了...葵皇！
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 28100#       发表于 2021-1-4 17:31
+
+
+
+
+现在待机室是不是2男的6女的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28101#       发表于 2021-1-4 17:33
+
+
+
+
+夜推民不要给自己种梁木乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28102#       发表于 2021-1-4 17:35
+
+
+
+
+待机室里，充满了男女欢声笑语，
+
+也不知道究竟是便宜了男人还是女人
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28103#       发表于 2021-1-4 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936275&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-1-4 17:35</a>
+
+待机室里，充满了男女欢声笑语，
+
+
+也不知道究竟是便宜了男人还是女人</blockquote>
+2k这不像你啊，这波不应该是对男人重拳出击恶心楼友的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28104#       发表于 2021-1-4 17:43
+
+
+
+
+这组同接buff一般啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28105#       发表于 2021-1-4 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936300&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-1-4 17:37</a>
+2k这不像你啊，这波不应该是对男人重拳出击恶心楼友的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 一想到笹木因为和黑黑不熟，而你葵反而和黑黑很熟，
+他们三聊什么话题，笹木只能被晾在一边，而下班的kmm坏笑的给笹木发line
+
+这样的情景浮现在下班的我眼前
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28106#       发表于 2021-1-4 17:49
+
+
+
+
+星川发出了超腻人的声音，
+郡：“等等！（笑）你不要模仿宝钟马琳啊！”
+星：“确实有点像～”
+
+这是黑屁同行吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+
+
+
+
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28107#       发表于 2021-1-4 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936430&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-4 17:49</a>
+星川发出了超腻人的声音，
+郡：“等等！（笑）你不要模仿宝钟马琳啊！”
+星：“确实有点像～”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 再模仿下去的话就会被80了,本社会以这样的理由开除你哦，
+
+在我们彩虹，模仿前辈说话是要开除的
 
 
 
