@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-13 18:01** 
+> ## **本文件最后更新于2021-01-04 10:01** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_lZ1jr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_pyJ04" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_dq2Xq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_iJ1sD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -22252,7 +22252,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_fCQsa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_z5AQ2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -24607,4 +24607,503 @@ https://www.konjikiblog.com/entry/sutapuriss-15kounen15miri1
 
 
 
-     
+
+
+-----
+
+####  nerugigannte  
+##### 2822#       发表于 2020-12-13 19:12
+
+
+
+
+这集有种あすみ果然没融入进三人圈子的感觉
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2823#       发表于 2020-12-13 19:18
+
+
+
+
+这集好有趣<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">果然蓝色的女人都是学霸吗
+
+
+
+
+
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 2824#       发表于 2020-12-13 19:55
+
+
+
+
+一个月没看，这么感觉这几集镜头总冲着大腿，胸，白手套之类的
+
+
+
+
+
+
+
+-----
+
+####  kirimori  
+##### 2825#       发表于 2020-12-14 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49708005&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-12-13 19:12</a>
+
+这集有种あすみ果然没融入进三人圈子的感觉</blockquote>
+这几集快成带狗工具人了，0岁儿+不上学很难融入三人的话题里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2826#       发表于 2020-12-20 12:04
+
+
+
+
+治愈动物（物理）
+<img src="http://wx4.sinaimg.cn/mw1024/e7cbae74gy1gltz45mcszj21hc0u0jyy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2827#       发表于 2020-12-20 12:39
+
+
+
+
+希望达鲁伊森到时候能够死远点.jpg真是屑中屑
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2828#       发表于 2020-12-20 20:34
+
+
+
+
+我也不想这片子结束<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2829#       发表于 2020-12-20 23:26
+
+
+
+
+达鲁伊森作为反派也太称职了吧。从和召唤物共同作战开始，袭击落单和佳，挑拨**q娃关系，打断大招前置扫描，本体骚扰q娃防止开合体技。系列反派之鉴啊。
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2830#       发表于 2020-12-21 09:48
+
+
+
+<blockquote>最强惠酱 发表于 2020-12-20 20:34
+我也不想这片子结束</blockquote>
+还有两个月多一点，估计也就46话左右
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2831#       发表于 2020-12-21 12:23
+
+
+
+
+打撸伊森biss
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2832#       发表于 2020-12-21 15:28
+
+
+
+
+感觉都快完了，这病幻王还没个影子，不会跟法q那样子出场一集就被爆杀了吧，最后bgm也有点奇怪的样子
+
+
+还有当老板跟跳高，不能成名退役之后再回家继承家业么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这旅馆这么大又不会跑
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2833#       发表于 2020-12-23 13:47
+
+
+
+
+悲报:奶Q一共只有45集
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2834#       发表于 2020-12-23 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2835#       发表于 2020-12-23 14:59
+
+
+
+
+突然发现今年Q娃圣诞节都不过了直接快进到打boss
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 2836#       发表于 2020-12-23 15:12
+
+
+
+
+杂志图好像记载治愈组闯魔城
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2837#       发表于 2020-12-23 17:44
+
+
+
+<blockquote>cmyk1234 发表于 2020-12-23 15:12
+杂志图好像记载治愈组闯魔城</blockquote>
+直接偷家了
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2838#       发表于 2020-12-27 08:39
+
+
+
+
+草，这偷家的门还是日向发现的
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2839#       发表于 2020-12-27 18:09
+
+
+
+
+这门就写着在这边可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 2840#       发表于 2020-12-27 18:47
+
+
+
+
+这下集预告有点草，反派不应该都直接传送回老家吗?
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2841#       发表于 2021-1-3 17:05
+
+
+
+
+271有剧场版了？
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2842#       发表于 2021-1-3 18:03
+
+
+
+
+剧场版上271了
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2843#       发表于 2021-1-3 18:16
+
+
+
+
+剧场版超级好看啊
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 2844#       发表于 2021-1-3 20:54
+
+
+
+
+和佳和兔子说前两代粉主的口头禅笑死我了
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2845#       发表于 2021-1-3 23:05
+
+
+
+
+这次真的要跟花妈妈说再见了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2846#       发表于 2021-1-4 00:38
+
+
+
+
+我去，这剧场版真好看，打斗作画真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+不同于星q秋季壮大的冒险，这次春季日常的氛围真好啊，这也是奶q的优点之一
+
+
+
+
+
+
+
+-----
+
+####  starring  
+##### 2847#       发表于 2021-1-4 00:55
+
+
+
+
+三组Q娃的互动还是少了一些，打戏算是剧场版应有的水准吧
+
+和佳的剧场版形态太帅<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">TV结局要是有新型态有这么帅就好了
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 2848#       发表于 2021-1-4 01:04
+
+
+
+ 本帖最后由 王留美 于 2021-1-4 01:06 编辑 
+
+大概是DX3之后第二棒的非单体剧场版了吧（最强自然是全明星回忆了
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2849#       发表于 2021-1-4 02:35
+
+
+
+
+剧场版好看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+可惜拉拉能量不足。
+
+
+
+
+
+
+
+-----
+
+####  tamatama  
+##### 2850#       发表于 2021-1-4 04:35
+
+
+
+
+埋了个乌拉拉的伏笔
+
+—— 来自 Xiaomi Redmi K20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2851#       发表于 2021-1-4 08:33
+
+
+
+
+抱q全员：请看着吧，我最后的变身。
+
+
+
+
+
+    
