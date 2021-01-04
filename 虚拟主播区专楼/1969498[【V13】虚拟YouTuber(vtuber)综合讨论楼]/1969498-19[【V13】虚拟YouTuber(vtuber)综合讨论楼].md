@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 00:03** 
+> ## **本文件最后更新于2021-01-04 16:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_yKvj7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_Li0XW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19854,10 +19854,11 @@ live新衣大聊漫威，star新衣疯狂发情<img src="https://static.saraba1s
 
 
 
- 参与人数 10战斗力 -3
+ 参与人数 11战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| airclab| + 1|HSO|
 | Map-2|-1|发什么病|
 | 目力干员leison| + 1|欢乐多|
 | 石破天|-1|为何唐突发疯|
@@ -21156,8 +21157,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_iojFo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Q7ykh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_HI9Yt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_G2hco" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -21458,4 +21459,473 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
 
 
-              
+
+
+-----
+
+####  alcoholic1000  
+##### 28057#       发表于 2021-1-4 00:24
+
+
+
+
+希望说到做到<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/04/002328pr0wv8wyrqyffzqd.png" referrerpolicy="no-referrer">
+
+
+<strong>【2021年も】明けてめでたい剣持刀也【よろしくお願いします】.png</strong> (718.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 00:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28058#       发表于 2021-1-4 00:27
+
+
+
+<[img src="https://i.loli.net/2021/01/04/VdY2CD8FZ5OrcQN.png" referrerpolicy="no-referrer">
+
+后知后觉才看到小光的搬运号原来转官方了。看投稿好像五月份那个就是官方投稿了（
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28059#       发表于 2021-1-4 09:56
+
+
+
+<blockquote>政府関係者によりますと、政府は東京･神奈川･千葉･埼玉の1都3県に緊急事態宣言の発令を検討しているということです。施行は9日(土)の午前0時からで調整を進めているということです。</blockquote>
+
+
+1月你圈有线下活动吗？
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 28060#       发表于 2021-1-4 10:00
+
+
+
+
+好久不看V了最近点了几个月之和皇女的联动突然找回2018年上半年看V的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28061#       发表于 2021-1-4 10:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今天mrr一周年凸待，不知道她最好的小姐妹，那位头上顶朵花的女士会不会来。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28062#       发表于 2021-1-4 10:33
+
+
+
+
+ina画了影山和雪女，好眼光<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28063#       发表于 2021-1-4 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49931885&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-4 10:20</a>
+
+今天mrr一周年凸待，不知道她最好的小姐妹，那位头上顶朵花的女士会不会来。 ...</blockquote>
+头上顶朵花？我懂了，一定是雪花菈米！
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 28064#       发表于 2021-1-4 11:30
+
+
+
+
+虽然是底边，但是楼里应该有情强老哥了解情况吧。朝之琉璃被炎上了吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28065#       发表于 2021-1-4 11:59
+
+
+
+
+蝗的油管频道推荐那一栏是空的，让你当网路硬汉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+心心也是空的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28066#       发表于 2021-1-4 12:26
+
+
+
+<blockquote>IDIDIDID 发表于 2021-1-4 11:59
+蝗的油管频道推荐那一栏是空的，让你当网路硬汉
+
+心心也是空的</blockquote>
+之前mrr和兔皇也空了，然后兔皇的补上了mrr的还空着，原因未知。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28067#       发表于 2021-1-4 12:33
+
+
+
+<blockquote>秋月孝三 发表于 2021-1-4 10:36
+头上顶朵花？我懂了，一定是雪花菈米！</blockquote>
+mrr会很伤心的 她和拉米都没联动过，请不要这样会不安的。
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28068#       发表于 2021-1-4 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49933174&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-4 12:33</a>
+
+mrr会很伤心的 她和拉米都没联动过，请不要这样会不安的。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/04/125250tpq5qxxqn69uzooe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mrr.jpg</strong> (595.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 12:52 上传
+
+
+
+
+
+
+版本该更新叻
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28069#       发表于 2021-1-4 13:05
+
+
+
+
+郡道晚上要跟德比星川黑司会打牌，怎么最近老是跟司会一起啊，虽然挺有趣的也没什么不好而且难得又是麻将，还挺期待的。
+昨晚上三人打apex也好看，虽然郡道自己喜欢solo啦，但果然关系性厨还是喜欢联动，郡道就自己私下跟职业哥上分好了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">。还放了个风花雪月卫星，不错嘛，有点新年新开始的感觉了。
+省一楼，看了下ina新年杂谈，帮hen全员要了3D，还帮自己要了个原创曲，说想要自己做个像电影一样的pv，这开年就给自己加活，很有精神<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28070#       发表于 2021-1-4 13:49
+
+
+
+ 本帖最后由 十四洲 于 2021-1-4 15:03 编辑 
+
+一觉起来发现杏星apex358kill耐久还没结束，惊了，不过还是很有精神地在伪音整活
+
+一弦的萌妹音针不戳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">アルランディスsolo吃鸡6杀结束了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28071#       发表于 2021-1-4 14:58
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-4 15:09 编辑 
+
+阿夸19年到20年SC翻了一倍，结果从第一掉到第五，管人行业看来还能朝阳很久。
+
+现在顶流管人收入和一流艺人比一点不差，还省力很多，也怪不得通风口主流进出反而喊穷了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28072#       发表于 2021-1-4 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹搞个付费宣传都要特意把六男六女，组成男女混合队伍，
+
+
+男后宫和女后宫组，你虹真实婚姻介绍所
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28073#       发表于 2021-1-4 15:10
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gmbojhfnyyj20xt0izjv7.jpg" referrerpolicy="no-referrer">
+
+
+牛郎你的双手放在哪儿呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 28074#       发表于 2021-1-4 15:10
+
+
+
+
+这个分组其实男女混合一起玩的只有gamers<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 28075#       发表于 2021-1-4 15:19
+
+
+
+
+想看男女混合润滑油相扑
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28076#       发表于 2021-1-4 15:20
+
+
+
+
+牛姨2077这同接，日本人还真是不喜欢
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28077#       发表于 2021-1-4 15:25
+
+
+
+ 本帖最后由 Suzutsuki 于 2021-1-4 15:26 编辑 
+
+2077出的那周日本PS4销量是10w 难得有个非NS的能出现在现在基本全是老任的fami通销量榜上 然后2077在ps4上的效果<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28078#       发表于 2021-1-4 15:38
+
+
+
+
+彩虹大概以后准备一周一个大活放在官号上，流石艺人公司
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28079#       发表于 2021-1-4 15:39
+
+
+
+
+单看这2k同接倒是不算意外，毕竟牛姨播别的rpg到后期右肩到3k~4k的也不是没有；但跌幅肯定是历史之最，从第一次官方首播加成的1w6掉到2k+，也跟2077游戏本身的轨迹十分契合<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28080#       发表于 2021-1-4 15:48
+
+
+
+
+跌下神坛
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28081#       发表于 2021-1-4 15:49
+
+
+
+
+如果是兔皇播会这么惨？自己不行别怪游戏好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28082#       发表于 2021-1-4 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">兔宝有勇气再战xb么
+
+
+
+
+
+             

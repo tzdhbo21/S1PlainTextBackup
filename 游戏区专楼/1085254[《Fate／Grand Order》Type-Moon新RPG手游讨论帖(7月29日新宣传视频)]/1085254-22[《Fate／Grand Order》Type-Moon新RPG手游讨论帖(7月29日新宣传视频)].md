@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 14:33** 
+> ## **本文件最后更新于2021-01-04 16:03** 
 
 
 
@@ -2742,7 +2742,7 @@ BX的绿魔放倍率出来了吗？</blockquote>
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=36744298&amp;ptid=1085254" target="_blank">syndrome2032 发表于 2017-7-31 17:37</a>
 昨天那图是那些角色？</blockquote>
-<img src="https://weibo.cn/mblog/pic/FeWGNw6zB?rl=1" id="aimg_crPJ6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)  不知道能刷出来不。
+<img src="https://weibo.cn/mblog/pic/FeWGNw6zB?rl=1" id="aimg_szIJw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)  不知道能刷出来不。
 
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](http://www.coolapk.com/apk/me.ykrank.s1next) v1.2.1
 
