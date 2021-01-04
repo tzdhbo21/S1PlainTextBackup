@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 20:04** 
+> ## **本文件最后更新于2021-01-05 00:05** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_LZ7Zz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_yCji5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21157,8 +21157,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_XyEWy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Jz361" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_iK22Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Wrj0w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -22653,4 +22653,1089 @@ syl，露露今晚继续受苦jk，不过胜利在望了
 
 
 
-            
+
+
+-----
+
+####  qq845629713  
+##### 28121#       发表于 2021-1-4 20:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/04/200859jy9hwug9humzsyk6.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210104200831.png</strong> (306.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 20:08 上传
+
+
+
+
+
+
+
+关于最帅的人穿着拖孩来线下这件事
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28122#       发表于 2021-1-4 20:42
+
+
+
+
+池面哪怕光脚都是池面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+话说葛皇没有正月和服啊，这东西发了十几套到gamers就再也不发了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28123#       发表于 2021-1-4 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936133&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-1-4 17:21</a>
+
+叶的联动组合隔一段时间换一拨，如果没有发展到私下关系比较好确实难有后续，今天塔科夫的时候提到当初一起 ...</blockquote>
+你确定？落回教堂了啊 上次直播一点没前进
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28124#       发表于 2021-1-4 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49938185&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-4 20:49</a>
+
+你确定？落回教堂了啊 上次直播一点没前进</blockquote>
+不是已经到过塔了吗，落回到教堂正常，慢慢熟练了这次这波应该能结束了啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28125#       发表于 2021-1-4 21:00
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-4 21:09 编辑 
+
+好像听错了原来没听错。
+
+
+葛皇：黑黑解散
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 28126#       发表于 2021-1-4 21:00
+
+
+
+
+露露又开始跳跳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28127#       发表于 2021-1-4 21:01
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-4 21:18 编辑 
+
+这个-35亿也太伤了，全部木大啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+黑黑解散吧！葛皇没有心<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+6大都市卡无双！
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28128#       发表于 2021-1-4 21:23
+
+
+
+
+虹女都还是太温柔了啊，得多学学葛皇啊，狼性文化不能丢
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28129#       发表于 2021-1-4 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大天使明天不会也有样学样干碎其他三个吧
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 28130#       发表于 2021-1-4 21:34
+
+
+
+
+苔箱怎么也来英语禁止，这是什么新的财富密码吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28131#       发表于 2021-1-4 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能不能轻点虐阿
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28132#       发表于 2021-1-4 21:55
+
+
+
+
+ちなみに
+
+
+<img src="https://img.saraba1st.com/forum/202101/04/215514d02mq30qlb2zv0fq.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #021 - '2021_01_04 - YouTube' - www_youtube_com.png</strong> (899.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 21:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28133#       发表于 2021-1-4 21:57
+
+
+
+
+明天放的开迫害程度估计 葵＞船＞兔＞夸吧 ，反正我完全不能想象这个组合会什么感觉。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28134#       发表于 2021-1-4 21:57
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-4 22:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当头就是1个5W封顶SC，不套皮依然是上位势。
+
+曾经的暴脾气高收入虹女歌势：
+[https://www.youtube.com/watch?v=cVhqqxXWfuY](https://www.youtube.com/watch?v=cVhqqxXWfuY)
+
+
+如今的暴脾气高收入虹女歌势：
+[https://www.youtube.com/watch?v=M5wtb22wbuk](https://www.youtube.com/watch?v=M5wtb22wbuk)
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 28135#       发表于 2021-1-4 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49938763&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-4 21:57</a>
+
+当头就是1个5W封顶SC，不套皮依然是上位势。
+
+曾经的暴脾气高收入虹女歌势：
+
+https://ww ...</blockquote>
+投5W那个也是不死人时期的老面孔了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|原来如此|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28136#       发表于 2021-1-4 22:04
+
+
+
+
+哈…郡道开口一分钟就想关了看别的女人了，
+介绍写着正月抱负结果点进去就说自己没抱负开始聊吃是怎样，不快です
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28137#       发表于 2021-1-4 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">露露终于看到公主了，结果脚一滑还没跳就掉下去了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28138#       发表于 2021-1-4 22:08
+
+
+
+
+“喜欢偶像，对杰尼斯无感。”
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 28139#       发表于 2021-1-4 22:09
+
+
+
+ 本帖最后由 Kojimaru 于 2021-1-4 22:13 编辑 
+
+ema那韩国人好多不安<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">在聊红白
+syl地狱乐必秒咒术回战吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28140#       发表于 2021-1-4 22:13
+
+
+
+
+跑路女喜欢跑路女，无语
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28141#       发表于 2021-1-4 22:18
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-4 22:19 编辑 
+
+养gachi比唱歌厉害<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+开始iphone12了，我要典中典了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28142#       发表于 2021-1-4 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 警惕新型露脸女主播诈骗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28143#       发表于 2021-1-4 22:21
+
+
+
+
+郡道新年杂谈热聊二十分钟食放题（没有要停的意思），快跟热聊三十分钟内脏锅的小琥珀联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28144#       发表于 2021-1-4 22:22
+
+
+
+
+露露这阴间jk看得我都要昏迷了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+syl  地狱乐也拉了，别看不起咒术
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28145#       发表于 2021-1-4 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 点进去听着从寿司聊到饼干聊到pancake，甚至都有sc吐槽这么深夜净聊吃的是犯罪了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28146#       发表于 2021-1-4 22:34
+
+
+
+
+大姐姐好强，兔生会赚翻了啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28147#       发表于 2021-1-4 22:38
+
+
+
+
+你还有马内甲？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28148#       发表于 2021-1-4 22:41
+
+
+
+
+葵皇宝刀未老
+
+<img src="https://img.saraba1st.com/forum/202101/04/224123jta808ono1acvhmn.png" referrerpolicy="no-referrer">
+
+
+<strong>【桃太郎電鉄】福袋争奪！あけおめ桃鉄2021-4.png</strong> (501.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 22:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/04/224124wnkn7eracni6c221.png" referrerpolicy="no-referrer">
+
+
+<strong>【桃太郎電鉄】福袋争奪！あけおめ桃鉄2021-3.png</strong> (507.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 22:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/04/224142htqlfotvvql8mqqq.png" referrerpolicy="no-referrer">
+
+
+<strong>【桃太郎電鉄】福袋争奪！あけおめ桃鉄2021-2.png</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 22:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28149#       发表于 2021-1-4 22:42
+
+
+
+ 本帖最后由 十四洲 于 2021-1-4 22:53 编辑 
+
+叶真会说啊，鲜红的V是辣椒的挑染<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/04/225154ebrbtaereregtfeu.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-01-04_22-46-48.png</strong> (734.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 22:51 上传
+
+
+
+
+
+
+
+两边差不多同时结束，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28150#       发表于 2021-1-4 22:43
+
+
+
+
+露露回教堂了，我不看了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28151#       发表于 2021-1-4 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 奖品好寒酸
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28152#       发表于 2021-1-4 22:46
+
+
+
+
+说露露今晚没多少流程的站出来挨打好吗？
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 28153#       发表于 2021-1-4 22:49
+
+
+
+
+三十多个小时终于过了，这屑游戏
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 28154#       发表于 2021-1-4 22:49
+
+
+
+
+过了，2021到了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28155#       发表于 2021-1-4 22:49
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-4 22:51 编辑 
+
+这奖品太好笑了，不愧是工商，怎么会有桃铁谷子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剩下三个是日用品、零食、替换耳机（？）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28156#       发表于 2021-1-4 22:49
+
+
+
+
+过了过了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28157#       发表于 2021-1-4 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">md说完就过了 2021新年快乐
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28158#       发表于 2021-1-4 22:49
+
+
+
+
+她做到了！！！2021来了！
+
+<img src="https://img.saraba1st.com/forum/202101/04/224939oyh8zl0m9w6lhmwm.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-01-04_22-49-14.png</strong> (443.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-4 22:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28159#       发表于 2021-1-4 22:51
+
+
+
+
+露露过了 新牛快乐！！
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 28160#       发表于 2021-1-4 22:54
+
+
+
+
+美大生我的超人
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28161#       发表于 2021-1-4 22:57
+
+
+
+
+好消息过了，坏消息还要dlc
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28162#       发表于 2021-1-4 22:58
+
+
+
+
+郡道聊了五十分钟食物后一转结婚生子话题，我不要变成阿姨控啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28163#       发表于 2021-1-4 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从食物转到不喜欢吃的食物转到小孩子被逼吃不喜欢吃的食物转到教育问题转到结婚生子社会问题 ，话题逐渐沉重.jpg
+期间无数“暴言”估计又会被anti记下来不过听的其实还是蛮合三观的。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28164#       发表于 2021-1-4 23:09
+
+
+
+
+阿姨控⬆️
+
+郡道把逆转和弹丸论破放在一起，不快<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28165#       发表于 2021-1-4 23:25
+
+
+
+
+[定期] 2021/1/5 0:020 
+
+チャンネル登録者数デイリーTOP5 (前日比)
+<strong>1. 夢月ロア 340,000人 (+14000人)
+</strong>
+
+诶？！
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28166#       发表于 2021-1-4 23:33
+
+
+
+
+大概是bot抽风了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28167#       发表于 2021-1-4 23:43
+
+
+
+
+是计算错误了，但是嘛，反正有也不奇怪，194（除了病休那个，病休那个今天也发了gbf不知咋回事）个个烂人又会骗，回来后有这个数字也不奇怪，就看啥时候回来了，马上二周年了啊。
+郡道直播最后终于提了自己的抱负，说2021年会多做自己想做的事，叫观众如果有兴趣的话就跟上了，哪怕有一丝不满那就可以不看了，真是，究极爱看看不看滚•不快加强版•大岛优子（偶像力削弱版）啊。
+然后就开apex了，本人光速滚开<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28168#       发表于 2021-1-4 23:46
+
+
+
+
+露露又要会限了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28169#       发表于 2021-1-4 23:49
+
+
+
+
+我们仍不知道露皇下个会播的大型游戏是啥.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28170#       发表于 2021-1-4 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939642&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-1-4 23:49</a>
+
+我们仍不知道露皇下个会播的大型游戏是啥.jpg</blockquote>
+jump king dlc？？？
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28171#       发表于 2021-1-4 23:52
+
+
+
+ 本帖最后由 CAserlumos 于 2021-1-4 23:54 编辑 
+
+叶哥最协队友出了，不过为什么队员还要竞争上岗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28172#       发表于 2021-1-4 23:52
+
+
+
+
+就怕是一路阴间游戏走到底，i wanna 是不是不能播的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28173#       发表于 2021-1-4 23:55
+
+
+
+
+i wanna本家有版权问题，同人可以播
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28174#       发表于 2021-1-5 00:00
+
+
+
+
+这也太缺德了，竞争上岗怎么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不愧是キス部...?
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 28175#       发表于 2021-1-5 00:03
+
+
+
+
+站吧做的20年p站男人榜，葛皇唯一上榜男v排52。江皇3w同接抽卡专武扭曲仙境上了一大堆
+
+  [https://www.bilibili.com/video/B ... 6288032102967039046](https://www.bilibili.com/video/BV1Ri4y1F7sw?from=search&amp;seid=6288032102967039046)
+
+
+
+
+
+          
