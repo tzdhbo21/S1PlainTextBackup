@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-22 12:03** 
+> ## **本文件最后更新于2021-01-05 14:01** 
 
 
 
@@ -41,7 +41,78 @@
 ####  垃圾网站上  
 ##### 1503#       发表于 2020-10-16 23:25
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+才发现索尼在上古年代就一直搞这些幺蛾子
+
+
+<img src="https://img.saraba1st.com/forum/202010/16/232242a9ef7xeepe97i9hi.png" referrerpolicy="no-referrer">
+
+
+<strong>蜂蜜浏览器_QQ图片20201016225623.png</strong> (315.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-10-16 23:22 上传
+
+
+
+
+
+ HDMI接口
+
+
+<img src="https://img.saraba1st.com/forum/202010/16/232315fijll1hlrozoopq1.png" referrerpolicy="no-referrer">
+
+
+<strong>蜂蜜浏览器_IMG_20201016_231131_Bokeh.png</strong> (923.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-10-16 23:23 上传
+
+
+
+
+
+ 两段式相机快门键
+
+
+<img src="https://img.saraba1st.com/forum/202010/16/232351sh2lo2h8ehl22zc2.png" referrerpolicy="no-referrer">
+
+
+<strong>蜂蜜浏览器_IMG_20201016_230839.png</strong> (550.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-10-16 23:23 上传
+
+
+
+
+
+ 追焦的小绿框
+
+
+<img src="https://img.saraba1st.com/forum/202010/16/232458iascdnn1a3181raf.png" referrerpolicy="no-referrer">
+
+
+<strong>蜂蜜浏览器_IMG_20201016_231159.png</strong> (625.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-10-16 23:24 上传
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -794,7 +865,18 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ####  垃圾网站上  
 ##### 1538#       发表于 2020-10-18 20:25
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+现在想了解的信息就两个：
+
+1. 解锁后具体会丢些什么
+
+2. 怎么搞NFC模拟门禁和公交卡
+
+
+
+
 
 
 
@@ -1947,7 +2029,14 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ####  垃圾网站上  
 ##### 1592#       发表于 2020-10-20 15:44
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+除了黑色都是指纹收集器无误，反光下十分难看，我是准备贴背膜了
+
+
+
+
 
 
 
@@ -2870,7 +2959,103 @@ Audiopro！ 4.4！</blockquote>
 ####  垃圾网站上  
 ##### 1635#       发表于 2020-10-21 18:54
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+ 本帖最后由 垃圾网站上 于 2020-10-21 19:30 编辑 
+
+比想象中小，算是玩上一回所谓小屏旗舰了，吃了几年三星P排抹布屏的屎眼睛瞬间舒服
+
+
+还是那个逻辑鬼才索尼：
+
+120hz默认没开
+
+音效增强默认没开
+
+默认不是全面屏手势
+
+语音键可以设置两种语音助手或者无操作但不能设定第三方应用，而且设置为无的话按下会弹出这个设置……
+
+软件侧感栏默认大小容易按不出来，位置也不合手
+
+
+本地化大概就是
+
+百度输入法
+
+应用宝
+
+移动，百度语音助手
+
+百度搜索栏
+
+位置服务好像默认用百度的
+
+此外预装app有微博，QQ音乐，百度地图
+
+
+
+
+
+
+蜂蜜浏览器_IMG_20201021_182851.png
+(784.96 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-10-21 18:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202010/21/185031pfxyz6ftjjqojm86.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+蜂蜜浏览器_IMG_20201021_182831.png
+(825.03 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-10-21 18:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202010/21/185018cwluvd91wnrrpfld.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2879,7 +3064,17 @@ Audiopro！ 4.4！</blockquote>
 ####  垃圾网站上  
 ##### 1636#       发表于 2020-10-21 19:18
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+ 本帖最后由 垃圾网站上 于 2020-10-21 19:36 编辑 
+
+5II的非硬件级侧感使用体验不怎么样，设置为暂时禁用模式吧，很多时候要等它显示出来才能用，急性子难以忍受；不开暂时禁用模式吧，又很难用Drawer
+
+而且自带应用还是原生老material design那套，全面屏手势和Drawer严重冲突
+
+
+
+
 
 
 
@@ -3412,7 +3607,16 @@ CE 垃圾桶 都有
 ####  垃圾网站上  
 ##### 1664#       发表于 2020-10-23 00:38
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49132637&amp;ptid=1915171" target="_blank">iceprince10 发表于 2020-10-22 21:28</a>
+
+请教下，玩游戏的时候如果开着声音会有莫名的震动这是怎么回事</blockquote>
+不用怀疑，无论有没有开音频震动，只要外放声量开大手机都震
+
+
+
+
 
 
 
@@ -4027,7 +4231,16 @@ AIDA64就可以
 ####  垃圾网站上  
 ##### 1695#       发表于 2020-10-23 17:29
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140844&amp;ptid=1915171" target="_blank">jbjgd 发表于 2020-10-23 15:09</a>
+
+这个USB自动检测啥的是什么鬼，usb怎么插拔都连不上电脑</blockquote>
+就是挑线，我用9.9两条的线没法传文件，换了条一加原装的没问题
+
+
+
+
 
 
 
@@ -4120,7 +4333,16 @@ AIDA64就可以
 ####  垃圾网站上  
 ##### 1701#       发表于 2020-10-23 19:14
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49143528&amp;ptid=1915171" target="_blank">rahicis 发表于 2020-10-23 18:53</a>
+
+百毒输入法删不掉吗</blockquote>
+应用宝和百度输入法能停用，其它都能删，而且停用和删了也没啥区别了
+
+
+
+
 
 
 
@@ -4484,7 +4706,18 @@ pwm，你用慢速摄像头拍一下就知道
 ####  垃圾网站上  
 ##### 1721#       发表于 2020-10-24 09:46
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145394&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-10-23 21:52</a>
+
+没有,手机上默认浏览器还是大法手机原来那个默认浏览器.
+
+我在play上点击chrome的安装按钮后完全没反应. ...</blockquote>
+谷歌的问题，把Android Webview更新到最新就能安装了
+
+
+
+
 
 
 
@@ -4511,7 +4744,14 @@ pwm，你用慢速摄像头拍一下就知道
 ####  垃圾网站上  
 ##### 1723#       发表于 2020-10-24 10:32
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+习惯就好，以前索尼手机可是3个月就价格腰斩的，早买早享受，迟买有折扣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -4849,7 +5089,16 @@ pwm，你用慢速摄像头拍一下就知道
 ####  垃圾网站上  
 ##### 1738#       发表于 2020-10-25 01:49
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+前天装了Google全家桶后负一屏出来了但只有个搜索栏，查了一下启动Google feed挺麻烦的就没搞，谁知刚重启后直接给我推内容了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
 
 
 
@@ -4953,7 +5202,19 @@ pwm，你用慢速摄像头拍一下就知道
 ####  垃圾网站上  
 ##### 1744#       发表于 2020-10-25 14:38
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49163918&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-25 14:31</a>
+
+只要你不插国内sim卡，启动feed不难
+
+
+插卡就会被屏蔽，就要折腾一大堆七七八八的步骤……</blockquote>
+我插着一张移动一张电信自己冒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，搞不好哪天又没了，不过有没有影响不大，我在其它机器上就没怎么用过负一屏~
+
+
+
+
 
 
 
@@ -5649,7 +5910,14 @@ google play有，开发商是sony mobile communication
 ####  垃圾网站上  
 ##### 1781#       发表于 2020-10-27 12:40
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+突发奇想曲线解决了没有通话录音的问题<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，虽然我是从来不用啦
+
+
+
+
 
 
 
@@ -10763,4 +11031,557 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 
 
 
-                               
+
+
+-----
+
+####  zatsuza  
+##### 2043#       发表于 2020-12-22 12:18
+
+
+
+
+你们5M2用来下触摸手感怎样？还有X5那种轻飘飘容易误触的感觉么
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 2044#       发表于 2020-12-22 12:22
+
+
+
+
+在想是不是能找个手表补充水货缺失的支付/交通卡功能
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  Heero_Z  
+##### 2045#       发表于 2020-12-22 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49804131&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-12-22 09:19</a>
+更新了11后有高刷么</blockquote>
+硬件上还是不支持高刷，但11的部分动画效果确实有点90Hz那味了或者说流畅度更接近iOS了？
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2046#       发表于 2020-12-22 19:14
+
+
+
+<blockquote>引用第2039楼damacy于2020-12-22 11:10发表的  :
+
+想问下买5m2的机友们，你们的机子发热严重不，我这台看b站要不了多久就开始烫手</blockquote>
+没有温度 …冷的 
+
+手机壳的缘故 ？
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 2047#       发表于 2020-12-22 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810024&amp;ptid=1915171" target="_blank">Heero_Z 发表于 2020-12-22 18:38</a>
+ 硬件上还是不支持高刷，但11的部分动画效果确实有点90Hz那味了或者说流畅度更接近iOS了？  —— 来自 Son ...</blockquote>
+水果不是才60的刷新么
+
+
+
+
+
+
+
+-----
+
+####  Heero_Z  
+##### 2048#       发表于 2020-12-23 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811993&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-12-22 21:50</a>
+水果不是才60的刷新么</blockquote>
+我的意思是有提升但感知不大吧
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2049#       发表于 2020-12-23 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49805295&amp;ptid=1915171" target="_blank">damacy 发表于 2020-12-22 11:10</a>
+想问下买5m2的机友们，你们的机子发热严重不，我这台看b站要不了多久就开始烫手 ...</blockquote>
+不，没有发热，不玩游戏的时候很冷静，符合865机型一贯表现。
+
+试试重置，重置完还是这样返厂找售后吧。看B站发热严重显然不正常。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2050#       发表于 2020-12-23 08:31
+
+
+
+
+据说国行新版本升级后连网络通信功能都有 bug… 国行用户可以晚点更新。索尼中国啊真的是
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2051#       发表于 2020-12-23 10:05
+
+
+
+<blockquote>引用第2049楼leystage于2020-12-23 08:31发表的  :
+
+据说国行新版本升级后连网络通信功能都有 bug… 国行用户可以晚点更新。索尼中国啊真的是</blockquote>
+国行就没推送11啊 ？…
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2052#       发表于 2020-12-23 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49806079&amp;ptid=1915171" target="_blank">bxcds 发表于 2020-12-22 12:22</a>
+在想是不是能找个手表补充水货缺失的支付/交通卡功能
+
+—— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅 ...</blockquote>
+可以……买个米环就能有NFC公交卡了，我就是这样用的
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ssklas  
+##### 2053#       发表于 2020-12-27 15:36
+
+
+
+
+刚入手的国行1马克兔 发现谷歌框架是有的但找不到google play商店…从自带的应用宝里面没法打开，重新从酷安上下一个也安装失败了 请问这是正常的吗？如果国行本来就是这样的话，要怎么才能在这台设备上正常使用play商店？
+
+
+
+
+
+
+
+-----
+
+####  alvarez  
+##### 2054#       发表于 2020-12-27 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49859342&amp;ptid=1915171" target="_blank">ssklas 发表于 2020-12-27 15:36</a>
+刚入手的国行1马克兔 发现谷歌框架是有的但找不到google play商店…从自带的应用宝里面没法打开，重新从酷 ...</blockquote>
+试试谷歌安装器<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ssklas  
+##### 2055#       发表于 2020-12-27 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49859427&amp;ptid=1915171" target="_blank">alvarez 发表于 2020-12-27 15:51</a>
+
+试试谷歌安装器
+
+
+—— 来自 OnePlus HD1910, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+一开始下了个go安装器把谷歌套件重装了一次没什么效果，现在换了一个安装器更新了一下play服务和商店应用后就能用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢
+
+
+
+
+
+
+
+-----
+
+####  chujunhan  
+##### 2056#       发表于 2020-12-27 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49859342&amp;ptid=1915171" target="_blank">ssklas 发表于 2020-12-27 15:36</a>
+
+刚入手的国行1马克兔 发现谷歌框架是有的但找不到google play商店…从自带的应用宝里面没法打开，重新从酷 ...</blockquote>
+下个Google play store的apk
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2057#       发表于 2020-12-27 18:46
+
+…
+
+
+
+其实根本不用下  把应用宝停用就自动走play了 
+5兔的直接就在程序里面
+
+
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2058#       发表于 2021-1-4 12:47
+
+
+
+
+闲鱼捡了一个号称99新的国行5M2，到手看看怎么样。
+
+
+
+
+
+
+
+-----
+
+####  暗铁  
+##### 2059#       发表于 2021-1-4 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大法不知道能不能压住888，今年要换手机了
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 2060#       发表于 2021-1-4 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">闲鱼国行5m2已经4000了，3000就买！
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  BlackRock  
+##### 2061#       发表于 2021-1-4 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935993&amp;ptid=1915171" target="_blank">暗铁 发表于 2021-1-4 17:08</a>
+大法不知道能不能压住888，今年要换手机了
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅 ...</blockquote>
+水冷可破
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2062#       发表于 2021-1-5 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935993&amp;ptid=1915171" target="_blank">暗铁 发表于 2021-1-4 17:08</a>
+大法不知道能不能压住888，今年要换手机了
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅 ...</blockquote>
+那不如现在上865，早买早享受，万一888翻车了，865再用一年问题不大。
+
+目前的评测而言，888的CPU换架构但是三星落后工艺压不住，功耗爆炸，GPU性能甚至就是865超频，极客湾那边把865超频GPU，得到了和888差不多的性能。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 2063#       发表于 2021-1-5 09:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在是不是入手5m2的最佳时机？本来想等1m3的但是这888……来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2064#       发表于 2021-1-5 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941253&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-5 09:18</a>
+
+现在是不是入手5m2的最佳时机？本来想等1m3的但是这888……</blockquote>
+反正我现在是真香体验中。
+
+侧边指纹太棒了。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2065#       发表于 2021-1-5 09:54
+
+
+
+ 本帖最后由 我很费纸 于 2021-1-5 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941253&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-5 09:18</a>
+现在是不是入手5m2的最佳时机？本来想等1m3的但是这888……</blockquote>
+1m3按照去年那个速度，怕不是21年年中才上市……首发价格也不会比现在的5M2有优势。基本上等9月份5M3出来1M3估计才会到一个比较合理的价格区间。
+
+所以就限定索移而言的话，我觉得买5M2比等1M3现在合适一点，当然还可以再等等看其他888机型有没有翻车再做结论。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2066#       发表于 2021-1-5 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941596&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-5 09:54</a>
+
+1m3按照去年那个速度，怕不是21年年中才上市……首发价格也不会比现在的5M2有优势。基本上等9月份5M3出来 ...</blockquote>
+有没有自带的百度安装包？我不小心删了。
+
+
+
+
+
+
+
+-----
+
+####  jzsgtx  
+##### 2067#       发表于 2021-1-5 11:04
+
+
+
+
+888这。。。想等mk3来着<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2068#       发表于 2021-1-5 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941930&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-1-5 10:29</a>
+有没有自带的百度安装包？我不小心删了。</blockquote>
+没有……为了无缝谷歌体验，我买的是港澳版……
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  zhongjie  
+##### 2069#       发表于 2021-1-5 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941596&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-5 09:54</a>
+ 1m3按照去年那个速度，怕不是21年年中才上市……首发价格也不会比现在的5M2有优势。基本上等9月份5M3出来 ...</blockquote>
+我还是等等1m3，毕竟期待4k 120hz屏幕。lg的新手机就是，可惜不出国行
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2070#       发表于 2021-1-5 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49942760&amp;ptid=1915171" target="_blank">zhongjie 发表于 2021-1-5 11:40</a>
+我还是等等1m3，毕竟期待4k 120hz屏幕。lg的新手机就是，可惜不出国行</blockquote>
+就888现在这功耗表现，4K120不容乐观啊……万一是Z5P复刻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+对索移的散热，我们还是按垫底档位预估吧（起码温度墙是远远不如国内几家激进的）
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  zhongjie  
+##### 2071#       发表于 2021-1-5 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49943005&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-5 12:01</a>
+
+就888现在这功耗表现，4K120不容乐观啊……万一是Z5P复刻
+
+
+对索移的散热，我们还是按垫底档位预估 ...</blockquote>
+这一代不行就等下一代，现在用的find x2的屏幕估计到明年都还能打
+
+
+
+
+
+                              
