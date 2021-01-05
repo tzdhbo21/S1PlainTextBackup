@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 04:06** 
+> ## **本文件最后更新于2021-01-05 16:13** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Knw88" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_eLPnc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -10975,4 +10975,647 @@ syl     spade那个带emoji版的歌词真的是看一次笑一次，真的�
 
 
 
-                              
+
+
+-----
+
+####  浇砼结衣  
+##### 574#       发表于 2021-1-4 09:08
+
+
+
+
+嘉然账号把第一条自我介绍视频删了
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 575#       发表于 2021-1-4 09:15
+
+
+
+[【嘉然】【向晚】虚拟主播舞力全开性感舞蹈片段【DianAvA】](https://www.bilibili.com/video/BV1YV41187Y3)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 576#       发表于 2021-1-4 09:27
+
+
+
+
+看了下自我介绍，里面的声线比现在御多了
+更接近单曲里声音
+翻了下一路以来的小视频
+看来嘉然的声线有一个进化过程，变成了现在这种“萌音”
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 577#       发表于 2021-1-4 19:27
+
+
+
+
+啊，这段时间都没有直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 578#       发表于 2021-1-4 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937308&amp;ptid=1974517" target="_blank">王一唯不傲娇 发表于 2021-1-4 19:27</a>
+啊，这段时间都没有直播吗</blockquote>
+周一休息，周二QA，戒断了看看切片吧。
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 579#       发表于 2021-1-4 21:26
+
+
+
+十二月
+
+11(五)合体
+12(六)嘉然
+
+
+15(二)嘉然
+16(三)向晚
+19(六)合体
+20(日)嘉然
+
+
+23(三)向晚
+24(四)贝拉
+25(五)合体
+26(六)向晚(嘉然)
+27(日)珈乐 抖限
+
+
+30(三)嘉然
+31(四)合体
+
+
+一月
+2(六)贝拉
+3(日)向晚(嘉然)
+
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 580#       发表于 2021-1-4 21:38
+
+
+
+
+铁打的嘉然，流水的成员。
+
+本来以为找个直播表分分钟，结果官号不全，成员号不规范，海盗组太零碎。。。。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 581#       发表于 2021-1-4 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49938605&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-4 21:38</a>
+铁打的嘉然，流水的成员。
+
+本来以为找个直播表分分钟，结果官号不全，成员号不规范，海盗组太零碎。。。。 ...</blockquote>
+每周二在QA前会发当周直播表<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 582#       发表于 2021-1-4 21:49
+
+
+
+<blockquote>海底铁锚 发表于 2021-1-4 21:41
+每周二在QA前会发当周直播表</blockquote>
+17号都播了两个人才发预告，不愧是刚从厂里出来再就业。
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 583#       发表于 2021-1-4 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49938696&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-4 21:49</a>
+
+17号都播了两个人才发预告，不愧是刚从厂里出来再就业。</blockquote>
+那是最早的时候 现在已经比较规律了
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 584#       发表于 2021-1-5 01:56
+
+
+
+
+嘉人们怎么和幻士们打起来了，有没有懂哥细说一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 585#       发表于 2021-1-5 02:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49940246&amp;ptid=1974517" target="_blank">齐桓公 发表于 2021-1-5 01:56</a>
+
+嘉人们怎么和幻士们打起来了，有没有懂哥细说一下
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+因为他们首先是v8人，其次才是嘉人啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LamdaHT| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 586#       发表于 2021-1-5 03:20
+
+
+
+
+简单来说就是净土坛诺曼底登陆以后，v8人觉得自己又行了，在人家的动态地盘带了幻士的节奏。结果自己的版本答案asoul被幻士顺劈，鼠鼠现在其实可太mmr了，为嘉出征刻不容缓，但幻士控评捧臭脚那套饭圈操作无师自通，貌似也没啥风浪。不过梁木肯定越来越大了，好戏还在后头<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+说白了还是赤皇拉跨，拿全v区最高的薪水播最少的时长，就嗯靠咖喱人盾病盾玩一招鲜。她现在想做她的小yhm肯定是做不了的，就看是叔叔先榨干她还是她自己顶不住跑路。
+
+但之后yhm未来要是闹点啥节奏，特别是p家的，那可真是大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，在这里衷心的祝愿光驱武运昌隆。
+
+最近的消息说背后是lulu民带的节奏挑起两方混战，这个我暂且蒙古。
+
+管人观众可真是太好玩了嗷
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 587#       发表于 2021-1-5 08:53
+
+
+
+
+其实非要说的话从奇迹之夜开始开赤圣就是v8经验密码了。以v8的那点体量，asoul加的热情再高也开不动赤圣，但这次是真的有赤圣推破防下场了。从过往来看每次v8有点声势的开团基本都建立在有大面积原粉丝破防的基础上，v8本质只能扇风点火。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 588#       发表于 2021-1-5 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941010&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2021-1-5 08:53</a>
+其实非要说的话从奇迹之夜开始开赤圣就是v8经验密码了。以v8的那点体量，asoul加的热情再高也开不动赤圣， ...</blockquote>
+v8不是最早投降的么？怎么回事？
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 589#       发表于 2021-1-5 11:44
+
+
+
+
+V8又不是铁板一块，叫着小红挂着团长装饰的一大把，口称幻官动辄赤圣4000+的也比比皆是；luu民为数不少，但是每天都有好多烂开lu拉夫的帖；至于开其他V的帖子，那就完全数不过来了
+
+这次lulu节奏始于两个呆过粉丝群的8u吐黑泥，v8众人正跟着乐呵呢，字幕组和粉丝群的sj人跑去跟8u对线，人上人：有谣言称字幕组和粉丝群都是人上人，我澄清一下，这不是谣言
+
+a-soul评论区都是看不到新动态犯病的8u，没什么路人，再就是跑到其他V评论区🎣复读rp的，可能泥潭专楼有人对线，不过我也没功夫爬楼
+
+除团长之外同一时间还有夏诺雅等V因为各自的原因被开，真要说的话8u也就带带节奏开开烂团，本质上还是因为新时代人容不得日V亲本土疏睿站，不过🐦这个确实把我也看笑了
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 590#       发表于 2021-1-5 12:04
+
+
+
+
+还以为12点发QA和直播表，星期二也是休息日？
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 591#       发表于 2021-1-5 12:11
+
+
+
+
+直播安排呢，没有嘉然看要死了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 592#       发表于 2021-1-5 12:12
+
+
+
+
+咋还没发直播表和QA啊，运营梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 593#       发表于 2021-1-5 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49943034&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-5 12:04</a>
+
+还以为12点发QA和直播表，星期二也是休息日？</blockquote>
+这个没有固定时间的啊 但今天肯定是会发的
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 594#       发表于 2021-1-5 12:41
+
+
+
+
+想看团体直播，小剧场我的小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 595#       发表于 2021-1-5 12:43
+
+
+
+
+运营再不发建议找个厂子上班
+
+
+
+
+
+
+
+-----
+
+####  苍浅°  
+##### 596#       发表于 2021-1-5 12:49
+
+
+
+
+虽然不大可能，我倒是挺想看嘉然和晚指导一起来个rpg初见什么的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmyqze  
+##### 597#       发表于 2021-1-5 13:19
+
+
+
+
+as五位我都爱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 598#       发表于 2021-1-5 13:21
+
+
+
+
+【1.5本周直播预告】
+
+[歪嘴]2021年第一次的直播预告来了！
+
+—————————————————
+
+1月6日 周三晚8点，嘉晚饭集合啦！@嘉然今天吃什么 &amp;@向晚大魔王 会在嘉然的直播间一起直播，抖&amp;B都有哦！
+
+1月7日 周四晚8点，@贝拉kira 的舞蹈房开课了，首位“学员”是@向晚大魔王 ？！抖&amp;B都在@贝拉kira 直播间。
+
+1月8日周五晚8点，@A-SOUL_Official 全员为你期末应援！抖&amp;B都在@A-SOUL_Official 直播间~
+
+1月9日周六晚10点，@乃琳Queen 抖&amp;B双端首播！！！[爱心]注意是10点开播哦！
+
+1月10日周日晚8点，@嘉然今天吃什么 的健身环大冒险~抖&amp;B都有直播！
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 599#       发表于 2021-1-5 13:22
+
+
+
+
+嘉然健身环很难不支持
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 600#       发表于 2021-1-5 13:22
+
+
+
+
+铁打的嘉然，先锋和殿后全包了
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 601#       发表于 2021-1-5 13:29
+
+
+
+
+你可以在三个直播间看到晚指导，除了她自己的
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 602#       发表于 2021-1-5 14:12
+
+
+
+
+一要求多发动态，晚指导急忙转发粉丝动态+评论区互动，没写代发。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 603#       发表于 2021-1-5 14:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时刻回应爱
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 604#       发表于 2021-1-5 14:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/05/142837y2aocpiccqxbubip.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210105-142647~01.png</strong> (51.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 14:28 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 605#       发表于 2021-1-5 15:29
+
+
+
+
+奶琳十点播，说好的不熬夜呢<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+话说ASouL的人好喜欢让大家不熬夜啊，女团特有宠粉方式吗
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 606#       发表于 2021-1-5 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944903&amp;ptid=1974517" target="_blank">qw945 发表于 2021-01-05 15:29:21</a>
+奶琳十点播，说好的不熬夜呢 v2.4.3</blockquote>大概十点之后电台主播风格有额外buff<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                             

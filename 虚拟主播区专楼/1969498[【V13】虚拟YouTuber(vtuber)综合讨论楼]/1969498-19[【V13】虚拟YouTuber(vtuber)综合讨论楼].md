@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-05 00:05** 
+> ## **本文件最后更新于2021-01-05 16:04** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_yCji5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_fRH9C" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19854,10 +19854,11 @@ live新衣大聊漫威，star新衣疯狂发情<img src="https://static.saraba1s
 
 
 
- 参与人数 11战斗力 -2
+ 参与人数 12战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| sinderweller| + 1|好！|
 | airclab| + 1|HSO|
 | Map-2|-1|发什么病|
 | 目力干员leison| + 1|欢乐多|
@@ -21157,8 +21158,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_iK22Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Wrj0w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_BNLaN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_b3f4l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -23738,4 +23739,626 @@ i wanna本家有版权问题，同人可以播
 
 
 
-          
+
+
+-----
+
+####  渡鸦骑士  
+##### 28176#       发表于 2021-1-5 00:36
+
+
+
+
+扭曲仙境好像真心女性向之王<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+省一楼，原本看你虹男女混杂搞节目没什么。
+现在一看……哟吼，男女混杂线下玩游戏。
+这确实太现充了……不适合，不适合<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28177#       发表于 2021-1-5 00:42
+
+
+
+
+黑黑开播了
+off状态
+可以后台挂着睡觉了
+甚至葛没发推<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28178#       发表于 2021-1-5 09:28
+
+
+
+
+jst 21.00  阿葵台 虹杏桃铁
+
+
+定睛一看还不是普通的桃铁，是类似船第一次社外桃铁那样的组队桃铁，分了红杏两队，以队伍总资产合计，输了的队伍有惩罚游戏。真 虹杏大战 
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28179#       发表于 2021-1-5 10:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点心疼葵皇，看见直播间有骂她的了。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28180#       发表于 2021-1-5 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49942005&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-1-5 10:38</a>
+
+有点心疼葵皇，看见直播间有骂她的了。</blockquote>
+其实就一个人，只是待机间的话几乎都是还是期待和觉得有意思的，正常人不会在评论区跳的。具体怎么样看同接和踩吧。
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 28181#       发表于 2021-1-5 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">为啥挨骂，阿葵有什么骂点吗
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28182#       发表于 2021-1-5 11:38
+
+
+
+
+葵皇可以算是虹版阿希了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28183#       发表于 2021-1-5 11:43
+
+
+
+
+郡道也点赞的tmsk版电锯人（[https://twitter.com/yuri_kyanon/status/1346085423722844161?s=21](https://twitter.com/yuri_kyanon/status/1346085423722844161?s=21)），
+
+顺便问一下，下一届crcup是何时呢？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 28184#       发表于 2021-1-5 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49942401&amp;ptid=1969498" target="_blank">Maonpuyo 发表于 2021-1-5 11:11</a>
+为啥挨骂，阿葵有什么骂点吗</blockquote>
+没有骂点难道就不能骂了？看看2000<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28185#       发表于 2021-1-5 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">作为mrr一周年 她玩的最好的小姐妹没来，我很伤心
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28186#       发表于 2021-1-5 12:02
+
+
+
+
+彩虹啊希也太乳葵了
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28187#       发表于 2021-1-5 12:22
+
+
+
+
+佐藤小姐订阅sc不完爆阿葵，怎么能说是辱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 28188#       发表于 2021-1-5 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49942934&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-5 11:54</a>
+
+作为mrr一周年 她玩的最好的小姐妹没来，我很伤心</blockquote>
+486发了推啊，虽然不能凸但是一直在看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 28189#       发表于 2021-1-5 12:34
+
+
+
+
+为什么阿希会有这么多sc呢，她去彩虹会有这么多吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28190#       发表于 2021-1-5 12:43
+
+
+
+
+希望晚上大家都去看看可爱电竞女孩的生日凸待<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28191#       发表于 2021-1-5 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">越发觉得ccll才是国内管人的最终形态和努力目标，虹忙着主流进出，费力不讨好。猴楼德不配位，靠着低下的演技胡弄人。
+
+我们看向ccll，liver高质，联动优秀，再加上b站这个优质平台，直播一呼百应，氛围良好。不播也能借助国内最优质的舆论平台，管人圈的耶路撒冷nga持续宣传，无形扩圈。赤皇几天不播虽有杏奴残党造谣生事，但无碍大局。反观虹杏不能抓住nga舆论环境，在b站举步维艰甚至出局，放弃了广阔的cn蓝海市场，实在为人耻笑。
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 28192#       发表于 2021-1-5 13:51
+
+
+
+
+我急了，手机电脑全砸了，本来就有抑郁症的我，被精日粉丝说是ccll粉丝，我真的恼羞成怒了，仿佛被看穿了，躲在网络背后的我，这种感觉真的好难受，我被看穿的死死地，短短的ccll四个字，我伪装出来的所有的坚强和强颜欢笑全都崩塌了，成了一个被人笑话的小丑，我真的不想再故作坚强了，玩心态我输的什么都不剩。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28193#       发表于 2021-1-5 13:54
+
+
+
+
+怎么又开始整这种烂梗了，ccll又出什么事了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28194#       发表于 2021-1-5 14:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 【福袋開封配信】50万円の遊戯王福袋を買ったら同期が対抗してきました【にじさんじ/加賀美ハヤト/夜見れな】
+
+
+你虹这种无私的人这么多，观众打钱不是多余阿，
+
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 28195#       发表于 2021-1-5 14:01
+
+
+
+
+我哪知道傻屌坛友搞什么jb
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 28196#       发表于 2021-1-5 14:04
+
+
+
+
+楼友精神分裂有点恐怖滴
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 28197#       发表于 2021-1-5 14:08
+
+
+
+
+散装ccll个人意志凌驾于集体不可控，戏码不会少<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28198#       发表于 2021-1-5 14:18
+
+
+
+
+小红最近鸽直播的理由过于丰富
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28199#       发表于 2021-1-5 14:39
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gmct9z0eurj20w20k1q6c.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28200#       发表于 2021-1-5 15:08
+
+
+
+
+2434马车杯和木口马车杯的区别：
+
+2434马车杯悬念在于谁夺冠，木口马车杯悬念在于谁垫底。
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 28201#       发表于 2021-1-5 15:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">游戏部以后也要安心搞音乐了吗
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 28202#       发表于 2021-1-5 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944710&amp;ptid=1969498" target="_blank">秋月孝三 发表于 2021-1-5 15:08</a>
+
+2434马车杯和木口马车杯的区别：
+
+2434马车杯悬念在于谁夺冠，木口马车杯悬念在于谁垫底。 ...</blockquote>
+holo的最大悬念在于谁哭
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28203#       发表于 2021-1-5 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944710&amp;ptid=1969498" target="_blank">秋月孝三 发表于 2021-1-5 15:08</a>
+
+2434马车杯和木口马车杯的区别：
+
+2434马车杯悬念在于谁夺冠，木口马车杯悬念在于谁垫底。 ...</blockquote>
+不，在于谁哭。
+
+
+
+
+
+
+
+-----
+
+####  脑瘫辅助  
+##### 28204#       发表于 2021-1-5 15:25
+
+
+
+
+小红最近三连休，泥哥要坐不住了
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28205#       发表于 2021-1-5 15:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁哭还有悬念的吗！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28206#       发表于 2021-1-5 15:37
+
+
+
+<img src="https://p.sda1.dev/0/27ced0aeb6349f6fbb4535b2e1e099d2/IMG_CMP_247158732.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 28207#       发表于 2021-1-5 15:45
+
+
+
+
+这就是新时代官人观众吗 太强了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28208#       发表于 2021-1-5 15:52
+
+
+
+
+夜见也太富了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28209#       发表于 2021-1-5 15:53
+
+
+
+
+我觉得以后确实不用给夜见打sc了，反正我肯定是不能抬手就氪20w的
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 28210#       发表于 2021-1-5 15:53
+
+
+
+
+字幕组是编了个感冒没和小小红对口供？
+
+
+
+
+
+         
