@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 20:24** 
+> ## **本文件最后更新于2021-01-06 16:22** 
 
 
 
@@ -21620,10 +21620,11 @@ new了只有士郎 火组长  4把士郎刀qnm
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 黄昏的轮回| + 1|好评加鹅|
 | DDWarrior| + 1|好评加鹅|
 | jxzeroga0| + 1|好评加鹅|
 
@@ -22000,4 +22001,621 @@ AK和一期一振是土老王的攻刃基底，这个没有异议
 
 
 
-         
+
+
+-----
+
+####  血色秋叶  
+##### 14706#       发表于 2021-1-4 23:56
+
+
+
+
+抽完卡发现我做不起老王了，看着手里的火光lm，哭了
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 14707#       发表于 2021-1-5 00:29
+
+
+
+
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老王盘是哪个啊，值不值得投资呢
+
+
+
+
+
+
+
+-----
+
+####  山下野人  
+##### 14708#       发表于 2021-1-5 01:28
+
+
+
+<blockquote>purdre 发表于 2021-1-5 00:29
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老 ...</blockquote>
+转老王其实最缺的是属性晶，看看自己缺不缺吧
+
+
+
+
+
+
+
+-----
+
+####  边界循环  
+##### 14709#       发表于 2021-1-5 02:32
+
+
+
+<blockquote>purdre 发表于 2021-1-5 00:29
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老 ...</blockquote>
+最便宜砸一把仇闪一把假闪一把0圈 做个宇宙盘 棒槌和菲力琴都是可选插件 再要砸就砸3把d剑 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14710#       发表于 2021-1-5 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939841&amp;ptid=1158205" target="_blank">purdre 发表于 2021-01-05 00:29:10</a>
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老 ...</blockquote>分几种思路：
+1. 背水宇宙 最便宜用的最多的一种 砸一把仇闪就可以打拳了 后续升级可以砸菲丽琴 零圈 宿无这些 优势是便宜lm投入少 可以猎金 可以打拳撕贡献 劣势是打低压本背水太耗时间
+2.浑身盘 跟火牛刀光路枪一样思路 堆d剑 优势是割草舒服 劣势是lm投入砸钢较多  猎金的话现在倒是有浑身打拳的思路了
+3.必爆盘核心是棒槌 实战因为基本锁定双面老王 只有打团战150之类长期高防本用
+一般只打打拳的话选1就好 最便宜 精进一般是选1+2或者1+3 当然超精进蛤就是我全都要.jpg了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 2|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14711#       发表于 2021-1-5 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941482&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-01-05 09:42:14</a>
+分几种思路：
+1. 背水宇宙 最便宜用的最多的一种 砸一把仇闪就可以打拳了 后续升级可以砸菲丽琴 零圈 宿无 ...</blockquote>说错了 一般选1+3或者2+3
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14712#       发表于 2021-1-5 09:56
+
+
+
+
+礼物箱里的武器转化成杯子的时候能不能一次选多一点
+现在好像一次10把还是20把来着？我大概有3500-4000左右的R,SR武器，点了几次就手酸了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14713#       发表于 2021-1-5 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必爆真心没必要了。双面老王不说，又不能嫖贝FA大巴之类
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 14714#       发表于 2021-1-5 10:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">昨天砸完仇闪宿无呼啦圈后滚去农暗晶的我
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14715#       发表于 2021-1-5 11:46
+
+
+
+
+现在的大巴多则能进来20人，满血放的少也不会太少，嫖贝fa大巴什么的已经无所谓了
+
+土fa刷新猎了几天，一天比一天人多，好时代来临咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  goreen  
+##### 14716#       发表于 2021-1-5 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941482&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-1-5 09:42</a>
+
+分几种思路：
+
+1. 背水宇宙 最便宜用的最多的一种 砸一把仇闪就可以打拳了 后续升级可以砸菲丽琴 零圈 宿无 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">D天凯子竟是我！
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 14717#       发表于 2021-1-5 14:09
+
+
+
+
+宿无只有一把，又不想用黑钢。今天发现我二阶法背水宇宙打个光龙被同样二阶的暗爪盘完爆<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+是不是三阶附魔背水就有救了.jpg
+想一想也不是坏事.jpg
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14718#       发表于 2021-1-5 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有三阶不要玩宇宙，这句话适合任何属性
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14719#       发表于 2021-1-5 15:00
+
+
+
+
+现在大巴环境和其他日常都是浑身有利，但是暗背水又不能少，所以要么老王两开花，要么老王和方阵一个背水一个浑身，总之精进暗的话123都不能少了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 14720#       发表于 2021-1-5 16:38
+
+
+
+
+仔細一看 除了石油武器 我土老王封頂了
+
+砸完最新的金騎跟涼鞋的武器 我還剩下足夠的黑鋼砸4把LM
+
+
+火風光三屬性老王的材料都齊了 不知道砸那個屬性好
+
+火還有原本就砸滿的3把火牛刀
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14721#       发表于 2021-1-5 17:19
+
+
+
+ 本帖最后由 areklose 于 2021-1-5 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945596&amp;ptid=1158205" target="_blank">Niu 发表于 2021-1-5 16:38</a>
+
+仔細一看 除了石油武器 我土老王封頂了
+
+砸完最新的金騎跟涼鞋的武器 我還剩下足夠的黑鋼砸4把LM</blockquote>
+光 除非你已经农了炎柱，光老王体验比光方好很多。甚至不用农恶心的炎柱
+
+
+
+
+
+
+
+-----
+
+####  血色秋叶  
+##### 14722#       发表于 2021-1-5 20:24
+
+
+
+
+光方2炎柱，两把法都做了，现在光火凯子二选一
+不知道选什么，最后剩下一个也会去农金做完
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14723#       发表于 2021-1-5 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49948110&amp;ptid=1158205" target="_blank">血色秋叶 发表于 2021-1-5 20:24</a>
+
+光方2炎柱，两把法都做了，现在光火凯子二选一
+
+不知道选什么，最后剩下一个也会去农金做完</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正都要做完了，先做光打光团爽一下呗
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14724#       发表于 2021-1-6 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">想问一下，我目前101级，准备把暗蛤做成比较能打的盘子（比如可以solo光活动本boss），目前盘子里只有三闪一椰子一六道枪，然后塞了两个之前送的20技爪子，就不知道放什么好了……
+目前手里有0妈圈，但感觉喂不到150级；也塞了巴武U武拉血量，但感觉这些最终都是会淘汰的……
+所以现在120之前还有什么能做的能刷的么，在我有这些武器的条件下应该首先来哪个C4职业比较适合暗蛤？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pzk  
+##### 14725#       发表于 2021-1-6 10:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">新人无脑选伐木工（兽王）
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 14726#       发表于 2021-1-6 11:29
+
+
+
+ 本帖最后由 凌云三才 于 2021-1-6 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952244&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 09:55</a>
+
+想问一下，我目前101级，准备把暗**做成比较能打的盘子（比如可以solo光活动本boss），目前盘子里只 ...</blockquote>
+麒麟弓，武勋有富裕的话换狗铳
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14727#       发表于 2021-1-6 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952244&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 09:55</a>
+
+想问一下，我目前101级，准备把暗**做成比较能打的盘子（比如可以solo光活动本boss），目前盘子里只 ...</blockquote>
+你这只能背水**？不过现在多仇闪的盘基本很少见了 连传统优势项目大巴都因为副本调整和土老王的加入 没那么大优势了 现在仇闪最多砸一把 椰子日常也用不上 
+
+真铁了心走老王 建议一边踢罐子练级一边自发暗大马之类 把几个好用的免费插件 麒麟弓 大马斧 大马杖之类累积到手 往宇宙方向走u武和巴武因为老王一般都普刃溢出了 没啥必要
+
+C4职业无脑选兽王 后面盘子起来了多一个武僧 
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14728#       发表于 2021-1-6 12:32
+
+
+
+
+在safari上完很容易就logout，要回登陆页面点数据连携正常吗
+
+
+
+
+
+
+
+-----
+
+####  Tzzt  
+##### 14729#       发表于 2021-1-6 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954169&amp;ptid=1158205" target="_blank">Aureth 发表于 2021-1-6 12:32</a>
+在safari上完很容易就logout，要回登陆页面点数据连携正常吗</blockquote>
+发推了 官方的锅 2点维护
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14730#       发表于 2021-1-6 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954332&amp;ptid=1158205" target="_blank">Tzzt 发表于 2021-1-6 12:47</a>
+
+发推了 官方的锅 2点维护
+
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 S1Next-鹅版 v ...</blockquote>
+今天确实很异常，但平时也有切一下标签页回来就要重新登陆点情况。。。
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14731#       发表于 2021-1-6 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953626&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-01-06 11:47:41</a>
+你这只能背水**？不过现在多仇闪的盘基本很少见了 连传统优势项目大巴都因为副本调整和土老王的加入 没那 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">感谢！
+不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？
+现在有什么比较推荐做的职业武器么，以前做的是义贼专武，不知道现在哪种职业武器用的比较多
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 14732#       发表于 2021-1-6 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954415&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 12:56</a>
+
+感谢！
+
+不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？
+
+现在有什 ...</blockquote>
+现在用的最多的多半是全属性双剑和风武僧的棒槌 罗宾汉的弓也还行
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 14733#       发表于 2021-1-6 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941623&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-5 09:56</a>
+礼物箱里的武器转化成杯子的时候能不能一次选多一点
+现在好像一次10把还是20把来着？我大概有3500-4000左右 ...</blockquote>
+20，禮物箱一下子就淨空了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14734#       发表于 2021-1-6 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954415&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 12:56</a>
+
+感谢！
+
+不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？
+
+现在有什 ...</blockquote>
+兽王不需要职业武器，不过开C4和EX2职业记得是起码做一把职武？具体流程有点忘了 要做职武的话C4 双剑（全属性都有用） C4 武僧（风用的比较多） Ex2剑豪（水土用的多，不过现在都是时代的眼泪了） Ex2处刑者（高难solo限定，后期才有用） 随便做一把就行了
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 14735#       发表于 2021-1-6 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954415&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 12:56</a>
+ 感谢！ 不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？ 现在有什 ...</blockquote>
+暗兽王最强是菲利琴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
