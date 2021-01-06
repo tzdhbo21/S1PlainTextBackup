@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-06 00:05** 
+> ## **本文件最后更新于2021-01-06 14:05** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_K11R0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_bTtvt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21158,8 +21158,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_w2nXH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_XGxBx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_yGgGw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_f69TR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -24470,10 +24470,11 @@ smc这三个也太有钱了<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
- 参与人数 7战斗力 -2
+ 参与人数 8战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mr.shelter| + 1|回血|
 | carfisher|-1||
 | 在海岸|-2|傻逼|
 | admentus| + 1|欢乐多|
@@ -27345,4 +27346,659 @@ VtubeStudioとFacerigの比較です
 
 
 
-    
+
+
+-----
+
+####  rzrbtk  
+##### 28372#       发表于 2021-1-6 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49950129&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-5 23:53</a>
+其实就是半年啦，smc的组合服从征集到发布也是半年，应该就是这种公开招募的标准周期 ...</blockquote>
+周期好长，征集到决定到公布到制作到成品公开，搞件衣服好难，
+要是有坏女人不愿意公开，公开了就跑，跟画师关系不好干脆不要，画师降板，那就更难了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28373#       发表于 2021-1-6 00:16
+
+
+
+
+bora要新衣服了，2月
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28374#       发表于 2021-1-6 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 某个喜欢新皮的某人已经8个月没皮了，怕不是和亲妈后妈决裂，能不能在第二套3D发布前一天引退阿，
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 28375#       发表于 2021-1-6 00:26
+
+
+
+
+最近2000提葛叶次数这么多是因为他夺了阿葵订阅第二的位置吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl感觉阿葵后面也不是没有可能再回到第二，按照今天这样
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28376#       发表于 2021-1-6 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949909&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-5 23:25</a>
+在带高级起泡按摩浴池中的酒店约会也不错啊，好想郡道快点结婚啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28377#       发表于 2021-1-6 01:38
+
+
+
+
+熊猫组这个楚歌楚歌真是给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 28378#       发表于 2021-1-6 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">2k被葛叶整破防了
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28379#       发表于 2021-1-6 09:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">服了，露露会限还在玩跳王
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 28380#       发表于 2021-1-6 10:06
+
+
+
+ 本帖最后由 凯文夏特 于 2021-1-6 11:25 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28381#       发表于 2021-1-6 10:14
+
+
+
+
+鲨皇要开大表哥2了啊
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 28382#       发表于 2021-1-6 10:27
+
+
+
+
+大表哥2用于直播的成绩如何？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28383#       发表于 2021-1-6 10:44
+
+
+
+
+大表哥2这游戏得婆罗门玩才有味道，鲨皇吹不出来啥。
+
+当然婆罗门品游戏狗都不看，鲨皇播啥都可爱，pink了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28384#       发表于 2021-1-6 10:51
+
+
+
+
+播3A RPG最大的风险就是首播数字差怎么办，直接剁了不好看，头铁播下去沉没成本太大。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28385#       发表于 2021-1-6 10:54
+
+
+
+
+播大表哥真的有人看吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28386#       发表于 2021-1-6 10:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 数字差不想播，理由可太多了，包括但不限于：身体不适、电脑出问题、主机出问题、手柄出问题、宠物生病】
+
+
+反正撒谎和吃饭一样
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 28387#       发表于 2021-1-6 10:56
+
+
+
+
+当初ame的巫师3好像也没播完吧
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 28388#       发表于 2021-1-6 10:59
+
+
+
+
+说要播又不是说要播完，管人太监行为不要更多
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28389#       发表于 2021-1-6 11:02
+
+
+
+
+不过鲨皇只要还肯呆在hololive就算完成kpi了，你运营是敢指手画脚还是怎样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 28390#       发表于 2021-1-6 11:26
+
+
+
+ 本帖最后由 holoan 于 2021-1-6 11:34 编辑 
+
+自分のペースが一番大事だ余
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28391#       发表于 2021-1-6 11:28
+
+
+
+
+一三五表妹奶奶侄子，二四六自己鹦鹉爷爷，周末当然是陪男友！
+
+反正只要直播和观众说，我是不努力派，不想播，要道歉的人，你不会生病吗，不养鸟吗，不会有事吗，就行了呢。
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 28392#       发表于 2021-1-6 11:28
+
+
+
+ 本帖最后由 凯文夏特 于 2021-1-6 11:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953020&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-6 11:02</a>
+
+不过鲨皇只要还肯呆在hololive就算完成kpi了，你运营是敢指手画脚还是怎样 ...</blockquote>
+下个月就是出道半年了  鲨皇不出3d化  holo必被炎上<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28393#       发表于 2021-1-6 11:29
+
+
+
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 28394#       发表于 2021-1-6 11:33
+
+
+
+
+en比五期晚出道一个月，3d也应该在五期3d后一个月，很合理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28395#       发表于 2021-1-6 11:39
+
+
+
+
+半年3d，这就是holo速度么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 28396#       发表于 2021-1-6 11:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">事到如今，还有🦄萌萌人吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28397#       发表于 2021-1-6 11:48
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-6 11:50 编辑 
+
+有一说一，从HCN后来的情况看，至少海外分社的3D都是准备配上的。问题是HCN一则成员都在一个国家，二则（没爆炸之前）地头蛇叔叔有能力提供器材场地啥的支援。而ID虽然6个人也在一个国家但是本地没有一个B站体量的合作方，EN就更麻烦了，5个人在3个国家不说现在这个互相不让入境的情况不知道要持续多久，总不见得真让takamori先3D吧，这不被冲死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+SYL：
+
+之前鲨皇做菜背景音露男声一点节奏都没有，白皮🦄不行啊。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28398#       发表于 2021-1-6 11:57
+
+
+
+<blockquote>IDIDIDID 发表于 2021-1-6 11:48
+有一说一，从HCN后来的情况看，至少海外分社的3D都是准备配上的。问题是HCN一则成员都在一个国家，二则（没 ...</blockquote>
+女主播有男友怎么了，等自称偶像了再冲她
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28399#       发表于 2021-1-6 11:58
+
+
+
+
+4id云尼玛呢 hcn啥时候一个国家了 白蒜头在国内？
+
+
+
+
+
+
+
+-----
+
+####  浅仓透  
+##### 28400#       发表于 2021-1-6 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">请问土包子死肥宅（鄙人）如何才能与ema这样的霓虹小太妹产生交集
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28401#       发表于 2021-1-6 12:07
+
+
+
+
+管人相关：
+
+
+セガ『サクラ革命』爆死＆大炎上の“納得の理由”？開発費30億円超、売上7千万円か
+[https://biz-journal.jp/2021/01/post_200847.html](https://biz-journal.jp/2021/01/post_200847.html)
+ <blockquote>「現在、スマホゲーム界隈で新規タイトルの参入はかなり厳しい情勢です。<strong>中国産の高品質なタイトルも多数リリースされています。</strong>それらに勝っていくには、プレイステーションなどの据え置き機ソフト並みのクオリティーが必要です。<strong>それができなければ早晩、日本のスマホゲーム市場は中国メーカーに占められると思います。</strong></blockquote>
+
+
+樱战暴死，中国手游越来越强。
+
+虹赢两次，杏输两次。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|tskknmsl|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28402#       发表于 2021-1-6 12:14
+
+
+
+
+就该干死日本这群辣鸡手游厂商<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 28403#       发表于 2021-1-6 12:16
+
+
+
+ 本帖最后由 凯文夏特 于 2021-1-6 13:31 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 28404#       发表于 2021-1-6 12:18
+
+
+
+
+cy的还是有创意的，只不过策划也很屎
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28405#       发表于 2021-1-6 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953849&amp;ptid=1969498" target="_blank">浅仓透 发表于 2021-1-6 12:05</a>
+
+请问土包子死肥宅（鄙人）如何才能与ema这样的霓虹小太妹产生交集</blockquote>
+建议去ins看一下misumi有多韩系小奶狗，别想了。
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 28406#       发表于 2021-1-6 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953849&amp;ptid=1969498" target="_blank">浅仓透 发表于 2021-1-6 12:05</a>
+
+请问土包子死肥宅（鄙人）如何才能与ema这样的霓虹小太妹产生交集</blockquote>
+建议看几张无p图的ema照片冷静一下！！！<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28407#       发表于 2021-1-6 12:32
+
+
+
+
+misumi长得像年轻版大蛇丸，不如祈祷下辈子变成她家猫<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">。
+郡道也有自觉自己apex过量啊，就这破样做梦也别想赢，多井pro鸦天狗天开司siosio谁都好快来揍她啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 28408#       发表于 2021-1-6 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953363&amp;ptid=1969498" target="_blank">凯文夏特 发表于 2021-1-6 11:28</a>
+
+下个月就是出道半年了  鲨皇不出3d化  holo必被炎上</blockquote>
+按照这个速度，300万估计也没3d。
+
+
+
+
+
+   
