@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-07 02:05** 
+> ## **本文件最后更新于2021-01-07 22:05** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_zMku7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_uhNku" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20534,4 +20534,466 @@ echo又要来力（bml之后就没练过了
 
 
 
-           
+
+
+-----
+
+####  Mikumiku831  
+##### 7146#       发表于 2021-1-7 09:49
+
+
+
+
+完全没唱开的感觉
+
+另外感觉过完年声音真的变的肥了好多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7147#       发表于 2021-1-7 09:55
+
+
+
+
+已经是肥的走不动道的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7148#       发表于 2021-1-7 09:58
+
+
+
+
+坦克升级了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7149#       发表于 2021-1-7 15:22
+
+
+
+
+麻了 楼友不会全跑去nga了吧 怎么那边也麻起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7150#       发表于 2021-1-7 16:25
+
+
+
+
+明明是裸奔的巨魔还要装出一副穿着西装的样子<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7151#       发表于 2021-1-7 16:42
+
+
+
+
+NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新时代共情团结起来打V8的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 7152#       发表于 2021-1-7 16:57
+
+
+
+
+只求自己家里不被打进来
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7153#       发表于 2021-1-7 17:14
+
+
+
+
+不被新时代人进楼拉屎拉尿已经阿弥陀佛了，还有人整天撩拨的也是弱智得不行
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7154#       发表于 2021-1-7 17:18
+
+
+
+
+那人都被m楼喷了 那边也讨厌新时代人的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7155#       发表于 2021-1-7 17:20
+
+
+
+
+是好事，有唱白脸的也要有唱红脸的，又不是只有毒唯是粉，贴贴人和所谓dd也是粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7156#       发表于 2021-1-7 17:42
+
+
+
+
+新推，谢谢你 黄兔子
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7157#       发表于 2021-1-7 17:50
+
+
+
+
+这次应该开台的吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7158#       发表于 2021-1-7 17:53
+
+
+
+
+我赌五毛不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7159#       发表于 2021-1-7 18:02
+
+
+
+
+放那么多立绘很累的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7160#       发表于 2021-1-7 18:43
+
+
+
+
+不会又要嗯奶如月吧<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7161#       发表于 2021-1-7 19:08
+
+
+
+
+再奶也不如百合营业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+《希望如月能早日开窍》
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 7162#       发表于 2021-1-7 19:38
+
+
+
+
+不真百合不看的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7163#       发表于 2021-1-7 19:41
+
+
+
+
+暗示麻凜是真的，深柜麻suki<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7164#       发表于 2021-1-7 19:42
+
+
+
+
+百合是不会给麻带来快乐的,不如对着帅哥fq
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7165#       发表于 2021-1-7 19:46
+
+
+
+
+真的不快乐么？楼友就不要骗自己了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+光一个330就不知道秒多少人好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7166#       发表于 2021-1-7 19:48
+
+
+
+
+那是真的快乐，叔叔都差点把小麻的皮扒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7167#       发表于 2021-1-7 20:08
+
+
+
+
+有开台
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7168#       发表于 2021-1-7 20:08
+
+
+
+
+居然开台了，真少见啊
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7169#       发表于 2021-1-7 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">假百合，狗都不看
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7170#       发表于 2021-1-7 21:00
+
+
+
+
+这个あにおじ组啥意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7171#       发表于 2021-1-7 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这伊东xswl
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 7172#       发表于 2021-1-7 21:44
+
+
+
+ 本帖最后由 DDWarrior 于 2021-1-7 21:46 编辑 
+
+あに：指anmr
+
+おじ：指大叔
+
+众所周知，这次联动的参与者里面，四个来自anmr，四个是大叔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+          
