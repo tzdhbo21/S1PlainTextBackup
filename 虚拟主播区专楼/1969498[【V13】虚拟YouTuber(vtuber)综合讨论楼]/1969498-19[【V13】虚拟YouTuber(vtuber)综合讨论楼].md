@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-06 14:05** 
+> ## **本文件最后更新于2021-01-07 16:03** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_bTtvt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_d1aM9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21158,8 +21158,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_yGgGw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_f69TR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_KRMzW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_N8K2Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -24470,10 +24470,11 @@ smc这三个也太有钱了<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
- 参与人数 8战斗力 -1
+ 参与人数 9战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 2L模仿47哥| + 1|欢乐多|
 | Mr.shelter| + 1|回血|
 | carfisher|-1||
 | 在海岸|-2|傻逼|
@@ -28001,4 +28002,1303 @@ misumi长得像年轻版大蛇丸，不如祈祷下辈子变成她家猫<img src
 
 
 
-   
+
+
+-----
+
+####  十四洲  
+##### 28409#       发表于 2021-1-6 14:37
+
+
+
+
+草随便点进一个真人女主播的直播间结果发现旁边放着露露的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 28410#       发表于 2021-1-6 16:28
+
+
+
+
+不知道v综天天逮着别人喷杏奴的几个老哥还在吗，是不是该回尼哥一人开多个号喷，尼哥冲蝗人不演了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 28411#       发表于 2021-1-6 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28412#       发表于 2021-1-6 17:02
+
+
+
+
+是不是又出翻页bug了？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28413#       发表于 2021-1-6 17:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/06/170530ki705h0duq742q0d.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210106170515.png</strong> (323.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-6 17:05 上传
+
+
+
+
+
+
+对外联络周
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28414#       发表于 2021-1-6 17:16
+
+
+
+
+这个组合也挺有意思的，口吃神拉人的话，和德龙家主都是老朋友了，和nene怎么搭上关系的呢，联想到口吃神以前也当过声优，是那时候认识的？
+
+
+省一楼，游戏区新帖
+[https://bbs.saraba1st.com/2b/thread-1981495-1-1.html](https://bbs.saraba1st.com/2b/thread-1981495-1-1.html)
+
+世嘉赌社运失败？30亿日元开发的手游超绝大爆死
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 28415#       发表于 2021-1-6 17:31
+
+
+
+
+首月流水7000W日元也太惨了吧，解神者好像都没这么惨
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28416#       发表于 2021-1-6 17:38
+
+
+
+
+这几个人里会炒气氛的就一个大头，还经常用力过度。阿鼻地狱预定了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28417#       发表于 2021-1-6 17:47
+
+
+
+
+郡道打得好像比我想得要好诶，
+不过到比赛那天估计就继续点炮被飞了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，什么时候才会好起来呢
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28418#       发表于 2021-1-6 17:50
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-6 17:47
+郡道打得好像比我想得要好诶，
+
+不过到比赛那天估计就继续点炮被飞了，什么时候才会好起来呢 ...</blockquote>
+上届郡道那组记得打的挺胶着的啊，好像是阿喵喵险胜晋级？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28419#       发表于 2021-1-6 17:56
+
+
+
+
+slee.要开live了还行。。。这企划就硬撑着
+我一直想虹人看待slee这个企划是不是和我们看星的感觉差不多
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28420#       发表于 2021-1-6 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957218&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-6 17:50</a>
+上届郡道那组记得打的挺胶着的啊，好像是阿喵喵险胜晋级？</blockquote>
+当时大家都比较低水平，唯一强者哈哥又发挥失常，最后啊喵喵低分晋级这样，
+今晚就复刻当时的i桌了，不知道会打成怎样，nrk不知道，哈哥拜师鸦天狗，啊喵喵郡道都有特化过，说不定会是高水平对局啊
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 28421#       发表于 2021-1-6 17:59
+
+
+
+
+今天东京确诊破1500了，虹fes，凋零<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 28422#       发表于 2021-1-6 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957264&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-6 17:56</a>
+slee.要开live了还行。。。这企划就硬撑着
+我一直想虹人看待slee这个企划是不是和我们看星的感觉差不多</blockquote>
+绝大部分都没看，哪来看待一说
+
+更别说至今为止除了ako（小红）以外根本没人搭理slee，不关注ickr公司号你完全不会收到任何有关slee的消息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28423#       发表于 2021-1-6 18:03
+
+
+
+
+虹人都是扎疫苗的现充  ，  肯定没问题的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28424#       发表于 2021-1-6 18:04
+
+
+
+[https://twitter.com/SLEE_official/status/1346750857463869440](https://twitter.com/SLEE_official/status/1346750857463869440)
+
+火SLEE単独ライブ火
+
+「SLEE First Live 2021」開催決定！！
+
+
+【日時】2021年3月6日(土)
+
+【開演】昼公演15:30/夜公演19:00
+
+
+オリジナル曲・MVも絶賛制作中！
+
+ライブに関する追加情報はSLEE公式アカウントより順次公開予定です。
+
+
+<img src="https://img.saraba1st.com/forum/202101/06/180417hj0b2520zi82p052.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (495.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-6 18:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28425#       发表于 2021-1-6 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957351&amp;ptid=1969498" target="_blank">free 发表于 2021-1-6 18:04</a>
+
+https://twitter.com/SLEE_official/status/1346750857463869440
+
+火SLEE単独ライブ火
+
+「SLEE First Live 20 ...</blockquote>
+火SLEE単独ライブ火
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28426#       发表于 2021-1-6 18:07
+
+
+
+
+感觉像是偷了nene的正月新衣服…
+不知道ickr搞真人live水平如何，能不能气气露脸女歌手啊（玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28427#       发表于 2021-1-6 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957312&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2021-1-6 18:00</a>
+绝大部分都没看，哪来看待一说
+
+更别说至今为止除了ako（小红）以外根本没人搭理slee，不关注ickr公司号 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 其实本社大部分人也完全不搭理星，之前那个巧克力混在一起抽抽到星男的人基本都完全叫不出名字，因为完全不认识，不过这样看cover还把巧克力抽选里加了星真是非常司马了。我问的本意还是一种“田角/yagoo你把钱花到这种企划上了么”的感觉
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28428#       发表于 2021-1-6 18:35
+
+
+
+
+slee估计没怎么花ickr的钱
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28429#       发表于 2021-1-6 18:41
+
+
+
+
+【APEX × SteelSeries】いま話題の最強ゲーミングヘッドセットで優勝します【不破湊 / ラトナ・プティ / にじさんじ】 [https://youtu.be/VW1b3rKUjCI](https://youtu.be/VW1b3rKUjCI) 
+
+@YouTube
+
+より
+
+
+1月6日20時から！
+
+なんとSteel series様のゲーミングヘッドセットのPR配信をぷてちと一緒にします！
+
+APEXで優勝するのでお楽しみに！！
+
+
+好耶，釜山和不破线下工商，有**头要硬了
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 28430#       发表于 2021-1-6 18:43
+
+
+
+
+Slee给阿花拍过百物语真人预告的，但完全不会蹭热度，哪怕吸上十个观众也不会现在这样十几同接
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28431#       发表于 2021-1-6 18:46
+
+
+
+ 本帖最后由 poipanchao 于 2021-1-6 18:50 编辑 
+
+虹人除了自推和自推关系网内的，别的本社liver都不太关心，哪里还会在乎slee……
+
+不信你问楼里虹人谁能完整的说出尼哥，甚至芙莲、石油的全名
+顺便五色战队的全名我都没信心全说对
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28432#       发表于 2021-1-6 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">朝日南茜又是去搞打榜，又是和slee联动，我觉得她应该去slee投简历比较合适
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28433#       发表于 2021-1-6 18:58
+
+
+
+[https://www.goodsmile.info/zh/po ... 85%AC%E5%91%8A.html](https://www.goodsmile.info/zh/post/5273/Luminous+Box%E5%95%86%E5%93%81+%E7%99%BD%E4%B8%8A%E5%90%B9%E9%9B%AA+%E5%81%9C%E6%AD%A2%E7%99%BC%E5%94%AE%E8%87%B4%E6%AD%89%E5%85%AC%E5%91%8A.html)
+
+
+应该是厂家自我规避<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28434#       发表于 2021-1-6 19:02
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gme6hakf8tj20z00lcjvp.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/9bH070Kw-OU](https://youtu.be/9bH070Kw-OU)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28435#       发表于 2021-1-6 19:10
+
+
+
+
+三世的声音每次听都要出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+明明是胡子大叔
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28436#       发表于 2021-1-6 19:18
+
+
+
+
+【キス部】最協決定戦参戦権利争奪戦【WIN】
+[https://www.youtube.com/watch?v=qgkavLXt_OY](https://www.youtube.com/watch?v=qgkavLXt_OY)
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 28437#       发表于 2021-1-6 19:50
+
+
+
+ 本帖最后由 pansherry 于 2021-1-6 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957842&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-1-6 19:02</a>
+[https://youtu.be/9bH070Kw-OU](https://youtu.be/9bH070Kw-OU)</blockquote>
+《无限列车篇》<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+→《无限决斗篇》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28438#       发表于 2021-1-6 20:05
+
+
+
+[https://automaton-media.com/articles/newsjp/20210106-148309/](https://automaton-media.com/articles/newsjp/20210106-148309/)
+
+【ニュース】カプコン、同社のゲーム動画配信における「個人投稿者」の収益化を許可。個人向けガイドラインを更新し投稿ルールなどを明確化 <blockquote>カプコンは1月6日、同社のゲーム・アプリを使用した動画配信などについての、個人ユーザー向けの公式ガイドラインを公開した。同社はこれまでにもゲーム配信にあたってのガイドラインを公開していたが、投稿の可否についてより詳細に規定し、また一部基準に変更を加えている。</blockquote>
+<img src="https://i.loli.net/2021/01/06/gpP4OxYQuUjfBV9.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2021/01/06/KZTGX3fcV97gHsR.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 28439#       发表于 2021-1-6 20:15
+
+
+
+ 本帖最后由 面具13 于 2021-1-6 21:39 编辑 
+
+卡普空的意思是官号不能播，企业势下面的单个人的youtube频道除了会限外都能开收益播？
+
+看串行了。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 28440#       发表于 2021-1-6 20:28
+
+
+
+
+这条件放宽……mhr要找管人工商了?<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28441#       发表于 2021-1-6 20:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> mh这游戏如果菜，真的是纯负面宣传吧
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28442#       发表于 2021-1-6 20:31
+
+
+
+
+没关系，mh这游戏开播后捏一个半小时人，对着猫狗大喊卡哇伊，蹭到热度就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 28443#       发表于 2021-1-6 20:39
+
+
+
+
+上面说的是个人向，企业势不属于在内吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28444#       发表于 2021-1-6 20:41
+
+
+
+<blockquote>■個人のお客様（動画配信に関して企業との<strong>契約・かかわりがない</strong>、芸能事務所・プロダクション等へ<strong>所属していない</strong>個人や団体）
+
+
+弊社公式のガイドラインに沿った内容であれば可能です。</blockquote>
+第一行就写了，显然企业势不算啊
+ <blockquote>■法人のお客様（<strong>企業と契約して</strong>動画配信をしている個人や、芸能事務所・プロダクション等へ所属している個人を含む）
+
+
+法人での使用については、お手数をお掛けいたしますが、下記サイトにてご確認をお願いいたします。
+
+
+　→　ライセンスビジネスサイト　</blockquote>
+企业势请老老实实去跟卡婊谈授权条件
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28445#       发表于 2021-1-6 20:44
+
+
+
+<img src="https://i.loli.net/2021/01/06/6Hz25riZCELqVwh.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28446#       发表于 2021-1-6 20:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/06/204414pb6zdzhgkbf4zvk3.png" referrerpolicy="no-referrer">
+
+
+<strong>【じゃんたま】ジャーマンポテイトシーズン2【E、メリッサ】.png</strong> (604.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-6 20:44 上传
+
+
+
+
+
+
+·E·这身还挺配她的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 28447#       发表于 2021-1-6 20:59
+
+
+
+
+Mhr整了这么多新的随从互动，撸猫撸狗的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+希望阿祭不要玩，不然我血压可能会高的当场退管<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28448#       发表于 2021-1-6 21:01
+
+
+
+ 本帖最后由 Ketestrait 于 2021-1-6 21:02 编辑 
+<blockquote>政府 緊急事態宣言の期限を<strong>2月7日まで</strong>とする方針固める TBS報道</blockquote>
+田角&amp;谷乡：首相英明！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28449#       发表于 2021-1-6 21:04
+
+
+
+
+这下皆大欢喜
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28450#       发表于 2021-1-6 21:07
+
+
+
+
+你日这吊样这能抑制住就有鬼了好吧，反正今年又是管人红利的一年。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28451#       发表于 2021-1-6 21:08
+
+
+
+
+疫苗马上就出来了啊
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28452#       发表于 2021-1-6 22:01
+
+
+
+
+疫苗出来和普及是两回事<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28453#       发表于 2021-1-6 22:19
+
+
+
+<img src="https://i.loli.net/2021/01/06/zNlqoHiZk7cOhAV.jpg" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=lXqCyYy1LYg](https://www.youtube.com/watch?v=lXqCyYy1LYg)
+
+名取さなの超!!霊験アラタカ～な新年初配信
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 28454#       发表于 2021-1-6 22:22
+
+
+
+
+陰キャ営業とか言ってるガチの陰キャおって草、社会人として最低限必要に決まってんだろ
+
+
+陰キャと社会不適合者を一緒にしたらあかん
+
+
+みんな陰キャ営業楽しんでるのに自分だけ見抜いてますは恥ずかしいよ
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28455#       发表于 2021-1-6 22:34
+
+
+
+
+郡道自己拉的I桌，哪来的胆子啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，
+
+这四个人用的都不是抽卡角色，看来都是有在玩，在麻将杯里还蛮不错的啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28456#       发表于 2021-1-6 23:38
+
+
+
+
+下周大概就出不了数字了
+
+
+<img src="https://img.saraba1st.com/forum/202101/06/233808wrvp3razvvb0ckrr.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (12.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-6 23:38 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/06/233818c4s5vko5hhqfwc2w.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (17.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-6 23:38 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28457#       发表于 2021-1-7 00:13
+
+
+
+[https://twitter.com/wait_ar/status/1346845483554074632](https://twitter.com/wait_ar/status/1346845483554074632)
+
+<img src="https://img.saraba1st.com/forum/202101/07/001338wxlgi24ql5z2evbn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErD0yUWVkAAS4nl.jpg</strong> (331.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 00:13 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 28458#       发表于 2021-1-7 01:17
+
+
+
+
+阿叶玩黑色幸存者不知道为啥总让我有种他以前玩魔法吃鸡的感觉，今天半夜鹦鹉哥来t台跟他玩补全了最后一块拼图
+
+
+syl 阿叶的英语民还挺乖的，自我出警一套一套的，要求遵守直播间规则，传信鸽和版聊民也okok，感谢提醒，挺和谐，真不错
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 28459#       发表于 2021-1-7 03:09
+
+
+
+
+嗯？2月7日？hh的live不就正好是2月7号吗，说起来田中音乐堂的时候正好霓虹那里第一次发表紧急事态宣言，这就是运气吗，太牛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+百度了一下，确实是2020年2月28日。
+
+笑到。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 28460#       发表于 2021-1-7 04:02
+
+
+
+
+technoblade 85w同接......
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28461#       发表于 2021-1-7 09:36
+
+
+
+
+口吃神和PPH明天都有重大告知
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28462#       发表于 2021-1-7 10:34
+
+
+
+
+大切这个说法在我印象里好像不常见<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 28463#       发表于 2021-1-7 10:37
+
+
+
+
+疫苗美国自己都不够用，说2000万只有300万还只优先医护人员（跟大资本家）……
+
+而且瑞辉冷链-70°C保存，运到德国都不能保证万无一失，再加上欧洲那边毒株突变……
+
+又不是人人都是天朝有免费疫苗打，日本还是继续群体免疫吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28464#       发表于 2021-1-7 10:46
+
+
+
+
+皮真的好好看……（[https://twitter.com/qunqing123/status/1346887097630617600/photo/1](https://twitter.com/qunqing123/status/1346887097630617600/photo/1)）
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/104631echovcoovcydzhtd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0000.jpg</strong> (279.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 10:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 28465#       发表于 2021-1-7 11:07
+
+
+
+
+群青怎么又开始画0了，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会画画真好啊，我也想届到ema女士
+syl今晚还有三马鹿的偶像服
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28466#       发表于 2021-1-7 11:10
+
+
+
+
+子兔音这早间歌回……
+
+是我太久没听了还是我产生错觉了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+签约歌手也能这么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28467#       发表于 2021-1-7 11:25
+
+
+
+
+日本那个到2月7号的自肃100%要继续延长的，希望不要延长到3月吧
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 28468#       发表于 2021-1-7 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49963159&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-1-7 10:37</a>
+
+疫苗美国自己都不够用，说2000万只有300万还只优先医护人员（跟大资本家）……
+
+而且瑞辉冷链-70°C保存，运 ...</blockquote>
+全球都没几个收费的疫苗吧。。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28469#       发表于 2021-1-7 12:20
+
+
+
+
+“虽然我们周五没3D，但我们真的有在干活啦”
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/122018sdjnn66pqpq6p36q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 662 - にじさんじ公式🌈🕒 在 Twitter_ _【 #PrismaticColors3DMV .jpg</strong> (176.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 12:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 28470#       发表于 2021-1-7 13:26
+
+
+
+<blockquote>【ニュース速報】
+
+
+東京の新規感染者2000人超　2日連続で過去最多更新
+
+
+関係者によりますと、7日に東京都が確認した新型コロナウイルスの新たな感染者が初めて2000人を超えることが分かりました。これまでで最も多かった6日の1591人を大幅に上回り、2日連続で過去最多を更新しました。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 28471#       发表于 2021-1-7 14:30
+
+
+
+
+鹿乃和狗妈背后的虚拟艺人公司也太强了，狗妈本来在日本就没啥人气，鹿乃人气这几年本来也流失得飞起。真的靠这波vtuber热潮各种演唱和代言接的飞起，狗妈高速涨粉也是在加入这家公司之后的，运营能力也没话说，甚至还能反哺日本市场
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28472#       发表于 2021-1-7 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 如果狐狸中之人是神乐女士一样的美少女，是不是一切都有挽回的可能
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 28473#       发表于 2021-1-7 15:37
+
+
+
+
+那狐坦就是狗妈的上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鲨皇=狐坦+狗妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+

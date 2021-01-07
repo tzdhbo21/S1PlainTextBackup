@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-06 00:06** 
+> ## **本文件最后更新于2021-01-07 02:05** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_jz5j9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_zMku7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19810,4 +19810,728 @@ syl
 
 
 
-             
+
+
+-----
+
+####  黒長直姫  
+##### 7102#       发表于 2021-1-6 06:54
+
+
+
+
+醒了 没播 暗暗庆幸的同时又有一股淡淡的失落感
+
+
+啊 蟹女人 你为什么那么迷人
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7103#       发表于 2021-1-6 08:37
+
+
+
+ 本帖最后由 Mr.shelter 于 2021-1-6 09:00 编辑 
+
+一早爬起来好累好困，又没有麻 麻看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7104#       发表于 2021-1-6 11:20
+
+
+
+
+麻琪麻 坏女人
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7105#       发表于 2021-1-6 18:42
+
+
+
+
+刚想着她可能睡醒了，她就发推了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7106#       发表于 2021-1-6 19:34
+
+
+
+
+一定是陪酒女的工作太辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7107#       发表于 2021-1-6 21:15
+
+
+
+[https://www.youtube.com/watch?v=h6C-7SMXLRI](https://www.youtube.com/watch?v=h6C-7SMXLRI)
+
+东京23点30播
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7108#       发表于 2021-1-6 21:18
+
+
+
+
+陪酒女的工作来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 大家记得給小费啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7109#       发表于 2021-1-6 22:36
+
+
+
+
+这是抱着一个玻璃杯在播啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7110#       发表于 2021-1-6 22:37
+
+
+
+
+最近网又变差了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+臭女人你到底要说多久的nino啊混蛋（;≥皿≤）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7111#       发表于 2021-1-6 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想去年年初，似乎也是不停的聊舞元
+
+
+（这是一种循环
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7112#       发表于 2021-1-6 22:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7113#       发表于 2021-1-6 22:56
+
+
+
+
+among us = あもあす
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7114#       发表于 2021-1-6 23:02
+
+
+
+
+就嗯混<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7115#       发表于 2021-1-6 23:08
+
+
+
+
+恋爱裁判确实不熟的样子
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7116#       发表于 2021-1-6 23:13
+
+
+
+
+我就想起来这bwl的歌我都没听
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7117#       发表于 2021-1-6 23:14
+
+
+
+
+echo又要来力（bml之后就没练过了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7118#       发表于 2021-1-6 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7119#       发表于 2021-1-6 23:17
+
+
+
+
+靠空耳记歌词的肌肉记忆效果还不错
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7120#       发表于 2021-1-6 23:29
+
+
+
+
+咋捏个嗓子捏这么尖。。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7121#       发表于 2021-1-6 23:30
+
+
+
+
+感觉今天嗓子不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算了她开心就好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7122#       发表于 2021-1-6 23:32
+
+
+
+
+新的沙雕图还行，终于不是每次都是撤硕了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7123#       发表于 2021-1-6 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7124#       发表于 2021-1-6 23:48
+
+
+
+
+跟苔苔合唱的这首。。我字都没打完就翻了草
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 7125#       发表于 2021-1-6 23:51
+
+
+
+
+她唱这首时的声线超好的
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 7126#       发表于 2021-1-6 23:53
+
+
+
+
+怎么感觉过个年回来歌力下降了好多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 7127#       发表于 2021-1-6 23:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">赶上了
+
+终于赶上歌回了
+
+不然一生遗憾
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7128#       发表于 2021-1-6 23:56
+
+
+
+
+因为她唱歌需要开嗓，而且时间要很长
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7129#       发表于 2021-1-6 23:57
+
+
+
+
+这状态能上天乐吗
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7130#       发表于 2021-1-6 23:59
+
+
+
+
+也许是因为真的肥了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7131#       发表于 2021-1-6 23:59
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7132#       发表于 2021-1-7 00:02
+
+
+
+
+天乐还行，嗓子稍微开了一点
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7133#       发表于 2021-1-7 00:03
+
+
+
+
+记忆最深的天乐还是前年我在现场看ti的时候
+
+一边听她唱歌一边看eg第一局吊打og<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+真的爽
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7134#       发表于 2021-1-7 00:15
+
+
+
+
+状态来了
+
+这里表真不错
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7135#       发表于 2021-1-7 00:17
+
+
+
+
+这里表很熟练啊
+
+
+
+
+
+
+
+-----
+
+####  sw11133  
+##### 7136#       发表于 2021-1-7 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">竟然完全唱出来
+
+我无憾了
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7137#       发表于 2021-1-7 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7138#       发表于 2021-1-7 00:21
+
+
+
+
+还是口胡<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7139#       发表于 2021-1-7 00:24
+
+
+
+
+唱的什么jb<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7140#       发表于 2021-1-7 00:24
+
+
+
+
+疯起来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7141#       发表于 2021-1-7 00:25
+
+
+
+
+从天堂到地狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鹅妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7142#       发表于 2021-1-7 00:26
+
+
+
+
+鹅妈妈的熟练度还是差了一点
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7143#       发表于 2021-1-7 00:33
+
+
+
+ 本帖最后由 路人庚 于 2021-1-7 00:35 编辑 
+
+这吵死了唱的真欢乐，还很软
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7144#       发表于 2021-1-7 00:54
+
+
+
+
+溜了溜了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7145#       发表于 2021-1-7 01:09
+
+
+
+
+虽然已经挺晚了，还是有点意犹未尽的感觉
+
+
+
+
+
+           

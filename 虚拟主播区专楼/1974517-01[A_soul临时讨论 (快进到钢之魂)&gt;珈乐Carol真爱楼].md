@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-05 16:13** 
+> ## **本文件最后更新于2021-01-07 00:10** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_eLPnc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_O51j8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -11618,4 +11618,854 @@ as五位我都爱<img src="https://static.saraba1st.com/image/smiley/face2017/07
 
 
 
-                             
+
+
+-----
+
+####  Lucio  
+##### 607#       发表于 2021-1-5 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944372&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-5 14:28</a></blockquote>
+vjuan萨拉热窝事件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 608#       发表于 2021-1-5 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944372&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-5 14:28</a></blockquote>
+这，紧跟时事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 609#       发表于 2021-1-5 17:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945874&amp;ptid=1974517" target="_blank">寒星 发表于 2021-1-5 17:04</a>
+这，紧跟时事啊</blockquote>
+哈哈，层主这截图有毒，原来原评论里的鹦鹉表情bug显示不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">我还以为向晚24小时高强度刷v8呢
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 610#       发表于 2021-1-5 19:49
+
+
+
+
+运营怠惰了，QA也不发了，A soul药丸<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 611#       发表于 2021-1-5 19:55
+
+
+
+<blockquote>EnbuRiAs 发表于 2021-1-5 19:49
+运营怠惰了，QA也不发了，A soul药丸</blockquote>
+别尬黑，可能没人提问题。
+
+今天没直播，十有八九早就下班了
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 612#       发表于 2021-1-5 20:17
+
+
+
+[【A-SOUL制作委员会的每周QA 1.5】](https://www.bilibili.com/read/cv9144571)
+
+<img src="https://img.saraba1st.com/forum/202101/05/201616az8n0lcee7v9lelz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>A.jpg</strong> (94.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 20:16 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/05/201628vc3xl7wzpmv631mv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>B.jpg</strong> (76.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 20:16 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/05/201651nfjtfhkcf2phw65c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>C.jpg</strong> (75.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 20:16 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/05/201704aubvd0cdrxj4tct1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>D.jpg</strong> (34.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 20:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 613#       发表于 2021-1-5 20:18
+
+
+
+
+亲爱的小伙伴们：
+
+
+    你们好！
+
+
+    由于本周我们收到了很多关于“水军”问题的反馈，所以首先，在此特别就大家关心的这个问题进行郑重说明：
+
+
+    1、我们没有建立或组织任何所谓的“水军”，同时我们强烈谴责恶意扰乱平台秩序、在他人直播间和评论区引战等违规行为；
+
+
+    2、如遇涉嫌冒充、造谣、扰乱平台秩序的违规用户，小伙伴们也可向B站官方进行举报，我们将积极协同官方处理，并保留追究其法律责任的权利；
+
+
+    3、A-SOUL直播间和评论区的氛围至今都是比较宽松随意的，我们很喜欢这样的氛围，也欢迎大家多多交流，并且希望能把这样的氛围一直保持下去。但是同时，我们也了解到，A-SOUL和其他直播间的交流氛围、互动习惯差异较大，因此「希望大家不要把在A-SOUL的互动交流习惯，带到其他的直播间和评论区，以免给他人造成困扰」，这是我们唯一的要求，也恳请大家理解和支持，非常非常感谢大家能给与我们理解和帮助！
+
+
+    再次感谢大家的关注和关心，感谢！下面还有其他一些问题，我们将继续进行解答。
+
+
+—————————————————————————————————————————
+
+
+Q：平时能多发发动态嘛，你们可以引导团员多分享生活嘛~
+
+
+A：小伙伴你好！感谢你的建议，已经和小姐姐们沟通过啦~她们会慢慢开始增加动态内容的更新。
+
+
+Q：有没有考虑新形势，比如音乐剧。还有这么好的捕捉技术。复刻动漫名场景也不错
+
+
+A：小伙伴你好！感谢你提供的想法，我们目前还在提升动态捕捉的效果，未来会慢慢安排上的。
+
+
+Q：请问A-SOUL大家直播内容是怎么确定的呢？
+
+
+A：小伙伴你好！直播的内容都是小姐姐们和工具人一起讨论的哟~
+
+
+Q：什么时候能推出周边呢？钥匙扣，立牌，新年台历之类的
+
+
+A：小伙伴你好！暂时没周边相关的计划哦！
+
+
+Q：请问官方账号的录播啥时候弄？
+
+
+A：小伙伴你好！目前没有提供完整录播的计划，今后录播视频都会以切片的形式发出哦。
+
+
+Q：能不能把《Quiet》也投到Apple Music上，求求了。
+
+
+A：小伙伴你好！后续的歌曲会考虑投到Apple Music的平台上的。
+
+
+Q：A酱，直播间能不能设置不同清晰度啊，原画太卡了
+
+
+A：小伙伴你好！已经收到你的建议，我们研究下怎么设置哈~
+
+
+Q：建议给录播man零食大礼包。
+
+
+A：小伙伴你好！我们正在积极筹备创作活动，大家的录播
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 614#       发表于 2021-1-5 20:20
+
+
+
+
+Q：建议给录播man零食大礼包。
+
+
+A：小伙伴你好！我们正在积极筹备创作活动，大家的录播、切片、二创都会有各种奖励哟~具体的计划还需要时间准备，请大家耐心等待！
+
+
+Q：请问这个企划有考虑过提供可供二创的官方版mmd模型？
+
+
+A：小伙伴你好！欢迎所有二创内容哟，官方版mmd模型提供还需要一段时间；大家的自建模也欢迎使用（只要是非商用，非18R则无需告知官方）~
+
+
+Q：你们这首原创曲《Quiet》希望有个不带和声的instrumental版本。
+
+
+A：小伙伴你好！这个需求已经反馈制作组啦~
+
+
+Q：姑娘们有没有声乐的专门训练呢？和舞蹈训练的强度比如何？
+
+
+A：小伙伴你好！小姐姐们的练习相关排程我们有公布的计划，但是还需要一段时间哦，请小伙伴们耐心等待。
+
+
+Q：直播渠道可以再加一个微博，因为微博上流量大。
+
+
+A：小伙伴你好！我们目前没有开设微博直播间的计划。
+
+
+Q：昨天直播时有透露出春节可能会直播的消息。我相信我和大部分粉丝还是希望A-SOUL成员能有时间回家过年，至少除夕和初一是不该在直播的。
+
+
+A：小伙伴你好！感谢你的关心~A-SOUL相关的演出计划是小姐姐们和工具人全员沟通过的，我们会合理安排小姐姐们和工具人的工作和生活的。后续直播请以官方公布的信息（也就是我哦！）为准~
+
+
+Q：以后会有live2d直播么？
+
+
+A：小伙伴你好！我们目前没有考虑live2d的直播。
+
+
+Q：A哥有没有考虑过联合投稿？官号和团员个人号联合投稿，引流效果会更好。
+
+
+A：小伙伴你好！想，好像暂时还是不能(ಥ_ಥ)
+
+
+Q：删除嘉然的视频是要重修发自我介绍吗？
+
+
+A：小伙伴你好！是的，在规划重新制作中了。
+
+
+Q：什么时候能把《Quiet》的PV重置一下，现在这个ppt跟不上版本了啊。
+
+
+A：小伙伴你好！暂时没有相关的计划。
+
+
+Q：不知道为什么嘉然不完整地唱首歌，唱功一般又无所谓，大部分V唱功都一般，嘉然唱的万有引力和爱你都好甜，可惜都不完整，不能完整的歌单曲循环我感觉浑身有🐜在爬。
+
+
+A：小伙伴你好！已转达嘉然，等她排好时间会制作发布~
+
+
+Q：想看乃琳玩健身环。
+
+
+A：小伙伴…这……这样不好吧……
+
+
+Q：要不要让贝拉考虑开健身教室和舞蹈教室系列的直播呢？
+
+
+A：小伙伴你好！本周四晚上8点贝拉的舞蹈房首次开课，记得来看哦！对了！向晚也会在哦！
+
+
+Q：能不能给珈力乐换个皮？
+
+
+A：小伙伴你好！有什么具体
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 615#       发表于 2021-1-5 20:22
+
+
+
+
+Q：能不能给珈力乐换个皮？
+
+
+A：小伙伴你好！有什么具体一些的更换方向吗？欢迎告诉我们~
+
+
+———————————————————————————————————————
+
+
+  
+
+
+    感谢大家的私信和建议，也请大家记住我们的周二固定QA时间，大家私信的问题和建议都会定期回复和解答的~
+
+
+                                                                                                             A-SOUL制作委员会敬上
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 616#       发表于 2021-1-5 20:36
+
+
+
+
+1800字，不知道🐜算在里面没有
+
+<img src="https://img.saraba1st.com/forum/202101/05/203445o40c7u6cccqu73fu.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210105-203302~01.png</strong> (147.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 20:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 617#       发表于 2021-1-5 22:10
+
+
+
+
+我感觉quiet这种静止系风格的MV还挺不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">二刺螈味儿很浓
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 618#       发表于 2021-1-5 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949182&amp;ptid=1974517" target="_blank">qw945 发表于 2021-1-5 22:10</a>
+
+我感觉quiet这种静止系风格的MV还挺不错的啊二刺螈味儿很浓</blockquote>
+说实话也没必要在这歌上费精力  就算换了也没多大作用  反正新歌也快来了  
+
+
+
+
+
+
+
+-----
+
+####  honeybrain  
+##### 619#         楼主| 发表于 2021-1-6 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949329&amp;ptid=1974517" target="_blank">临界点 发表于 2021-1-5 22:25</a>
+说实话也没必要在这歌上费精力  就算换了也没多大作用  反正新歌也快来了   ...</blockquote>
+不是出道曲吗？
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 620#       发表于 2021-1-6 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957263&amp;ptid=1974517" target="_blank">honeybrain 发表于 2021-1-6 17:56</a>
+
+不是出道曲吗？</blockquote>
+是啊 所以都出道快一个月还有必要在出道曲上下功夫吗
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 621#       发表于 2021-1-6 20:02
+
+
+
+ 本帖最后由 伊可费斯 于 2021-1-6 20:03 编辑 
+
+8点啦 开门啦 好吧延迟到8点半了
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 622#       发表于 2021-1-6 20:05
+
+
+
+
+呜呜↑↑呜↓↓↓↓↓↓这特码的是个啥啊啊啊啊啊
+
+不理解不理解不理解不理解不理解不理解不理解不理解
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 623#       发表于 2021-1-6 20:14
+
+
+
+
+要么是向晚把动捕抠烂了
+
+要么是嘉然把动捕吃了
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 624#       发表于 2021-1-6 20:31
+
+
+
+
+我急了
+
+
+
+
+
+
+
+-----
+
+####  冰海风  
+##### 625#       发表于 2021-1-6 20:37
+
+
+
+
+嘉然：鸡胸肉其实煎起来很好吃
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 626#       发表于 2021-1-6 21:05
+
+
+
+
+我急了，怎么会这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立刻给工具人联系电子厂
+
+
+
+
+
+
+
+-----
+
+####  pllllum  
+##### 627#       发表于 2021-1-6 21:07
+
+
+
+
+工具人明天就去富士康<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 628#       发表于 2021-1-6 22:02
+
+
+
+
+工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你，工具人我🦈了你
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 629#       发表于 2021-1-6 22:03
+
+
+
+
+我的分手厨房…😭😭😭分手厨房…😭😭😭呜呜呜↑↑↑呜呜呜↓↓↓这TM都是些啥啊😭😭😭
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 630#       发表于 2021-1-6 22:05
+
+
+
+
+别分手厨房了，垃圾游戏还没她俩玩贴贴有意思
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 631#       发表于 2021-1-6 22:10
+
+
+
+
+这两人互动真好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 632#       发表于 2021-1-6 22:12
+
+
+
+
+她俩真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 633#       发表于 2021-1-6 22:15
+
+
+
+
+什么垃圾厂牌出来的练习生，回去上大学吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 634#       发表于 2021-1-6 22:17
+
+
+
+
+说起来大家都知道:这是嘉然直播间
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 635#       发表于 2021-1-6 22:34
+
+
+
+
+不得不说嘉然的镜头感真的很好，都能及时发现镜头特写然后迅速做亮相
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 636#       发表于 2021-1-6 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49959791&amp;ptid=1974517" target="_blank">是谁的书画 发表于 2021-1-6 22:34</a>
+不得不说嘉然的镜头感真的很好，都能及时发现镜头特写然后迅速做亮相
+
+  -- 来自 能手机投票的 Stage1官方  ...</blockquote>
+韩团打歌跟镜头是嗯实力之一，会专门训练的
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 637#       发表于 2021-1-6 22:52
+
+
+
+
+每次游戏回都能搞出直播事故哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 638#       发表于 2021-1-6 22:53
+
+
+
+
+还是直播体感吧。。。说起来不知道这玩意直播vr是啥样的，有点好奇
+
+
+
+
+
+
+
+-----
+
+####  1I1I1I1I1I1I1I1  
+##### 639#       发表于 2021-1-6 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49959626&amp;ptid=1974517" target="_blank">是谁的书画 发表于 2021-1-7 01:15</a>
+
+什么垃圾厂牌出来的练习生，回去上大学吧
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+???精分了???
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 640#       发表于 2021-1-6 23:13
+
+
+
+
+前几天看了切片，第一次看完整的直播。已经戒yhm了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 641#       发表于 2021-1-6 23:25
+
+
+
+
+新视频的盐式贝拉，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望明晚加大力度
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 642#       发表于 2021-1-6 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49960115&amp;ptid=1974517" target="_blank">1I1I1I1I1I1I1I1 发表于 2021-01-06 23:09:53</a>
+???精分了???</blockquote>啥精分啊，晚指导那段编打油诗。编了两句顺口的就rap起来了，然后就编不下去疯狂吃瘪。
+全靠嘉人和顶碗人喂到嘴里<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                            
