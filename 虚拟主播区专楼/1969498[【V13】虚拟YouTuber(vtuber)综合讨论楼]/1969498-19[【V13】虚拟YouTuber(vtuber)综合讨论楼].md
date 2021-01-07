@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-07 16:03** 
+> ## **本文件最后更新于2021-01-07 21:04** 
 
 
 
@@ -4897,7 +4897,7 @@ crew屁股这就不藏了？
 
 
 
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_d1aM9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimg1.gamersky.com%2Fimage2016%2F06%2F20160620_zh_277_13%2Fimage105_S.jpg&amp;refer=http%3A%2F%2Fimg1.gamersky.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=jpeg?sec=1611844438&amp;t=3678fc0ba0a451db54b0efc4d90e0f0e" id="aimg_X06t2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21158,8 +21158,8 @@ ebio也不是不行，但我更想要老板娘跟郡道打牌啊<img src="https:
 
  本帖最后由 十四洲 于 2021-1-3 21:46 编辑 
 
-<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_KRMzW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_N8K2Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/E215OnFDUyU/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLC_owIIBhIQtLX1UHQCweH7LVAcWg" id="aimg_d2bof" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://i.ytimg.com/vi/nmcBsuaB_rk/hqdefault_live.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&amp;rs=AOn4CLDQ3rGkofGLgph4UWBuFN2wmyuiHw" id="aimg_Wh3xX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 请问这图在哪批发的[なごやか (@nagoyaka_soften) / Twitter](https://twitter.com/nagoyaka_soften)
 
@@ -29297,6 +29297,675 @@ syl今晚还有三马鹿的偶像服
 那狐坦就是狗妈的上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 鲨皇=狐坦+狗妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28474#       发表于 2021-1-7 16:08
+
+
+
+
+kson长得不是还行么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28475#       发表于 2021-1-7 16:13
+
+
+
+
+【東京都】新型コロナ 緊急事態宣言解除の目安は1日の感染者数が500人
+
+
+成了，永远不会解除了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28476#       发表于 2021-1-7 16:18
+
+
+
+<blockquote>OldGlory 发表于 2021-1-7 16:13
+【東京都】新型コロナ 緊急事態宣言解除の目安は1日の感染者数が500人
+
+
+成了，永远不会解除了 ...</blockquote>
+目测四个月以后才能降到这个数
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28477#       发表于 2021-1-7 16:23
+
+
+
+
+无关心。
+
+今天别的乐子实在太大了，管人？🐕都🙅‍👀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28478#       发表于 2021-1-7 16:35
+
+
+
+
+管人观众就只想看MC吗
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/163506mrpz027d3kdr9qrn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 665 - 推文 _ Twitter - twitter.com.jpg</strong> (63.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 16:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 28479#       发表于 2021-1-7 16:35
+
+
+
+ 本帖最后由 pansherry 于 2021-1-7 17:53 编辑 
+
+<img src="https://tva2.sinaimg.cn/large/771ca9d1gy1gmf7v5kv73j20xc14rwq0.jpg" referrerpolicy="no-referrer">
+
+[twitter](https://twitter.com/mitsumine323/status/1347095776770416640?s=20)
+
+<img src="https://p.sda1.dev/0/7253491fb412708e7881b6bb2303e101/IMG_CMP_175238170.jpeg" referrerpolicy="no-referrer">
+
+[twitter](https://twitter.com/kenami_fusafusa/status/1347108768035729411?s=19)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 28480#       发表于 2021-1-7 16:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/165456bv8l4ybldbv184la.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErHTkmKVcAM78SY.jpg</strong> (195.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 16:54 上传
+
+
+
+
+
+[https://twitter.com/ga673899/status/1347090514806415361](https://twitter.com/ga673899/status/1347090514806415361)
+
+<img src="https://img.saraba1st.com/forum/202101/07/165456o1f7cuf6acuaw16w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErHdSNLVgAIgibC-min.jpg</strong> (429.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 16:54 上传
+
+
+
+
+
+[https://twitter.com/Sco_ttie/status/1347101169638797313](https://twitter.com/Sco_ttie/status/1347101169638797313)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28481#       发表于 2021-1-7 18:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/180652gwxxxkvvbjrx9ree.jpg" referrerpolicy="no-referrer">
+
+
+<strong>キリネネネ @jupukyky #かな絵.jpg</strong> (113.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 18:06 上传
+
+
+
+
+
+
+被拯救了..
+[https://twitter.com/jupukyky/status/1347121799104929794/photo/1](https://twitter.com/jupukyky/status/1347121799104929794/photo/1)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28482#       发表于 2021-1-7 19:18
+
+
+
+
+Bsyl，好家伙这也太V了
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/191804oq86a0sdkaqdwqja.png" referrerpolicy="no-referrer">
+
+
+<strong>【#鷹宮リオンBD2021】birthday3D LIVE【にじさんじ:鷹宮リオン】.png</strong> (892.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 19:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28483#       发表于 2021-1-7 19:35
+
+
+
+
+力一这凳子浮空坐是什么超能力？！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28484#       发表于 2021-1-7 19:37
+
+
+
+
+尊的姿势不管怎么看都好优雅啊……就快要gachi恋了
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 28485#       发表于 2021-1-7 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">越这样越想刀了葛叶
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28486#       发表于 2021-1-7 19:39
+
+
+
+
+金憨憨这不是都被看光了吗
+绝对领域
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28487#       发表于 2021-1-7 19:41
+
+
+
+
+紫薯好棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 28488#       发表于 2021-1-7 19:43
+
+
+
+<strong>日本VTuber实体CD销量排行榜</strong>
+
+UP主：名作之壁吧
+
+制作：名作之壁吧视频组
+
+<strong>统计范围：</strong>
+
+被日本公信榜ORICON收录的VTuber实体CD，包含单曲与专辑，不计电子版配信与流媒体。
+
+<strong>统计日期：</strong>
+
+截止ORICON周榜2021/1/4付。
+
+[https://www.bilibili.com/video/BV1BA411W7oq](https://www.bilibili.com/video/BV1BA411W7oq)
+<img src="https://p.sda1.dev/0/4af7c42e0e5193b36f17ee708bb026e9/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d2fb1d219cc8f5dbbe127edf7a19af6f/2.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 28489#       发表于 2021-1-7 19:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968434&amp;ptid=1969498" target="_blank">noHentai 发表于 2021-1-7 19:43</a>
+
+日本VTuber实体CD销量排行榜
+
+UP主：名作之壁吧
+
+制作：名作之壁吧视频组</blockquote>
+杏竟然除了azki一个没有。难道是没出过实体专辑么
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 28490#       发表于 2021-1-7 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968468&amp;ptid=1969498" target="_blank">2517君改二 发表于 2021-1-7 19:48</a>
+
+杏竟然除了azki一个没有。难道是没出过实体专辑么</blockquote>
+空母被你开除了？
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 28491#       发表于 2021-1-7 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968488&amp;ptid=1969498" target="_blank">noHentai 发表于 2021-1-7 19:50</a>
+
+空母被你开除了？</blockquote>
+啊，看来我真是下意识排除了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 28492#       发表于 2021-1-7 20:06
+
+
+
+ 本帖最后由 Kojimaru 于 2021-1-7 20:48 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/200600wj8uo3jh9a338gai.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210107200424.png</strong> (426.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 20:06 上传
+
+
+
+
+
+
+
+
+
+
+
+QQ截图20210107201852.png
+(199.46 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-7 20:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/201959m8b8uplpb7fifipw.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20210107204655.png
+(193.86 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-7 20:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/204801z7fzfq5j5vcpem0e.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28493#       发表于 2021-1-7 20:11
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-7 20:20 编辑 
+
+感觉比设计图好看
+
+<img src="https://img.saraba1st.com/forum/202101/07/201142oitlbccsw7ysqlcq.png" referrerpolicy="no-referrer">
+
+
+<strong>【#さんばか新衣装リレー】いつか理想のアイドルになれるように【にじさんじ:リゼ・ヘ.png</strong> (729.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 20:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/202007abbb244dde1h3k6p.png" referrerpolicy="no-referrer">
+
+
+<strong>これはアイドル.png</strong> (165.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 20:20 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=kIbrKr8G9QU](https://www.youtube.com/watch?v=kIbrKr8G9QU)
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28494#       发表于 2021-1-7 20:12
+
+
+
+
+皇女的衣服跟平时那套很像诶，感觉上，3bk里衣服变化最小的说不定就是皇女，
+
+蓝白混色编发真不错！
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28495#       发表于 2021-1-7 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 没有偶像服的虹liver还算得上虹liver？
+
+
+毕业吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28496#       发表于 2021-1-7 20:18
+
+
+
+
+啊我还以为今天是3D偶像服
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28497#       发表于 2021-1-7 20:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/201903f8qqw8kpskzvknis.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (39.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 20:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 28498#       发表于 2021-1-7 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968696&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-1-7 20:11</a>
+感觉比设计图好看</blockquote>
+感觉设定图的人体比例不太对，腿太长了，尤其安洁这个，怎么看怎么不协调，实物人体比例正常了看起来就好了很多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28499#       发表于 2021-1-7 20:22
+
+
+
+
+藤原yyds
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 28500#       发表于 2021-1-7 20:24
+
+
+
+
+这兔子怎么在玩MOON的MC号？
 
 
 
