@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-05 12:01** 
+> ## **本文件最后更新于2021-01-07 20:00** 
 
 
 
@@ -6812,4 +6812,497 @@ syl 中午11点播
 
 
 
-                                     
+
+
+-----
+
+####  Fami水  
+##### 10862#       发表于 2021-1-5 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">绫总回到阳间了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10863#       发表于 2021-1-5 23:05
+
+
+
+
+怎么她唱夜驱我就听得那么顺耳
+
+我明明对这歌无感的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10864#       发表于 2021-1-5 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是pua啊pua 尾巴哥
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10865#       发表于 2021-1-5 23:16
+
+
+
+
+她这么随便的态度怎么还总是有人提醒订阅数啊 这年头纪念回都不兴了还天天盯着这玩意有点烦<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10866#       发表于 2021-1-5 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949819&amp;ptid=1914409" target="_blank">Fami水 发表于 2021-1-5 23:15</a>
+这是pua啊pua 尾巴哥</blockquote>
+这首歌叫啥啊，我好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10867#       发表于 2021-1-5 23:20
+
+
+
+
+草......红莲华就算她唱我还是有点....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> （不出所料拉了
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10868#       发表于 2021-1-5 23:33
+
+
+
+
+還行吧，我能接受，更不濟的，都已經品鑒得夠多了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10869#       发表于 2021-1-5 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">红莲华是稳定的翻车歌曲了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10870#       发表于 2021-1-5 23:56
+
+
+
+
+她没体力了，连续拉垮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10871#       发表于 2021-1-6 00:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今晚还唱得挺多的
+
+
+
+
+
+
+
+-----
+
+####  Nitro901  
+##### 10872#       发表于 2021-1-6 00:09
+
+
+
+
+满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10873#       发表于 2021-1-6 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我病暂时好了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10874#       发表于 2021-1-6 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949823&amp;ptid=1914409" target="_blank">UnhappyTails 发表于 2021-1-5 23:16</a>
+
+这首歌叫啥啊，我好喜欢</blockquote>
+第五首唱的是 炎 吧
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10875#       发表于 2021-1-6 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952088&amp;ptid=1914409" target="_blank">Fami水 发表于 2021-1-6 09:37</a>
+
+第五首唱的是 炎 吧</blockquote>
+查了，是鬼灭剧场版的歌，果然问题不在鬼灭的歌而在于红莲华又难唱还人人唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10876#       发表于 2021-1-6 16:52
+
+
+
+
+狗妈画的我又好了
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 10877#       发表于 2021-1-6 17:12
+
+
+
+
+好妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10878#       发表于 2021-1-6 17:35
+
+
+
+
+真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10879#       发表于 2021-1-6 17:35
+
+
+
+
+发重了，编辑
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 10880#       发表于 2021-1-6 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">怎么看MIO给狗狗的占卜结果都是要跑路啊，听说这次木口坏牌多的情况下算是好牌了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10881#       发表于 2021-1-6 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就杏那个高层，什么时候炸了我都不意外，就是到时候希望她不要回去t台摸余。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10882#       发表于 2021-1-6 18:44
+
+
+
+
+快进到和野男人私奔<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10883#       发表于 2021-1-6 19:05
+
+
+
+
+给野女人一个机会<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10884#       发表于 2021-1-6 19:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">如果可以，请po出结婚证书
+我会祝福的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10885#       发表于 2021-1-6 20:30
+
+
+
+ 本帖最后由 寺川愛美 于 2021-1-6 20:42 编辑 
+
+mio的占卜分析已經品鑒過了，準不準確留待未來確認，起碼情商先拉滿了
+
+那麼問題來了，沒有情商的占卜結果分析可以在那裡看啊
+
+咦我自己找到了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10886#       发表于 2021-1-6 20:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是在病栋楼里啊
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10887#       发表于 2021-1-7 00:57
+
+
+
+
+報，lol動了
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10888#       发表于 2021-1-7 19:10
+
+
+
+
+难道还想继续玩糖豆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10889#       发表于 2021-1-7 19:10
+
+
+
+
+爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10890#       发表于 2021-1-7 19:19
+
+
+
+
+你可赶紧练apex吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10891#       发表于 2021-1-7 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有和黄泉 傻紫练过吗
+
+
+
+
+
+                                    
