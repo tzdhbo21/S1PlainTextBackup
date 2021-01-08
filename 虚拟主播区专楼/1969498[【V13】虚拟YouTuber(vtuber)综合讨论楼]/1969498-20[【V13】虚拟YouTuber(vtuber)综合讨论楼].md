@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-07 21:04** 
+> ## **本文件最后更新于2021-01-08 11:02** 
 
 
 
@@ -372,11 +372,342 @@ SYL：
 
 
 
+ 本帖最后由 Kojimaru 于 2021-1-7 21:11 编辑 
 
 票选那套全员白色的我觉得就挺好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">，个人特色哪有组合感重要
+syl inui这套怎么感觉有点肥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
 
 
-                                                 
+
+
+-----
+
+####  rzrbtk  
+##### 28518#       发表于 2021-1-7 21:07
+
+
+
+
+inui事不喜欢这套衣服吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，反而有点开心，这人审美挺不年轻人的真的会理解偶像服的好看的点吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28519#       发表于 2021-1-7 21:10
+
+
+
+
+感觉圆圆的，而且有一说一inui也不太算年轻人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28520#       发表于 2021-1-7 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 阿床只是喜欢3D偶像服，想要和大家穿统一的衣服登台演出
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28521#       发表于 2021-1-7 21:12
+
+
+
+
+京都女人看什么东西不爽需要什么理由吗……
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28522#       发表于 2021-1-7 21:13
+
+
+
+
+这一套缺少3bk特色，但作为偶像服大概是及格的？
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/211327q9mk9jwtzwu3we1m.png" referrerpolicy="no-referrer">
+
+
+<strong>【#さんばか新衣装リレー】さんばかお揃いアイドル衣装、ついにお披露目！【戌亥とこ:.png</strong> (594.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 21:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/211112olw9xrpnpugpz382.png" referrerpolicy="no-referrer">
+
+
+<strong>【#さんばか新衣装リレー】さんばかお揃いアイドル衣装、ついにお披露目！【戌亥とこ:.png</strong> (165.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 21:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28523#       发表于 2021-1-7 21:15
+
+
+
+
+这脚也太长力，是兔子吗？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28524#       发表于 2021-1-7 21:16
+
+
+
+
+甚至觉得她想提前下班……
+
+不管，inui画师是神，好美的脸和圆圆的身材，还有勒肉腿环，喜欢！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28525#       发表于 2021-1-7 21:23
+
+
+
+
+这可太V了
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/212327c56bibcc6sf1fusn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErIXLt7U0AAbccR.jpg</strong> (1.75 MB, 下载次数: 1)
+
+下载附件
+
+2021-1-7 21:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28526#       发表于 2021-1-7 21:29
+
+
+
+
+我懂你了，inui，快看哭了，是人都想下班了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 28527#       发表于 2021-1-7 21:30
+
+
+
+
+inui真的是妈
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28528#       发表于 2021-1-7 21:46
+
+
+
+
+这放一起一对比inui的脚透视问题更大了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28529#       发表于 2021-1-7 22:12
+
+
+
+
+看了看壁吧新出那视频 圆脸傻妞一出来弹幕全是嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28530#       发表于 2021-1-7 22:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/07/225905wzai5hplkfbfbfc0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210107225832.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-7 22:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28531#       发表于 2021-1-8 10:41
+
+
+
+<img src="https://p.sda1.dev/0/09f7a291bc89a24d88ac51231a6e7de4/IMG_CMP_26079385.png" referrerpolicy="no-referrer">
+建议wwh学习一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+https://youtu.be/2dupoI38xe0
+
+
+
+
+
+
+
+-----
+
+####  烤冷面加蛋  
+##### 28532#       发表于 2021-1-8 11:01
+
+
+
+
+乐了
+
+
+
+
+
+
+E9D44A5F-4FDD-4052-A78E-B4B2C5CD7ECC.jpeg
+(59.6 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-8 11:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/110050o6r5oorvjofdx4h9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+                                                
