@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 20:02** 
+> ## **本文件最后更新于2021-01-08 23:03** 
 
 
 
@@ -1992,4 +1992,518 @@ fes宣传图出场，
 
 
 
-                                              
+
+
+-----
+
+####  FCCHua  
+##### 28600#       发表于 2021-1-8 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">都快回来吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28601#       发表于 2021-1-8 20:10
+
+
+
+ 本帖最后由 winda 于 2021-1-8 20:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">叶这个重大发表，看来虹也明白自己还剩哪些不是废矿
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 28602#       发表于 2021-1-8 20:14
+
+
+
+
+这兔子玩的啥啊,看不懂
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28603#       发表于 2021-1-8 20:15
+
+
+
+
+阿船：次期亲方就让给你了
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/201410sfz2a455zv52pr4z.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #028 - '【ゴッドフィールド】ごっふぃーでぺこら.png</strong> (71.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 20:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28604#       发表于 2021-1-8 20:35
+
+
+
+
+slee怎么还要当试穿模特的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 28605#       发表于 2021-1-8 20:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">50w订阅有实现梦想重要吗？嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28606#       发表于 2021-1-8 20:38
+
+
+
+
+说明slee的地位和隔壁的yagoo差不多。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28607#       发表于 2021-1-8 20:41
+
+
+
+
+虹杏现在都不好进人吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 28608#       发表于 2021-1-8 20:48
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-1-8 21:23 编辑 
+
+pph直播水平怎么样？我只知道他刚开始直播那会儿天天脑死耐久dq
+---
+syl 某新人vsinger初配信歌回。水平还凑合吧，声线挺特别的 没啥特别的，之前的声音大概是硬掐出来的……
+https://youtu.be/nP8AA3fy9yg
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28609#       发表于 2021-1-8 21:08
+
+
+
+
+Ark要来了？刚刚的凸待，看样子是要提上日程了？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28610#       发表于 2021-1-8 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> slee跟着男人吃饭没毛病阿，虹女，无论颜出还是套皮，终究只是男人附属品罢了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28611#       发表于 2021-1-8 21:17
+
+
+
+
+不人气圆脸鬼叫傻妞要出手办了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 28612#       发表于 2021-1-8 21:19
+
+
+
+ 本帖最后由 pansherry 于 2021-1-8 21:27 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/211953aqzzegyzqbvsgqyc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>771ca9d1gy1gmgloremxqj21121e0tik.jpg</strong> (792.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 21:19 上传
+
+
+
+
+
+
+[twitter](https://twitter.com/rswxx/status/1347529370437439490?s=20)
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/212204zzjf9h9gm9n94fhv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>771ca9d1gy1gmglrasd36j20th0u4tdm.jpg</strong> (589.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 21:22 上传
+
+
+
+
+
+
+[twitter](https://twitter.com/Ara_Kieda/status/1347508870256623617?s=20)
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/212755pqssaglqsczrzif9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>771ca9d1gy1gmglxcx6ogj20zq199q90.jpg</strong> (570.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 21:27 上传
+
+
+
+
+
+
+[twitter](https://twitter.com/ym_ma13/status/1347501422003122177?s=20)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28613#       发表于 2021-1-8 21:22
+
+
+
+
+skb部这联动有初回的味道了，危险话题不断啊，
+安洁不顾自己频道的安危，极速狂飙的样子真的很勇
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28614#       发表于 2021-1-8 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49978600&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-8 20:00</a>
+
+194烂人代表就是我不快女王啦
+
+
+省一楼，细数口了最近的事，</blockquote>
+郡道星川那个还能再翻出来一遍？
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 28615#       发表于 2021-1-8 21:53
+
+
+
+
+其实黛灰播nijisanji地牢的时候最后也特意组了ars口了叶山的队伍表示了欢迎回归，但是好像这边没人提<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+也是，论这边的人气你黛灰在虹男里怕是都排不上号(体感)<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28616#       发表于 2021-1-8 21:54
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/215226ycv2vicvczu272m2.png" referrerpolicy="no-referrer">
+
+
+
+ホロライブはもう尾張屋根
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28617#       发表于 2021-1-8 21:56
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-8 22:03 编辑 
+
+金鱼妹搞快点啊！
+
+
+
+SYL：
+
+
+エロライブ
+
+<img src="https://img.saraba1st.com/forum/202101/08/215334jntix6k6mxxhb66x.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 28618#       发表于 2021-1-8 21:58
+
+
+
+
+免费这不买三个？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28619#       发表于 2021-1-8 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49979387&amp;ptid=1969498" target="_blank">fastary 发表于 2021-1-8 21:53</a>
+其实黛灰播nijisanji地牢的时候最后也特意组了ars口了叶山的队伍表示了欢迎回归，但是好像这边没人提[f:039 ...</blockquote>
+推上没有人说我也不知道<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，谢谢情报！
+总之大家都在等啦，该回就回，再拖真的很不口了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28620#       发表于 2021-1-8 22:32
+
+
+
+
+阿菜终于动了一下。。推荐大家看露营2<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28621#       发表于 2021-1-8 22:36
+
+
+
+
+垃圾圆脸回PPH这话总觉得不对劲
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/223630p62mzp86tl26r8at.png" referrerpolicy="no-referrer">
+
+
+<strong>圆脸.png</strong> (9.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 22:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28622#       发表于 2021-1-8 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前回大头也是这句
+
+
+
+SYL
+
+垃圾圆脸（已经点赞）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 28623#       发表于 2021-1-8 22:57
+
+
+
+
+PPH都退了，历史时泪LUNA什么时候正式退
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28624#       发表于 2021-1-8 22:57
+
+
+
+
+PPH先生の次回作（指杏六期）にご期待ください！！
+
+
+
+
+
+                                             
