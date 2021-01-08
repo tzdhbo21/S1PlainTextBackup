@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 17:03** 
+> ## **本文件最后更新于2021-01-08 20:02** 
 
 
 
@@ -1248,6 +1248,25 @@ apex大会，没有kr和维阿我不看的</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 1|很赞的故事|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -1309,4 +1328,668 @@ apex大会，没有kr和维阿我不看的</blockquote>
 
 
 
-                                               
+
+
+-----
+
+####  rzrbtk  
+##### 28566#       发表于 2021-1-8 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977334&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-1-8 16:56</a>
+如果有会限R15回，请叫上我</blockquote>
+姨的r15有何好期待<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+月之明天玩noctchill新活动，SUPER BIG LOVE
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28567#       发表于 2021-1-8 17:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">润姨今天的马车窗封面：喚かない
+
+然后开播三分钟因为大会码意外露出立刻化身初号机了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 28568#       发表于 2021-1-8 17:33
+
+
+
+
+看看隔壁老免都干了啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">心疼z指导
+<img src="https://p.sda1.dev/0/4ee48efdf6a20d1573e740751e56e5ff/IMG_20210108_173210.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28569#       发表于 2021-1-8 17:37
+
+
+
+
+看了会夸的马车练习，这其他人还打个屁
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 28570#       发表于 2021-1-8 18:08
+
+
+
+
+免指导先把月灵安排好吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28571#       发表于 2021-1-8 18:10
+
+
+
+[https://twitter.com/TUBEOUT/status/1347483201204228105](https://twitter.com/TUBEOUT/status/1347483201204228105)
+
+
+心形感叹号お知らせ心形感叹号
+
+
+1月23日(土)「 TUBEOUT! vol.4 」が配信限定で開催決定Partying face派对爆竹
+
+
+#ときのそら #銀河アリス #天神子兎音 の３名でお届けしますっ！
+
+デジタルフラスタも《 1/17(日) 23:59まで 》募集中花束
+
+
+チケット購入・フラスタ応募はこちらから食指指背往右指
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/181043mgyhhgd6s4zgh44e.png" referrerpolicy="no-referrer">
+
+
+<strong>烂货圆脸.png</strong> (224.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 18:10 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28572#       发表于 2021-1-8 18:13
+
+
+
+<blockquote>IDIDIDID 发表于 2021-1-8 17:37
+看了会夸的马车练习，这其他人还打个屁</blockquote>
+宝宝公园下众生平等，别选夸的两个绝活图水上乐园和雪山还是有的玩的
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28573#       发表于 2021-1-8 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977738&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-8 17:37</a>
+
+看了会夸的马车练习，这其他人还打个屁</blockquote>
+这就是现实，夸是木口唯一一个有最基本的走力和VS立回的。除非剩下的人能结成小团体玩80kart
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28574#       发表于 2021-1-8 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977897&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-8 18:13</a>
+
+宝宝公园下众生平等，别选夸的两个绝活图水上乐园和雪山还是有的玩的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么说吧，就木口其他人这走力，夸在べビパ无脑前张可能都没事
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28575#       发表于 2021-1-8 18:47
+
+
+
+
+不懂马车，夸在虹那边是什么水平
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28576#       发表于 2021-1-8 18:52
+
+
+
+<blockquote>Aminor 发表于 2021-1-8 18:47
+不懂马车，夸在虹那边是什么水平</blockquote>
+不提前遇到死亡之组进决赛应该没问题，拿冠军得靠点运气，虹马车倒在准决的大佬也不少，葛皇sasa 这些都没进决赛的
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28577#       发表于 2021-1-8 18:54
+
+
+
+
+那么比哭力和演技阿夸能排在第几名呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28578#       发表于 2021-1-8 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49978160&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2021-1-8 18:54</a>
+那么比哭力和演技阿夸能排在第几名呢</blockquote>
+不如莫姨的水平
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 28579#       发表于 2021-1-8 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马车赛完，除了夸都哭了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28580#       发表于 2021-1-8 19:04
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-1-8 19:06 编辑 
+
+有料的男人，出现了
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/190623cixlgdk0il0cx3c3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>哈.jpg</strong> (14.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 19:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28581#       发表于 2021-1-8 19:05
+
+
+
+
+原来是带货啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://shop.nijisanji.jp/s/niji ... 2343&amp;tag=TAG_35](https://shop.nijisanji.jp/s/niji/item/list?ima=2343&amp;tag=TAG_35)
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 28582#       发表于 2021-1-8 19:05
+
+
+
+
+搞了半天是卖周边？
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28583#       发表于 2021-1-8 19:14
+
+
+
+
+还有一个会限节目吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28584#       发表于 2021-1-8 19:15
+
+
+
+
+さいごのおはなし
+[https://www.youtube.com/watch?v=slUFHTJCA18&amp;feature=youtu.be](https://www.youtube.com/watch?v=slUFHTJCA18&amp;feature=youtu.be)
+
+
+
+PPH隐退
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28585#       发表于 2021-1-8 19:16
+
+
+
+
+等一个阿月<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28586#       发表于 2021-1-8 19:16
+
+
+
+
+快进到loto代播<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28587#       发表于 2021-1-8 19:17
+
+
+
+[https://www.youtube.com/watch?v=slUFHTJCA18&amp;feature=youtu.be](https://www.youtube.com/watch?v=slUFHTJCA18&amp;feature=youtu.be)
+
+さいごのおはなし
+<img src="https://i.loli.net/2021/01/08/UQGsX8W7mHg1n5N.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28588#       发表于 2021-1-8 19:31
+
+
+
+
+虽然loto很可爱，但是很难不说一句就这？？
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 28589#       发表于 2021-1-8 19:32
+
+
+
+
+就这？重大发表？虽然loto会买但还是点踩了，白期待了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28590#       发表于 2021-1-8 19:38
+
+
+
+
+除了pph记得还有个谁也有重大告知来着？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28591#       发表于 2021-1-8 19:39
+
+
+
+
+Pph,hololive六期生确定？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28592#       发表于 2021-1-8 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49978464&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-1-8 19:38</a>
+
+除了pph记得还有个谁也有重大告知来着？
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2. ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/08/194500chyhayalklia5h6l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210108194427766.jpg</strong> (11.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 19:45 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/194459c17y33xodocypi5q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210108194422190.jpg</strong> (27.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 19:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28593#       发表于 2021-1-8 19:45
+
+
+
+
+阿菜即便是2周年也不会动了。。。
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/194517c4w8mmhnnfy8mscc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErMRU27VoAAMZY1.jpg</strong> (388.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 19:45 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28594#       发表于 2021-1-8 19:47
+
+
+
+
+口吃神今天的告知是3月31新单曲，跟这个没关系
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 28595#       发表于 2021-1-8 19:49
+
+
+
+
+平田也没了啊……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28596#       发表于 2021-1-8 19:50
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-8 19:52 编辑 
+
+反正口了两周年估计也没了，老师2周年估计要solo了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28597#       发表于 2021-1-8 19:54
+
+
+
+
+BSYL：
+
+
+大头末期暗示转生一通操作之后PPH这个反复强调“有其他想做的事情”很难不让人有所联想。我觉得虹可能更大
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28598#       发表于 2021-1-8 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 进门就送50w订阅，谁会选隔壁阿
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28599#       发表于 2021-1-8 20:00
+
+
+
+
+194烂人代表就是我不快女王啦<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+省一楼，细数口了最近的事，
+fes宣传图出场，
+先后被不破，葵，三枝，king提到，表达了欢迎回归的态度，
+郡道星川之前打apex互怼被翻出来骂阴湿口了，
+周年降至，天时地利人和兼有，口了必然回啊，不如说快回吧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
