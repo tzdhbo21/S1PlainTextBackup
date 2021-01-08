@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-05 16:26** 
+> ## **本文件最后更新于2021-01-08 15:18** 
 
 
 
@@ -8067,4 +8067,499 @@ fgo真省钱！（坚定）
 
 
 
-                                  
+
+
+-----
+
+####  qixinno2  
+##### 36455#       发表于 2021-1-5 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945224&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 16:04</a>
+
+我也都没抽到，所以我抽了剑阿福</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理性蒸发了么
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36456#       发表于 2021-1-5 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945685&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 16:46</a>
+
+理性蒸发了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺香的
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36457#       发表于 2021-1-5 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945750&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 16:53</a>
+
+挺香的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑阶对我来说太毒了 这号很长一段时间五星只有剑 甚至最早满宝的四星常驻都是剑兰 所以基本上剑阶我都是随便扔几个呼符就走的那种
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36458#       发表于 2021-1-5 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945823&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 16:59</a>
+
+剑阶对我来说太毒了 这号很长一段时间五星只有剑 甚至最早满宝的四星常驻都是剑兰 所以基本上剑阶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对不起，除了福袋，我只看卡面
+
+所以215又沉了...
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36459#       发表于 2021-1-5 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945845&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 17:01</a>
+
+对不起，除了福袋，我只看卡面
+
+所以215又沉了...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第一个五星就是215 说真的卡面是真的棒 强度也是真的不行
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36460#       发表于 2021-1-5 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945886&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 17:05</a>
+
+我第一个五星就是215 说真的卡面是真的棒 强度也是真的不行</blockquote>
+巧了，我也是215活动入坑的...
+
+虽然后来那个账号弃了...
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36461#       发表于 2021-1-5 17:36
+
+
+
+
+小号两发10连小麻雀到手，终于可以消耗狗粮和qp了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  loveritz  
+##### 36462#       发表于 2021-1-5 17:58
+
+
+
+ 本帖最后由 loveritz 于 2021-1-5 18:05 编辑 
+
+奶奶的，这游戏真他娘的玄学，去年春节小麻雀大暴死，氪了多少没敢想，反正千石以上了，最后是没出，想着还要发压岁钱和给爸妈买东西就忍了，然后咸鱼了半年没咋抽卡，好像就大奥抽了几发，剩下的随便签个到随便打打活动，然后存了不少石头加上送的抽四周年小芬骑继续大暴死，常驻四星差不多都歪一遍，绝了，小芬奇还是没出，后面又氪了点抽兔呆还是没出，然后我对这游戏抽卡彻底放弃了，就过着签到新活动打打拿个五宝从者跑路，老活动直接pass，好像宇宙凛也抽了几发没出就溜了，去年一度有大半年没有new五星，而且还是氪了七八单的样子，填充box的是长尾景虎小灰自选的段藏还有圣诞南丁233
+
+
+没想到新年狗屎运，先是福袋第一次出货，抽到想要的兔呆，以前都是宝具+1或者不想要的，然后再战去年大暴死的小麻雀池，一发十连出了，感觉这卡池会继承pt吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，去年290pt放弃，今年井出来了，然后师匠大概五个十连就出了，好起来了，对比去年这特么有毒吧，不过我感觉我今年术呆又要大暴死了
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36463#       发表于 2021-1-5 19:07
+
+
+
+
+这女温泉贝壳爆率很高啊，平均有一把一个了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36464#       发表于 2021-1-5 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945904&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 17:07</a>
+
+巧了，我也是215活动入坑的...
+
+虽然后来那个账号弃了...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">号太非扔了么
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36465#       发表于 2021-1-6 00:00
+
+
+
+
+大号就不抽水B了，小号和日服号都有，不想重复抽。
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36466#       发表于 2021-1-6 08:09
+
+
+
+
+十五个十连终于把BB抽到了，中间出了4个4星，其中3个狂，没歪到其他5星。把之前算上的的，一共耗了我1500多石才出<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不愧是肖Ai。还剩下160多石，这样就可以安心等c呆了。今年开头还算不错，福袋虽然不出BB，但也new了魔总司，之后几发护符出了政哥哥，加上抽BB时new了狂阿塔 一共4个new。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36467#       发表于 2021-1-6 08:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949187&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 22:10</a>
+
+号太非扔了么</blockquote>
+7单布姐沉船，换了个石头号满宝布姐开具了，当时早，没孔明也照打，打着打着就歪出来了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36468#       发表于 2021-1-6 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951517&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-6 08:33</a>
+
+7单布姐沉船，换了个石头号满宝布姐开具了，当时早，没孔明也照打，打着打着就歪出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36469#       发表于 2021-1-6 10:48
+
+
+
+
+日服的铲子是怎么处理的呢？
+
+
+
+
+
+
+
+-----
+
+####  空气蛹  
+##### 36470#       发表于 2021-1-6 11:10
+
+
+
+
+五单没出bb，yls这池子真的顶不住了，还好上半年没啥想抽的，攒石回血到C呆算了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36471#       发表于 2021-1-7 09:28
+
+
+
+
+这么多人要BB的嘛，我去年抽到后基本就是仓管没出场几次
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36472#       发表于 2021-1-7 10:11
+
+
+
+
+大号呼符1个尼姑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，本来想抽麻雀的，双Up抽不起。
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36473#       发表于 2021-1-7 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49962483&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-1-7 09:28</a>
+
+这么多人要BB的嘛，我去年抽到后基本就是仓管没出场几次</blockquote>
+有没有是两回事...
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36474#       发表于 2021-1-7 11:13
+
+
+
+
+抽了这么多次杀生院，终于抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36475#       发表于 2021-1-7 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49962483&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-1-7 09:28</a>
+
+这么多人要BB的嘛，我去年抽到后基本就是仓管没出场几次</blockquote>
+我周回经常上水B，最近一次就是水B+超人熊刷煌星，无脑3连打法腻了用来调剂一下挺好的，虽然本质上是玩具，但锁卡功能暂时还是水B独有的，错过这村就没这店了
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36476#       发表于 2021-1-7 17:26
+
+
+
+ 本帖最后由 dawning 于 2021-1-7 17:39 编辑 
+
+呼符歪出阿克琉斯<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+qp只有几百万了，点个技能都不行<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36477#       发表于 2021-1-7 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49967307&amp;ptid=1712412" target="_blank">devilwing 发表于 2021-1-7 17:23</a>
+
+我周回经常上水B，最近一次就是水B+超人熊刷煌星，无脑3连打法腻了用来调剂一下挺好的，虽然本质上是玩具 ...</blockquote>
+做打手需要高宝，一宝太水枪，锁卡真的玩具，玩过几次就放下了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36478#       发表于 2021-1-7 18:24
+
+
+
+
+用过好友的4宝水BB还是感觉伤害感人，1宝还是玩暴击吧
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36479#       发表于 2021-1-8 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天发的两张呼符出了玉玉，这个元旦挺舒服
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36480#       发表于 2021-1-8 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974307&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2021-1-8 11:52</a>
+今天发的两张呼符出了玉玉，这个元旦挺舒服</blockquote>
+差不多，15石头加10多张呼符3个5星，今年算是开门红了。
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 36481#       发表于 2021-1-8 14:44
+
+
+
+
+去年阎魔亭的活动没打，这次复刻是首刷。这好像是我第一次看到芬恩活跃的活动，只想感慨原来芬恩是那么靠谱外加有担当的吗，路转粉了，我一直以为你月的芬恩只会追求马修和抱着被刷子哥抢老婆的梗不放这两件事。
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 36482#       发表于 2021-1-8 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975955&amp;ptid=1712412" target="_blank">martinhe 发表于 2021-1-8 14:44</a>
+去年阎魔亭的活动没打，这次复刻是首刷。这好像是我第一次看到芬恩活跃的活动，只想感慨原来芬恩是那么靠谱 ...</blockquote>
+FGO早期主线1.0第三章黑伊阿宋黑的更狠，最后还是落地并给了个大放光彩的2.5.1
+只能说不同写手（甚至同一写手的不同阶段）的态度差异很大了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                                 
