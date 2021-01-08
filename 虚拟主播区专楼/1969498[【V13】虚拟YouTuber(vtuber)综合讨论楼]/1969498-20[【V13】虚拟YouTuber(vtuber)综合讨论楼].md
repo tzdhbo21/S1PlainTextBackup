@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 23:03** 
+> ## **本文件最后更新于2021-01-09 02:04** 
 
 
 
@@ -2506,4 +2506,527 @@ PPH先生の次回作（指杏六期）にご期待ください！！
 
 
 
-                                             
+
+
+-----
+
+####  qq845629713  
+##### 28625#       发表于 2021-1-8 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可以期待新皮了，，所以给sakuyui留的中二妹皮什么时候拿出来
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28626#       发表于 2021-1-8 23:05
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-8 23:07 编辑 
+
+按照大头的节奏那杏6期就是4月出，当然如果你杏六期还搞慈善再就业那祝你杏管选拔的人被泥头车撞死<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+还有天皇你咋不劝劝你家里那位跳槽啊，就算垃圾如杏对口吃神的歌唱事业帮助都比现在这个样子大。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28627#       发表于 2021-1-8 23:14
+
+
+
+
+招不到kson那种魄力的人的话，6期爱谁谁吧，都差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 28628#       发表于 2021-1-8 23:26
+
+
+
+
+kson带来一个市场又炸掉一个市场，再找一个kson又想炸什么呢
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28629#       发表于 2021-1-8 23:28
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-8 23:31 编辑 
+
+【#桃鉄グルメツアー】ご当地グルメ解説付きで食い倒れコラボ！？【#エリーコニファー/#鹿乃/#クックパッドたん/#セフィラスゥ/#メリーミルク】
+
+👆值得研究的人际关系
+
+SYL：
+
+P丸都快150W了，随便发个视频都100w点击，你圈确实是不配。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28630#       发表于 2021-1-8 23:28
+
+
+
+
+快进到杏六期招几个废物 然后被上位几位皇的粉丝骂吃资源啥JB用都没有？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28631#       发表于 2021-1-8 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49980183&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-8 23:28</a>
+【#桃鉄グルメツアー】ご当地グルメ解説付きで食い倒れコラボ！？【#エリーコニファー/#鹿乃/#クックパッド ...</blockquote>
+鹿乃一口吃两碗饭<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28632#       发表于 2021-1-8 23:30
+
+
+
+
+真把en市场炸了你楼铁血杏奴要大欢喜了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28633#       发表于 2021-1-8 23:39
+
+
+
+
+炸了en还能找什么市场，非洲几个人上网啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 28634#       发表于 2021-1-8 23:40
+
+
+
+
+那必然是炸掉本土分社,全社海外进出<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 28635#       发表于 2021-1-8 23:44
+
+
+
+
+不如找个伪音男人混进六期，炸掉男性市场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 28636#       发表于 2021-1-8 23:45
+
+
+
+
+叶今天apex同接有点低，因为队员是外部人的人观众不熟么。油男没有吃虹女buff起飞也满意外的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28637#       发表于 2021-1-8 23:45
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-8 23:48 编辑 
+
+放心EN一定会炸的，不说你杏多少雷埋在地下，就说比杏大N倍人多N倍的日本公司里处理不好外国市场的一捞一大把。
+
+
+SYL：预定六期的王没法抽，平田保底也行吧，反正大头都逐渐适应了。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28638#       发表于 2021-1-8 23:51
+
+
+
+ 本帖最后由 Aminor 于 2021-1-9 00:08 编辑 
+
+大头难道不是泯然众人矣了吗，比起五个大头更想看五个捏捏鸡
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 28639#       发表于 2021-1-9 00:08
+
+
+
+
+大头以前当过仲永吗，不也一样照常发挥
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28640#       发表于 2021-1-9 00:19
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-9 00:32 编辑 
+
+耳朵裂了，不推荐。
+
+听了ptr老师和菩提老师的直播还能搞出这样，给我谢罪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">！
+
+总有一天会变得擅长吧，也许。
+
+
+
+ASMR不是一般会搞那种道具展示吗，郡道玩弄道具的方法和说话语气感觉像在展示刑具，那个铁器声锵锵的，感觉要去势了。
+
+不知是被ban还是自己关了，直播无了，好啊！幻之asmr！
+
+
+<img src="https://img.saraba1st.com/forum/202101/09/001939uc6545t11it8dzt4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 671 - (1) 主页 _ Twitter - twitter.com.jpg</strong> (108.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-9 00:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 28641#       发表于 2021-1-9 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49980317&amp;ptid=1969498" target="_blank">aptx318 发表于 2021-1-8 23:45</a>
+
+叶今天apex同接有点低，因为队员是外部人的人观众不熟么。油男没有吃虹女buff起飞也满意外的 ...</blockquote>
+阿叶同接看看就好了，他就不是高同接选手，我也摸不准他的同接规律，有时候觉得会低又挺高，有时候觉得会高也就一般般，只要最低同接比以前进步我觉得就挺开心了。
+
+
+对比一下之前队友同是外部成员的kmint开局3000+，慢慢才打回近1万，kiss部开局5000不错了，感觉后续能不能上升还要看组合的磨合度和个人能不能成长了，阿叶拿恶灵参赛算挺好的尝试，核心+指挥，但能不能行还要再看。
+
+
+
+
+
+
+
+-----
+
+####  AIOS  
+##### 28642#       发表于 2021-1-9 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49979762&amp;ptid=1969498" target="_blank">free 发表于 2021-1-8 22:36</a>
+
+垃圾圆脸回PPH这话总觉得不对劲</blockquote>
+小免你最爱的空妈被彻底玷污了，这还不给她车爆？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+<img src="https://img.nga.178.com/attachments/mon_202101/09/-zue37Q5-hhlbK1uT3cSkd-h7.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 28643#       发表于 2021-1-9 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49980883&amp;ptid=1969498" target="_blank">AIOS 发表于 2021-1-9 01:10</a>
+
+小免你最爱的空妈被彻底玷污了，这还不给她车爆？</blockquote><blockquote>https://www.reddit.com/r/Hololive/comments/kt5unk/curious_about_this_weeks_shitposting_review/</blockquote>
+
+进行一个出处的补
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28644#       发表于 2021-1-9 01:21
+
+
+
+
+https://youtu.be/NSkC5u2Hu-g
+狐叔又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+事到如今了啊……
+Pph都毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 28645#       发表于 2021-1-9 01:27
+
+
+
+
+免费你感觉如何啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28646#       发表于 2021-1-9 01:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 免费的手机这楼自动变成马赛克，什么都看不到
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28647#       发表于 2021-1-9 01:31
+
+
+
+
+还是阿船人精啊，meme review找鲨皇
+ <blockquote>シークレットゲスト…
+
+配信終了後追記！</blockquote>
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 28648#       发表于 2021-1-9 01:31
+
+
+
+
+什么时候？我看蝗还没开直播间呢，这当然要冲爆
+
+
+
+
+
+
+
+-----
+
+####  Micpun123  
+##### 28649#       发表于 2021-1-9 01:35
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-9 00:19
+耳朵裂了，不推荐。
+
+听了ptr老师和菩提老师的直播还能搞出这样，给我谢罪啊！
+
+总有一天会变得擅长吧 ...</blockquote>
+她就是来搞笑的，反正我听笑了十分钟…
+
+概要栏写了不留档: アーカイブなんて消えるに决まってんだろ逆に何で残ると思ったんだよ。
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 28650#       发表于 2021-1-9 01:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有地方都在准备看免费笑话
+
+坏不坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28651#       发表于 2021-1-9 01:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 提到红迪，你虹的红迪进出不会那个了吧
+
+
+
+
+
+                                            
