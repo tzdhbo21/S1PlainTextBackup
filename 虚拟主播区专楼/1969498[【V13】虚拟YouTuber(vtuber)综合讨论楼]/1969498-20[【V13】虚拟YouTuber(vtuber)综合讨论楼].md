@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 11:02** 
+> ## **本文件最后更新于2021-01-08 17:03** 
 
 
 
@@ -710,4 +710,603 @@ E9D44A5F-4FDD-4052-A78E-B4B2C5CD7ECC.jpeg
 
 
 
-                                                
+
+
+-----
+
+####  OldGlory  
+##### 28533#       发表于 2021-1-8 11:19
+
+
+
+
+bloom改无观客了，压力回到彩虹这边
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28534#       发表于 2021-1-8 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">杏输麻了，这种东西讲道理还是得有现场的，粉丝团建，liver也能团建，也没什么办法就是。
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 28535#       发表于 2021-1-8 12:39
+
+
+
+
+liver团建 草。
+
+不如脑补线下liver打架( ง °皿°)ง⁼³₌₃
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28536#       发表于 2021-1-8 12:44
+
+
+
+
+团建个锤子……就算liver愿意团建，设备给吗，现在一次捕捉上限就是六人……，这种人数的起码三个捕捉室合成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28537#       发表于 2021-1-8 13:18
+
+
+
+
+杏的投入肯定没虹大，少输就是赢，而且杏线上暴打虹，杏赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28538#       发表于 2021-1-8 13:26
+
+
+
+
+杏bloom是演唱会，一转线上毫无压力<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+虹fes是虚拟学园祭，100多演员各种乱七八糟的活动怎么转<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+胜负已在不言中<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 28539#       发表于 2021-1-8 14:01
+
+
+
+
+虹头铁一下赌社运疫情决行，赢了无敌整活输了提桶跑路
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28540#       发表于 2021-1-8 14:08
+
+
+
+
+虹怕什么，你日领导反复横跳折腾p民一年啥事没有，我田角不是领导到时候聚集感染了大不了鞠个躬完事。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28541#       发表于 2021-1-8 14:09
+
+
+
+
+活动1000人限制<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看底边顶着新冠风险空守视听觉室，真的太狼性了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28542#       发表于 2021-1-8 14:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我虹只要卖999张票不就行了？到时候上位势力放播片，底边就去视听室和粉丝互动，双赢！
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28543#       发表于 2021-1-8 14:38
+
+
+
+
+fes现场票退不了的，只能去1000人那肯定要炎上的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28544#       发表于 2021-1-8 14:45
+
+
+
+
+说起来以金鱼妹的性格我不觉得她会找个电子厂上班，啥时候转生啊好急。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 28545#       发表于 2021-1-8 15:21
+
+
+
+[https://tokyo-joypolis.com/event/hololive_jp/index.html](https://tokyo-joypolis.com/event/hololive_jp/index.html)
+
+holo这还有个线下活动呢，指不定谁炸呢
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28546#       发表于 2021-1-8 15:37
+
+
+
+
+往好里想，不管哪家搞成集体感染，2021年词条热度都会排很高的
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 28547#       发表于 2021-1-8 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976477&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-8 15:37</a>
+
+往好里想，不管哪家搞成集体感染，2021年词条热度都会排很高的</blockquote>
+这话说的有点石先生那味道了“越烧人气越旺”
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28548#       发表于 2021-1-8 15:57
+
+
+
+
+叶哥这怎么在官号上有个重大告知<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28549#       发表于 2021-1-8 16:06
+
+
+
+
+20時に重大発表するよ！！
+[https://www.youtube.com/watch?v=OILCd6a8HsQ](https://www.youtube.com/watch?v=OILCd6a8HsQ)
+
+
+盲猜第二套3D，要和睡裤拖鞋88了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28550#       发表于 2021-1-8 16:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 彩虹apex大会？新3D？个人live？
+
+
+想来想去，彩虹apex杯有可能
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28551#       发表于 2021-1-8 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 第二套3D的话，king的粉丝可是真的会生气的！
+
+所以是黑黑新3D
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28552#       发表于 2021-1-8 16:08
+
+
+
+
+这怎么整得跟要毕业了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28553#       发表于 2021-1-8 16:09
+
+
+
+
+话说还真被我年前说中了，你虹真是坚决贯彻把liver人气流量吸到主号上的战略啊。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28554#       发表于 2021-1-8 16:09
+
+
+
+ 本帖最后由 十四洲 于 2021-1-8 16:34 编辑 
+
+我第一反应也是毕业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+才看到有另外一个人，那大概没啥事了
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 28555#       发表于 2021-1-8 16:17
+
+
+
+
+想不通是什么消息在官号上，而且推上官号发就算了，视频也放官号那，应该是个人的，只有叶师一个人加重大发表四个字，要么就是叶师主催了啥官方大活动吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28556#       发表于 2021-1-8 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">apex大会，没有kr和维阿我不看的
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 28557#       发表于 2021-1-8 16:29
+
+
+
+
+あの人是谁？
+封面上却只放了一个人
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28558#       发表于 2021-1-8 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976908&amp;ptid=1969498" target="_blank">ygysh0505 发表于 2021-1-8 16:17</a>
+
+想不通是什么消息在官号上，而且推上官号发就算了，视频也放官号那，应该是个人的，只有叶师一个人加重大发 ...</blockquote>
+说了还有あの人，感觉是信长3d再利用
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 28559#       发表于 2021-1-8 16:49
+
+
+
+
+歌姬最新视频评论区里的歌姬粉，跟当初数字刚刚被木口橄榄的虹粉如出一辙。
+当然，本质上来说歌姬粉的纯良度显然还是比当初的阴湿太监不知道高到哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28560#       发表于 2021-1-8 16:54
+
+
+
+
+郡郡搞了台3dio，真的要搞asmr了吗，她这忍不住笑起来的话，观众会聋吧，
+但其实很开心很期待，BIG LOVE 
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28561#       发表于 2021-1-8 16:56
+
+
+
+<blockquote>qq845629713 发表于 2021-1-8 16:21
+apex大会，没有kr和维阿我不看的</blockquote>
+看维阿和kr 把本部橄榄？我ickr 不会做这么蠢的事情的
+
+
+不过我还是挺想看看星宸的真正水平的，最近他直播apex全是和水友炸鱼和雷岁炸鱼看的有点无聊了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28562#       发表于 2021-1-8 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977304&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-8 16:54</a>
+
+郡郡搞了台3dio，真的要搞asmr了吗，她这忍不住笑起来的话，观众会聋吧，
+
+但其实很开心很期待，BIG LOVE  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">如果有会限R15回，请叫上我
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28563#       发表于 2021-1-8 17:00
+
+
+
+
+建议krvr组一个联队把本社橄榄
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28564#       发表于 2021-1-8 17:02
+
+
+
+
+不存在的follolive
+[https://note.com/yunobana/n/n7639786874e8](https://note.com/yunobana/n/n7639786874e8)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 28565#       发表于 2021-1-8 17:02
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/08/170159g0gc2zzgsqktv9sq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErHaerhUYAAnYQX.jpg</strong> (230.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 17:01 上传
+
+
+
+
+
+[https://twitter.com/ugume3732/status/1347098188939812868](https://twitter.com/ugume3732/status/1347098188939812868)
+
+<img src="https://img.saraba1st.com/forum/202101/08/170159sfdzb7y8caboqfa2.png" referrerpolicy="no-referrer">
+
+
+<strong>ErMGmJ8VcAAEu-k.png</strong> (414.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 17:01 上传
+
+
+
+
+
+[https://twitter.com/booota/status/1347428144748273664](https://twitter.com/booota/status/1347428144748273664)
+
+<img src="https://img.saraba1st.com/forum/202101/08/170200a2hqus2at52a9ha3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErHm4KqU0AUkBkX.jpg</strong> (304.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 17:02 上传
+
+
+
+
+
+[https://twitter.com/spdskond/status/1347111620363776001](https://twitter.com/spdskond/status/1347111620363776001)
+
+
+
+
+
+                                               
