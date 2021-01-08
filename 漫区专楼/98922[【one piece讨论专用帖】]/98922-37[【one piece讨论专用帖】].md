@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-05 02:00** 
+> ## **本文件最后更新于2021-01-08 18:00** 
 
 
 
@@ -2092,19 +2092,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  521op@163.com  
 ##### 54108#       发表于 2020-12-30 13:08
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887685&amp;ptid=98922" target="_blank">chenffluy 发表于 2020-12-30 13:04</a>
-微博热搜第五了，怕是真的要凉，不过海贼王国内版权有腾讯一份，有tony马在或许能无事发生 ...</blockquote>
-平时有可能，但是pony这几天看到jack被弄成这样，可能不敢造次了。
-
-
-
-—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2937,7 +2925,7 @@ SBS那张是26卷，02年出的单行本
 
 
 64jkihsd8jckoic2x32j8e9ss.jpg
-(73.28 KB, 下载次数: 0)
+(73.28 KB, 下载次数: 2)
 
 
 
@@ -3568,4 +3556,663 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 
 
 
-                                           
+
+
+-----
+
+####  届得到  
+##### 54182#       发表于 2021-1-5 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939980&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-1-5 00:56</a>
+Op的人物没有成长，只有过去，所有的人都是用一个过去回忆勾勒人物，这么多年了路飞还是傻逼，厨师还是好 ...</blockquote>
+是倒退了，2年后跪舔和之国的五皇不配给大智若愚的路飞提鞋
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yth329  
+##### 54183#       发表于 2021-1-5 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937532&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-1-4 19:47</a>
+
+所以前三是谁？</blockquote>
+估计是罗索隆和路飞
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 54184#       发表于 2021-1-6 07:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939980&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-1-4 10:56</a>
+
+Op的人物没有成长，只有过去，所有的人都是用一个过去回忆勾勒人物，这么多年了路飞还是傻逼，厨师还是好 ...</blockquote>
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为狗狗的宠物店被毁了，娜美气的火冒三丈，五皇根本面无表情，而且下一页跟狮子见面还嬉皮笑脸的，跟啥事没有似的
+<img src="https://p.sda1.dev/0/ab0edbec39d2aaaba6bf2bc84153380a/QQ截图20210105162729.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5a5e87aa3218f9d2c1f5fc83329ed190/QQ截图20210105162741.png" referrerpolicy="no-referrer">
+
+
+结果两页过后毫无征兆的直接发飙
+<img src="https://p.sda1.dev/0/33f24a8ff86145b147db1dcfd015fb89/QQ截图20210105162754.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/1f54d120597e7c3231aaf3f3ee9cabde/QQ截图20210105162806.png" referrerpolicy="no-referrer">
+
+但是这件事除了狮子谁都没看见，之后不管不明真相的娜美怎么咒骂，继续一脸平静，和狗狗嬉皮笑脸
+<img src="https://p.sda1.dev/0/ca4ba45300f8ff554db723f0b22bb802/QQ截图20210105162838.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0ba4f1ef78f85ce8253a3a6a77e098a9/QQ截图20210105162857.png" referrerpolicy="no-referrer">
+
+这种感情捉摸不定，思想深藏不露的态度才真的有皇的气概
+
+再看两年后五皇，别提表情收不收得住了，路遇不平直接青筋崩起，“愤怒”变得跟地痞流氓一般廉价
+
+其他还有很多例子
+
+比如娜美她姐要谈娜美的过去，五皇直接抬屁股就走说我不感兴趣
+<img src="https://p.sda1.dev/0/ae6ce6f26945536840ef3fee6725ad9e/QQ截图20210105164553.png" referrerpolicy="no-referrer">
+
+但是娜美自残的时候第一之间出现阻止，娜美抱怨的时候既不安慰也不发作，一直憋到娜美那句“救救我”说出口才爆发
+<img src="https://p.sda1.dev/0/e71bc9e8b6b067b54b2197d50dbda66c/QQ截图20210105164622.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/9f904b7561e11e9794a6887a6e0870a7/QQ截图20210105164640.png" referrerpolicy="no-referrer">
+
+不说情商，前期五皇智商也是高的可以
+
+薇薇说要阻止叛军，其他船员全被激动过头的薇薇牵着鼻子走，只有五皇直接一屁股坐下，一针见血地表示你太天真了，内乱怎么可能不死人？你的重点根本不是叛军，而是砂鳄才对
+<img src="https://p.sda1.dev/0/20cc4fcc4363c194b730a7280fa45de0/QQ截图20210105165348.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5223e477fc52d8c56248f395bb8a832f/QQ截图20210105165410.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f49f1ae1e3c9ff8a03ef390bcee3b3d7/QQ截图20210105165436.png" referrerpolicy="no-referrer">
+
+平常吊儿郎当，但当所有人都迷失方向的时候不看错真正的目标，这才是“船长”
+
+再看两年后的五皇智商直接消失，只要面前有敌人想也不想直接开干，为啥要打、是否真的需要打、打完会有啥后果全都不考虑
+
+和之国初遇凯多就是例子，罗都反复强调那么清楚了还非要上去莽，结果一棒槌被砸晕，直接导致后面计划全乱
+
+幸亏凯多有曹丞相的病，不杀养着，不然OP当场完结还谈个P的复国
+
+现在看路飞跟悟空的成长路线根本是反过来，因为反正有时间所以龙珠前期也看了一下
+
+悟空前期那是真傻，连数数都不会的野孩子，智商担当全靠布玛和雅木茶撑着，他自己就管打打打，但是后期逐渐能看出来是假傻，经过岁月的流逝都能干出怂恿布欧杀掉巴比迪这种老奸巨猾的操作
+
+而路飞前期是假傻，看着啥也不懂实际上精明得很，不仅敌人连队友都猜不透他，不是全船照顾他而是他在关键时刻照顾全船的人，结果后期成了真傻，智商担当分给了其他船员和同盟的倒霉蛋罗，他自己就只管打打打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 县警| + 1|思路广|
+| 睡耘居主| + 1|对比孔明前后前期实力有余俗现在中年危机.|
+| 苟富贵daze| + 1|好评加鹅|
+| 拉鲁拉丝| + 1|好评加鹅|
+| yinfu| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 54185#       发表于 2021-1-6 09:36
+
+
+
+ 本帖最后由 evangelina 于 2021-1-6 09:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
+
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为 ...</blockquote>
+
+
+你贴的前几张早期的战斗看着也舒服，现在人跟场景堆的满满的看着都累<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 54186#       发表于 2021-1-6 09:52
+
+
+
+
+2年后路飞突出一个弱智，什么情况都是莽一波
+
+
+打阿普对面能力是啥都不知道，上来就被人炸晕过去
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54187#       发表于 2021-1-6 10:06
+
+
+
+
+会不会是大家老了啊
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54188#       发表于 2021-1-6 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
+
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为 ...</blockquote>
+重看到这里的时候我也惊了，以前的路飞甚至能跟敌人谈战争观
+
+换现在的话感觉就是啊？你在说什么？哈喽？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 54189#       发表于 2021-1-6 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952592&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-1-5 20:28</a>
+
+重看到这里的时候我也惊了，以前的路飞甚至能跟敌人谈战争观
+
+换现在的话感觉就是啊？你在说什么？哈喽？[f ...</blockquote>
+这段最厉害的地方在于，他是故意挑薇薇走了之后才会这么回应砂鳄的
+
+之前路飞也跟薇薇争过，而且还大打出手（我上面贴的），最后发现薇薇这种理想主义思维是根深蒂固的，说了也白说，所以干脆不说了，改说我们去解决砂鳄吧
+
+薇薇直到结局都不知道，其实路飞心底里是这么想她的
+
+所以才说早期路飞魅力真心大，即使心底里的思想大相径庭，但绝不让你知道，大家依然是好伙伴，依然会为你拼命擦屁股<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陶矢  
+##### 54190#       发表于 2021-1-6 11:53
+
+
+
+
+还有空岛敲钟, 只有路飞意识到敲钟的意义 
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗Xi  
+##### 54191#       发表于 2021-1-6 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
+
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为 ...</blockquote>
+五黄前期真的是少年漫里最有魅力的角色了，可以说毫无黑点
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54192#       发表于 2021-1-6 12:01
+
+
+
+
+还有单挑青雉，不是一时冲动想出来的
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 54193#       发表于 2021-1-6 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
+
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为 ...</blockquote>
+观众长大了，尾田甚至没有原地踏步，他在倒退！
+
+尾田就一个画漫画的，懂什么海贼王
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 54194#       发表于 2021-1-6 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953001&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 11:01</a>
+
+这段最厉害的地方在于，他是故意挑薇薇走了之后才会这么回应砂鳄的
+
+之前路飞也跟薇薇争过，而且还大打出 ...</blockquote>
+按雷利说法路飞天生擅长感知对方情绪，作为领导者这可是大优点
+
+
+<img src="https://img.saraba1st.com/forum/202101/06/152628ly33g09z60gl3eyk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>u=2223927215,4156921640&amp;amp;fm=173&amp;amp;s=88867C3298214892931191C20100E0A1&amp;amp;w=640&amp;amp;h=214&amp;amp;im.jpeg</strong> (24.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-6 15:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 54195#       发表于 2021-1-6 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
+
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为 ...</blockquote>
+两年前的路飞看着真舒服啊！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">久违了
+
+
+
+
+
+
+
+-----
+
+####  tornadoDA  
+##### 54196#       发表于 2021-1-6 15:38
+
+
+
+
+这周没有漫画吗
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 54197#       发表于 2021-1-6 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952073&amp;ptid=98922" target="_blank">evangelina 发表于 2021-1-6 09:36</a>
+
+你贴的前几张早期的战斗看着也舒服，现在人跟场景堆的满满的看着都累 ...</blockquote>
+现在的画面和港漫有得一拼了，密密**
+
+
+
+
+
+
+
+-----
+
+####  岚sho  
+##### 54198#       发表于 2021-1-6 17:44
+
+
+
+
+路飞最开始吸引到我就是开篇克比一心想参军，但有黑历史，而且还被海军误会和路飞是一伙的，他化解的那段，真的是机制又巧妙
+印象中他最后一次体现他的智商还是在水之都，现在就剩莽了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  摸鱼先锋  
+##### 54199#       发表于 2021-1-6 22:14
+
+
+
+
+两年后的五黄智商随着艾斯一起逝去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单挑青稚放团员们逃跑的机智表现不知道什么时候才能见到了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54200#       发表于 2021-1-6 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49959617&amp;ptid=98922" target="_blank">摸鱼先锋 发表于 2021-1-6 22:14</a>
+
+两年后的五黄智商随着艾斯一起逝去了单挑青稚放团员们逃跑的机智表现不知道什么时候才能见到了 ...</blockquote>
+我也觉得，艾斯当时是全篇最弱智的堪称，结果他一死，感觉就像弱智病毒感染了所有角色。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 54201#       发表于 2021-1-7 00:21
+
+
+
+
+唉，看了2年前的路飞真是感慨万千
+
+现在真就五黄了
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 54202#       发表于 2021-1-7 01:20
+
+
+
+
+想起当年怎么爱上这部漫画的 一转眼十几年过去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54203#       发表于 2021-1-8 12:09
+
+
+
+
+人太多了，尾田赶着完结没时间再写路飞的睿智了
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54204#       发表于 2021-1-8 12:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">其实当时打凯多不算什么错误啊
+
+就像路飞当时说的 同伴都生死未卜还谈什么计划
+
+如果真的能略过他的军队直接打倒凯多 其他问题都是小问题
+
+只是谁都料不到真一棒子就无了 读者也想不到
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54205#       发表于 2021-1-8 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974464&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-1-8 12:09</a>
+
+人太多了，尾田赶着完结没时间再写路飞的睿智了</blockquote>
+其实不成立，没时间写睿智，但有时间写耍宝，好色，迷路……这种不用再强调了的东西
+
+
+
+
+
+
+
+-----
+
+####  stonego  
+##### 54206#       发表于 2021-1-8 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975446&amp;ptid=98922" target="_blank">cdfjg 发表于 2021-1-8 13:53</a>
+
+其实不成立，没时间写睿智，但有时间写耍宝，好色，迷路……这种不用再强调了的东西 ...</blockquote>
+角色太多，每个人戏份有限只能用标签化的行为来画个轮廓，和各种奇怪口癖一样都是为了在短时间内给读者留下一个印象的做法，到了鬼岛甚至大部分新角色亮个名牌说两句口癖就要下场了，尾田确实是摊子铺的太大，收不住了。
+
+
+
+
+
+
+
+-----
+
+####  SteinLee  
+##### 54207#       发表于 2021-1-8 14:26
+
+
+
+
+罗：一刀超人，路飞：一拳超人
+
+
+
+
+
+
+
+-----
+
+####  游蜓  
+##### 54208#       发表于 2021-1-8 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">每次重看都能发现路飞是装傻，结果新世界是真傻
+
+
+
+
+
+
+
+-----
+
+####  游蜓  
+##### 54209#       发表于 2021-1-8 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977096&amp;ptid=98922" target="_blank">游蜓 发表于 2021-1-8 16:33</a>
+
+每次重看都能发现路飞是装傻，结果新世界是真傻</blockquote>
+哦不对，大妈篇还算有点智商，和之国是啥玩意啊
+
+
+
+
+
+
+
+-----
+
+####  akstcle  
+##### 54210#       发表于 2021-1-8 17:27
+
+
+
+ 本帖最后由 akstcle 于 2021-1-8 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974827&amp;ptid=98922" target="_blank">klzxs 发表于 2021-1-8 12:46</a>
+
+其实当时打凯多不算什么错误啊
+
+就像路飞当时说的 同伴都生死未卜还谈什么计划
+
+如果真的能略过他的军 ...</blockquote>
+就算是错估实力，路飞哪来的自信能在对方援军赶来前打赢最强生物？
+
+而且同伴生死不明状态，你第一时间应该赶去确认情况并救人，而不是人头加1吧？幸亏被一棒子秒了，否则发展成缠斗，你的同伴总要帮眼前的船长吧？那没工夫去救人了。
+
+结果就是你就算打赢凯多，重伤员都要被拖死了。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 54211#       发表于 2021-1-8 17:32
+
+
+
+<blockquote>stonego 发表于 2021-1-8 14:03
+角色太多，每个人戏份有限只能用标签化的行为来画个轮廓，和各种奇怪口癖一样都是为了在短时间内给读者留 ...</blockquote>
+所以就是不会做减法......设计了N多人物结果连带主角团一起标签化，该突出的却不突出
+
+
+
+
+
+                                          
