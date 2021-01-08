@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-06 16:22** 
+> ## **本文件最后更新于2021-01-08 21:25** 
 
 
 
@@ -4719,14 +4719,7 @@ OK，主要是怕光剑是不是要组剑盘用
 ####  山下野人  
 ##### 13763#       发表于 2020-8-18 05:44
 
-
-
-
-火属真的是太强了，三个十分角色
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -21448,16 +21441,7 @@ new了只有士郎 火组长  4把士郎刀qnm
 ####  山下野人  
 ##### 14678#       发表于 2021-1-3 21:34
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928306&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-1-3 20:24</a>
-
-今天井了菲利做出来一套标准背水**，开ZOE平A一轮测试发现**就比我没法武的暗方多了10W左右伤害，我 ...</blockquote>
-火力暗方不输老王的，暗老王厉害在比方阵硬
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -22042,15 +22026,7 @@ AK和一期一振是土老王的攻刃基底，这个没有异议
 ####  山下野人  
 ##### 14708#       发表于 2021-1-5 01:28
 
-
-
-<blockquote>purdre 发表于 2021-1-5 00:29
-抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老 ...</blockquote>
-转老王其实最缺的是属性晶，看看自己缺不缺吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -22618,4 +22594,511 @@ C4职业无脑选兽王 后面盘子起来了多一个武僧
 
 
 
-        
+
+
+-----
+
+####  shinitakute  
+##### 14736#       发表于 2021-1-6 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49956249&amp;ptid=1158205" target="_blank">404489039 发表于 2021-01-06 16:10:44</a>
+暗兽王最强是菲利琴</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">没有菲莉琴
+是不是多刷阿努比斯换一把斧头做主手比较好呀
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 14737#       发表于 2021-1-6 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49956553&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 16:42</a>
+
+没有菲莉琴
+
+是不是多刷阿努比斯换一把斧头做主手比较好呀</blockquote>
+0破的阿凡达琴也凑合，暗一堆自嗨的不太需要连击
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 14738#       发表于 2021-1-6 19:19
+
+
+
+
+0圈fa是比菲力更舒服的主手，不过对盘子要求挺高
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 14739#       发表于 2021-1-7 16:22
+
+
+
+
+管他的，这次古战场可以上演暴龙大战超级机械人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14740#       发表于 2021-1-7 19:51
+
+
+
+ 本帖最后由 syndrome2032 于 2021-1-7 20:00 编辑 
+
+fkhr:希望把gbf做成弃坑一段时间也能回来玩的很开心的游戏。
+
+他是在说塔罗门票和沙盒这种日课吗
+还是说古战打10箱的积极玩家?
+还是说一个110 200银片和30把转属
+然后战货活动boss血越来越多。这次为了防黄龙暗双剑跨属已经加到1500w血了。
+
+哦，有动力搞这些的是超积极玩家，不存在他说的情况。
+
+这话他说出来自己信🐴?
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14741#       发表于 2021-1-7 21:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">FKHR还真以为自己是吉田直树呢，看看2020这一年下来，gbf到底加了什么阴间的要刷的东西、要撕的东西、要日课的东西，他真有脸说出来这种话？
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14742#       发表于 2021-1-7 22:12
+
+
+
+
+和群友讨论了下。群友很严肃的指出了，只要新的游戏内容足够又肝又不够强。就可以减小差距
+
+
+俺寻思了下，他说的很对。20年的不少内容都是这样的，从exskill到沙盒再到110天人
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14743#       发表于 2021-1-7 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49969938&amp;ptid=1158205" target="_blank">adretyu67 发表于 2021-1-7 22:12</a>
+
+和群友讨论了下。群友很严肃的指出了，只要新的游戏内容足够又肝又不够强。就可以减小差距
+
+
+俺寻思了下，他 ...</blockquote>
+但是这同时也会让终盘玩家感觉非常无聊，甚至烦躁...
+
+
+核心玩家们费了不知道多少时间精力和财力，把自己的强度提升到一定程度之后，结果接下来的内容居然是拿着高射炮去打蚊子，无止境的消耗时间去刷低难度副本，只是为了一点蚊子腿的提升...从这个角度来看，我个人对gbf2020年的更新是非常不满意的。
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14744#       发表于 2021-1-7 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49970089&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2021-1-7 22:26</a>
+
+但是这同时也会让终盘玩家感觉非常无聊，甚至烦躁...
+
+
+核心玩家们费了不知道多少时间精力和财力，把自己 ...</blockquote>
+传统式精神分裂。天天希望玩家减负，每次生放送又生怕别人不知道玩家参与度有多高。
+
+
+年初又砸了一把土技练LM出来。可以看看后面的LM是继续军备竞赛还是缩回去了。
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14745#       发表于 2021-1-7 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49970170&amp;ptid=1158205" target="_blank">adretyu67 发表于 2021-1-7 22:34</a>
+
+传统式精神分裂。天天希望玩家减负，每次生放送又生怕别人不知道玩家参与度有多高。
+
+
+年初又砸了一把土技 ...</blockquote>
+别提了，之前觉得土老王经济实惠就砸了一圈，结果一年下来LM数量翻了一倍...<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+如果照着一个属性6LM的模板来看的话，那2021年的新LM估计也没土老王啥事了，正好把这几把新LM的用法消化消化
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14746#       发表于 2021-1-8 09:31
+
+
+
+
+这土凉鞋确实厉害 还是说今年计划所有属性都来一个凉鞋？
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14747#       发表于 2021-1-8 10:19
+
+
+
+ 本帖最后由 windhawind2 于 2021-1-8 10:22 编辑 
+
+大巴里土的数量已经超过暗了 土芬肉眼可见的改变了猎金环境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 火精进必备的nmn又没有狗到 今年周年超真不知道超谁了
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14748#       发表于 2021-1-8 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49973331&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-1-8 10:19</a>
+
+大巴里土的数量已经超过暗了 土芬肉眼可见的改变了猎金环境 大公打的少 云下来土和火应该也算完成对 ...</blockquote>
+我看没mao很多人也用泽塔madao
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14749#       发表于 2021-1-8 13:26
+
+
+
+ 本帖最后由 吾乃啊噗 于 2021-1-8 13:39 编辑 
+
+fa的话其实是没zemadao才用mao<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过其实工作日白天没那么多人，可能akx白天也没那么多人
+
+还有本来不想做2的 结果发现身边很多人都做完了 我就加把劲给她做完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14750#       发表于 2021-1-8 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975195&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-1-8 13:26</a>
+
+fa的话其实是没zemadao才用mao不过其实工作日白天没那么多人，可能akx白天也没那么多人
+
+还有本来不 ...</blockquote>
+因为大家都发现2终终突没有那么弱啊..一次奥义就刷两发大炮呢
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 14751#       发表于 2021-1-8 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975444&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-8 13:53</a>
+
+因为大家都发现2终终突没有那么弱啊..一次奥义就刷两发大炮呢</blockquote>
+打桩比路高一个终突的上限，的确是强的有限，但是很肝。还吃金。（当然做110的大概也不缺金）
+
+问题是，后有终终终 终终终。。。到150.
+
+很难想象在150的体系下天人不会破坏核心玩家和普通玩家的差距（我觉得普通玩家大概真的很难做150）
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14752#       发表于 2021-1-8 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975444&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-8 13:53</a>
+
+因为大家都发现2终终突没有那么弱啊..一次奥义就刷两发大炮呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实还有一点 就是愿意做的人做起来发现好像也没那难做
+
+毕竟这是第一个 手里资源都很丰富 再往后倒是要掂量掂量了
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14753#       发表于 2021-1-8 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975572&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-1-8 14:04</a>
+
+其实还有一点 就是愿意做的人做起来发现好像也没那难做
+
+毕竟这是第一个 手里资源都很丰富 再往后 ...</blockquote>
+确实，主要是大部分资源只要有耐心搞一天星本都能搞定..对愿意搞二突的人里的大部分来说，最麻烦的还是ffj和钢碎，所以还是只能选着突
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14754#       发表于 2021-1-8 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974645&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-1-8 12:28</a>
+
+我看没mao很多人也用泽塔madao</blockquote>
+zemadao也没有草生
+
+
+
+
+
+
+
+-----
+
+####  桧川直巳  
+##### 14755#       发表于 2021-1-8 14:36
+
+
+
+
+大巴猎金打那么快有啥用啊，还不是蓝箱金
+
+每天早上自发都能叮的一下进来3个满级土人竞速打爆，感觉没必要啊
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14756#       发表于 2021-1-8 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975879&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2021-1-8 14:36</a>
+
+大巴猎金打那么快有啥用啊，还不是蓝箱金
+
+每天早上自发都能叮的一下进来3个满级土人竞速打爆，感觉没必要啊 ...</blockquote>
+蓝箱的掉率也要看贡献，打得快怎么可能没用
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 14757#       发表于 2021-1-8 15:18
+
+
+
+
+不需要365天都玩gbf的，所以有7500星碎和75的每日兑换上限
+
+真就星本当宝呗，这还真是即便退坑多年，回来还是继续刷星本，好上手
+
+碰瓷吉田可真把我看吐了，傻逼一样的塔罗日课，自家游戏撕逼越来越内卷大部人只能靠每日自发红箱也还意思提保护回归体验
+
+
+
+
+
+
+
+-----
+
+####  桧川直巳  
+##### 14758#       发表于 2021-1-8 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976187&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-8 15:06</a>
+
+蓝箱的掉率也要看贡献，打得快怎么可能没用</blockquote>
+不是120w还是130w封顶吗，我拿日常配置f5两下就到了……
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14759#       发表于 2021-1-8 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976357&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2021-1-8 15:25</a>
+
+不是120w还是130w封顶吗，我拿日常配置f5两下就到了……</blockquote>
+50%贡献才是封顶。但通常到了25%的贡献之后的掉率增长不会太高
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 14760#       发表于 2021-1-8 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976373&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-8 15:26</a>
+
+50%贡献才是封顶。但通常到了25%的贡献之后的掉率增长不会太高</blockquote>
+有两种说法
+
+一种是120w 贡献拿10%概率
+
+240w 是13% 所以打120w
+
+另一种是240w 拿20%概率
+
+
+
+
+
+
+
+-----
+
+####  wcorvo  
+##### 14761#       发表于 2021-1-8 21:06
+
+
+
+
+话说还有新人群吗？入坑一段时间还是很多不懂的，主楼几个群都挂了好像
+
+
+
+
+
+       
