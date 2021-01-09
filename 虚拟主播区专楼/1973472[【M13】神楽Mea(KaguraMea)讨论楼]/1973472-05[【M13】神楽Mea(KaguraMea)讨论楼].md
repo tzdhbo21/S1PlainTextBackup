@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 19:06** 
+> ## **本文件最后更新于2021-01-09 20:43** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_X6sKs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_YL43L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21127,7 +21127,7 @@ syl，没记错
 <img src="https://img.saraba1st.com/forum/202101/08/000246fw3700vz71eexzvs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
-<strong>564E508D-018E-4E76-846F-FB5DDC2F2A41.jpeg</strong> (459.5 KB, 下载次数: 3)
+<strong>564E508D-018E-4E76-846F-FB5DDC2F2A41.jpeg</strong> (459.5 KB, 下载次数: 4)
 
 下载附件
 
@@ -21230,7 +21230,7 @@ syl，没记错
 
 
 33670746-6A48-48E2-AF53-669B7C572D5B.jpeg
-(50.88 KB, 下载次数: 0)
+(50.88 KB, 下载次数: 1)
 
 
 
@@ -21586,4 +21586,697 @@ syl，没记错
 
 
 
-         
+
+
+-----
+
+####  路人庚  
+##### 7202#       发表于 2021-1-8 19:24
+
+
+
+
+看来她并没有错过阿拉希的live的样子（
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7203#       发表于 2021-1-8 21:12
+
+
+
+
+20210108东京20点
+
+<img src="https://img.saraba1st.com/forum/202101/08/211153zgvlggdpg1y86di0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0BFA4CB0-BED1-43B7-AFC7-4AA86FB56233.jpeg</strong> (84.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 21:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7204#       发表于 2021-1-8 22:16
+
+
+
+
+20210108东京22点
+
+<img src="https://img.saraba1st.com/forum/202101/08/221601j5lgzggcgcr1eg9k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>742F616A-361F-42F2-8F27-CEF6EC160255.jpeg</strong> (87.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-8 22:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7205#       发表于 2021-1-8 22:36
+
+
+
+
+草了日本炸了 好担心小羊啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7206#       发表于 2021-1-8 23:58
+
+
+
+
+还好她应该没什么必须要做的线下工作了，看她这次回老家都是爹妈接去送来的，应该也叮嘱过很多注意事项了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7207#       发表于 2021-1-9 11:35
+
+
+
+
+《众筹把小麻掳回国内再度被提上日程》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7208#       发表于 2021-1-9 11:36
+
+
+
+
+最近很多yhm都说身体不太舒服喉咙不太舒服的..... 麻 麻小心啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7209#       发表于 2021-1-9 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">该接到我家里隔离了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7210#       发表于 2021-1-9 13:22
+
+
+
+
+现在知道把心爱的东西关起来才是正确的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7211#       发表于 2021-1-9 13:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">已经在去她家接人的路上了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7212#       发表于 2021-1-9 13:43
+
+
+
+<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_Uv541" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_v39Md" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_dHbub" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_AB17J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7213#       发表于 2021-1-9 13:44
+
+
+
+
+高山 明
+
+@tm_akira0121
+
+Vtuberでターミネーター2 #漫画 #きずなーぽすと #たまきあーと #めあArt #しら画 #VTuber #ターミネーター2 #ターミネーター #キズナアイ #犬山たまき 
+[https://pixiv.net/artworks/86883508](https://pixiv.net/artworks/86883508)
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7214#       发表于 2021-1-9 13:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea开泥头车追杀犬山，好耶
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7215#       发表于 2021-1-9 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两国网民殊途同归（）
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7216#       发表于 2021-1-9 14:22
+
+
+
+
+T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7217#       发表于 2021-1-9 14:32
+
+
+
+
+怎么有种她本土粉多了一点的错觉
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7218#       发表于 2021-1-9 14:38
+
+
+
+
+多一点好 多一点好啊
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7219#       发表于 2021-1-9 14:47
+
+
+
+
+感觉本土粉多是因为冲国粉少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7220#       发表于 2021-1-9 14:52
+
+
+
+
+最近貌似两边新粉都有增加？臭鱼烂虾太多反衬是这样的，不过这人天生不留粉，破粉丝防有一手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7221#       发表于 2021-1-9 16:53
+
+
+
+
+今天播吗
+会继续讲arashi吗
+
+求求这女人别讲男人了，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7222#       发表于 2021-1-9 17:20
+
+
+
+<blockquote>Mr.shelter 发表于 2021-1-9 16:53
+今天播吗
+
+会继续讲arashi吗
+</blockquote>
+岚好歹红了20年，国内甚至都找不到同等级的的组合。喜欢好歹有理有据，发情艺的人选比之前好多了。
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7223#       发表于 2021-1-9 18:28
+
+
+
+
+普通yhm发情而已<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7224#       发表于 2021-1-9 19:06
+
+
+
+
+女粉听mea聊男人居然会受不了吗？
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7225#       发表于 2021-1-9 19:09
+
+
+
+
+前提是今晚她会动啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7226#       发表于 2021-1-9 19:11
+
+
+
+
+你觉得我是怎样的女粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+关键最近她fq也太多了，fleet说，tc说，油管还说......藤原有歌五元有梗，对岚fq没啥节目效果...... 
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7227#       发表于 2021-1-9 19:21
+
+
+
+
+其实频率是在下降的了（
+
+
+之前油管第一播我本来想聊nino逗她玩，但听她基本没聊阿拉希的事也就没提了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7228#       发表于 2021-1-9 19:24
+
+
+
+
+我能接受她一直fq艺，但我不想看她一直用没有意义和节目效果的fq去挤占整个直播的时间<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">...... 
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7229#       发表于 2021-1-9 19:36
+
+
+
+
+与其说是没有意义、没有节目效果，不如说是萝卜青菜各有所爱，而你正好不好这一口吧（
+
+
+实际上拿nino、舞元去逗她，我感觉本质上并没有什么区别，都只是图一乐罢了，就像死宅3个月换个老婆，她3个月也会换个男人的（）
+
+
+至于占用直播时间，俺寻思赶紧找个苏啪黑客把她的mmo账号销了才是真的（
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7230#       发表于 2021-1-9 19:49
+
+
+
+
+成年了，直播能整的活也会多点，反正2021年应该能赌马了，建议各位去看看赛马娘做做功课。
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7231#       发表于 2021-1-9 19:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">成年了，可以光明正大地去找野男人了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7232#       发表于 2021-1-9 20:01
+
+
+
+
+什么时候才能直播打柏青哥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7233#       发表于 2021-1-9 20:01
+
+
+
+
+你楼女粉都很可怕，切记切记
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7234#       发表于 2021-1-9 20:08
+
+
+
+
+成年了就可以喝酒了，等一个醉酒回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7235#       发表于 2021-1-9 20:10
+
+
+
+
+醉酒好好好，不过以她性格肯定是没有的，即便有，那也肯定是不留档而且B站删除不允许任何二创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7236#       发表于 2021-1-9 20:10
+
+
+
+
+希望能喝了也别喝多，怕她坏嗓子。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7237#       发表于 2021-1-9 20:16
+
+
+
+
+酒有很多种，也许她哪天郁闷了就去尝尝甜酒果酒了
+
+如果解酒酶不够的话，喝这种也是会醉的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7238#       发表于 2021-1-9 20:17
+
+
+
+
+坐等士大夫送酒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7239#       发表于 2021-1-9 20:36
+
+
+
+
+坐等士大夫下⭕（<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7240#       发表于 2021-1-9 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49986630&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-1-9 20:16</a>
+酒有很多种，也许她哪天郁闷了就去尝尝甜酒果酒了
+
+如果解酒酶不够的话，喝这种也是会醉的 ...</blockquote>
+我好奇很久了.... 你真的有“路人”加“天干地支”二十二个号吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么养啊，一天上一个？
+
+
+
+
+
+        

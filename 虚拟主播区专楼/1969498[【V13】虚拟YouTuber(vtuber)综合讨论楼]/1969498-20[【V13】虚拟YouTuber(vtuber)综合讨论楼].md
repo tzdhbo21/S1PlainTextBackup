@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-09 16:03** 
+> ## **本文件最后更新于2021-01-09 20:41** 
 
 
 
@@ -3656,11 +3656,594 @@ Mio这推特账号居然真的被冻结了，怎样操作才会变成这样…�
 
 
 
+ 本帖最后由 Suzutsuki 于 2021-1-9 16:04 编辑 
 
-空星翻了！好！
-
-
-
+空星翻了！好！订阅也10w了 双喜！<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
 
-                                           
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28690#       发表于 2021-1-9 16:06
+
+
+
+
+我愿称为天道酬勤<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28691#       发表于 2021-1-9 16:09
+
+
+
+
+空星感觉挺稳的，懂得默听已经胜过这大赛一半人了吧
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28692#       发表于 2021-1-9 16:13
+
+
+
+
+准决赛2很凶，郡道空星主持都是雀杰级别的，力一也差不多。
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28693#       发表于 2021-1-9 16:28
+
+
+
+
+职业老哥也在直播虹的比赛
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 28694#       发表于 2021-1-9 16:58
+
+
+
+
+长尾景是不是炎上了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28695#       发表于 2021-1-9 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，鹰宫这都行？
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28696#       发表于 2021-1-9 17:11
+
+
+
+
+金憨憨这都晋级了 这合理吗
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28697#       发表于 2021-1-9 17:11
+
+
+
+
+傻人有傻福
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 28698#       发表于 2021-1-9 17:13
+
+
+
+
+rion还真晋级了，司估计爆笑中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28699#       发表于 2021-1-9 17:14
+
+
+
+
+只能说傻人有傻福了，又有节目效果又赢了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28700#       发表于 2021-1-9 18:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹这个雀魂工商，我是相信可能有八位数的。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28701#       发表于 2021-1-9 18:22
+
+
+
+
+月之今天玩scn团嘛，我怕忘剧情就稍微去看了会以前的活动视频，在透ひなな互问开不开心之后，月之聊到自己和不是很熟的虹liver聊天都会问在虹待着开不开心，被评论吐槽说这个问题由月之来问给的压力太大了点，月之就反驳说只是想亲近起来啦，
+然后，评论问月之在虹待着开不开心，月之：“今は楽しいかな～”，
+因为是用非常随便的语气说的，有几分真几分敷衍也搞不懂，就很好奇，她是以前有过不开心的时候，还是搞不懂现在自己究竟是开心还是不开心呢？
+月之到底在想什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28702#       发表于 2021-1-9 18:28
+
+
+
+
+月之开不开心我们不知道，mrr开不开心我们都知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 28703#       发表于 2021-1-9 18:35
+
+
+
+ 本帖最后由 aptx318 于 2021-1-9 18:38 编辑 
+
+你虹这工商除了月之全社让道
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28704#       发表于 2021-1-9 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49985855&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2021-1-9 18:28</a>
+月之开不开心我们不知道，mrr开不开心我们都知道了</blockquote>
+不在彩虹待着=彩虹待着不开心，
+可能三角也觉得住院更开心吧
+
+省一楼，inui半小时后歌回（[https://youtu.be/LOHBVf2bWvs](https://youtu.be/LOHBVf2bWvs)）
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28705#       发表于 2021-1-9 19:07
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-9 19:13 编辑 
+
+inui这cherry突然跑调还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这首月撇华尔兹又行了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28706#       发表于 2021-1-9 19:08
+
+
+
+
+补了一下夜见录播感觉她还是有点失落啊，和马车的时候一样自己的实力不差也尽力去准备去练习了，结果输给了运气，只能说麻将打得好确实能够保证不吃四但是稳拿第一确实很难做到，估计去年和她一桌的路易斯也是和她现在一个感受吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28707#       发表于 2021-1-9 19:19
+
+
+
+
+三角现在至少2000人订阅fanbox，没什么不开心的。
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 28708#       发表于 2021-1-9 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东风局是这样的 遇到神仙没点没办法
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28709#       发表于 2021-1-9 19:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">むぎ这自缚麻将把我笑死了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28710#       发表于 2021-1-9 19:27
+
+
+
+
+家長むぎ、奇跡を起こすか？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28711#       发表于 2021-1-9 19:32
+
+
+
+
+唱不上去果断跳过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28712#       发表于 2021-1-9 19:37
+
+
+
+ 本帖最后由 stedckk 于 2021-1-9 19:40 编辑 
+
+麦麦这打得，我的血压<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+最后居然流局一吃三<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28713#       发表于 2021-1-9 19:42
+
+
+
+
+文野环，苏醒！
+快打完了，希望哈哥猫猫啊喵喵晋级<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28714#       发表于 2021-1-9 19:43
+
+
+
+
+inui这就交大了啊，不过确实是最适合她的的一首，比aimer那首适合多了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28715#       发表于 2021-1-9 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星川保送不破
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28716#       发表于 2021-1-9 19:47
+
+
+
+
+拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 28717#       发表于 2021-1-9 19:48
+
+
+
+
+这狗怎么回事？唱到一半狂笑，不是桌子下面有人吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28718#       发表于 2021-1-9 19:49
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-9 19:51 编辑 
+
+您这音域唱雪之华不是自己找不痛快嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+炸麦力，该换设备了。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28719#       发表于 2021-1-9 19:49
+
+
+
+
+パパ活で得た金をホストに振り込む社会の縮図<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28720#       发表于 2021-1-9 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗狗狗也唱红莲华，管人梦魇咋也逃不掉吗？
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 28721#       发表于 2021-1-9 19:57
+
+
+
+
+阿床每次唱歌到了难唱的部分需要发力唱的时候，LIVE2D捕捉的面部都是张嘴闭眼目力的样子真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28722#       发表于 2021-1-9 20:02
+
+
+
+
+虽然阿床歌力到位，但是这首気まぐれロマンティック你虹最最最适合的人还是gbr。
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 28723#       发表于 2021-1-9 20:12
+
+
+
+
+突然想看所有没晋级的组一个败者组，然后败者组是输的继续下一轮，角逐出一个彩虹最菜<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          
