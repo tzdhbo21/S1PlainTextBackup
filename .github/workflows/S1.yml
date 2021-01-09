@@ -26,10 +26,12 @@ jobs:
       env:
         S1_COOKIE: ${{ secrets.S1_COOKIE }}
       run: |
-        export TZ='CST-8'
         python s1.py
     - name: commit
+      env:
+        TZ: 'CST-8'
       run: |
+        timedatectl set-timezone Asia/Shanghai
         git config --global user.email trembleafterme@outlook.com
         git config --global user.name TomoeMami
         datime=$(date "+%Y年%m月%d日 %H:%M")
