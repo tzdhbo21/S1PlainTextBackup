@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 11:25** 
+> ## **本文件最后更新于2021-01-08 21:25** 
 
 
 
@@ -4719,14 +4719,7 @@ OK，主要是怕光剑是不是要组剑盘用
 ####  山下野人  
 ##### 13763#       发表于 2020-8-18 05:44
 
-
-
-
-火属真的是太强了，三个十分角色
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -21448,16 +21441,7 @@ new了只有士郎 火组长  4把士郎刀qnm
 ####  山下野人  
 ##### 14678#       发表于 2021-1-3 21:34
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928306&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-1-3 20:24</a>
-
-今天井了菲利做出来一套标准背水**，开ZOE平A一轮测试发现**就比我没法武的暗方多了10W左右伤害，我 ...</blockquote>
-火力暗方不输老王的，暗老王厉害在比方阵硬
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -21620,10 +21604,12 @@ new了只有士郎 火组长  4把士郎刀qnm
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 黄昏的轮回| + 1|好评加鹅|
+| DDWarrior| + 1|好评加鹅|
 | jxzeroga0| + 1|好评加鹅|
 
 
@@ -21688,4 +21674,1431 @@ AK 1q1z 芬剑
 
 
 
-          
+
+
+-----
+
+####  凌云三才  
+##### 14690#       发表于 2021-1-4 11:29
+
+
+
+ 本帖最后由 凌云三才 于 2021-1-4 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932388&amp;ptid=1158205" target="_blank">yla 发表于 2021-1-4 11:10</a>
+
+这次转盘，让我终于有了暗老王...
+
+那么，暗属性缺奶嘴没情佐，召唤没贝
+
+我能玩哪些套路 ...</blockquote>
+背水宇宙，没贝除了AKX差点意思，其他的基本够用了，奶嘴是我FA的铁板前排，不过没有的话体感也不会差太多，暗不太缺打手
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14691#       发表于 2021-1-4 12:12
+
+
+
+
+200抽3虹搭配5个超级红毛垃圾出产，反正每次200连都是这样，已经开始逐渐习惯了
+
+希望明年多中点普池吧，去年新普池基本都没抽到，抽的量月均0.8井肯定是有的
+
+
+
+
+
+
+
+-----
+
+####  hashire.owl  
+##### 14692#       发表于 2021-1-4 12:13
+
+
+
+
+现在召唤石感觉好挤，肥宅是不是只留两个就行了啊
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 14693#       发表于 2021-1-4 12:22
+
+
+
+
+2021年了我还是没哈迪斯<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+不过金月99个了，要不黑卡换个算了
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  super0395  
+##### 14694#       发表于 2021-1-4 14:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49933054&amp;ptid=1158205" target="_blank">是这样 发表于 2021-1-4 12:22</a>
+2021年了我还是没哈迪斯
+不过金月99个了，要不黑卡换个算了</blockquote>
+黑卡换老王门票，不是暗真爱不要干
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14695#       发表于 2021-1-4 14:34
+
+
+
+
+去年黑卡换哈不亏，我换了我爽了。今年不好说，土崛起的挺明显的，很大程度可以替代暗，能玩土可以不玩哈
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14696#       发表于 2021-1-4 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932973&amp;ptid=1158205" target="_blank">hashire.owl 发表于 2021-1-4 12:13</a>
+
+现在召唤石感觉好挤，肥宅是不是只留两个就行了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太挤了。我觉得甚至只需要一个
+
+
+
+
+
+
+
+-----
+
+####  剑布衣  
+##### 14697#       发表于 2021-1-4 15:18
+
+
+
+
+这次3井下来感想是qks生涯最黑暗的转盘<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+不过圣诞终于抽到了泰坦，5年多了，终于6属老王成了，再农一把方阵武器算我输（flag？）高兴之余换了个石油弓出来打雷，发现神盾主招不能必爆有点憨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  买个pcr凸了泰坦再说吧....
+
+
+去年当了一整年的邓紫棋(等紫骑） 等个屁，水lm毛都没有，放弃了滚吧四字母
+
+
+最后这个周年活动啊，是不是能期待一下整个光贝雅了啊，你瞅瞅这剑坏了三年了吧，赶紧修修整个新卡，戒指已经准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Charizard  
+##### 14698#       发表于 2021-1-4 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928306&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-1-3 20:24</a>
+今天井了菲利做出来一套标准背水**，开ZOE平A一轮测试发现**就比我没法武的暗方多了10W左右伤害，我 ...</blockquote>
+一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">我也是刚井完菲莉，砸了钢和jgj转宇宙**
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14699#       发表于 2021-1-4 17:02
+
+
+
+ 本帖最后由 DDWarrior 于 2021-1-4 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932026&amp;ptid=1158205" target="_blank">404489039 发表于 2021-1-4 10:38</a>
+
+准备砸3jgj 9钢玩突老王
+
+AK 1q1z 芬剑 
+
+除了没肥宅</blockquote>
+个人感觉最好还是加一把嫂子斧吧...从上次土团来看，没嫂子斧的泰坦宇宙不见得能打过配置完整的土方
+
+
+AK和一期一振是土老王的攻刃基底，这个没有异议
+
+嫂子斧提供的神威和进境属攻让土老王FA和攻坚更舒服一点
+
+金骑枪目前看来主要还是在湊必爆的时候有用，还是要搭配神盾短校长刀这些东西才能发挥作用
+
+当然，附带的必杀在打牛和奥义主轴队伍还是有用的，不过全民FA打技伤的环境下，奥义之王老八就显得有点格格不入
+
+至于阿芬剑...只有攻刃小和技炼词条，是一把偏向精进的武器，感觉最好还是搭配塔子哥一起用会比较好的样子
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 14700#       发表于 2021-1-4 18:26
+
+
+
+
+其实200抽抽成什么样我倒无所谓了，我就是现在看着这一礼物盒几百个加蛋低星头疼的要死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 14701#       发表于 2021-1-4 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936741&amp;ptid=1158205" target="_blank">里村紅葉 发表于 2021-1-4 18:26</a>
+
+其实200抽抽成什么样我倒无所谓了，我就是现在看着这一礼物盒几百个加蛋低星头疼的要死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">把要的拿走，然后直接下面的一键分解和喂杯子呗，我今天才知道喂杯子后会吐出加蛋，以前都没敢试
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 14702#       发表于 2021-1-4 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936887&amp;ptid=1158205" target="_blank">yla 发表于 2021-1-4 18:43</a>
+
+把要的拿走，然后直接下面的一键分解和喂杯子呗，我今天才知道喂杯子后会吐出加蛋，以前都没敢试 ...</blockquote>
+可是礼物箱里不能喂杯子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着这近200个R武器血都要吐出来了
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 14703#       发表于 2021-1-4 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937382&amp;ptid=1158205" target="_blank">里村紅葉 发表于 2021-1-4 19:35</a>
+
+可是礼物箱里不能喂杯子啊看着这近200个R武器血都要吐出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">礼物箱里最下面2排8个按键不就是武器/召唤对应的一键卖出/分解/杯子/进仓库么
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14704#       发表于 2021-1-4 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937382&amp;ptid=1158205" target="_blank">里村紅葉 发表于 2021-1-4 19:35</a>
+可是礼物箱里不能喂杯子啊看着这近200个R武器血都要吐出来了</blockquote>
+更新过以后已经可以了 往下拉仔细看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 14705#       发表于 2021-1-4 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937526&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-1-4 19:46</a>
+
+更新过以后已经可以了 往下拉仔细看</blockquote>
+我以为不能喂带加蛋的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  血色秋叶  
+##### 14706#       发表于 2021-1-4 23:56
+
+
+
+
+抽完卡发现我做不起老王了，看着手里的火光lm，哭了
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 14707#       发表于 2021-1-5 00:29
+
+
+
+
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老王盘是哪个啊，值不值得投资呢
+
+
+
+
+
+
+
+-----
+
+####  山下野人  
+##### 14708#       发表于 2021-1-5 01:28
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  边界循环  
+##### 14709#       发表于 2021-1-5 02:32
+
+
+
+<blockquote>purdre 发表于 2021-1-5 00:29
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老 ...</blockquote>
+最便宜砸一把仇闪一把假闪一把0圈 做个宇宙盘 棒槌和菲力琴都是可选插件 再要砸就砸3把d剑 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14710#       发表于 2021-1-5 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939841&amp;ptid=1158205" target="_blank">purdre 发表于 2021-01-05 00:29:10</a>
+抽完发现自己暗老王石头有了，各Limited武器也都有两把以上了，有没有暗老王大佬指点一下现在最舒服的暗老 ...</blockquote>分几种思路：
+1. 背水宇宙 最便宜用的最多的一种 砸一把仇闪就可以打拳了 后续升级可以砸菲丽琴 零圈 宿无这些 优势是便宜lm投入少 可以猎金 可以打拳撕贡献 劣势是打低压本背水太耗时间
+2.浑身盘 跟火牛刀光路枪一样思路 堆d剑 优势是割草舒服 劣势是lm投入砸钢较多  猎金的话现在倒是有浑身打拳的思路了
+3.必爆盘核心是棒槌 实战因为基本锁定双面老王 只有打团战150之类长期高防本用
+一般只打打拳的话选1就好 最便宜 精进一般是选1+2或者1+3 当然超精进蛤就是我全都要.jpg了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 2|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14711#       发表于 2021-1-5 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941482&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-01-05 09:42:14</a>
+分几种思路：
+1. 背水宇宙 最便宜用的最多的一种 砸一把仇闪就可以打拳了 后续升级可以砸菲丽琴 零圈 宿无 ...</blockquote>说错了 一般选1+3或者2+3
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14712#       发表于 2021-1-5 09:56
+
+
+
+
+礼物箱里的武器转化成杯子的时候能不能一次选多一点
+现在好像一次10把还是20把来着？我大概有3500-4000左右的R,SR武器，点了几次就手酸了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14713#       发表于 2021-1-5 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必爆真心没必要了。双面老王不说，又不能嫖贝FA大巴之类
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 14714#       发表于 2021-1-5 10:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">昨天砸完仇闪宿无呼啦圈后滚去农暗晶的我
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14715#       发表于 2021-1-5 11:46
+
+
+
+
+现在的大巴多则能进来20人，满血放的少也不会太少，嫖贝fa大巴什么的已经无所谓了
+
+土fa刷新猎了几天，一天比一天人多，好时代来临咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  goreen  
+##### 14716#       发表于 2021-1-5 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941482&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-1-5 09:42</a>
+
+分几种思路：
+
+1. 背水宇宙 最便宜用的最多的一种 砸一把仇闪就可以打拳了 后续升级可以砸菲丽琴 零圈 宿无 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">D天凯子竟是我！
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 14717#       发表于 2021-1-5 14:09
+
+
+
+
+宿无只有一把，又不想用黑钢。今天发现我二阶法背水宇宙打个光龙被同样二阶的暗爪盘完爆<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+是不是三阶附魔背水就有救了.jpg
+想一想也不是坏事.jpg
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14718#       发表于 2021-1-5 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有三阶不要玩宇宙，这句话适合任何属性
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14719#       发表于 2021-1-5 15:00
+
+
+
+
+现在大巴环境和其他日常都是浑身有利，但是暗背水又不能少，所以要么老王两开花，要么老王和方阵一个背水一个浑身，总之精进暗的话123都不能少了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 14720#       发表于 2021-1-5 16:38
+
+
+
+
+仔細一看 除了石油武器 我土老王封頂了
+
+砸完最新的金騎跟涼鞋的武器 我還剩下足夠的黑鋼砸4把LM
+
+
+火風光三屬性老王的材料都齊了 不知道砸那個屬性好
+
+火還有原本就砸滿的3把火牛刀
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14721#       发表于 2021-1-5 17:19
+
+
+
+ 本帖最后由 areklose 于 2021-1-5 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945596&amp;ptid=1158205" target="_blank">Niu 发表于 2021-1-5 16:38</a>
+
+仔細一看 除了石油武器 我土老王封頂了
+
+砸完最新的金騎跟涼鞋的武器 我還剩下足夠的黑鋼砸4把LM</blockquote>
+光 除非你已经农了炎柱，光老王体验比光方好很多。甚至不用农恶心的炎柱
+
+
+
+
+
+
+
+-----
+
+####  血色秋叶  
+##### 14722#       发表于 2021-1-5 20:24
+
+
+
+
+光方2炎柱，两把法都做了，现在光火凯子二选一
+不知道选什么，最后剩下一个也会去农金做完
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14723#       发表于 2021-1-5 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49948110&amp;ptid=1158205" target="_blank">血色秋叶 发表于 2021-1-5 20:24</a>
+
+光方2炎柱，两把法都做了，现在光火凯子二选一
+
+不知道选什么，最后剩下一个也会去农金做完</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正都要做完了，先做光打光团爽一下呗
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14724#       发表于 2021-1-6 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">想问一下，我目前101级，准备把暗蛤做成比较能打的盘子（比如可以solo光活动本boss），目前盘子里只有三闪一椰子一六道枪，然后塞了两个之前送的20技爪子，就不知道放什么好了……
+目前手里有0妈圈，但感觉喂不到150级；也塞了巴武U武拉血量，但感觉这些最终都是会淘汰的……
+所以现在120之前还有什么能做的能刷的么，在我有这些武器的条件下应该首先来哪个C4职业比较适合暗蛤？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pzk  
+##### 14725#       发表于 2021-1-6 10:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">新人无脑选伐木工（兽王）
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 14726#       发表于 2021-1-6 11:29
+
+
+
+ 本帖最后由 凌云三才 于 2021-1-6 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952244&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 09:55</a>
+
+想问一下，我目前101级，准备把暗**做成比较能打的盘子（比如可以solo光活动本boss），目前盘子里只 ...</blockquote>
+麒麟弓，武勋有富裕的话换狗铳
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14727#       发表于 2021-1-6 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952244&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 09:55</a>
+
+想问一下，我目前101级，准备把暗**做成比较能打的盘子（比如可以solo光活动本boss），目前盘子里只 ...</blockquote>
+你这只能背水**？不过现在多仇闪的盘基本很少见了 连传统优势项目大巴都因为副本调整和土老王的加入 没那么大优势了 现在仇闪最多砸一把 椰子日常也用不上 
+
+真铁了心走老王 建议一边踢罐子练级一边自发暗大马之类 把几个好用的免费插件 麒麟弓 大马斧 大马杖之类累积到手 往宇宙方向走u武和巴武因为老王一般都普刃溢出了 没啥必要
+
+C4职业无脑选兽王 后面盘子起来了多一个武僧 
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14728#       发表于 2021-1-6 12:32
+
+
+
+
+在safari上完很容易就logout，要回登陆页面点数据连携正常吗
+
+
+
+
+
+
+
+-----
+
+####  Tzzt  
+##### 14729#       发表于 2021-1-6 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954169&amp;ptid=1158205" target="_blank">Aureth 发表于 2021-1-6 12:32</a>
+在safari上完很容易就logout，要回登陆页面点数据连携正常吗</blockquote>
+发推了 官方的锅 2点维护
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14730#       发表于 2021-1-6 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954332&amp;ptid=1158205" target="_blank">Tzzt 发表于 2021-1-6 12:47</a>
+
+发推了 官方的锅 2点维护
+
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 S1Next-鹅版 v ...</blockquote>
+今天确实很异常，但平时也有切一下标签页回来就要重新登陆点情况。。。
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14731#       发表于 2021-1-6 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953626&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-01-06 11:47:41</a>
+你这只能背水**？不过现在多仇闪的盘基本很少见了 连传统优势项目大巴都因为副本调整和土老王的加入 没那 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">感谢！
+不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？
+现在有什么比较推荐做的职业武器么，以前做的是义贼专武，不知道现在哪种职业武器用的比较多
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 14732#       发表于 2021-1-6 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954415&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 12:56</a>
+
+感谢！
+
+不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？
+
+现在有什 ...</blockquote>
+现在用的最多的多半是全属性双剑和风武僧的棒槌 罗宾汉的弓也还行
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 14733#       发表于 2021-1-6 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941623&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-5 09:56</a>
+礼物箱里的武器转化成杯子的时候能不能一次选多一点
+现在好像一次10把还是20把来着？我大概有3500-4000左右 ...</blockquote>
+20，禮物箱一下子就淨空了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14734#       发表于 2021-1-6 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954415&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 12:56</a>
+
+感谢！
+
+不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？
+
+现在有什 ...</blockquote>
+兽王不需要职业武器，不过开C4和EX2职业记得是起码做一把职武？具体流程有点忘了 要做职武的话C4 双剑（全属性都有用） C4 武僧（风用的比较多） Ex2剑豪（水土用的多，不过现在都是时代的眼泪了） Ex2处刑者（高难solo限定，后期才有用） 随便做一把就行了
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 14735#       发表于 2021-1-6 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49954415&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 12:56</a>
+ 感谢！ 不过我看做兽王需要狂战士和乐师20级，开这两个职业好像都需要做出一把职业武器？ 现在有什 ...</blockquote>
+暗兽王最强是菲利琴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14736#       发表于 2021-1-6 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49956249&amp;ptid=1158205" target="_blank">404489039 发表于 2021-01-06 16:10:44</a>
+暗兽王最强是菲利琴</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">没有菲莉琴
+是不是多刷阿努比斯换一把斧头做主手比较好呀
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 14737#       发表于 2021-1-6 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49956553&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-6 16:42</a>
+
+没有菲莉琴
+
+是不是多刷阿努比斯换一把斧头做主手比较好呀</blockquote>
+0破的阿凡达琴也凑合，暗一堆自嗨的不太需要连击
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 14738#       发表于 2021-1-6 19:19
+
+
+
+
+0圈fa是比菲力更舒服的主手，不过对盘子要求挺高
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 14739#       发表于 2021-1-7 16:22
+
+
+
+
+管他的，这次古战场可以上演暴龙大战超级机械人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14740#       发表于 2021-1-7 19:51
+
+
+
+ 本帖最后由 syndrome2032 于 2021-1-7 20:00 编辑 
+
+fkhr:希望把gbf做成弃坑一段时间也能回来玩的很开心的游戏。
+
+他是在说塔罗门票和沙盒这种日课吗
+还是说古战打10箱的积极玩家?
+还是说一个110 200银片和30把转属
+然后战货活动boss血越来越多。这次为了防黄龙暗双剑跨属已经加到1500w血了。
+
+哦，有动力搞这些的是超积极玩家，不存在他说的情况。
+
+这话他说出来自己信🐴?
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14741#       发表于 2021-1-7 21:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">FKHR还真以为自己是吉田直树呢，看看2020这一年下来，gbf到底加了什么阴间的要刷的东西、要撕的东西、要日课的东西，他真有脸说出来这种话？
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14742#       发表于 2021-1-7 22:12
+
+
+
+
+和群友讨论了下。群友很严肃的指出了，只要新的游戏内容足够又肝又不够强。就可以减小差距
+
+
+俺寻思了下，他说的很对。20年的不少内容都是这样的，从exskill到沙盒再到110天人
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14743#       发表于 2021-1-7 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49969938&amp;ptid=1158205" target="_blank">adretyu67 发表于 2021-1-7 22:12</a>
+
+和群友讨论了下。群友很严肃的指出了，只要新的游戏内容足够又肝又不够强。就可以减小差距
+
+
+俺寻思了下，他 ...</blockquote>
+但是这同时也会让终盘玩家感觉非常无聊，甚至烦躁...
+
+
+核心玩家们费了不知道多少时间精力和财力，把自己的强度提升到一定程度之后，结果接下来的内容居然是拿着高射炮去打蚊子，无止境的消耗时间去刷低难度副本，只是为了一点蚊子腿的提升...从这个角度来看，我个人对gbf2020年的更新是非常不满意的。
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14744#       发表于 2021-1-7 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49970089&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2021-1-7 22:26</a>
+
+但是这同时也会让终盘玩家感觉非常无聊，甚至烦躁...
+
+
+核心玩家们费了不知道多少时间精力和财力，把自己 ...</blockquote>
+传统式精神分裂。天天希望玩家减负，每次生放送又生怕别人不知道玩家参与度有多高。
+
+
+年初又砸了一把土技练LM出来。可以看看后面的LM是继续军备竞赛还是缩回去了。
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 14745#       发表于 2021-1-7 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49970170&amp;ptid=1158205" target="_blank">adretyu67 发表于 2021-1-7 22:34</a>
+
+传统式精神分裂。天天希望玩家减负，每次生放送又生怕别人不知道玩家参与度有多高。
+
+
+年初又砸了一把土技 ...</blockquote>
+别提了，之前觉得土老王经济实惠就砸了一圈，结果一年下来LM数量翻了一倍...<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+如果照着一个属性6LM的模板来看的话，那2021年的新LM估计也没土老王啥事了，正好把这几把新LM的用法消化消化
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14746#       发表于 2021-1-8 09:31
+
+
+
+
+这土凉鞋确实厉害 还是说今年计划所有属性都来一个凉鞋？
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14747#       发表于 2021-1-8 10:19
+
+
+
+ 本帖最后由 windhawind2 于 2021-1-8 10:22 编辑 
+
+大巴里土的数量已经超过暗了 土芬肉眼可见的改变了猎金环境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 火精进必备的nmn又没有狗到 今年周年超真不知道超谁了
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14748#       发表于 2021-1-8 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49973331&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-1-8 10:19</a>
+
+大巴里土的数量已经超过暗了 土芬肉眼可见的改变了猎金环境 大公打的少 云下来土和火应该也算完成对 ...</blockquote>
+我看没mao很多人也用泽塔madao
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14749#       发表于 2021-1-8 13:26
+
+
+
+ 本帖最后由 吾乃啊噗 于 2021-1-8 13:39 编辑 
+
+fa的话其实是没zemadao才用mao<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过其实工作日白天没那么多人，可能akx白天也没那么多人
+
+还有本来不想做2的 结果发现身边很多人都做完了 我就加把劲给她做完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14750#       发表于 2021-1-8 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975195&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-1-8 13:26</a>
+
+fa的话其实是没zemadao才用mao不过其实工作日白天没那么多人，可能akx白天也没那么多人
+
+还有本来不 ...</blockquote>
+因为大家都发现2终终突没有那么弱啊..一次奥义就刷两发大炮呢
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 14751#       发表于 2021-1-8 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975444&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-8 13:53</a>
+
+因为大家都发现2终终突没有那么弱啊..一次奥义就刷两发大炮呢</blockquote>
+打桩比路高一个终突的上限，的确是强的有限，但是很肝。还吃金。（当然做110的大概也不缺金）
+
+问题是，后有终终终 终终终。。。到150.
+
+很难想象在150的体系下天人不会破坏核心玩家和普通玩家的差距（我觉得普通玩家大概真的很难做150）
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14752#       发表于 2021-1-8 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975444&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-8 13:53</a>
+
+因为大家都发现2终终突没有那么弱啊..一次奥义就刷两发大炮呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实还有一点 就是愿意做的人做起来发现好像也没那难做
+
+毕竟这是第一个 手里资源都很丰富 再往后倒是要掂量掂量了
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14753#       发表于 2021-1-8 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975572&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-1-8 14:04</a>
+
+其实还有一点 就是愿意做的人做起来发现好像也没那难做
+
+毕竟这是第一个 手里资源都很丰富 再往后 ...</blockquote>
+确实，主要是大部分资源只要有耐心搞一天星本都能搞定..对愿意搞二突的人里的大部分来说，最麻烦的还是ffj和钢碎，所以还是只能选着突
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14754#       发表于 2021-1-8 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974645&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-1-8 12:28</a>
+
+我看没mao很多人也用泽塔madao</blockquote>
+zemadao也没有草生
+
+
+
+
+
+
+
+-----
+
+####  桧川直巳  
+##### 14755#       发表于 2021-1-8 14:36
+
+
+
+
+大巴猎金打那么快有啥用啊，还不是蓝箱金
+
+每天早上自发都能叮的一下进来3个满级土人竞速打爆，感觉没必要啊
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14756#       发表于 2021-1-8 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975879&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2021-1-8 14:36</a>
+
+大巴猎金打那么快有啥用啊，还不是蓝箱金
+
+每天早上自发都能叮的一下进来3个满级土人竞速打爆，感觉没必要啊 ...</blockquote>
+蓝箱的掉率也要看贡献，打得快怎么可能没用
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 14757#       发表于 2021-1-8 15:18
+
+
+
+
+不需要365天都玩gbf的，所以有7500星碎和75的每日兑换上限
+
+真就星本当宝呗，这还真是即便退坑多年，回来还是继续刷星本，好上手
+
+碰瓷吉田可真把我看吐了，傻逼一样的塔罗日课，自家游戏撕逼越来越内卷大部人只能靠每日自发红箱也还意思提保护回归体验
+
+
+
+
+
+
+
+-----
+
+####  桧川直巳  
+##### 14758#       发表于 2021-1-8 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976187&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-8 15:06</a>
+
+蓝箱的掉率也要看贡献，打得快怎么可能没用</blockquote>
+不是120w还是130w封顶吗，我拿日常配置f5两下就到了……
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14759#       发表于 2021-1-8 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976357&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2021-1-8 15:25</a>
+
+不是120w还是130w封顶吗，我拿日常配置f5两下就到了……</blockquote>
+50%贡献才是封顶。但通常到了25%的贡献之后的掉率增长不会太高
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 14760#       发表于 2021-1-8 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49976373&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-8 15:26</a>
+
+50%贡献才是封顶。但通常到了25%的贡献之后的掉率增长不会太高</blockquote>
+有两种说法
+
+一种是120w 贡献拿10%概率
+
+240w 是13% 所以打120w
+
+另一种是240w 拿20%概率
+
+
+
+
+
+
+
+-----
+
+####  wcorvo  
+##### 14761#       发表于 2021-1-8 21:06
+
+
+
+
+话说还有新人群吗？入坑一段时间还是很多不懂的，主楼几个群都挂了好像
+
+
+
+
+
+       

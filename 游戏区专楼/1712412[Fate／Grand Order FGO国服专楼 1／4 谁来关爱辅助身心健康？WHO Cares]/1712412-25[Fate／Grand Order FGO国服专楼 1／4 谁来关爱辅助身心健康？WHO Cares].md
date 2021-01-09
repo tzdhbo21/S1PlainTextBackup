@@ -1,0 +1,8565 @@
+> ## **本文件最后更新于2021-01-08 15:18** 
+
+
+
+-----
+
+####  devilwing  
+##### 36001#       发表于 2020-12-7 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49641292&amp;ptid=1712412" target="_blank">GALLADE 发表于 2020-12-7 18:15</a>
+
+顶配下限也会98%，就很蛋疼
+
+
+还好与我无关，我眼里只剩金材料了！</blockquote>
+顶配应该不会，我是90级4宝无金芙芙，如果是100级5宝满金芙芙的顶配就不用垫刀直接回满了，前提条件有两个，礼装喂到百级和第一面交一个降防
+
+
+
+
+
+
+
+-----
+
+####  GALLADE  
+##### 36002#       发表于 2020-12-7 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49641907&amp;ptid=1712412" target="_blank">devilwing 发表于 2020-12-7 19:19</a>
+
+顶配应该不会，我是90级4宝无金芙芙，如果是100级5宝满金芙芙的顶配就不用垫刀直接回满了，前提条件有两 ...</blockquote>
+礼装非100级已经因为98交了3次令咒了，如果你说顶配还要礼装满级那确实可以
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36003#       发表于 2020-12-7 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49642904&amp;ptid=1712412" target="_blank">GALLADE 发表于 2020-12-7 21:00</a>
+
+礼装非100级已经因为98交了3次令咒了，如果你说顶配还要礼装满级那确实可以 ...</blockquote>
+不是100级礼装如果刷了个比较接近0.9的随机数确实是回不满，虽然这种概率不高。愿意垫刀的话，50级礼装就够了，cba任意卡垫刀即可回满，想不垫刀又100%回满只能升100级礼装了
+
+
+
+
+
+
+
+-----
+
+####  imlyc4  
+##### 36004#       发表于 2020-12-8 00:15
+
+
+
+
+高难过了，随便凑了个队伍，12个回合，最后剩下个阿瓦隆剑圣收了茶茶的人头，这到底算高难还是低难啊
+
+
+
+
+
+
+
+-----
+
+####  wwjwwgzhp  
+##### 36005#       发表于 2020-12-8 11:19
+
+
+
+
+卧槽今天头一次知道原来这游戏你有49%NP,然后用CBA冲50%会自动帮你补满到100%，施舍你1%的np
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36006#       发表于 2020-12-8 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49647965&amp;ptid=1712412" target="_blank">wwjwwgzhp 发表于 2020-12-8 11:19</a>
+卧槽今天头一次知道原来这游戏你有49%NP,然后用CBA冲50%会自动帮你补满到100%，施舍你1%的np ...</blockquote>
+应该是要过99.3才会 小数点不显示
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36007#       发表于 2020-12-8 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49647965&amp;ptid=1712412" target="_blank">wwjwwgzhp 发表于 2020-12-8 11:19</a>
+
+卧槽今天头一次知道原来这游戏你有49%NP,然后用CBA冲50%会自动帮你补满到100%，施舍你1%的np ...</blockquote>
+大哥！您冥王星归来的？
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36008#       发表于 2020-12-8 13:17
+
+
+
+
+无心插柳柳成荫，居然刷了50个冰晶
+
+
+
+
+
+
+
+-----
+
+####  saga  
+##### 36009#       发表于 2020-12-8 14:43
+
+
+
+
+从80池到120池连续掉了8张
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36010#       发表于 2020-12-8 16:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202012/08/165425nhkmgmmagk61wwmt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20201208091904.jpg</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2020-12-8 16:54 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">一张呼符俩剑福……这是我今年最后的欧气了…………
+
+
+
+
+
+
+
+
+-----
+
+####  lcychill  
+##### 36011#       发表于 2020-12-8 17:07
+
+
+
+
+这是少了500万吗
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36012#       发表于 2020-12-8 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49651484&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-8 16:55</a>
+一张呼符俩剑福……这是我今年最后的欧气了…………</blockquote>
+真的是欧羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36013#       发表于 2020-12-8 20:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49651484&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-8 16:55</a>
+
+一张呼符俩剑福……这是我今年最后的欧气了…………</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">牛逼了
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36014#       发表于 2020-12-8 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49651484&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-8 16:55</a>
+一张呼符俩剑福……这是我今年最后的欧气了…………</blockquote>
+牛逼牛逼
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36015#       发表于 2020-12-8 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到现在刚57池 这应该是我刷的最少的一次了
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36016#       发表于 2020-12-8 21:27
+
+
+
+
+我一直在做的美梦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  一个陆仁贾  
+##### 36017#       发表于 2020-12-9 08:00
+
+
+
+
+我的的fgo6.7GB了，你们的呢，听说是卸载再重新安装能小点？
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36018#       发表于 2020-12-9 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49651484&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-8 16:55</a>
+
+一张呼符俩剑福……这是我今年最后的欧气了…………</blockquote>
+太欧了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36019#       发表于 2020-12-9 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49656752&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2020-12-9 08:00</a>
+我的的fgo6.7GB了，你们的呢，听说是卸载再重新安装能小点？
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的  ...</blockquote>
+重下没用，你到时候语音之类的也要重下，到时候也会这么大。
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36020#       发表于 2020-12-9 10:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49656752&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2020-12-9 08:00</a>
+
+我的的fgo6.7GB了，你们的呢，听说是卸载再重新安装能小点？
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的  ...</blockquote>
+有用，不过之后抽卡信息会要重下，不介意的话就重新下载
+
+话说我一直拿来玩的IPAD也没这么大，可能和我之前换过一个有关系吧
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36021#       发表于 2020-12-9 11:55
+
+
+
+
+12池掉了礼装，但是我也没想多刷，总之还是咸了，商店都搬不完
+
+看看剩下的时间够不够给最后一张四星练满级
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36022#       发表于 2020-12-9 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49651484&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-8 16:55</a>
+
+一张呼符俩剑福……这是我今年最后的欧气了…………</blockquote>
+我还想了半天一张护符怎么会俩……
+
+牛逼牛逼，蹭下欧气
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36023#       发表于 2020-12-9 18:48
+
+
+
+
+刷创可贴刷了快三十池总共掉了一张礼装
+
+今天想到过两天要结束了，回去刷金材料，刷了四把掉了两张<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36024#       发表于 2020-12-9 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664196&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2020-12-9 18:48</a>
+刷创可贴刷了快三十池总共掉了一张礼装
+
+今天想到过两天要结束了，回去刷金材料，刷了四把掉了两张 ...</blockquote>
+都是快结束了就疯狂掉礼装，和你刷什么其实没关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36025#       发表于 2020-12-9 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49664316&amp;ptid=1712412" target="_blank">不乖 发表于 2020-12-9 19:00</a>
+
+都是快结束了就疯狂掉礼装，和你刷什么其实没关系
+
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上 ...</blockquote>
+可恶可恨叶良树！
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36026#       发表于 2020-12-9 23:33
+
+
+
+
+今天刷了快10000张创可贴，掉了五张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 36027#       发表于 2020-12-10 02:05
+
+
+
+
+我想问问你们的陈宫都喂了几个杯子啊
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36028#       发表于 2020-12-10 08:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667732&amp;ptid=1712412" target="_blank">南极磷 发表于 2020-12-10 02:05</a>
+
+我想问问你们的陈宫都喂了几个杯子啊
+
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+1个也没有，拉满银芙芙完事
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36029#       发表于 2020-12-10 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667732&amp;ptid=1712412" target="_blank">南极磷 发表于 2020-12-10 02:05</a>
+我想问问你们的陈宫都喂了几个杯子啊
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+没有，对他没兴趣为什么要喂他圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36030#       发表于 2020-12-10 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667732&amp;ptid=1712412" target="_blank">南极磷 发表于 2020-12-10 02:05</a>
+
+我想问问你们的陈宫都喂了几个杯子啊
+
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+喂到100级
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 36031#       发表于 2020-12-10 12:52
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  marxel  
+##### 36032#       发表于 2020-12-10 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667732&amp;ptid=1712412" target="_blank">南极磷 发表于 2020-12-10 02:05</a>
+我想问问你们的陈宫都喂了几个杯子啊
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+80
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.2.2-alpha
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36033#       发表于 2020-12-10 14:30
+
+
+
+
+65级的陈宫基本没上过场，另外一个1级的陈宫倒是上过几次高难了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36034#       发表于 2020-12-10 14:55
+
+
+
+
+65级陈宫就不要想打白字本了，或者说基本就是绑定打XX1的狂本了，杯子是不可能喂的
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 36035#       发表于 2020-12-10 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">102池穷人狗粮QP已经溢出了，但是苹果还有200个，感觉退坑了都没办法刷完这些苹果
+
+
+
+
+
+
+
+-----
+
+####  可乐自由  
+##### 36036#       发表于 2020-12-10 22:27
+
+
+
+
+作为一个老咸鱼玩家，刷完50池QP还是见底的
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 36037#       发表于 2020-12-11 07:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49667732&amp;ptid=1712412" target="_blank">南极磷 发表于 2020-12-10 02:05</a>
+我想问问你们的陈宫都喂了几个杯子啊
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+百级，金芙芙拉满<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+本来就喜欢这样的毒辣军师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36038#       发表于 2020-12-11 12:04
+
+
+
+ 本帖最后由 angelooo 于 2020-12-11 12:56 编辑 
+
+这次终本六加成有两张满破礼装的话穿新年服，能用65级陈宫打一面，还能拐下第三面的呆毛王
+
+100池收工了，掉了10个礼装还挺平均的，这次一开始就没什么动力刷，等40多池极地服满了之后差点就直接咸了……
+
+点了些技能控了下QP现在还有9亿2000万，应该可以撑一阵子了
+
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36039#       发表于 2020-12-11 13:54
+
+
+
+
+前天和昨天都没怎么玩，亏大了
+
+
+
+
+
+
+
+-----
+
+####  夜贼外卖  
+##### 36040#       发表于 2020-12-12 08:05
+
+
+
+
+只刷了不到50池，下一次无限池是啥时候？
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36041#       发表于 2020-12-12 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49692494&amp;ptid=1712412" target="_blank">夜贼外卖 发表于 2020-12-12 08:05</a>
+只刷了不到50池，下一次无限池是啥时候？</blockquote>
+5周年之后的影之国，有的等了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36042#       发表于 2020-12-12 12:07
+
+
+
+
+反正我又不抽卡，暂时不需要无限池
+
+
+
+
+
+
+
+-----
+
+####  夜贼外卖  
+##### 36043#       发表于 2020-12-12 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49694248&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2020-12-12 12:02</a>
+
+5周年之后的影之国，有的等了
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能暂停成长了……
+
+
+
+
+
+
+
+-----
+
+####  atomicink  
+##### 36044#       发表于 2020-12-12 14:03
+
+
+
+
+这次无限池计划300池，最后刷了不到120池<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+后面几天有空就是懒得开游戏
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36045#       发表于 2020-12-12 14:59
+
+
+
+
+多余体力开始刷蛋了，毫无效率
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36046#       发表于 2020-12-12 15:20
+
+
+
+
+回夏洛特刷黑灰和盘子了，正好这两样都用完
+
+
+
+
+
+
+
+-----
+
+####  夜贼外卖  
+##### 36047#       发表于 2020-12-12 15:50
+
+
+
+
+趁着减半开始做从者任务和2.0的free首通
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36048#       发表于 2020-12-12 17:58
+
+
+
+
+大概什么时候开2.51?
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 36049#       发表于 2020-12-12 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697512&amp;ptid=1712412" target="_blank">qigeer 发表于 2020-12-12 17:58</a>
+大概什么时候开2.51?</blockquote>
+12.17
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 36050#       发表于 2020-12-12 18:27
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36051#       发表于 2020-12-12 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697779&amp;ptid=1712412" target="_blank">黑暗剑 发表于 2020-12-12 18:27</a>
+12.17</blockquote>
+好的 谢谢
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36052#       发表于 2020-12-12 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49697512&amp;ptid=1712412" target="_blank">qigeer 发表于 2020-12-12 17:58</a>
+大概什么时候开2.51?</blockquote>
+12.18
+主楼没人看，哭哭
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.2.2-alpha
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36053#       发表于 2020-12-13 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49699811&amp;ptid=1712412" target="_blank">marxel 发表于 2020-12-12 21:41</a>
+12.18
+主楼没人看，哭哭</blockquote>
+都长草了，等新卡池海豹们出来豹跳吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36054#       发表于 2020-12-13 11:09
+
+
+
+
+泳装的时候石头用光，结果现在又400石了。
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36055#       发表于 2020-12-13 17:31
+
+
+
+
+过一周就该超人熊了，
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36056#       发表于 2020-12-13 17:31
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36057#       发表于 2020-12-13 19:47
+
+
+
+
+下次更新是不是要重新下载游戏的大版本更新？
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36058#       发表于 2020-12-13 20:01
+
+
+
+
+一周末就一颗蛋
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36059#       发表于 2020-12-13 20:11
+
+
+
+
+去刷黑灰吧。我今天刷了10个黑灰加5个盘子
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36060#       发表于 2020-12-14 00:36
+
+
+
+
+还差10几个石头大号就重回3000了，可惜超人熊马上就要来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36061#       发表于 2020-12-14 08:42
+
+
+
+
+一拳超熊一个十连意思下就行了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36062#       发表于 2020-12-14 12:03
+
+
+
+
+不抽男人，下一个<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36063#       发表于 2020-12-14 12:49
+
+
+
+
+没人在乎欧罗巴吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36064#       发表于 2020-12-14 13:13
+
+
+
+
+暴击玩具我倒是挺想要的，不过可惜现在没有那个余力
+
+感觉等复刻是一种死循环
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36065#       发表于 2020-12-14 14:35
+
+
+
+ 本帖最后由 kazemitoya 于 2020-12-14 14:36 编辑 
+
+抵挡不住拿皇的胸肌诱惑，抽了个拿皇…………我的性癖……
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36066#       发表于 2020-12-14 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49715481&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2020-12-14 12:49</a>
+没人在乎欧罗巴吗？
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.3</blockquote>
+自选阿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36067#       发表于 2020-12-14 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49716659&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-14 14:35:27</a>
+抵挡不住拿皇的胸肌诱惑，抽了个拿皇…………我的性癖……</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 36068#       发表于 2020-12-15 02:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49716659&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-14 14:35</a>
+
+抵挡不住拿皇的胸肌诱惑，抽了个拿皇…………我的性癖……</blockquote>
+   放心，爱撕衣本来就是著名的基佬论坛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36069#       发表于 2020-12-15 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49716659&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-14 14:35</a>
+
+抵挡不住拿皇的胸肌诱惑，抽了个拿皇…………我的性癖……</blockquote>
+我怀疑你是抵挡不住拿皇的大♂炮
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36070#       发表于 2020-12-15 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49715481&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2020-12-14 12:49</a>
+
+没人在乎欧罗巴吗？
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.3</blockquote>
+没什么特点
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36071#       发表于 2020-12-15 20:55
+
+
+
+
+楼友：楠桐竟在我身边。JPG
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36072#       发表于 2020-12-16 15:41
+
+
+
+
+我准备抽超人熊了但我的xp是绝对正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36073#       发表于 2020-12-16 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49741293&amp;ptid=1712412" target="_blank">devilwing 发表于 2020-12-16 15:41</a>
+我准备抽超人熊了但我的xp是绝对正常的</blockquote>
+不奇怪，虽然超人熊上衣没穿，给人的感觉没什么问题，但拿破仑的卡面不知道为什么就是给人一种基的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 36074#       发表于 2020-12-16 19:20
+
+
+
+ 本帖最后由 6030sylar 于 2020-12-16 19:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49716659&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-14 14:35</a>
+
+抵挡不住拿皇的胸肌诱惑，抽了个拿皇…………我的性癖……</blockquote>
+泥潭竟然就是大鸟转转转酒吧.jpg
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36075#       发表于 2020-12-16 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49742064&amp;ptid=1712412" target="_blank">khxooo 发表于 2020-12-16 16:51</a>
+
+不奇怪，虽然超人熊上衣没穿，给人的感觉没什么问题，但拿破仑的卡面不知道为什么就是给人一种基的感觉[f ...</blockquote>
+估计是长得太油腻了，连剧情上都是个到处撩妹的油腻大叔，超人熊的长相就完全是一个字：朴实无华<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 36076#       发表于 2020-12-17 02:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49715481&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2020-12-14 12:49</a>
+没人在乎欧罗巴吗？
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.3</blockquote>
+不在乎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36077#       发表于 2020-12-17 07:07
+
+
+
+
+我草！我就自我吐槽一下，怎么这么多人回我？<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+作为一个贫穷的骂死他，在有百级一宝闪闪，二保弓凛的情况下，又鬼使神差脑子被门夹了特意去抽个常驻弓光炮，我也很绝望啊。
+
+
+但拿皇的胸肌，就是那种，明明只露了一丁点儿，而且越升级穿得越多，但就是莫名很性感，总想老子有这种胸肌就好了！
+
+
+于是，cab的储备石头就莫名其妙蒸发了一大坨
+
+
+我的脑子或许不是被门夹了，是被拿皇的拿皇的胸肌夹了
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36078#       发表于 2020-12-17 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36079#       发表于 2020-12-17 11:29
+
+
+
+
+目前金蛋数14，要开新章就不刷蛋了，但是卡在这个数字也太精准了吧
+
+
+
+
+
+
+
+-----
+
+####  无事忙  
+##### 36080#       发表于 2020-12-17 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">目前在想办法说服自己抽弓福袋，因为弓贞太想要了，完美符合xp系统。有一个雷，new莫里亚蒂。另外几个补宝也不错。
+
+
+而另外三个选择，狂福袋和两个extra袋，理智上说收益更高，基本都是new或提升很棒的1宝变2宝。
+
+
+但还是想拼弓贞啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36081#       发表于 2020-12-17 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49746997&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-17 07:07</a>
+我草！我就自我吐槽一下，怎么这么多人回我？</blockquote>
+所以不是拿破仑的大炮，而是大肌肌吸引你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36082#       发表于 2020-12-17 14:45
+
+
+
+
+大号金蛋25个，小号金蛋15个，小号继续刷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36083#       发表于 2020-12-17 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49746997&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-17 07:07</a>
+
+我草！我就自我吐槽一下，怎么这么多人回我？</blockquote>
+3个都是红光炮，轮流上班吗
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 36084#       发表于 2020-12-17 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49746997&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-17 07:07</a>
+我草！我就自我吐槽一下，怎么这么多人回我？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以你其实是想要大肌霸吧？
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36085#       发表于 2020-12-17 22:30
+
+
+
+
+擦……险些和上次复刻圣诞池一样忘记兑换了。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36086#       发表于 2020-12-18 00:27
+
+
+
+ 本帖最后由 khxooo 于 2020-12-18 00:31 编辑 
+
+大号攒石攒到3000了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+明天就是盾外第五位女友正式在主线剧情登场了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36087#       发表于 2020-12-18 16:51
+
+
+
+
+好了，以后不需要千里眼了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36088#       发表于 2020-12-18 16:58
+
+
+
+
+这不是还没到1.1么。
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36089#       发表于 2020-12-18 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49762890&amp;ptid=1712412" target="_blank">gearbox 发表于 2020-12-18 16:58</a>
+这不是还没到1.1么。</blockquote>
+因为最后一个千里眼项目已经上去了呀（就下面的卡池2）
+明天我直接贴个链接进来
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.2.2-alpha
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 36090#       发表于 2020-12-18 18:23
+
+
+
+
+fgo这个拿皇的确就是针对基佬口味开发的角色无误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36091#       发表于 2020-12-18 19:09
+
+
+
+
+2个十连new了2个大老师2个千代女，赚了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">，接下来等巴羊羊出了抽一个看看她怎么变谐星的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  loaflace  
+##### 36092#       发表于 2020-12-18 19:12
+
+
+
+
+9个10连
+彩圈！骑阶！阿喀琉斯！
+wcnm<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36093#       发表于 2020-12-18 19:14
+
+
+
+
+手气出奇的好，二十连出俄里翁，再二十连出欧罗巴…
+
+
+
+
+
+
+
+-----
+
+####  闪亮的彗星  
+##### 36094#       发表于 2020-12-18 19:30
+
+
+
+
+虚数海为啥要倒叙啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36095#       发表于 2020-12-18 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">B叔+1 滚了
+
+
+
+
+
+
+
+-----
+
+####  宵十一狼  
+##### 36096#       发表于 2020-12-18 20:33
+
+
+
+
+缺宝石老头的真可以试试这个池，我朋友5单沉船出了3张宝石老头，我自己80连也出了一张。看b站的抽卡直播也出了很多张<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 36097#       发表于 2020-12-18 20:40
+
+
+
+
+第一发十一连就出了超人熊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36098#       发表于 2020-12-18 21:31
+
+
+
+
+80连1欧罗巴
+曼迪为啥也只出了一个?
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36099#       发表于 2020-12-18 22:07
+
+
+
+
+原来也是吃井盖大户……之前井盖已经掉到个位数，卡灵基突破卡得我刷了两苹果的井盖才升上去
+
+
+然后点技能还要45个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36100#       发表于 2020-12-18 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的 没忍住两单一个不邢一个欧罗巴 超人熊呢
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36101#       发表于 2020-12-18 22:39
+
+
+
+
+俩十连。第一个什么都没有，第二个欧罗巴+印度女王+四星尺子…………但是我想要熊啊熊！！！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 36102#       发表于 2020-12-18 22:39
+
+
+
+
+用了剧情助战的超人熊觉得被骗氪了，暴击手感有点爽，剧情上来节奏可以的，终于不是散步郊游的感觉了
+
+—— 来自 HUAWEI FRD-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36103#       发表于 2020-12-18 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49765232&amp;ptid=1712412" target="_blank">宵十一狼 发表于 2020-12-18 20:33</a>
+
+缺宝石老头的真可以试试这个池，我朋友5单沉船出了3张宝石老头，我自己80连也出了一张。看b站的抽卡直播也 ...</blockquote>
+虽然是纯净池，其实还是很看脸的，而且这池子又多了张5星礼装来稀释出货率了
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 36104#       发表于 2020-12-18 23:11
+
+
+
+
+300石下去终于出了，顺便new了千代女二宝，狂塔和巴御前补了二宝，还new了武后，b叔，大象，这波很赚，剩下的石头等清少纳言了，欧罗巴只能随缘了
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36105#       发表于 2020-12-18 23:30
+
+
+
+
+明明大家都说不抽的。结果还是管不住手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36106#       发表于 2020-12-19 00:10
+
+
+
+
+懒得查攻略，大概什么时候会出现难点?
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36107#       发表于 2020-12-19 00:48
+
+
+
+
+过了，那狗封印宝具太讨厌了。<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36108#       发表于 2020-12-19 00:58
+
+
+
+
+船长这套灵衣会实装么，挺好看的
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36109#       发表于 2020-12-19 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768248&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2020-12-19 00:58</a>
+
+船长这套灵衣会实装么，挺好看的</blockquote>
+想看可以玩FEXL，就是从这里来的，至于实装只能说句等吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36110#       发表于 2020-12-19 06:59
+
+
+
+
+🐻助战用起来不错，但氪金抽感觉我就输了。我要忍，要忍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36111#       发表于 2020-12-19 07:11
+
+
+
+
+十连哪吒，这都什么呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36112#       发表于 2020-12-19 07:43
+
+
+
+
+熊熊厉害还是黑贞厉害，白字，有拐的通常情况下。请问
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36113#       发表于 2020-12-19 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49768954&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-19 07:43</a>
+
+熊熊厉害还是黑贞厉害，白字，有拐的通常情况下。请问</blockquote>
+单论暴击能力，肯定是熊熊，宝具和3技能叠起来的爆伤非常恐怖，而且还有三红，黑贞那么点爆伤就完全不够看了。不过他们的类型是不同的，熊熊通常不需要拐，他是玩单挑的，黑贞刚好相反没有拐玩不下去，另一方面熊熊是打速通的。长线他不行，而黑贞配拐能打大部分长线
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36114#       发表于 2020-12-19 11:53
+
+
+
+
+我管住手了没抽哇哈哈哈哈，曼迪等进友情池慢慢来，这章确实可以的，推了五六节感觉人物塑造都不错而且搞笑也不生硬，因为日服已经开过虚数海，看到伏笔的时候也觉得挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  九十九忍  
+##### 36115#       发表于 2020-12-19 12:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">奥林波斯什么鬼，就不能用约定成俗的翻译吗
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36116#       发表于 2020-12-19 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49770662&amp;ptid=1712412" target="_blank">angelooo 发表于 2020-12-19 11:53</a>
+我管住手了没抽哇哈哈哈哈，曼迪等进友情池慢慢来，这章确实可以的，推了五六节感觉人物塑造都不错而且搞笑 ...</blockquote>
+这章在日服投票好像和第六、七章差不多票数的。我个人也是相当喜欢的。
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 36117#       发表于 2020-12-19 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49770892&amp;ptid=1712412" target="_blank">九十九忍 发表于 2020-12-19 12:19</a>
+
+奥林波斯什么鬼，就不能用约定成俗的翻译吗</blockquote>
+约定俗成不就是奥林波斯？你不会觉得要翻译成奥林匹斯吧
+
+
+
+
+
+
+
+-----
+
+####  九十九忍  
+##### 36118#       发表于 2020-12-19 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771083&amp;ptid=1712412" target="_blank">真红眼教授 发表于 2020-12-19 12:38</a>
+
+约定俗成不就是奥林波斯？你不会觉得要翻译成奥林匹斯吧</blockquote>
+一直不都是奥林匹斯
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 36119#       发表于 2020-12-19 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771083&amp;ptid=1712412" target="_blank">真红眼教授 发表于 2020-12-19 12:38</a>
+约定俗成不就是奥林波斯？你不会觉得要翻译成奥林匹斯吧</blockquote>
+奧林伯斯啊或者奧林柏斯
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 36120#       发表于 2020-12-19 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771197&amp;ptid=1712412" target="_blank">九十九忍 发表于 2020-12-19 12:50</a>
+
+一直不都是奥林匹斯</blockquote>
+olympus：奥林波斯山
+
+olympius：奥林匹斯诸神
+
+
+奥林匹斯压根都不是地名
+
+
+
+
+
+
+
+-----
+
+####  九十九忍  
+##### 36121#       发表于 2020-12-19 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771310&amp;ptid=1712412" target="_blank">真红眼教授 发表于 2020-12-19 13:01</a>
+
+olympus：奥林波斯山
+
+olympius：奥林匹斯诸神</blockquote>
+他们提诸神也是奥林波斯诸神，这怎么算
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 36122#       发表于 2020-12-19 13:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771318&amp;ptid=1712412" target="_blank">九十九忍 发表于 2020-12-19 13:01</a>
+
+他们提诸神也是奥林波斯诸神，这怎么算</blockquote>
+原文背锅吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36123#       发表于 2020-12-19 15:25
+
+
+
+
+我觉得雕像比卡面好看
+
+
+
+
+
+
+
+-----
+
+####  collincollin  
+##### 36124#       发表于 2020-12-19 15:29
+
+
+
+
+奥利波斯，我懂
+
+那个黑洞跳进去就是噬渊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36125#       发表于 2020-12-19 16:09
+
+
+
+
+继派蒙之后，芙芙也变成了应急储备粮，我是没有想到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36126#       发表于 2020-12-19 18:33
+
+
+
+
+难得有个free可以用仇信，打了3次又要回仓库了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 36127#       发表于 2020-12-19 21:19
+
+
+
+
+    两天把主线肝完，感觉剧情还挺不错的，一船（或者说三船）人走到最后有欢乐有感动有激情，不明白日服开的时候泥潭为什么一帮人喷剧情不好，其中一个喷点说日本人写剧情只会重复死人特攻什么的，问题是在这明显一个天上一个地下的战力差面前不付出相应的代价怎么可能抓住那百分之几的几率来赢？至少我觉得每个英灵都没有被刻意地去送，不是说整个剧情就没有毛病，但是至少远没有一年前被喷得那么差，另外攒的那180个石头加13张呼符全沉了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36128#       发表于 2020-12-19 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777525&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2020-12-19 21:19</a>
+
+两天把主线肝完，感觉剧情还挺不错的，一船（或者说三船）人走到最后有欢乐有感动有激情，不明白日服开 ...</blockquote>
+泥潭我没关注，251日服刚开的时候微博刷了些翻译的视频，评论基本都是夸的，而且到现在为止251在2.0的所有章节里算是评价很高的，我当时就觉得这章起点太高252很难收场多半要拉胯，结果樱井果然不负众望<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36129#       发表于 2020-12-19 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49777525&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2020-12-19 21:19</a>
+
+两天把主线肝完，感觉剧情还挺不错的，一船（或者说三船）人走到最后有欢乐有感动有激情，不明白日服开 ...</blockquote>
+2.5.2日服楼也就说团灭全员工具人，剧情没有太大喷。2.5.2就不同了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 36130#       发表于 2020-12-20 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49779401&amp;ptid=1712412" target="_blank">khxooo 发表于 2020-12-19 23:48</a>
+
+2.5.2日服楼也就说团灭全员工具人，剧情没有太大喷。2.5.2就不同了</blockquote>
+    其实阿尔戈号上的众人都算得上有价值地牺牲了，说工具人的话能把所有为推进剧情的人物都上这个帽子，2.51的剧情有瑕疵的地方个人感觉在于很多时候都很好猜，比如经过序章的描述后科黛出场的时候就是一脸的“我是内鬼”的标识
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36131#       发表于 2020-12-20 01:12
+
+
+
+
+之前就在B站看完了2.51~2.52的剧情,很不错的,目前在心中是2.0以来的最好的剧情了,现在可以完全跳剧情一直干了
+
+
+
+
+
+
+
+-----
+
+####  Nathan-_-  
+##### 36132#       发表于 2020-12-20 04:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">提前替武藏亲默哀
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 36133#       发表于 2020-12-20 08:38
+
+
+
+
+我想问下分支剧情里去51区的那人是谁…
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 36134#       发表于 2020-12-20 08:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">把手上仅剩的200多石都丢进去出了安娜和玉藻猫还有大老师，推销旧卡.jpg
+
+
+
+
+
+
+
+-----
+
+####  荀彧  
+##### 36135#       发表于 2020-12-20 09:56
+
+
+
+
+2.5.1要硬说瑕疵，大概就是超人熊这张本来的一星卡因为菌类喜欢，结果钦点成了五星冠位。但剧情表现虽然很燃，却没有其他冠位的硬实力或者B格，违和感十足。
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36136#       发表于 2020-12-20 09:59
+
+
+
+
+剧情看完，科黛的cg真是不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，
+恋爱的美少女就是吸引我
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 36137#       发表于 2020-12-20 12:57
+
+
+
+
+全推完了，这章的剧情真不错，又给我玩你游的动力了。
+
+
+就是断章狗太草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36138#       发表于 2020-12-20 13:32
+
+
+
+
+才打一半，想问下，那个基什么的金毛最后能用五宝百级妹夫加双梅林碾死吗
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36139#       发表于 2020-12-20 14:50
+
+
+
+ 本帖最后由 J-002 于 2020-12-20 14:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783892&amp;ptid=1712412" target="_blank">廖化 发表于 2020-12-20 13:32:59</a>
+
+才打一半，想问下，那个基什么的金毛最后能用五宝百级妹夫加双梅林碾死吗 ...</blockquote>
+不能
+
+
+5管血，全异常无效，进入第5管血/第5回合开宝具，包括毅力礼装在内全防御buff不启动，宝具发动后战斗终结
+
+无论如何都没办法阻止宝具发动而且必定前排全灭，当年日服有人打爆前4管血就是极限了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36140#       发表于 2020-12-20 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49783892&amp;ptid=1712412" target="_blank">廖化 发表于 2020-12-20 13:32</a>
+才打一半，想问下，那个基什么的金毛最后能用五宝百级妹夫加双梅林碾死吗 ...</blockquote>
+还有个都市传说，日本有个玩家用科技锁血并且打赢了队长，退出后直接被封号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36141#       发表于 2020-12-20 15:48
+
+
+
+
+……突然就不想打了，我还以为能碾死呢<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36142#       发表于 2020-12-20 18:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2.52能打他 然而对非洲人极度不友好 每回合都会被强化解除的我打的蛋疼无比
+
+
+
+
+
+
+
+-----
+
+####  当光停止  
+##### 36143#       发表于 2020-12-20 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">2.5的几个女性角色都好色
+
+沸羊羊 欧罗巴 月神（指终端机） 农神 姚晨都挺不错
+
+然后我抽了只熊......
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36144#       发表于 2020-12-20 20:28
+
+
+
+<blockquote>当光停止 发表于 2020-12-20 19:57
+2.5的几个女性角色都好色
+
+沸羊羊 欧罗巴 月神（指终端机） 农神 姚晨都挺不错
+
+然后我抽了只熊...... ...</blockquote>
+你说的这几个，要么要等到252要么压根没实装，也就欧罗巴在池子里，这也没啥办法吧23333
+
+
+
+
+
+
+
+-----
+
+####  atomicink  
+##### 36145#       发表于 2020-12-20 21:59
+
+
+
+
+波塞冬机体真好看啊，配合bgm让我看了几分钟
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36146#       发表于 2020-12-20 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49784539&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-20 14:50</a>
+
+不能
+
+
+5管血，全异常无效，进入第5管血/第5回合开宝具，包括毅力礼装在内全防御buff不启动，宝具发动后战 ...</blockquote>
+打爆四管血,这怎么打得,有没有视频参观一下<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36147#       发表于 2020-12-20 23:55
+
+
+
+
+无情的抽卡玩家只想多刷点主线石头而已
+
+这20节后面都挺麻烦的吧，明天早上清体力肯定没法对着视频攻略打了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36148#       发表于 2020-12-20 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49790642&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-20 23:14</a>
+
+打爆四管血,这怎么打得,有没有视频参观一下</blockquote>
+[https://www.bilibili.com/video/B ... 0827425283187516690](https://www.bilibili.com/video/BV16J411t7PL?from=search&amp;seid=10827425283187516690)
+
+
+用了1个令咒
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36149#       发表于 2020-12-21 00:34
+
+
+
+
+迦勒底的内鬼是穆尼尔么？
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36150#       发表于 2020-12-21 00:35
+
+
+
+ 本帖最后由 khxooo 于 2020-12-21 00:57 编辑 
+
+180石头贞德+超人熊+1张宝石翁+1狂兰，算是不错吧。千代女却没有出，真是每次UP的四星都没有出<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+而且还缺井盖满破，真是无奈<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，而且照理说我很讨厌齐格啊，为什么贞德你要追着我到我迦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36151#       发表于 2020-12-21 01:07
+
+
+
+
+3个11连,超人胸入手<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hylq2100  
+##### 36152#       发表于 2020-12-21 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49790642&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-20 23:14</a>
+
+打爆四管血,这怎么打得,有没有视频参观一下</blockquote>
+[https://www.bilibili.com/video/B ... 5650408360773289987](https://www.bilibili.com/video/BV1nA411s7Q3?from=search&amp;seid=15650408360773289987)
+
+
+R狗蛋无令咒
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36153#       发表于 2020-12-21 02:14
+
+
+
+
+妈的再用了150个石头才将千代女抽出来，超人熊都2宝了。从始皇帝开始就是这样，4星比5星难出。其实应该等到欧罗巴UP时再抽才对的，这样起码可以开图鉴。
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36154#       发表于 2020-12-21 06:42
+
+
+
+
+我来安慰人心了，超人熊大沉船，我还在刷s1。
+
+
+心态平和真的心态平和，但认真思考了一下，如果cab大沉船，我会弃坑。
+
+
+
+
+
+
+
+-----
+
+####  风行骓  
+##### 36155#       发表于 2020-12-21 07:41
+
+
+
+
+超人熊不就是个玩具吗？高难本还得看始皇帝
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36156#       发表于 2020-12-21 08:01
+
+
+
+
+傻逼了，深夜上头千石一宝超人熊。决定了，福袋抽狂碰水武藏，下次抽up就是司马懿和cab了，神祖池子不碰了。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 36157#       发表于 2020-12-21 08:33
+
+
+
+
+两发11连超人熊get，隔壁皇女还跳出来了，除了福袋第一次双黄
+
+—— 来自 HUAWEI FRD-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36158#       发表于 2020-12-21 10:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四单超人熊1宝 妈的 除了福袋再氪傻逼
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36159#       发表于 2020-12-21 11:04
+
+
+
+
+超人熊技能888是不是够用，星还是优先留给术呆了，等术呆够了以后才能考虑给熊升了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36160#       发表于 2020-12-21 11:18
+
+
+
+
+虽然我不抽熊但caber前还要抽黑无毛和阿清的，看到你们这样我现在慌得一比
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36161#       发表于 2020-12-21 12:03
+
+
+
+
+上次仇凛被你们忽悠了怎么也得吃一堑长一智
+
+
+
+
+
+
+
+-----
+
+####  gfm  
+##### 36162#       发表于 2020-12-21 12:50
+
+
+
+
+十个十连超人熊1宝，不过歪了个脚后跟
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36163#       发表于 2020-12-21 13:59
+
+
+
+
+熊以后，就一个凯尼斯有一点点想要，其他就继续攒石头等术呆了
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 36164#       发表于 2020-12-21 14:17
+
+
+
+ 本帖最后由 UNISONIA 于 2020-12-21 14:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49771310&amp;ptid=1712412" target="_blank">真红眼教授 发表于 2020-12-19 13:01</a>
+
+olympus：奥林波斯山
+
+olympius：奥林匹斯诸神</blockquote>
+Olympius是拉丁语“来自奥林波斯山的”，有时引申为“奥林波斯诸神的”；Olympus是Όλυμπος的拉丁语转写，就是指奥林波斯山本身
+
+
+奥林匹斯是以前比较常见的音译，现在考虑到发音应该音译成奥林波斯，所以很多资料里的音译写法都改了
+
+顺带日服当时取了Όλυμπος古典希腊语的发音オリュンポス，而不是现代希腊语在日语里的假名转写オリンポス，这导致了不少人猜星间都市山脉的打码标题没有猜中（因为假名长度少了那个短音）
+
+
+这点来说2.6的标题还没什么陷阱，后面俩短音就基本实锤是古法语的le Fee了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36165#       发表于 2020-12-21 14:27
+
+
+
+
+还剩2场海神就打完了，波塞冬虽然是个弟弟但机体是真的好看，谁叫你长那样方便我们开车了23333
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36166#       发表于 2020-12-21 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49795699&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-21 13:59</a>
+熊以后，就一个凯尼斯有一点点想要，其他就继续攒石头等术呆了</blockquote>
+不抽恐龙吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36167#       发表于 2020-12-21 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49796245&amp;ptid=1712412" target="_blank">khxooo 发表于 2020-12-21 14:49</a>
+
+不抽恐龙吗？</blockquote>
+🦖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">红卡单体狂，没啥特色啊，单体绿有狂S，蓝卡有大公，红卡没啥必要了
+
+
+
+
+
+
+
+-----
+
+####  otsu  
+##### 36168#       发表于 2020-12-21 15:18
+
+
+
+
+小号靠新鲜的熊熊打过2.3李大师了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36169#       发表于 2020-12-21 15:21
+
+
+
+<blockquote>艾尔特翔 发表于 2020-12-21 15:00
+🦖红卡单体狂，没啥特色啊，单体绿有狂S，蓝卡有大公，红卡没啥必要了 ...</blockquote>
+电脑系统......不是，厨力卡要什么强度233，氪金抽恐龙.jpg
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36170#       发表于 2020-12-21 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49796633&amp;ptid=1712412" target="_blank">angelooo 发表于 2020-12-21 15:21</a>
+
+电脑系统......不是，厨力卡要什么强度233，氪金抽恐龙.jpg</blockquote>
+算了算了，我已经基本佛系了，明年家里买车+装修，小孩一天天长大，游戏基本告别氪金了
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36171#       发表于 2020-12-21 15:39
+
+
+
+
+330石头全部抽完只有几个4星，再抽了十几张护符才出了超人熊，还好全部都是免费石，不过新年福袋得氪金才能抽了，C呆靠攒石，下次氪金估计得明年泳装了
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36172#       发表于 2020-12-21 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49795997&amp;ptid=1712412" target="_blank">angelooo 发表于 2020-12-21 14:27:57</a>
+还剩2场海神就打完了，波塞冬虽然是个弟弟但机体是真的好看，谁叫你长那样方便我们开车了23333 ...</blockquote>要不是船长把波塞冬拆出心理阴影，就凭新阿尔戈号这点人还真拿4核波塞冬一点办法都没有……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36173#       发表于 2020-12-21 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49796917&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-21 15:45</a>
+要不是船长把波塞冬拆出心理阴影，就凭新阿尔戈号这点人还真拿4核波塞冬一点办法都没有……
+
+  -- 来自 有 ...</blockquote>
+别说波赛冬了，没有神核，凯尼斯那里迦勒底就团灭了。
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36174#       发表于 2020-12-21 16:40
+
+
+
+
+没看攻略，莫名其妙推完主线了。难度……就这？
+
+
+个人觉得就是会无敌贯通的马老师那一战得小心点儿
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36175#       发表于 2020-12-21 16:41
+
+
+
+
+船长是真牛逼，波塞冬前世估计欠了船长不少钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36176#       发表于 2020-12-21 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797597&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-21 16:40</a>
+没看攻略，莫名其妙推完主线了。难度……就这？
+
+
+个人觉得就是会无敌贯通的马老师那一战得小心点儿 ...</blockquote>
+2.5.1本来就是简单，2.5.2就恶心了，对不是难，是恶心
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36177#       发表于 2020-12-21 17:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.52设计的简直有病 各种弱智锁助战锁前排 甚至还有的会锁两个格子
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36178#       发表于 2020-12-21 17:39
+
+
+
+
+还差最后一战，单体枪爆破么？我只有斯卡哈啊....
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36179#       发表于 2020-12-21 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49798306&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2020-12-21 17:39</a>
+
+还差最后一战，单体枪爆破么？我只有斯卡哈啊....</blockquote>
+最后一战是枪核心啊，先用绿卡队冲掉前面两条血，然后后排放个带NP礼装的剑单体就行了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36180#       发表于 2020-12-21 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49798482&amp;ptid=1712412" target="_blank">devilwing 发表于 2020-12-21 17:56</a>
+
+最后一战是枪核心啊，先用绿卡队冲掉前面两条血，然后后排放个带NP礼装的剑单体就行了 ...</blockquote>
+打完了，花嫁尼禄yyds，能拐能打
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36181#       发表于 2020-12-21 20:01
+
+
+
+
+阿尔忒弥斯那个服装灵衣如果实装，我TM抽爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36182#       发表于 2020-12-21 20:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49798306&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2020-12-21 17:39</a>
+
+还差最后一战，单体枪爆破么？我只有斯卡哈啊....</blockquote>
+三管血枪波塞冬，两管血（+5w毅力）弓师匠，反正最后一战了，建议奶光/狂娜令咒爆破
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36183#       发表于 2020-12-21 21:19
+
+
+
+
+抱了大佬满破宝石百级狂那先干掉对面两条血顺便收了马老师的战续，之后就xjbd了
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36184#       发表于 2020-12-22 07:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49798165&amp;ptid=1712412" target="_blank">qixinno2 发表于 2020-12-21 17:27</a>
+
+2.52设计的简直有病 各种弱智锁助战锁前排 甚至还有的会锁两个格子</blockquote>
+频繁地锁助战的确该飞妈，简直有病
+
+
+
+
+
+
+
+-----
+
+####  SAGA0Arcueid  
+##### 36185#       发表于 2020-12-22 07:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49797609&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-21 16:41</a>
+
+船长是真牛逼，波塞冬前世估计欠了船长不少钱</blockquote>
+算上第一部的话波塞冬等于被船长拆了两次，第一次还是无伤拆的，可以算是天克了
+
+
+
+
+
+
+
+-----
+
+####  bluna  
+##### 36186#       发表于 2020-12-22 08:04
+
+
+
+
+最后的神核，也就伯爵3回合，宝具冲没了
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36187#       发表于 2020-12-22 09:02
+
+
+
+
+最后打波塞冬不想动脑了，直接陈宫+好友五宝狂黑鸭<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36188#       发表于 2020-12-22 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803532&amp;ptid=1712412" target="_blank">SAGA0Arcueid 发表于 2020-12-22 07:29</a>
+
+算上第一部的话波塞冬等于被船长拆了两次，第一次还是无伤拆的，可以算是天克了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次不顺手给船长个强化简直过分
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36189#       发表于 2020-12-22 12:15
+
+
+
+
+船长的一技能增幅太小了，应该提高了。而且都这么爆打波塞冬了，居然还没神性特攻，这是船长太牛逼还是波塞冬太菜<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  atomicink  
+##### 36190#       发表于 2020-12-22 12:29
+
+
+
+
+船长画了新衣服懒得做小人，灵衣都不给的
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 36191#       发表于 2020-12-22 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49806154&amp;ptid=1712412" target="_blank">atomicink 发表于 2020-12-22 12:29</a>
+
+船长画了新衣服懒得做小人，灵衣都不给的</blockquote>
+摇滚龙娘多少年了都没灵衣，YLS飞就完事了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36192#       发表于 2020-12-22 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803506&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-22 07:19</a>
+频繁地锁助战的确该飞妈，简直有病</blockquote>
+1.5.3和2.5.2都是傻逼般的锁助战，1.5.3和2.5.2（大几率）是樱井，懂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36193#       发表于 2020-12-22 13:15
+
+
+
+
+开始清free，清完free继续回去刷蛋，还要14颗，谁说说后面活动还有多少颗？
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36194#       发表于 2020-12-22 14:09
+
+
+
+
+刷蛋不等开启阴间本的那次狩猎吗？
+
+
+
+
+
+
+
+-----
+
+####  genessis  
+##### 36195#       发表于 2020-12-22 14:45
+
+
+
+
+本来想Cab之前不抽卡，被剧情骗氪，20护符+200石丢下去完全没响声，连四星都没有，太非了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36196#       发表于 2020-12-22 23:11
+
+
+
+
+看直播，有个主播打凯尼斯出BUG了草，B站上心点吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36197#       发表于 2020-12-22 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49812786&amp;ptid=1712412" target="_blank">khxooo 发表于 2020-12-22 23:11</a>
+
+看直播，有个主播打凯尼斯出BUG了草，B站上心点吧</blockquote>
+这个BUG的触发条件不知道是什么，隔壁也有很多人中招，就很奇怪
+
+
+
+
+
+
+
+-----
+
+####  aiqopsha  
+##### 36198#       发表于 2020-12-23 13:57
+
+
+
+
+福袋是在元旦吗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36199#       发表于 2020-12-23 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818085&amp;ptid=1712412" target="_blank">aiqopsha 发表于 2020-12-23 13:57</a>
+
+福袋是在元旦吗</blockquote>
+应该是的
+
+现在刚好比日服差一年，我感觉应该不会继续追了
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36200#       发表于 2020-12-23 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49818423&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2020-12-23 14:29</a>
+
+应该是的
+
+现在刚好比日服差一年，我感觉应该不会继续追了</blockquote>
+你看我千里眼都关了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xy2401  
+##### 36201#       发表于 2020-12-23 20:11
+
+
+
+
+淘宝1.01买了200w友情点。现在差不多到了70w。推荐三人可以送1000w友情点。有兴趣私信我，我返1块钱 你给我订单号 元旦想抽满几个百级礼装
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36202#       发表于 2020-12-24 08:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822302&amp;ptid=1712412" target="_blank">xy2401 发表于 2020-12-23 20:11</a>
+淘宝1.01买了200w友情点。现在差不多到了70w。推荐三人可以送1000w友情点。有兴趣私信我，我返1块钱 你给我 ...</blockquote>
+不急的话可以等5周年和新本能寺抽友情啊，一个5倍成功一个可以抽高级狗粮礼装来着
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 36203#       发表于 2020-12-24 08:48
+
+
+
+
+波赛冬感觉长得和欧布疾风那把枪一样
+
+
+
+
+
+
+
+-----
+
+####  龙星丸  
+##### 36204#       发表于 2020-12-25 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49822302&amp;ptid=1712412" target="_blank">xy2401 发表于 2020-12-23 20:11</a>
+
+淘宝1.01买了200w友情点。现在差不多到了70w。推荐三人可以送1000w友情点。有兴趣私信我，我返1块钱 你给我 ...</blockquote>
+给个店铺地址
+
+
+
+
+
+
+
+-----
+
+####  xy2401  
+##### 36205#       发表于 2020-12-25 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49840091&amp;ptid=1712412" target="_blank">龙星丸 发表于 2020-12-25 13:24</a>
+
+给个店铺地址</blockquote>
+回复你了
+
+
+
+
+
+
+
+-----
+
+####  死宅真恶心  
+##### 36206#       发表于 2020-12-25 19:42
+
+
+
+
+歪卡是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36207#       发表于 2020-12-25 22:27
+
+
+
+
+你妹的,起航点刷煌星,居然连贝壳也不出的,这掉落率比金蛋都蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  collincollin  
+##### 36208#       发表于 2020-12-26 03:30
+
+
+
+
+剧情跑完，欧罗巴是来骗氪的？
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36209#       发表于 2020-12-26 10:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49847131&amp;ptid=1712412" target="_blank">collincollin 发表于 2020-12-26 03:30</a>
+
+剧情跑完，欧罗巴是来骗氪的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也不知道欧罗巴是来干嘛的，根本没出现过
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36210#       发表于 2020-12-26 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848114&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2020-12-26 10:07</a>
+我也不知道欧罗巴是来干嘛的，根本没出现过</blockquote>
+2.52才出场，而且没有up。真过了这村就没这店了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36211#       发表于 2020-12-26 11:12
+
+
+
+
+刷煌星的两个本都掉率感人，算了下之后要用的活动送的差不多，把图鉴打出来就撤回夏洛特刷灰了
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36212#       发表于 2020-12-26 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848114&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2020-12-26 10:07</a>
+
+我也不知道欧罗巴是来干嘛的，根本没出现过</blockquote>
+大概是因为主线一般都有两个新5星，但是奥德修斯的模型没做好，于是把做好的欧罗巴提前拿出来凑数了，奥德修斯就去了白情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36213#       发表于 2020-12-26 17:38
+
+
+
+
+为了樱战队，只有放弃政哥哥的福袋了。福袋还不出就只有新年池子用这次更新送的再继续抽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36214#       发表于 2020-12-26 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49848514&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2020-12-26 11:03</a>
+
+2.52才出场，而且没有up。真过了这村就没这店了
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next- ...</blockquote>
+常驻，可以自选。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36215#       发表于 2020-12-26 17:52
+
+
+
+ 本帖最后由 khxooo 于 2020-12-26 17:54 编辑 
+
+井盖，井盖，在煌星之前就被井盖卡住了，一想到棉被也要161个井盖，吐了。哦对了还有拿破仑<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">，明年BBA祭刷个200池都不够这群家伙吃
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36216#       发表于 2020-12-26 17:59
+
+
+
+
+最近确实感觉奇缺井盖……
+
+
+
+
+
+
+
+-----
+
+####  imlyc4  
+##### 36217#       发表于 2020-12-26 18:46
+
+
+
+
+最近开始在夏洛特打地铺了，井盖和灰都缺的厉害
+
+
+
+
+
+
+
+-----
+
+####  隰有苌楚  
+##### 36218#       发表于 2020-12-26 21:53
+
+
+
+ 本帖最后由 隰有苌楚 于 2020-12-26 21:54 编辑 
+
+缺锁链就喷了，明明刷了200池的，大老师连突破都费劲
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 36219#       发表于 2020-12-26 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49851982&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2020-12-26 17:59</a>
+
+最近确实感觉奇缺井盖……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">new个旧五星就会有这种感觉
+
+出了个小太阳一查要差不多200个的时候人都傻了
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36220#       发表于 2020-12-27 05:17
+
+
+
+
+最近都在刷火药<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36221#       发表于 2020-12-27 22:24
+
+
+
+
+用超人熊刷煌星，把他自己的份刷够了，还多刷了几个给C呆，其他的靠活动送都够了，接着继续去刷贝壳
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36222#       发表于 2020-12-27 23:25
+
+
+
+
+井盖，胸骨，黑灰，髓液，火药，核桃，贝壳，勾玉，冰块，这几个都储量不过50个，想想就要刷吐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36223#       发表于 2020-12-27 23:27
+
+
+
+
+后面活动好像是32颗金蛋?还要刷7颗....
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 36224#       发表于 2020-12-28 11:42
+
+
+
+
+刷了25个金蛋，想吐<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  一个陆仁贾  
+##### 36225#       发表于 2020-12-28 20:22
+
+
+
+ 本帖最后由 一个陆仁贾 于 2020-12-31 08:20 编辑 
+
+总是忍不住把那个曼啥啥的骑阶幻视成比企谷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36226#       发表于 2020-12-28 21:11
+
+
+
+<blockquote>一个陆仁贾 发表于 2020-12-28 20:22
+总是忍不住把那个曼啥啥的剑阶幻视成比企谷
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+曼迪是神代大老师完全没毛病233
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36227#       发表于 2020-12-28 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49871421&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2020-12-28 20:22</a>
+
+总是忍不住把那个曼啥啥的剑阶幻视成比企谷
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+别称就是大老师啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36228#       发表于 2020-12-28 21:35
+
+
+
+
+更新公告出来了，维护结束就可以抽福袋了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36229#       发表于 2020-12-28 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49871421&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2020-12-28 20:22</a>
+总是忍不住把那个曼啥啥的剑阶幻视成比企谷
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+而且内心戏实在是太多了啊，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 36230#       发表于 2020-12-29 09:05
+
+
+
+
+本来我还以为神代大老师是因为眼神，结果性格都这么搞
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36231#       发表于 2020-12-29 10:51
+
+
+
+
+维护将近20个小时就10个石头，越来越抠
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36232#       发表于 2020-12-29 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49876310&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2020-12-29 10:51</a>
+维护将近20个小时就10个石头，越来越抠</blockquote>
+YLS全球服务器统一，长时间补偿10石10苹果，隔壁还带了一波节奏。
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36233#       发表于 2020-12-29 11:15
+
+
+
+
+尺仇阶除了天草和丑信其他都可以
+月丑阶除了魔总其他都可以
+抽哪个池子比较赚（角色复刻比较少）
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36234#       发表于 2020-12-29 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49876586&amp;ptid=1712412" target="_blank">qigeer 发表于 2020-12-29 11:15</a>
+尺仇阶除了天草和丑信其他都可以
+月丑阶除了魔总其他都可以
+抽哪个池子比较赚（角色复刻比较少） ...</blockquote>
+那肯定是仇尺，仇凛现在还有有复刻，但是1宝仇凛就是水枪，提升不大。
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36235#       发表于 2020-12-29 12:20
+
+
+
+
+我想要天草，但池子里有仇信长是雷点。其实老福也行，就怕出3宝政哥哥
+
+外星人和他人格里除开魔神总司其他都行，但是没有特别想要的
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36236#       发表于 2020-12-29 12:40
+
+
+
+
+福袋想要爷爷和金时。但是池子里除了他俩全是宝具+1……
+
+年年都赌爷爷年年都赌不到,到底抽不抽啊我……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36237#       发表于 2020-12-29 13:35
+
+
+
+
+在纠结是不是要去骑搏司马懿，里面除了达芬奇都是NEW，不过对我来说没啥需求就是了
+
+或者去尺仇里碰碰运气，里面只有仇凛黑贞和天草各1宝
+
+
+有没有聚聚能给点建议？
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36238#       发表于 2020-12-29 13:46
+
+
+
+
+福袋建议避雷，毕竟读心go，没有雷且能接受加1的理论上都可以，我骑杀可以new，但杀阶有雷，果断骑
+
+
+
+
+
+
+
+-----
+
+####  sevenight  
+##### 36239#       发表于 2020-12-29 14:25
+
+
+
+
+我骑也全new，感觉都还可以。雷帝稍微不喜欢一点。
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36240#       发表于 2020-12-29 15:01
+
+
+
+
+但凡有一个介职有5宝的，最好就别再赌这个介职了，毕竟如果只是盘子+1，真的意思不大
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36241#       发表于 2020-12-29 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49877891&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2020-12-29 13:35</a>
+
+在纠结是不是要去骑搏司马懿，里面除了达芬奇都是NEW，不过对我来说没啥需求就是了
+
+或者去尺仇里碰碰运气， ...</blockquote>
+碰运气博一个的话，肯定是骑福袋比尺仇概率更高，我也是打算抽骑，new的几率最高
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1|好！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 36242#       发表于 2020-12-29 16:37
+
+
+
+
+无情的强度党果断狂阶，水武藏狂娜一等奖，奶光二等奖，BX二宝也能接受，土方我就退游<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36243#       发表于 2020-12-29 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">土方退游可还行
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36244#       发表于 2020-12-29 16:42
+
+
+
+
+我五星骑没单体，但光炮有2个，大帝是雷点，所以不要
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是赌尺算了
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36245#       发表于 2020-12-29 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49879704&amp;ptid=1712412" target="_blank">我不是大叔 发表于 2020-12-29 16:37</a>
+
+无情的强度党果断狂阶，水武藏狂娜一等奖，奶光二等奖，BX二宝也能接受，土方我就退游
+
+
+—— 来自 H ...</blockquote>
+我觉得土方比奶光好，毕竟有公台在，你可以把土方当一拳核弹玩具偶尔玩玩
+
+
+奶光妈妈实在是太水了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">我一宝的情况下，对方是特攻，加了buff都带不走第三面......
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36246#       发表于 2020-12-29 17:23
+
+
+
+
+我杀阶全是new，但我还是准备抽狂。毕竟狂娜是头奖。其余几个，宝具+1也挺不错的。
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36247#       发表于 2020-12-29 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49880112&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-29 17:19</a>
+
+我觉得土方比奶光好，毕竟有公台在，你可以把土方当一拳核弹玩具偶尔玩玩
+
+
+奶光妈妈实在是太水了 ...</blockquote>
+土方哪有奶光好撸
+
+奶光可是有3种宝具配音的
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 36248#       发表于 2020-12-29 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49880112&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-29 17:19</a>
+我觉得土方比奶光好，毕竟有公台在，你可以把土方当一拳核弹玩具偶尔玩玩
+
+
+奶光妈妈实在是太水了 ...</blockquote>
+当玩具首先得看对眼啊，要不然哪有闲工夫去把玩，奶光主要我发现好像我就狂兰一个靠谱的狂光炮
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  loaflace  
+##### 36249#       发表于 2020-12-29 19:30
+
+
+
+
+骑阶想赌莱妮丝/小芬奇，但水黑呆2宝+大帝1宝
+倒是枪阶可以全new，可是我又只想要个布姐
+纠结<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluna  
+##### 36250#       发表于 2020-12-29 19:52
+
+
+
+
+骑阶了，就只有一个小芬奇，抽到什么都可以接受
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36251#       发表于 2020-12-29 20:47
+
+
+
+
+整理了一下BOX，
+
+剑：除了阿福和麻雀，其他都有，总司2宝外其他都一宝
+
+弓：闪闪3宝，弓贞3宝，熊1宝，弓呆1宝
+
+枪：师匠2宝，艾雷2宝，枪狐5宝
+
+骑：女仆2宝，小芬奇1宝
+
+术：CBA，梅林，亿利亚5宝，吼姆2宝
+
+杀：加摩2宝，3个光跑都1宝
+
+狂：4宝娜娜，2宝奶光，2宝狂傻，1宝水武藏
+
+尺仇：3宝伯爵，3宝宇宙凛，2宝黑贞，天草兔子始皇帝各1宝，
+
+他：2宝莉莉斯，2宝魔总司，2宝北哉，阿比BB各1宝
+
+在纠结狂骑中，水武藏补宝2，娜娜补5宝最好，NEW金时不亏，就一个土方比较雷，骑的话，师妹是大奖，小芬奇补宝2很不错，大帝雷帝是雷但是算NEW，还有一个小小期待就是弓凛我也没有，但是弓基本我都有了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36252#       发表于 2020-12-29 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想要弓呆和骑呆和兔子王 但其他的基本都是雷就很难受
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36253#       发表于 2020-12-29 21:43
+
+
+
+ 本帖最后由 khxooo 于 2020-12-29 21:45 编辑 
+
+小号肯定是抽骑，但是大号就纠结，究竟是骑还是杀，骑就是雷帝、一抹多和达芬骑NEW，其余两个宝具加一，怎么都不亏。杀就是全是限定单体，没有一个光炮，我大号就杀没有光炮，所以一直想补完这个遗憾，但是老王已经2宝了，不想他再来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36254#       发表于 2020-12-29 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49882214&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-29 20:47</a>
+
+整理了一下BOX，
+
+剑：除了阿福和麻雀，其他都有，总司2宝外其他都一宝
+
+弓：闪闪3宝，弓贞3宝，熊1宝，弓呆1 ...</blockquote>
+大佬你居然没有满宝宇宙凛？！！！！这不科学
+
+
+
+
+
+
+
+-----
+
+####  GALLADE  
+##### 36255#       发表于 2020-12-29 23:44
+
+
+
+
+始终还是狂的质量最高，除了土方，真的是new了有用，+宝不亏
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36256#       发表于 2020-12-29 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883417&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2020-12-29 23:00</a>
+
+大佬你居然没有满宝宇宙凛？！！！！这不科学</blockquote>
+宇宙凛应该3宝够用了吧，预算有限，也不强求满宝。
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 36257#       发表于 2020-12-30 08:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">rider阶全new，就你了！
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36258#       发表于 2020-12-30 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49883676&amp;ptid=1712412" target="_blank">GALLADE 发表于 2020-12-29 23:44</a>
+
+始终还是狂的质量最高，除了土方，真的是new了有用，+宝不亏</blockquote>
+福袋土方的告诉你，千万不要这么想...
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36259#       发表于 2020-12-30 09:41
+
+
+
+
+其实土方也还好吧，有了宫台在，再加上未来有加强，也算核弹之一了
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 36260#       发表于 2020-12-30 10:00
+
+
+
+
+土方我还挺喜欢的，甚至10绊了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36261#       发表于 2020-12-30 10:48
+
+
+
+
+又到了无氪看你们水福袋的时候了
+
+顺便再刷3个金蛋总算就毕业了
+
+
+
+
+
+
+
+-----
+
+####  究极学霸  
+##### 36262#       发表于 2020-12-30 16:11
+
+
+
+
+已经退坑的来问一下，有人要买迦勒底 ace vol.2吗？带一盒宝具卡那个，可以来二手区看看
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36263#       发表于 2020-12-30 22:18
+
+
+
+
+清体力了各位，还有不到一个小时维护了。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36264#       发表于 2020-12-30 23:03
+
+
+
+
+清完了，还顺便刷了两张羁绊礼装的图鉴，躺平等福袋了
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36265#       发表于 2020-12-30 23:03
+
+
+
+
+0ap进场
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36266#       发表于 2020-12-31 00:17
+
+
+
+
+完全没留意到要大更新，浪费了晚上的体力，唉，本来想年前金蛋毕业的，这下没戏了
+
+
+
+
+
+
+
+-----
+
+####  一个陆仁贾  
+##### 36267#       发表于 2020-12-31 08:24
+
+
+
+
+杀阶缺光炮，抽到非光炮我也不嫌弃，我嫌雷帝不好看，全new也不想抽<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36268#       发表于 2020-12-31 08:55
+
+
+
+
+草啊，完全没看到要更新的消息，本来打算把2.5.1剩的三节打完的，还剩一百体力结果…
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36269#       发表于 2020-12-31 10:00
+
+
+
+
+草，难道骑阶福袋想博雷帝的只有我，体积控
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36270#       发表于 2020-12-31 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49895880&amp;ptid=1712412" target="_blank">angelooo 发表于 2020-12-31 10:00</a>
+
+草，难道骑阶福袋想博雷帝的只有我，体积控</blockquote>
+那某池子那位不是更大？
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36271#       发表于 2020-12-31 12:32
+
+
+
+
+作为一个无氪这次想买福袋了
+一直无氪是因为，根据以往玩游戏的经历觉得如果是我通过氪金变强，那这个游戏就不再吸引我了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36272#       发表于 2020-12-31 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897084&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2020-12-31 11:41</a>
+
+那某池子那位不是更大？</blockquote>
+帝王花？那个我有了哇
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36273#       发表于 2020-12-31 13:22
+
+
+
+
+无氪不会为了这点心动的，就算是枪福袋那也要四分之一，真到15石指定一个限定五星的时候，也许可能买吧......
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36274#       发表于 2020-12-31 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897628&amp;ptid=1712412" target="_blank">不乖 发表于 2020-12-31 12:32</a>
+
+作为一个无氪这次想买福袋了
+
+一直无氪是因为，根据以往玩游戏的经历觉得如果是我通过氪金变强，那这个游戏 ...</blockquote>
+这问题不大，我买了几次福袋对我来说算是重大提升的只有孔老师，其他基本都只是开图鉴的作用（或者宝具+1），你要相信读心go永远不会遂你的意<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36275#       发表于 2020-12-31 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898095&amp;ptid=1712412" target="_blank">angelooo 发表于 2020-12-31 13:22</a>
+
+这问题不大，我买了几次福袋对我来说算是重大提升的只有孔老师，其他基本都只是开图鉴的作用（或者宝具+1 ...</blockquote>
+嗯，福袋我基本都是冲着下体去的，只有这次想拼一下司马懿
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36276#       发表于 2020-12-31 15:22
+
+
+
+
+看nga说b站APP走游戏中心可以更新了
+
+
+
+
+
+
+
+-----
+
+####  笔仁SaSaSa  
+##### 36277#       发表于 2020-12-31 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49897628&amp;ptid=1712412" target="_blank">不乖 发表于 2020-12-31 12:32</a>
+
+作为一个无氪这次想买福袋了
+
+一直无氪是因为，根据以往玩游戏的经历觉得如果是我通过氪金变强，那这个游戏 ...</blockquote>
+呵，为啥你会出现只抽福袋会让你变强的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36278#       发表于 2020-12-31 16:57
+
+
+
+
+延后半小时艹，现在是不是维护延后也不会多发石头的OTZ
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36279#       发表于 2020-12-31 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900159&amp;ptid=1712412" target="_blank">angelooo 发表于 2020-12-31 16:57</a>
+延后半小时艹，现在是不是维护延后也不会多发石头的OTZ</blockquote>
+再长也是10石10果，别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36280#       发表于 2020-12-31 17:35
+
+
+
+
+败了，伊凡雷帝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36281#       发表于 2020-12-31 17:41
+
+
+
+
+一个大帝一个幼帝可还行233，顺便出了那张丑到发指的新年四星礼装OTZ
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36282#       发表于 2020-12-31 17:41
+
+
+
+
+艹了，又不出BB.歪了总司<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  当光停止  
+##### 36283#       发表于 2020-12-31 17:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坛友们 莫做赌狗
+
+我被制裁了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36284#       发表于 2020-12-31 17:45
+
+
+
+
+大号小芬奇哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36285#       发表于 2020-12-31 17:45
+
+
+
+
+又到了赌🐶们表演的时刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36286#       发表于 2020-12-31 17:46
+
+
+
+
+草，福袋抽错了，刚开始点骑福袋的时候才想起没有付费石了，氪金后发现石头居然没即时到账，等了好几分钟有石头再去抽，结果手快点了第一个剑阶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36287#       发表于 2020-12-31 17:48
+
+
+
+
+一宝宇宙凛。她有就业环境吗
+
+
+
+
+
+
+
+-----
+
+####  圈量子  
+##### 36288#       发表于 2020-12-31 17:57
+
+
+
+
+没付费石不抽福袋，抽了几个呼符来了个荔枝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 36289#       发表于 2020-12-31 17:57
+
+
+
+
+福袋选了最不亏的弓阶结果双黄了，弓凛超人熊，挺意外的，等晚点看日服怎么样
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36290#       发表于 2020-12-31 17:57
+
+
+
+
+草这战斗的速度是怎么回事，吓傻了，以及无数次点错终端OTZ
+
+
+
+
+
+
+
+-----
+
+####  kiddolck  
+##### 36291#       发表于 2020-12-31 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900681&amp;ptid=1712412" target="_blank">qigeer 发表于 2020-12-31 17:48</a>
+一宝宇宙凛。她有就业环境吗</blockquote>
+不太行，可能伤害不够
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36292#       发表于 2020-12-31 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900756&amp;ptid=1712412" target="_blank">kiddolck 发表于 2020-12-31 17:59</a>
+不太行，可能伤害不够</blockquote>
+那就当开图鉴吧
+
+另外杨贵妃是不是要用也得二宝起步
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 36293#       发表于 2020-12-31 18:02
+
+
+
+
+福袋歪奶光，杨玉环十一连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 36294#       发表于 2020-12-31 18:03
+
+
+
+
+福袋外星人葛饰北斋
+
+换10呼符出杨贵妃再来了个三藏
+
+刺激 
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36295#       发表于 2020-12-31 18:05
+
+
+
+
+New了个狂娜！我草！绝逼算头等奖！
+
+
+
+
+
+
+
+-----
+
+####  bluna  
+##### 36296#       发表于 2020-12-31 18:07
+
+
+
+
+骑阶出司马懿
+
+
+
+
+
+
+
+-----
+
+####  bird-lay  
+##### 36297#       发表于 2020-12-31 18:07
+
+
+
+
+雷帝<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+我就不该对福袋有什么期待<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1|同|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qw7608290  
+##### 36298#       发表于 2020-12-31 18:08
+
+
+
+
+抽福袋出了莉莉丝还行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，试水抽了一百多石头，毛都没出，就当还债了。
+
+
+
+
+
+
+
+-----
+
+####  muderx  
+##### 36299#       发表于 2020-12-31 18:09
+
+
+
+ 本帖最后由 muderx 于 2020-12-31 21:09 编辑 
+
+这次福袋收获源赖光+1金时+1狂兰+1。
+
+
+
+
+
+
+
+-----
+
+####  風見一姬  
+##### 36300#       发表于 2020-12-31 18:14
+
+
+
+
+更新之后加了个终端好不习惯，点错好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+福袋new了麻雀，对我算是头奖之一了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluna  
+##### 36301#       发表于 2020-12-31 18:18
+
+
+
+
+30护符出了贵妃
+
+
+
+
+
+
+
+-----
+
+####  饭太稀  
+##### 36302#       发表于 2020-12-31 18:20
+
+
+
+
+大号大帝小号雷帝，就不能给个宣帝吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好在对福袋向来期望不高，都是new已经万幸了，要是两个号的大帝雷帝互换一下就双双踩中了袋子里各自唯一有的那一个了，这一波就一个new都没有了。。
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 36303#       发表于 2020-12-31 18:24
+
+
+
+
+金时3宝加奶光双黄，凑合
+
+—— 来自 HUAWEI JDN2-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36304#       发表于 2020-12-31 18:27
+
+
+
+
+旧剑没需求
+鲸贞姑两次大失败有点ptsd
+枪骑术齐全
+杀也齐全但考虑迦摩要不要补二宝
+狂没娜
+后面就没有伯爵
+
+目前考虑就是杀狂仇三个里面选一个…犹豫不决。
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36305#       发表于 2020-12-31 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想要骑黑呆 结果出了个司马懿 不过十呼符除了杨玉环
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36306#       发表于 2020-12-31 18:32
+
+
+
+
+小号大帝2宝，唯一一个非new 都能中<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36307#       发表于 2020-12-31 18:37
+
+
+
+
+剑：父子花嫁
+
+弓：拿破仑闪闪，两种月神，娜娜
+
+枪：小太阳，馒头
+
+骑：拉二，船长（2），梅芙
+
+术：四拐，伊莉雅三藏皇女
+
+杀：杰克
+
+狂：狂那（3），奶光，黑狗，南丁，golden
+
+尺仇：黑白贞，始皇帝，天草（2），伯爵（2）仇凛（2）
+
+外星人：水bb
+
+
+感觉还是优先狂枪二选一
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36308#       发表于 2020-12-31 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">五点开服，我tm现在才想起来
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36309#       发表于 2020-12-31 18:49
+
+
+
+
+想了一下，老子不要男的，选了Alterego+Mooncancer+Foreigner
+
+结果出了总司<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bird-lay  
+##### 36310#       发表于 2020-12-31 18:53
+
+
+
+ 本帖最后由 bird-lay 于 2020-12-31 18:57 编辑 
+
+石头呼符全扔了只歪了一个欧罗巴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+明明对贵妃没兴趣的，始皇再见
+
+这个跨年池太不友好了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36311#       发表于 2020-12-31 18:59
+
+
+
+
+欸?这圣晶片是不是提前发的?
+
+
+
+
+
+
+
+-----
+
+####  林无德  
+##### 36312#       发表于 2020-12-31 19:01
+
+
+
+
+枪福袋里四缺三，我想怎么着也能new一个吧
+
+
+艾蕾宝具+1<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+于是不抱希望地随手抽了抽杨贵妃，10呼符30石头出货了
+
+
+我都不知道自己是非还是欧了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36313#       发表于 2020-12-31 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">哦哦哦哦哦哦吼吼吼吼吼吼吼，出了天草，第一次福袋赌赢！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36314#       发表于 2020-12-31 19:12
+
+
+
+
+用送的碎片出了杨贵妃、兰陵王还有宝石翁。饶了我吧，兰陵王都4宝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 36315#       发表于 2020-12-31 19:12
+
+
+
+
+福袋齐格鲁德
+话说杨贵妃几宝能用？
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36316#       发表于 2020-12-31 19:13
+
+
+
+
+福袋留着还没抽
+
+贵妃这边四百石+40多符就出了四个四星，看来是上次超人熊和欧罗巴零氪搞定的反噬了……<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36317#       发表于 2020-12-31 19:19
+
+
+
+
+大号10呼符出了杨贵妃，小号真惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 36318#       发表于 2020-12-31 19:23
+
+
+
+
+出于XP抽了枪阶，头奖是艾蕾，最后抽中了二奖BBA，也还可以
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36319#       发表于 2020-12-31 19:32
+
+
+
+
+感觉要做的事情好多啊，先去找个新年任务的攻略去，圣晶片除不尽，强迫症想放邮箱里等caber再拿出来（多半等下次抽卡就忍不住了
+
+
+
+
+
+
+
+-----
+
+####  アーリィ  
+##### 36320#       发表于 2020-12-31 19:36
+
+
+
+
+福袋仇凛，很好
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36321#       发表于 2020-12-31 19:41
+
+
+
+
+下总国后山无名灵峰打影从者3次，一章汝拉打骑马大3次，队伍带玛修
+
+
+
+
+
+
+
+-----
+
+####  the_ripples  
+##### 36322#       发表于 2020-12-31 19:57
+
+
+
+
+院院宝具+1
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36323#       发表于 2020-12-31 20:14
+
+
+
+
+20+护符还是赌了超人熊当然沉到底了……
+
+福袋还没抽，感觉每个池子都是雷区<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林漠俪  
+##### 36324#       发表于 2020-12-31 20:33
+
+
+
+
+玩法特狗四年了头回三黄……感觉2021年又能坚持下去了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"><img src="http://wx2.sinaimg.cn/mw690/85d2f861ly1gm7baglx0xj21kw16o7wl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  loaflace  
+##### 36325#       发表于 2020-12-31 20:33
+
+
+
+
+cnm怎么福袋又是水呆，上次也是你啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一个陆仁贾  
+##### 36326#       发表于 2020-12-31 20:37
+
+
+
+
+出了杀阶光炮，好
+
+
+每次扫黄都有你. jpg
+
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36327#       发表于 2020-12-31 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902064&amp;ptid=1712412" target="_blank">林漠俪 发表于 2020-12-31 20:33</a>
+
+玩法特狗四年了头回三黄……感觉2021年又能坚持下去了</blockquote>
+噫！豹跳如雷
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36328#       发表于 2020-12-31 20:44
+
+
+
+
+想升杨贵妃的技能，一开始的锁链就卡住我了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36329#       发表于 2020-12-31 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">蒙哥马利的影阿周那幸运A++，打他不计进新年任务的幸运A+里
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 36330#       发表于 2020-12-31 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902193&amp;ptid=1712412" target="_blank">khxooo 发表于 2020-12-31 20:44</a>
+想升杨贵妃的技能，一开始的锁链就卡住我了</blockquote>
+哈？
+我升级的时候就被灰尘卡住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  居于月上伊莫库  
+##### 36331#       发表于 2020-12-31 21:21
+
+
+
+
+简单NEW了兔儿王还附带NEW戈耳工和起重机二宝，还好没执着梅林<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36332#       发表于 2020-12-31 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902274&amp;ptid=1712412" target="_blank">J-002 发表于 2020-12-31 20:53</a>
+
+蒙哥马利的影阿周那幸运A++，打他不计进新年任务的幸运A+里</blockquote>
+浪费了我60体，打完才发现任务没做<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36333#       发表于 2020-12-31 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902376&amp;ptid=1712412" target="_blank">南极磷 发表于 2020-12-31 21:03</a>
+
+哈？
+
+我升级的时候就被灰尘卡住了</blockquote>
+我弓凛祭已经刷了差不多200池了，谁知道锁链全吃完了，所以对你们来说没有用的锁链对我来说是紧缺的材料<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36334#       发表于 2020-12-31 21:37
+
+
+
+
+可恨，570石+40多张符没出货<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 36335#       发表于 2020-12-31 21:50
+
+
+
+
+我日福袋大象，杨玉环又沉，无法获得快乐啊
+
+
+
+
+
+
+
+-----
+
+####  Yidam  
+##### 36336#       发表于 2020-12-31 22:24
+
+
+
+
+福袋太精准了，骑阶就雷帝一个不想出的还是精准踩了雷<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36337#       发表于 2020-12-31 22:29
+
+
+
+
+废狗嘉年华神作，建议毙掉所有的正剧企划全部用来做这系列
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36338#       发表于 2020-12-31 22:31
+
+
+
+ 本帖最后由 gearbox 于 2020-12-31 22:57 编辑 
+
+真正的FGO动画：FGO嘉年华
+
+虚假的FGO动画：第六章剧场版及第七章动画
+
+草，月姬登录ps和ns，过年了(
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36339#       发表于 2020-12-31 23:00
+
+
+
+<blockquote>kazemitoya 发表于 2020-12-31 18:05
+New了个狂娜！我草！绝逼算头等奖！</blockquote>
+欧洲人
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36340#       发表于 2020-12-31 23:03
+
+
+
+<blockquote>林漠俪 发表于 2020-12-31 20:33
+玩法特狗四年了头回三黄……感觉2021年又能坚持下去了</blockquote>
+海豹
+
+
+
+
+
+
+
+-----
+
+####  loveritz  
+##### 36341#       发表于 2020-12-31 23:06
+
+
+
+
+今年是第一次抽福袋抽到想要的new，好起来了，尺袋想着赌老福或者兔子王，结果来了兔子王，耶，呆毛全战队又齐了，省了我复刻多少石头
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36342#       发表于 2020-12-31 23:08
+
+
+
+
+**读心游戏。大号只要不是奶光都行，偏偏出了奶光都三宝了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，小号金时宝二道是能接受
+
+
+
+
+
+
+
+-----
+
+####  ledo  
+##### 36343#       发表于 2020-12-31 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是福袋伯爵二宝失败变成黑贞二宝.....240石玉玉三宝
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 36344#       发表于 2020-12-31 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服明年。。。。得抽爆了。。。。。
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36345#       发表于 2020-12-31 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902064&amp;ptid=1712412" target="_blank">林漠俪 发表于 2020-12-31 20:33</a>
+
+玩法特狗四年了头回三黄……感觉2021年又能坚持下去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽
+
+
+
+
+
+
+
+-----
+
+####  atomicink  
+##### 36346#       发表于 2020-12-31 23:19
+
+
+
+
+福袋出盘子，没劲得很
+攒石抽村正
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36347#       发表于 2020-12-31 23:21
+
+
+
+
+等村正的连发性能有结论了在决定抽不抽，反正还早
+
+但是感觉太虚了，现在只有1400多石，也许司马懿和C呆就赔进去了，最近还对梵高有点兴趣
+
+
+
+
+
+
+
+-----
+
+####  空气蛹  
+##### 36348#       发表于 2020-12-31 23:24
+
+
+
+
+福袋出了院院，300石加一单二宝杨玉环，开心<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  当光停止  
+##### 36349#       发表于 2020-12-31 23:26
+
+
+
+ 本帖最后由 当光停止 于 2020-12-31 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49903975&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2020-12-31 23:21</a>
+
+等村正的连发性能有结论了在决定抽不抽，反正还早
+
+但是感觉太虚了，现在只有1400多石，也许司马懿和C呆就赔 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202012/31/232338np7my13nbgw3bwue.jpg" referrerpolicy="no-referrer">
+
+
+<strong>@)FD`UD5IZH4[)N1_[C2QKV.jpg</strong> (655.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-12-31 23:23 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果这图是真的 看buff量 应该是不换人用的04服 不清楚具体宝具等级啥的 反正伊吹是可以骂人了
+
+
+
+
+
+
+
+
+-----
+
+####  drawapie  
+##### 36350#       发表于 2020-12-31 23:27
+
+
+
+
+中特等奖了，宝石翁加狂娜
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36351#       发表于 2020-12-31 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49903975&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2020-12-31 23:21</a>
+
+等村正的连发性能有结论了在决定抽不抽，反正还早
+
+但是感觉太虚了，现在只有1400多石，也许司马懿和C呆就赔 ...</blockquote>
+50自充，宝具3hits，高自buff的蓝光炮，连发应该没问题的，而且这暴击能力太强了，100爆伤还3t，然后一整套出星集星打星系统都齐备了，抽个1宝然后靠暴击补刀估计也可行
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 36352#       发表于 2021-1-1 00:01
+
+
+
+
+草，狂袋子只要不出土方就行，然后出了土方。亏到奶奶家。都是单体不如抽枪阶
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 36353#       发表于 2021-1-1 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">超人熊以后能在哪里补？幸亏三呼符出了玉玉心理才平衡点
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36354#       发表于 2021-1-1 00:29
+
+
+
+
+虽然各位都知道了，还是在这里说一下，栏位可以增加了，各位记得买。还有楼上的，今年日服超人熊就复刻了。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36355#       发表于 2021-1-1 00:39
+
+
+
+
+大老师好人，抽了几万友情就出了第一张，所有进友情的三星都是好伙计
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36356#       发表于 2021-1-1 00:41
+
+
+
+
+你们都在做新任务了吗，我总想着再刷个金蛋....
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36357#       发表于 2021-1-1 00:58
+
+
+
+
+福袋赌new狂那结果武藏+1，武藏不愧是全迦和我最有缘的五星……
+
+
+女色误国啊。抽贵妃上头了，除了接近两单的攒石和呼符，又氪了七单才出……中间就歪了一个三藏
+
+大半年没这么狠氪过了，回想前几天一直在犹豫macbook air，这下不是刚需也就放弃了……<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36358#       发表于 2021-1-1 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49903756&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-31 23:08</a>
+
+**读心游戏。大号只要不是奶光都行，偏偏出了奶光都三宝了，小号金时宝二道是能接受 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">大号一模一样
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36359#       发表于 2021-1-1 02:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49903756&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2020-12-31 23:08</a>
+
+**读心游戏。大号只要不是奶光都行，偏偏出了奶光都三宝了，小号金时宝二道是能接受 ...</blockquote>
+我小号骑阶5分1几率都中了，真是无奈。
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 36360#       发表于 2021-1-1 03:06
+
+
+
+ 本帖最后由 blackjeo1 于 2021-1-1 03:12 编辑 
+
+        这次更新后感觉战斗的速度加快了，但是连接的速度却变慢了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，顺带问一下杨贵妃值得抽么？
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36361#       发表于 2021-1-1 03:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905041&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2021-01-01 00:58:21</a>
+福袋赌new狂那结果武藏+1，武藏不愧是全迦和我最有缘的五星……
+
+
+女色误国啊。抽贵妃上头了，除了接近两单 ...</blockquote>半夜会增加脑抽度，请勿半夜抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36362#       发表于 2021-1-1 03:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905571&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2021-01-01 03:06:45</a>
+，顺带问一下杨贵妃值得抽么？</blockquote>玉玉特效满分，C呆后挺不错，但要想打大伤害必须打灼烧的纹章用来在放宝具前先上状态。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36363#       发表于 2021-1-1 03:28
+
+
+
+
+村正应该跟仇凛一样推荐2宝舒服，1宝勉强那种吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36364#       发表于 2021-1-1 07:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905620&amp;ptid=1712412" target="_blank">深渊骑士 发表于 2021-1-1 03:28</a>
+
+村正应该跟仇凛一样推荐2宝舒服，1宝勉强那种吧
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+强度尚可，厨力为主吧。毕竟有绫波凛，水武藏，宫台，以及绿卡伯爵在。村正的白值还是太勉强了。3炮轰炸估计还是欠缺
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36365#       发表于 2021-1-1 08:34
+
+
+
+
+2020。我的fgo。仇信长回坑回坑就大沉船差点又afk，另一个大沉船是超人熊，沉得我欲生欲死。     欧皇时刻是400石满宝宇宙凛，最后一天福袋new巴啦啦，正常概率抽了两个水武藏。另外被奇怪性癖误导抽了个拿皇……总体来说2020的fgo还是挺满足的了。请2021……随便沉船，只要cab别让我沉就行了。求你了！！！！
+
+
+
+
+
+
+
+-----
+
+####  国王  
+##### 36366#       发表于 2021-1-1 08:43
+
+
+
+
+想消耗狗粮抽超人熊 怎么都抽不到 而且就new三星
+
+上头把所有送的都抽了 还是没出（出了第八张宝石
+
+
+作为补偿 狙中了新娘尼禄~
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36367#       发表于 2021-1-1 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905607&amp;ptid=1712412" target="_blank">深渊骑士 发表于 2021-1-1 03:23</a>
+ 半夜会增加脑抽度，请勿半夜抽卡    -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+开服没抽到，想起以前半夜出货率高，加上自以为新年新手气<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 36368#       发表于 2021-1-1 08:46
+
+
+
+<img src="https://p.sda1.dev/0/7b5b2220736fd0f948fabe7cee846c63/IMG_CMP_78122912.jpeg" referrerpolicy="no-referrer">
+
+福袋用光了运气，将近两单没有杨贵妃
+
+
+
+
+
+
+
+-----
+
+####  纯狐娘娘  
+##### 36369#       发表于 2021-1-1 08:52
+
+
+
+
+抽到狂那和杨贵妃，现在石头清空，要要攒石抽C呆了
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 36370#       发表于 2021-1-1 09:21
+
+
+
+
+要打2.5章才能补上那最后一颗圣晶片吗？就差一颗就可以换一个圣晶石，看着就难受
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36371#       发表于 2021-1-1 09:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49906273&amp;ptid=1712412" target="_blank">Blackson 发表于 2021-1-1 09:21</a>
+要打2.5章才能补上那最后一颗圣晶片吗？就差一颗就可以换一个圣晶石，看着就难受 ...</blockquote>
+是的，只有过主线才给。
+
+
+
+
+
+
+
+-----
+
+####  星尘的记忆  
+##### 36372#       发表于 2021-1-1 11:00
+
+
+
+
+骑福袋在全都没有的情况下，没赌到小达芬奇，不过还好，是司马懿，梦里才有双黄....
+
+
+
+
+
+
+
+-----
+
+####  lcychill  
+##### 36373#       发表于 2021-1-1 11:19
+
+
+
+
+送的石头狂出四星，补了一单才抽到贵妃。福袋中了X，还算不错。
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36374#       发表于 2021-1-1 11:44
+
+
+
+
+可怕，莫不是yls有退坑人士挽留算法?我群里一个差不多已经一年多的签到党，一发直接杨贵妃，之前仇凛也是一发，小芬奇也是.......
+
+但是我知道他根本不会再去练这些人
+
+
+
+
+
+
+
+-----
+
+####  GALLADE  
+##### 36375#       发表于 2021-1-1 11:56
+
+
+
+
+是不是有bug，无论贩卖还是强化都筛选不到种火了？
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36376#       发表于 2021-1-1 13:49
+
+
+
+
+稍微有点回血了，大号想抽个五星礼装，三个11连礼装没有但是玉玉来了，小号可牛逼了，也想要礼装，呼符抽错池抽到剧情池了，结果金卡，欧罗巴<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，这是在嘲讽大号不行吗
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36377#       发表于 2021-1-1 13:49
+
+
+
+
+二连
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36378#       发表于 2021-1-1 14:08
+
+
+
+
+金蛋暂时毕业了，一宝310仇凛看着好哀伤
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36379#       发表于 2021-1-1 14:16
+
+
+
+
+狂阶想赌金时，结果NEW了水武藏……行吧，总比耐光二宝好
+
+就等3月爷爷单UP赌一发了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36380#       发表于 2021-1-1 14:20
+
+
+
+
+本来绿方块1w，换了空间，买了每个月的东西，就变成4k了
+
+
+
+
+
+
+
+-----
+
+####  荀彧  
+##### 36381#       发表于 2021-1-1 15:13
+
+
+
+
+福袋来了个最不想要的雷帝，不过好歹是NEW，不亏不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+40呼符抽到了玉玉，接下来攒石到CABER了，最多中途给缺德修斯和神祖扔点呼符意思意思。
+
+2020废狗算是欧爆炸，花嫁1个十连，芭娜娜3个十连，弓贞1个十连，兔子王1个十连，水武藏头一次体会到十连双黄，10个十连3宝GET。仇凛回归正常概率，千石三宝歪了个尻枪。
+
+估计2021要还债了，已做好CABER千石一宝的心理准备<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36382#       发表于 2021-1-1 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49908709&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2021-1-1 14:08</a>
+
+金蛋暂时毕业了，一宝310仇凛看着好哀伤</blockquote>
+我家这个1技能还卡在8级呢，完全不想刷蛋
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 36383#       发表于 2021-1-1 16:35
+
+
+
+
+剑福袋出了唯一一个二宝变三宝的总司<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+太剑了，读心go
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  赤备传承  
+##### 36384#       发表于 2021-1-1 17:00
+
+
+
+
+福袋纠结了一圈，各种大奖和雷并存
+
+
+还是降临月癌他，反正一个都没有，最次也是new
+
+然后new了魔神总司。。。
+
+
+还顺带出c闪一个，还有个武则天new了，算是不亏
+
+
+感觉不错，于是准备拿武则天试试看连锁召唤杨贵妃
+
+一发十连来了幼r姐，幼女连锁吗。。。
+
+
+
+
+
+
+
+-----
+
+####  龙星丸  
+##### 36385#       发表于 2021-1-1 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">福袋出了最想要的BB，感觉今年会好运了。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36386#       发表于 2021-1-1 18:50
+
+
+
+
+友情池终于抽满了5张三星礼装，手都点酸了，顺便抽lily居然也有可能出现金圈特效，这有个毛用OTZ
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36387#       发表于 2021-1-1 19:37
+
+
+
+
+看了看获得顺序，2020只new了10个5星，太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36388#       发表于 2021-1-1 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">垃圾的2020年 五星基本都是氪金出的 只有芭娜娜神奇的纯靠攒的石头和送的呼符出了3宝
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36389#       发表于 2021-1-1 21:07
+
+
+
+
+不算不知道，一算吓一跳
+
+2020又搞了42单……
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36390#       发表于 2021-1-1 22:43
+
+
+
+
+今天把杨玉环补到了二宝 作为单体打手而言还需要继续补吗?
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36391#       发表于 2021-1-1 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49913063&amp;ptid=1712412" target="_blank">qigeer 发表于 2021-1-1 22:43</a>
+
+今天把杨玉环补到了二宝 作为单体打手而言还需要继续补吗?</blockquote>
+有双术呆的情况下，一般2宝都够用了，与其担心宝具等级不如思考一下怎么稳定给对面上灼伤的defuff
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36392#       发表于 2021-1-2 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49913594&amp;ptid=1712412" target="_blank">马桶3 发表于 2021-1-1 23:52</a>
+有双术呆的情况下，一般2宝都够用了，与其担心宝具等级不如思考一下怎么稳定给对面上灼伤的defuff ...</blockquote>
+好的
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36393#       发表于 2021-1-2 11:16
+
+
+
+
+贵妃真是魔性的女人……剩了120石我又没控制住手，想补二宝。还好这下二十连就来了……勉强平衡了一下。
+
+
+
+
+
+
+
+-----
+
+####  迪迦  
+##### 36394#       发表于 2021-1-2 12:35
+
+
+
+
+听说接下来有武藏池,是真的吗？
+
+
+
+
+
+
+
+-----
+
+####  当光停止  
+##### 36395#       发表于 2021-1-2 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916228&amp;ptid=1712412" target="_blank">迪迦 发表于 2021-1-2 12:35</a>
+
+听说接下来有武藏池,是真的吗？</blockquote>
+你说哪只
+
+剑的在五月 2000wdl日替
+
+狂的等夏天复刻
+
+
+
+
+
+
+
+-----
+
+####  迪迦  
+##### 36396#       发表于 2021-1-2 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49917641&amp;ptid=1712412" target="_blank">当光停止 发表于 2021-1-2 15:56</a>
+
+你说哪只
+
+剑的在五月 2000wdl日替
+
+狂的等夏天复刻</blockquote>
+剑的,狂的已经3宝了
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36397#       发表于 2021-1-2 18:25
+
+
+
+
+仔细看了下，我有16张虚数，8张黑杯，4张2030了，但宝石翁只有2张…………宝石翁……
+
+
+
+
+
+
+
+-----
+
+####  體育老師  
+##### 36398#       发表于 2021-1-2 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49918659&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2021-1-2 18:25</a>
+
+仔细看了下，我有16张虚数，8张黑杯，4张2030了，但宝石翁只有2张…………宝石翁…… ...</blockquote>
+这些没UP的礼装只能靠平时歪，太看运气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实一张满破就够了，平时还是50NP的礼装用的多
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36399#       发表于 2021-1-2 19:25
+
+
+
+
+宝石翁我就一张.....各种冲浪阵容和我无关
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36400#       发表于 2021-1-2 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49919236&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2021-1-2 19:25</a>
+
+宝石翁我就一张.....各种冲浪阵容和我无关</blockquote>
+满破宝石只是可以解放换人和部分极限阵容应对范围更广罢了，比如R蛋糕双cba用非满破宝石+充能衣服只能打纯术阵容的本，狂兰非满破宝石也可以靠一面孔明充20，二面充30后换成第二个cba的方法3t
+
+
+
+
+
+
+
+-----
+
+####  空气蛹  
+##### 36401#       发表于 2021-1-2 22:10
+
+
+
+
+贵妃剩下的150石想搏下式姐，最后一发十连彩圈大公<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 36402#       发表于 2021-1-2 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来也想试抽贵妃，结果体验本把大姐二姐塞上场看了下新模组后，去tm的贵妃，我要当女神大人的🐶
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  diectt  
+##### 36403#       发表于 2021-1-3 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49921020&amp;ptid=1712412" target="_blank">空气蛹 发表于 2021-1-2 22:10</a>
+
+贵妃剩下的150石想搏下式姐，最后一发十连彩圈大公</blockquote>
+大公和贵妃有绑定吗 我也歪出了大公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空气蛹  
+##### 36404#       发表于 2021-1-3 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922010&amp;ptid=1712412" target="_blank">diectt 发表于 2021-1-3 00:05</a>
+
+大公和贵妃有绑定吗 我也歪出了大公</blockquote>
+歪大公是FGO传统，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smdzh2  
+##### 36405#       发表于 2021-1-3 04:35
+
+
+
+
+攒石百日抽卡一时，情人节快点来吧，给老婆补够5宝<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  habita  
+##### 36406#       发表于 2021-1-3 07:09
+
+
+
+
+福袋出了仇信，唯一值得说的是复仇者全集齐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36407#       发表于 2021-1-3 09:02
+
+
+
+
+10张黑杯，但是宝石才8张<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 36408#       发表于 2021-1-3 09:51
+
+
+
+
+猛然想起来每月5呼符还没换，抽到第四张，杨贵妃来了，总算之前的投入没算沉
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36409#       发表于 2021-1-3 10:53
+
+
+
+
+十张黑杯，十七张宝石……<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36410#       发表于 2021-1-3 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49924134&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2021-1-3 10:53</a>
+
+十张黑杯，十七张宝石……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我好羡慕
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 36411#       发表于 2021-1-3 12:20
+
+
+
+
+就我不抽卡了，继续等一摸多和C呆
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36412#       发表于 2021-1-3 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49924134&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2021-1-3 10:53</a>
+十张黑杯，十七张宝石……</blockquote>
+酸了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36413#       发表于 2021-1-3 12:40
+
+
+
+
+政哥哥真给面子，一个十连就出了
+
+剩下的石头攒起来3月赌爷爷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluna  
+##### 36414#       发表于 2021-1-3 13:09
+
+
+
+
+11张黒杯，13张老头。还算平衡
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 36415#       发表于 2021-1-3 13:21
+
+
+
+
+想赌政哥哥又觉得不是很有必要<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  GALLADE  
+##### 36416#       发表于 2021-1-3 16:42
+
+
+
+
+说起来两张情人节50NP和糖霜应该优先哪张？无敌贯通+50NP吗？
+
+
+有百级黑杯还需要为WCAB整张百级糖霜不？
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36417#       发表于 2021-1-3 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49926607&amp;ptid=1712412" target="_blank">GALLADE 发表于 2021-1-3 16:42</a>
+
+说起来两张情人节50NP和糖霜应该优先哪张？无敌贯通+50NP吗？
+
+
+有百级黑杯还需要为WCAB整张百级糖霜不？ ...</blockquote>
+我选择笑脸印记，还缺一张就满破了
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36418#       发表于 2021-1-3 20:47
+
+
+
+
+前2天升级魔总司连续2次极大成功时就觉得抽卡要出货，本想忍到BB的，结果今天政哥哥没忍着，3发护符出货。好怕6号抽BB要沉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这2个跟剑武藏都是我千石不出货的主。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36419#       发表于 2021-1-3 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49924925&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-1-3 12:35</a>
+
+酸了</blockquote>
+4年6位数氪金，我深刻反省<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36420#       发表于 2021-1-3 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928712&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2021-1-3 21:17</a>
+
+4年6位数氪金，我深刻反省</blockquote>
+我也氪了有3W多了，没想到自己这么夸张<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36421#       发表于 2021-1-3 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928712&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2021-1-3 21:17</a>
+
+4年6位数氪金，我深刻反省</blockquote>
+这事儿真不能细算……我……算了不想了……
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36422#       发表于 2021-1-3 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49928913&amp;ptid=1712412" target="_blank">马桶3 发表于 2021-1-3 21:41</a>
+
+这事儿真不能细算……我……算了不想了……</blockquote>
+我本来觉得20年我氪的少了，然后前两天看了下账单，彻底惊到。
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36423#       发表于 2021-1-3 22:28
+
+
+
+
+今年很节省，但也有2k<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36424#       发表于 2021-1-4 07:31
+
+
+
+
+村正落地后，我最想要的是队长落地。那宝具真好看。队长你快落地啊
+
+
+
+
+
+
+
+-----
+
+####  smdzh2  
+##### 36425#       发表于 2021-1-4 07:39
+
+
+
+
+入坑4年连续3年0氪金，这游戏只有利用千里眼做好规划然后慢慢白嫖才能收获幸福<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一个陆仁贾  
+##### 36426#       发表于 2021-1-4 07:53
+
+
+
+
+昨晚抽卡抽到快睡着，总算把英雄王抽出来了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  宵十一狼  
+##### 36427#       发表于 2021-1-4 08:53
+
+
+
+
+统计了一下自己平常呆的微信群的福袋情况，5个抽骑阶的4个出雷帝~<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">早知道我肯定不抽骑~吐了
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 36428#       发表于 2021-1-4 08:56
+
+
+
+
+因为拖延症刚推完主线所以一起来报告一下
+夏洛特的病娇少女恋爱心真的甜美到可以让人忽略苍月那sm的立绘（当然客观的说立绘表情差分很生动而这也算是苍月唯一的强项）
+伊阿宋这次也是王者级别的carry
+东出认真起来甭说群像剧了居然连恋爱都靠谱了我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+最后波塞冬三战，考虑着上三个星之力从者来打
+第一战船长，没话说，波塞冬都快得德雷克ptsd了我笑死
+第二战大芬奇，我抽到之后喂满就扔仓库了因此还是未打宝具本的状态，为了补伤害甚至上了一级陈宫来刷buff……还好最后也差不多3t了
+第三战对面枪阶……这个难道要上215吗然而我真没有，然后翻了一下发现仇凛也是星之力啊
+什么花里胡哨的，秒了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后是新年福袋，抽ae外星人池中了new帝王花，抽杨贵妃池40护符+460多石头+两单才一宝，然而中间出了第五张宝石还new了项羽和小莫……
+
+啊我终于有满破宝石了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36429#       发表于 2021-1-4 10:37
+
+
+
+
+怎么就开了？不用更新的么
+
+
+
+
+
+
+
+-----
+
+####  atomicink  
+##### 36430#       发表于 2021-1-4 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49931175&amp;ptid=1712412" target="_blank">宵十一狼 发表于 2021-1-4 08:53</a>
+
+统计了一下自己平常呆的微信群的福袋情况，5个抽骑阶的4个出雷帝~早知道我肯定不抽骑~吐了 ...</blockquote>
+羡慕，我想抽雷帝没抽到
+
+
+
+
+
+
+
+-----
+
+####  ztkong  
+##### 36431#       发表于 2021-1-4 14:21
+
+
+
+
+狂袋出了狂那。。。抽超人熊歪了脚后跟，你明明是隔壁池子的吧==
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36432#       发表于 2021-1-4 15:32
+
+
+
+
+这活动去年在过年休息时候打还好，今年复刻正好第一天上班，忙得像狗一样，然后还要最大加成xjbd，吐了
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36433#       发表于 2021-1-4 16:22
+
+
+
+
+从仓库里翻了翻，疑惑去年我为什么在这个活动氪出那么多满破礼装…<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36434#       发表于 2021-1-4 17:28
+
+
+
+
+小麻雀其实挺想要的，但是一想和花嫁定位有点重复，算了吧，没余力
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 36435#       发表于 2021-1-4 17:43
+
+
+
+
+我放弃这活动了，要全男全女各分别一队刷本太麻烦了。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36436#       发表于 2021-1-4 18:02
+
+
+
+
+虽然石头还剩得有点多，不过杨贵妃豹跳了，估计会抽得很惨，还是不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36437#       发表于 2021-1-4 18:35
+
+
+
+
+组队地狱他又来了，抽到杨玉玉的可以考虑玉玉主手狐狸拐再拉个玉藻猫或者清姬当副手，后排鲅鱼圈芬恩再借一个玉玉或者小麻雀，这样只要换加成礼装就可以10~12T横扫free了？
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36438#       发表于 2021-1-4 18:38
+
+
+
+
+我看着这加成，组队已经晕了，去年似乎友情池捞了不少礼装出来，去年商店礼装也还没满破，似乎助战无脑报满破氪金礼装就行？
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36439#       发表于 2021-1-4 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936829&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2021-1-4 18:38</a>
+
+我看着这加成，组队已经晕了，去年似乎友情池捞了不少礼装出来，去年商店礼装也还没满破，似乎助战无脑报满 ...</blockquote>
+优先换商店礼装，组队头疼可以看看有没有我前面那楼说的全加成从者，有就直接拉一队通用
+
+另外，其实不同本的克制阶职都是相对应的加成，所以也可以无脑上全克制阵容
+<img src="http://img.nga.178.com/attachments/mon_202001/07/f0Q5-c3w4ZeT1kSgl-ag.jpg" referrerpolicy="no-referrer">
+
+从NGA偷个全加成图看看能不能刷出来？
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36440#       发表于 2021-1-4 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936882&amp;ptid=1712412" target="_blank">马桶3 发表于 2021-1-4 18:43</a>
+
+优先换商店礼装，组队头疼可以看看有没有我前面那楼说的全加成从者，有就直接拉一队通用
+
+另外，其实不同 ...</blockquote>
+就比去年多了个剑刷....
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36441#       发表于 2021-1-4 20:48
+
+
+
+
+在金皮卡的池子里歪月神……这游戏能不能好了？！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 36442#       发表于 2021-1-5 07:20
+
+
+
+
+这么多年终于抽到老太婆了
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36443#       发表于 2021-1-5 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">13抽，紫发老太婆+1，于是我三宝了
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 36444#       发表于 2021-1-5 12:37
+
+
+
+
+彩圈月神，金剑剑刷，金剑罗摩，我和小麻雀没缘分<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36445#       发表于 2021-1-5 12:41
+
+
+
+
+突然可以放弃村正了.......
+
+但是现在这个刚过1500的石头存量，到仇凛复刻能剩多少还是问题啊
+
+就算只定三个目标：司马懿，C呆，梵高的话
+
+而且仇凛这池子是真恶心，4星灾星简还在里面搞事
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36446#       发表于 2021-1-5 13:51
+
+
+
+<blockquote>苍蓝之枪 发表于 2021-1-5 12:41
+突然可以放弃村正了.......
+
+但是现在这个刚过1500的石头存量，到仇凛复刻能剩多少还是问题啊
+
+就算只定三个 ...</blockquote>
+五星的仇凛关四星的简什么事......
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 36447#       发表于 2021-1-5 14:30
+
+
+
+
+今年抽卡目标只有卑弥呼（二宝）、术军刀、泳装紫式部
+
+fgo真省钱！（坚定）
+
+看有余力再给迦摩和杨贵妃补宝了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36448#       发表于 2021-1-5 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽光石头 我也是有枪阶紫发美少女的骂死他了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36449#       发表于 2021-1-5 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944417&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 14:35</a>
+抽光石头 我也是有枪阶紫发美少女的骂死他了</blockquote>
+是4星的还是5星级的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36450#       发表于 2021-1-5 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944614&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-1-5 14:57</a>
+
+是4星的还是5星级的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五星的 坐等兔女郎灵衣了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36451#       发表于 2021-1-5 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944676&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 15:03</a>
+五星的 坐等兔女郎灵衣了</blockquote>
+那恭喜了，兔女郎的确色<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36452#       发表于 2021-1-5 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944716&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-1-5 15:09</a>
+
+那恭喜了，兔女郎的确色，不过我打算抽一个尺呆，还原一下哥伦布的最终卡面 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓呆 骑呆 尺呆 抽不到的痛
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36453#       发表于 2021-1-5 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944072&amp;ptid=1712412" target="_blank">angelooo 发表于 2021-1-5 13:51</a>
+
+五星的仇凛关四星的简什么事......</blockquote>
+因为简早满宝了，宁可没有四星UP让我感受一下四星全明星
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36454#       发表于 2021-1-5 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944798&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 15:19</a>
+
+弓呆 骑呆 尺呆 抽不到的痛</blockquote>
+我也都没抽到，所以我抽了剑阿福<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36455#       发表于 2021-1-5 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945224&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 16:04</a>
+
+我也都没抽到，所以我抽了剑阿福</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理性蒸发了么
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36456#       发表于 2021-1-5 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945685&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 16:46</a>
+
+理性蒸发了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺香的
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36457#       发表于 2021-1-5 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945750&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 16:53</a>
+
+挺香的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑阶对我来说太毒了 这号很长一段时间五星只有剑 甚至最早满宝的四星常驻都是剑兰 所以基本上剑阶我都是随便扔几个呼符就走的那种
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36458#       发表于 2021-1-5 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945823&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 16:59</a>
+
+剑阶对我来说太毒了 这号很长一段时间五星只有剑 甚至最早满宝的四星常驻都是剑兰 所以基本上剑阶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对不起，除了福袋，我只看卡面
+
+所以215又沉了...
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36459#       发表于 2021-1-5 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945845&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 17:01</a>
+
+对不起，除了福袋，我只看卡面
+
+所以215又沉了...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第一个五星就是215 说真的卡面是真的棒 强度也是真的不行
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36460#       发表于 2021-1-5 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945886&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 17:05</a>
+
+我第一个五星就是215 说真的卡面是真的棒 强度也是真的不行</blockquote>
+巧了，我也是215活动入坑的...
+
+虽然后来那个账号弃了...
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36461#       发表于 2021-1-5 17:36
+
+
+
+
+小号两发10连小麻雀到手，终于可以消耗狗粮和qp了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  loveritz  
+##### 36462#       发表于 2021-1-5 17:58
+
+
+
+ 本帖最后由 loveritz 于 2021-1-5 18:05 编辑 
+
+奶奶的，这游戏真他娘的玄学，去年春节小麻雀大暴死，氪了多少没敢想，反正千石以上了，最后是没出，想着还要发压岁钱和给爸妈买东西就忍了，然后咸鱼了半年没咋抽卡，好像就大奥抽了几发，剩下的随便签个到随便打打活动，然后存了不少石头加上送的抽四周年小芬骑继续大暴死，常驻四星差不多都歪一遍，绝了，小芬奇还是没出，后面又氪了点抽兔呆还是没出，然后我对这游戏抽卡彻底放弃了，就过着签到新活动打打拿个五宝从者跑路，老活动直接pass，好像宇宙凛也抽了几发没出就溜了，去年一度有大半年没有new五星，而且还是氪了七八单的样子，填充box的是长尾景虎小灰自选的段藏还有圣诞南丁233
+
+
+没想到新年狗屎运，先是福袋第一次出货，抽到想要的兔呆，以前都是宝具+1或者不想要的，然后再战去年大暴死的小麻雀池，一发十连出了，感觉这卡池会继承pt吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，去年290pt放弃，今年井出来了，然后师匠大概五个十连就出了，好起来了，对比去年这特么有毒吧，不过我感觉我今年术呆又要大暴死了
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36463#       发表于 2021-1-5 19:07
+
+
+
+
+这女温泉贝壳爆率很高啊，平均有一把一个了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36464#       发表于 2021-1-5 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945904&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-5 17:07</a>
+
+巧了，我也是215活动入坑的...
+
+虽然后来那个账号弃了...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">号太非扔了么
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36465#       发表于 2021-1-6 00:00
+
+
+
+
+大号就不抽水B了，小号和日服号都有，不想重复抽。
+
+
+
+
+
+
+
+-----
+
+####  深渊骑士  
+##### 36466#       发表于 2021-1-6 08:09
+
+
+
+
+十五个十连终于把BB抽到了，中间出了4个4星，其中3个狂，没歪到其他5星。把之前算上的的，一共耗了我1500多石才出<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不愧是肖Ai。还剩下160多石，这样就可以安心等c呆了。今年开头还算不错，福袋虽然不出BB，但也new了魔总司，之后几发护符出了政哥哥，加上抽BB时new了狂阿塔 一共4个new。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36467#       发表于 2021-1-6 08:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949187&amp;ptid=1712412" target="_blank">qixinno2 发表于 2021-1-5 22:10</a>
+
+号太非扔了么</blockquote>
+7单布姐沉船，换了个石头号满宝布姐开具了，当时早，没孔明也照打，打着打着就歪出来了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36468#       发表于 2021-1-6 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951517&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2021-1-6 08:33</a>
+
+7单布姐沉船，换了个石头号满宝布姐开具了，当时早，没孔明也照打，打着打着就歪出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36469#       发表于 2021-1-6 10:48
+
+
+
+
+日服的铲子是怎么处理的呢？
+
+
+
+
+
+
+
+-----
+
+####  空气蛹  
+##### 36470#       发表于 2021-1-6 11:10
+
+
+
+
+五单没出bb，yls这池子真的顶不住了，还好上半年没啥想抽的，攒石回血到C呆算了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36471#       发表于 2021-1-7 09:28
+
+
+
+
+这么多人要BB的嘛，我去年抽到后基本就是仓管没出场几次
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36472#       发表于 2021-1-7 10:11
+
+
+
+
+大号呼符1个尼姑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，本来想抽麻雀的，双Up抽不起。
+
+
+
+
+
+
+
+-----
+
+####  flyzzhj  
+##### 36473#       发表于 2021-1-7 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49962483&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-1-7 09:28</a>
+
+这么多人要BB的嘛，我去年抽到后基本就是仓管没出场几次</blockquote>
+有没有是两回事...
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36474#       发表于 2021-1-7 11:13
+
+
+
+
+抽了这么多次杀生院，终于抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36475#       发表于 2021-1-7 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49962483&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-1-7 09:28</a>
+
+这么多人要BB的嘛，我去年抽到后基本就是仓管没出场几次</blockquote>
+我周回经常上水B，最近一次就是水B+超人熊刷煌星，无脑3连打法腻了用来调剂一下挺好的，虽然本质上是玩具，但锁卡功能暂时还是水B独有的，错过这村就没这店了
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36476#       发表于 2021-1-7 17:26
+
+
+
+ 本帖最后由 dawning 于 2021-1-7 17:39 编辑 
+
+呼符歪出阿克琉斯<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+qp只有几百万了，点个技能都不行<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36477#       发表于 2021-1-7 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49967307&amp;ptid=1712412" target="_blank">devilwing 发表于 2021-1-7 17:23</a>
+
+我周回经常上水B，最近一次就是水B+超人熊刷煌星，无脑3连打法腻了用来调剂一下挺好的，虽然本质上是玩具 ...</blockquote>
+做打手需要高宝，一宝太水枪，锁卡真的玩具，玩过几次就放下了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36478#       发表于 2021-1-7 18:24
+
+
+
+
+用过好友的4宝水BB还是感觉伤害感人，1宝还是玩暴击吧
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36479#       发表于 2021-1-8 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天发的两张呼符出了玉玉，这个元旦挺舒服
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36480#       发表于 2021-1-8 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974307&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2021-1-8 11:52</a>
+今天发的两张呼符出了玉玉，这个元旦挺舒服</blockquote>
+差不多，15石头加10多张呼符3个5星，今年算是开门红了。
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 36481#       发表于 2021-1-8 14:44
+
+
+
+
+去年阎魔亭的活动没打，这次复刻是首刷。这好像是我第一次看到芬恩活跃的活动，只想感慨原来芬恩是那么靠谱外加有担当的吗，路转粉了，我一直以为你月的芬恩只会追求马修和抱着被刷子哥抢老婆的梗不放这两件事。
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 36482#       发表于 2021-1-8 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975955&amp;ptid=1712412" target="_blank">martinhe 发表于 2021-1-8 14:44</a>
+去年阎魔亭的活动没打，这次复刻是首刷。这好像是我第一次看到芬恩活跃的活动，只想感慨原来芬恩是那么靠谱 ...</blockquote>
+FGO早期主线1.0第三章黑伊阿宋黑的更狠，最后还是落地并给了个大放光彩的2.5.1
+只能说不同写手（甚至同一写手的不同阶段）的态度差异很大了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                                 

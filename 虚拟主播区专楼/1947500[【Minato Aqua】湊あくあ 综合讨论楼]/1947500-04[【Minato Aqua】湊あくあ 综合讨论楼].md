@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-01 20:00** 
+> ## **本文件最后更新于2021-01-06 18:03** 
 
 
 
@@ -2749,4 +2749,687 @@ yygq来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
 
-                                            
+
+
+-----
+
+####  nowaki  
+##### 4654#       发表于 2021-1-1 21:10
+
+
+
+ 本帖最后由 nowaki 于 2021-1-1 21:12 编辑 
+
+mio在给夸神占卜了
+
+
+<img src="https://img.saraba1st.com/forum/202101/01/211211hyenswnoxw3shxok.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210101211133.jpg</strong> (110.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-1 21:12 上传
+
+
+
+
+
+
+有没有懂的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4655#       发表于 2021-1-1 23:56
+
+
+
+
+夸宝新年快乐！
+
+她还记得“新年快乐”的读音啊，虽然第一遍的时候用的训读，反应过来后再改的。这个sc的id，看上去像是感知树？
+
+听起来比较舒服的一个目标，是马车二连霸，去年腹部坦不是很苦呀西吗，希望她能再来参加，然后自然是再打败一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4656#       发表于 2021-1-2 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49913625&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-1 23:56</a>
+
+夸宝新年快乐！
+
+她还记得“新年快乐”的读音啊，虽然第一遍的时候用的训读，反应过来后再改的。这个sc的id ...</blockquote>
+我特意写成日语的快乐了，就为了方便她读
+
+没想到她还记得中文的，这倒是给了个惊喜
+
+今年狐坦能不能过兔皇那关都不知道呢
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4657#       发表于 2021-1-2 08:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914004&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-01-02 01:00:58</a>
+我特意写成日语的快乐了，就为了方便她读
+
+没想到她还记得中文的，这倒是给了个惊喜
+
+今年狐坦能不能过兔皇 ...</blockquote>树佬你做的好啊！这算是新年我收到的第一个好消息了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4658#       发表于 2021-1-2 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49912222&amp;ptid=1947500" target="_blank">nowaki 发表于 2021-01-01 21:10:59</a>
+有没有懂的</blockquote>搬运b站星珏十三大佬的
+夸今晚的占卜内容
+
+整体印象
+·正位比较多，是至今为止都没有的走向
+·可能这一年会非常的安逸
+·变得圆滑一点
+·感觉还是比较顺利的一年
+
+综合
+·成长的正位（上进心很强）
+·被好好的守护着
+·只要发现并改善自己的不足就能前往下一个台阶
+·中吉
+
+联动
+·在做事情之前要好好的商量
+·在做自己的想做的事之前要确定别人都想做
+
+工作
+·非常好
+·皆大欢喜的正位
+·迄今为止所有的付出都将得到回报
+
+健康
+·最重要的是要充分了解你自己
+·需要和自己的好好的沟通
+
+财运
+·非常强力的正位
+·感觉非常好
+·能突破自己的阻碍
+
+赌运（需要赌的事情）
+·正位权杖
+·要做好准备
+·稍微慎重一点比较好
+·把握胜利  积攒力量
+·好好的做准备的话就没有问题
+
+建议
+·不要在最后关头掉以轻心
+·不守好底线的话会后悔的
+·做事有分寸是很重要的（大人的态度？）
+（自己的事情要好好的传达）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4659#       发表于 2021-1-2 18:53
+
+
+
+
+桃铁100年，需要几个小时？
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 4660#       发表于 2021-1-2 18:55
+
+
+
+
+桃铁100年耐久
+
+看过4人耐久30年，都花了20小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4661#       发表于 2021-1-2 18:57
+
+
+
+
+夸宝不是向来都是用屁股定企划的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 4662#       发表于 2021-1-2 19:00
+
+
+
+
+这是什么阴间活
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4663#       发表于 2021-1-2 19:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4664#       发表于 2021-1-2 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很有夸宝风格的耐久
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4665#       发表于 2021-1-2 22:04
+
+
+
+ 本帖最后由 面具13 于 2021-1-2 22:44 编辑 
+
+100年可能都是sakuma社长个人秀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+akukin社长好菜啊 
+
+
+这货买个福袋就是用来急死人的吧。。夸宝时来运转，crew可太惨了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4666#       发表于 2021-1-3 03:15
+
+
+
+
+从几百亿 到欠债赤字就一眨眼功夫？这吊游戏赌性这么大吗 
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4667#       发表于 2021-1-3 04:37
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-3 04:38 编辑 
+
+#坂本龍馬あてぃしのこと好きすぎ
+
+这个梗感觉会越来越流行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道有没有机会超过44.5
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4668#       发表于 2021-1-3 11:34
+
+
+
+
+11个半小时过了41年，虽然后面可能操作效率会更高一点，但估计下一个枠很大概率也结束不了。夸宝中后期靠疯狂复制比较强力的卡把雪球滚起来了，但是crew的遭遇真的是惨绝人寰。
+
+
+唐突一百年耐久的原因我大概看出来了，应该是为了后天nijiholo桃铁联动临时抱佛脚，毕竟疯狂在记什么东西比较强。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4669#       发表于 2021-1-3 22:37
+
+
+
+ 本帖最后由 面具13 于 2021-1-3 22:52 编辑 
+
+全物件制覇完成了，还有30年想溜了？crew资产还垫底呢。草，最后一年sakuma唐突被抛入2万亿的负债地狱。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4670#       发表于 2021-1-3 23:57
+
+
+
+
+还好提前达成所有小目标算是有理由摸了
+
+不然真要耗完最后30年又要通宵了
+
+现在日本コロナ这么不太平
+
+熬夜疲劳导致免疫力降低实在太危险了
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4671#       发表于 2021-1-4 19:36
+
+
+
+
+有办法知道啥时候有直播吗，油管上有时候有提醒预告，但是联动好像有时候就没有预告？楼上有人说明天是有桃铁联动，是在哪里看到的？另外有没有软件能阿夸直播了油管自动发邮件提醒我的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+看阿夸玩mc老是岩浆里死然后我也去玩了，昨天刚打完末影龙，在找鞘翅的时候穿着附魔毕业的下界合金套落入虚空了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4672#       发表于 2021-1-4 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937391&amp;ptid=1947500" target="_blank">wwddrte 发表于 2021-1-4 19:36</a>
+
+有办法知道啥时候有直播吗，油管上有时候有提醒预告，但是联动好像有时候就没有预告？楼上有人说明天是有桃 ...</blockquote>
+GMAIL应该能做到开播邮件。大不了加一个自动转发。
+
+桃铁联动来自1月1号船长公布的之后一段时间的直播预告。
+
+现在国内的讨论环境的话，信息来源确实少，夸宝又不习惯提前定直播计划。开播前几个小时一般会发推，两个b站的切片海盗会转译（湊-阿库娅の小麦铺，湊阿库娅的洋葱港）。然后就是holo.poi.cat可以看有没有待机间。
+
+夸宝联动基本上都有其他holo的人，所以可以看看隔壁colo楼（通常都是日文标题，后面加个スレ），那边基本上是现在国内为数不多的hololive信息相对比较集中的地方。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wwddrte| + 1|谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 4673#       发表于 2021-1-4 20:54
+
+
+
+
+说起来夸上次只有她一个holo人的社外联动好像是19年下旬的LOL联动
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4674#       发表于 2021-1-4 21:05
+
+
+
+
+不是还有贴贴人的断头饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4675#       发表于 2021-1-4 21:16
+
+
+
+
+晚上11点马车。holo应该是从事先确定的一些地图里抽吧，上次夸宝也是针对性地去学了跑法。盲猜今晚练弱图彩虹路。
+
+
+现在还有不到两个小时，待机间怎么有1100+人
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4676#       发表于 2021-1-4 23:39
+
+
+
+ 本帖最后由 面具13 于 2021-1-4 23:48 编辑 
+
+今晚只排位，四连第一，这房间有问题吧，忖度吗？
+
+听到大会禁辅助轮窃喜的夸宝
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4677#       发表于 2021-1-5 09:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">禁天线，这人不是无敌了，200cc这真的乱杀
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4678#       发表于 2021-1-5 11:57
+
+
+
+
+昨天有几局有个顶着ちーぎゅりんこID的，还把夸宝撞飞了把ID印在屏幕上，气得夸宝打完就换房间了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 4679#       发表于 2021-1-5 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49942958&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-1-5 11:57</a>
+
+昨天有几局有个顶着ちーぎゅりんこID的，还把夸宝撞飞了把ID印在屏幕上，气得夸宝打完就换房间了 ...</blockquote>
+不是因为パコ余APEX吗
+
+<img src="https://img.saraba1st.com/forum/202101/05/140013s56tpwx5r950j9nz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-01-05 135430.jpg</strong> (34.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 14:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4680#       发表于 2021-1-5 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49944163&amp;ptid=1947500" target="_blank">colodes 发表于 2021-1-5 14:02</a>
+
+不是因为パコ余APEX吗</blockquote>
+那个パコ余也打了两局啊 我觉得是因为这人故意改ID+撞人把冲塔ID停画面上太久了他之前不是这个ID的，中途改的
+
+<img src="https://img.saraba1st.com/forum/202101/05/150245rriwo4vkx4rbmv3r.png" referrerpolicy="no-referrer">
+
+
+<strong>01.png</strong> (368.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 15:02 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/05/150308hzvewx61w5lerx6q.png" referrerpolicy="no-referrer">
+
+
+<strong>02.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 15:03 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/05/145532wnpu8uqwo4eyuvyu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【マリカ8DX】あてぃし、しんや、がち、れんしゅう、！【湊あくあ_ホロライブ】.mp4_2.jpg</strong> (365.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-5 14:55 上传
+
+
+
+
+
+
+
+火箭撞人超车以后，这个ID在画面上整整停留了11秒
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|中途换ID有点过分|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4681#       发表于 2021-1-6 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">细节啊
+
+
+
+
+
+                                           

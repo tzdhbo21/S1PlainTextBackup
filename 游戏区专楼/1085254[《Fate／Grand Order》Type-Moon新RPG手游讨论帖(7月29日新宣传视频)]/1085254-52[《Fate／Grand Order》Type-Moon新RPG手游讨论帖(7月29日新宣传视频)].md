@@ -1,8 +1,4 @@
-<<<<<<< HEAD
-> ## **本文件最后更新于2021-01-04 16:50** 
-=======
-> ## **本文件最后更新于2021-01-04 15:08** 
->>>>>>> ee39be9d1a29b2407431c79e1dcb8dccf05da11d
+> ## **本文件最后更新于2021-01-06 18:25** 
 
 
 
@@ -21106,4 +21102,769 @@ bcr的规划党也很奇怪啊啥都不抽太无聊，现在每个卡池抽了�
 
 
 
-           
+
+
+-----
+
+####  仰望神的括约肌  
+##### 77665#       发表于 2021-1-4 17:09
+
+
+
+
+仇凛复刻来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77666#       发表于 2021-1-4 17:10
+
+
+
+
+艹，我早上还在想着这周怕不是复刻个SW2，结果还真来了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 77667#       发表于 2021-1-4 17:16
+
+
+
+
+YLS敢不敢来个仇凛宝具本背刺一下村正啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77668#       发表于 2021-1-4 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望仇凛和我的羁绊能让我出一个补二宝
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77669#       发表于 2021-1-4 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936076&amp;ptid=1085254" target="_blank">凌云三才 发表于 2021-1-4 17:16</a>
+
+YLS敢不敢来个仇凛宝具本背刺一下村正啊</blockquote>
+迷惑　村正和仇凛能比吗?　还需要背刺?
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 77670#       发表于 2021-1-4 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49936146&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-4 17:23</a>
+
+迷惑　村正和仇凛能比吗?　还需要背刺?</blockquote>
+是我用词不当了，改成跳脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77671#       发表于 2021-1-4 17:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来还想七号去搏一把阿比的
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yzj134100  
+##### 77672#       发表于 2021-1-4 17:59
+
+
+
+
+钱包君松了一口气<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77673#       发表于 2021-1-4 18:00
+
+
+
+
+没石头了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  炙热之狐  
+##### 77674#       发表于 2021-1-4 18:09
+
+
+
+
+村正没被仇凛背刺，我被YLS背刺了！
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77675#       发表于 2021-1-4 18:14
+
+
+
+
+问题来了，仇凛2宝够用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77676#       发表于 2021-1-4 18:14
+
+
+
+
+“月姬R大饼已经烤好了，给老子氪！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 77677#       发表于 2021-1-4 19:25
+
+
+
+
+难受，陷入沉思，到底是该先抽满村正呢，还是先伊斯塔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LOLITA  
+##### 77678#       发表于 2021-1-4 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937283&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-1-4 19:25</a>
+
+难受，陷入沉思，到底是该先抽满村正呢，还是先伊斯塔</blockquote>
+肯定宇宙凛啊，万一沉了再抽村正泄愤<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77679#       发表于 2021-1-4 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937283&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-1-4 05:25</a>
+
+难受，陷入沉思，到底是该先抽满村正呢，还是先伊斯塔</blockquote>
+不开玩笑认真讲，建议优先伊斯塔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77680#       发表于 2021-1-4 20:11
+
+
+
+
+突然反应过来其实我不用抽，基本每个职阶好用的克制蓝光炮都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77681#       发表于 2021-1-4 20:31
+
+
+
+
+说起来，你游快2000天了
+
+
+又能领10石了
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77682#       发表于 2021-1-4 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937708&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-1-4 20:11</a>
+
+突然反应过来其实我不用抽，基本每个职阶好用的克制蓝光炮都有了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不应该是　她可以没用　但是我必须５宝吗
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77683#       发表于 2021-1-4 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937361&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-1-4 19:32</a>
+
+肯定宇宙凛啊，万一沉了再抽村正泄愤</blockquote>
+还有石头抽村正怎么能说沉了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LOLITA  
+##### 77684#       发表于 2021-1-4 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49938073&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-1-4 20:38</a>
+
+还有石头抽村正怎么能说沉了呢</blockquote>
+没石头还有钞能力啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77685#       发表于 2021-1-4 22:05
+
+
+
+
+完了，这两天有点欧过头了，村正70连3宝，狐狸60连开图鉴顺便歪了个大王，然后手痒在0点前又抽了3发11连，2宝了。这次本命是只有1宝的阿比，打算抽到3宝以上，看看手头石头数量不是很稳，氪了一单，然后突然想到我女帝只有1宝，虽然也就是个仓管，但不知咋的鬼使神差点了1发11连，然后就2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+虽然我12月3个卡池都沉得挺惨的，不过这反动也来得太剧烈了吧，我现在好慌，本来还想冲击一下村正5宝顺便把宇宙凛最后一宝也顺便补上，现在怕不是本命的阿比要沉船了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77686#       发表于 2021-1-4 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49938028&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-4 20:35</a>
+不应该是　她可以没用　但是我必须５宝吗</blockquote>
+现在强度不是必须的卡，不需要抽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 77687#       发表于 2021-1-4 22:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">草 我才反应过来每年都有日替限定 习惯第一天全扔村正了 傻逼了
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77688#       发表于 2021-1-5 13:17
+
+
+
+
+无限池准备关了才发现还有50池没抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77689#       发表于 2021-1-6 00:31
+
+
+
+
+卧槽，我该不会真的要出事了吧，前天刚吐槽完新年这波欧气回归有点厉害17发11连7个五星就歪了1个，今天看到日替是我就1宝的伊利亚，又领了5发护符，就随手点了2下，结果第二个护符就出了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77690#       发表于 2021-1-6 05:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937708&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-1-4 06:11</a>
+
+突然反应过来其实我不用抽，基本每个职阶好用的克制蓝光炮都有了</blockquote>
+话说杀阶的蓝光炮是啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77691#       发表于 2021-1-6 08:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951092&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-1-6 05:34</a>
+
+话说杀阶的蓝光炮是啥</blockquote>
+当然是“杀”生院啊，都给你写名字里了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77692#       发表于 2021-1-6 08:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">村正宇宙凛都想要 但是感觉抽两个3宝 不如把一个给5宝
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77693#       发表于 2021-1-6 10:12
+
+
+
+
+这任务给的新年礼装未免也太丧了一点吧
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  LOLITA  
+##### 77694#       发表于 2021-1-6 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951448&amp;ptid=1085254" target="_blank">风鸣弦十郎 发表于 2021-1-6 08:23</a>
+
+村正宇宙凛都想要 但是感觉抽两个3宝 不如把一个给5宝</blockquote>
+也可能是抽一个一宝花了抽两个三宝的小钱钱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yzj134100  
+##### 77695#       发表于 2021-1-6 12:51
+
+
+
+
+下体/强度抽卡就完事了
+
+又没保底，规划个啥呢，上期不抽就意味着这期能抽满了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在抽到之前钱包先嗝屁了不就两期双输
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77696#       发表于 2021-1-6 15:20
+
+
+
+
+话是这么说没错，但是心里也大概有个谱吧。感觉差不多2-3单一宝？
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77697#       发表于 2021-1-6 16:38
+
+
+
+ 本帖最后由 xiongxingyu 于 2021-1-6 16:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49955794&amp;ptid=1085254" target="_blank">风鸣弦十郎 发表于 2021-1-6 15:20</a>
+
+话是这么说没错，但是心里也大概有个谱吧。感觉差不多2-3单一宝？</blockquote>
+我上个月600多石头出的第一个道满，三宝抽了大概有1800石头（甚至没歪别的），800多石头出的第一个伊吹，3宝抽了有2400多石头（歪了5个）。然后这个月240石头3宝村正，270石头2枪狐，30石头1女帝，2发护符1伊莉雅。你可以仔细品一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说这破游戏只要你抽得够多，从长远来看确实是2到3单1个up的五星，但是具体到每个卡池，那就......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77698#       发表于 2021-1-6 16:53
+
+
+
+<blockquote>xiongxingyu 发表于 2021-1-6 16:38
+我上个月600多石头出的第一个道满，三宝抽了大概有1800石头（甚至没歪别的），800多石头出的第一个伊吹，3 ...</blockquote>
+也对，不想太多。主要fgo这个卡池换法真的很难受
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77699#       发表于 2021-1-6 17:08
+
+
+
+ 本帖最后由 黑上シグマ 于 2021-1-6 17:16 编辑 
+
+77连出了俩，有一瞬间我以为双黄3宝了，结果是只狗子（
+
+还出了张宝石老头，就很舒适
+
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  炙热之狐  
+##### 77700#       发表于 2021-1-6 17:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">200石头出了两凛，爽到啊，村正沉船也不亏了
+
+
+
+
+
+
+
+-----
+
+####  sosgame67  
+##### 77701#       发表于 2021-1-6 17:19
+
+
+
+
+10呼符出货，想想2宝也不如克制50冲，果断放弃懒得追2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77702#       发表于 2021-1-6 17:23
+
+
+
+
+2次10连抽到了，语音还是活动结束后的语音。
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77703#       发表于 2021-1-6 17:26
+
+
+
+
+下班前摸鱼上线抽呼符，点着点着发现出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77704#       发表于 2021-1-6 17:30
+
+
+
+
+草怎么觉得这次出货率好高？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77705#       发表于 2021-1-6 17:53
+
+
+
+
+沉了沉了，一点都不豹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77706#       发表于 2021-1-6 18:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">果然没出 
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77707#       发表于 2021-1-6 18:22
+
+
+
+
+四发十连扔水里，我就想要个灾星简啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77708#       发表于 2021-1-6 18:22
+
+
+
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77709#       发表于 2021-1-6 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来本楼就萌新没出货了  10张护符不是应该能2宝的吗
+
+
+
+
+
+         
