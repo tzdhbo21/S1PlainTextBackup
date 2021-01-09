@@ -26,6 +26,7 @@ jobs:
       env:
         S1_COOKIE: ${{ secrets.S1_COOKIE }}
       run: |
+        export TZ='CST-8'
         python s1.py
     - name: commit
       run: |
