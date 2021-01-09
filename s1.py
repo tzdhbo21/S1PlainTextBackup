@@ -26,7 +26,7 @@ def mkdir(path):
     # 存在     True
     # 不存在   False
     isExists=os.path.exists(path)
- 
+
     # 判断结果
     if not isExists:
         os.makedirs(path)
@@ -64,15 +64,15 @@ def parse_html(html):
 
 def addtimestamp(filedir,lasttimestamp):
     with open(filedir, 'r+',encoding='UTF-8') as f:
-        content = f.read()        
+        content = f.read()
         f.seek(0, 0)
         f.write('> ## **本文件最后更新于'+lasttimestamp+'** \n\n'+content)
 
 def get_FileSize(filePath):
- 
+
     fsize = os.path.getsize(filePath)
     fsize = fsize/float(1024 * 1024)
- 
+
     return round(fsize, 2)
 
 def FormatStr(namelist, replylist):
@@ -130,7 +130,8 @@ def FormatStr(namelist, replylist):
 if __name__ == '__main__':
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
-    cookie_str = r'Your Cookie'
+    cookie_str1 = os.getenv('S1_COOKIE')
+    cookie_str = repr(cookie_str1)[1:-1]
     # #把cookie字符串处理成字典，以便接下来使用
     cookies = {}
     for line in cookie_str.split(';'):
@@ -141,7 +142,7 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
-    rootdir="/home/ubuntu/S1PlainTextBackup/"
+    rootdir="./"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
     bar = Bar('Main', max=len(thdata))
@@ -177,7 +178,7 @@ if __name__ == '__main__':
                     # s1 = requests.get(RURL, headers=headers)
                     s1 = requests.get(RURL, headers=headers,  cookies=cookies)
                     data = s1.content
-                    namelist, replylist,totalpage,titles= parse_html(data) 
+                    namelist, replylist,totalpage,titles= parse_html(data)
                     ThreadContent[PageCount] = FormatStr(namelist, replylist)
                     PageCount = PageCount + 1
                     if(PageCount == 50 or thread == totalpage):
@@ -189,7 +190,7 @@ if __name__ == '__main__':
                             f.writelines(ThreadContent)
                         ThreadContent = [' ']*50
                         PageCount = 0
-                    bar2.next()                                        
+                    bar2.next()
                 thdata[i]['totalpage'] = totalpage
                 thdata[i]['lastedit'] = int(time.time())
                 thdata[i]['title'] = titles
@@ -198,5 +199,3 @@ if __name__ == '__main__':
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
         bar.next()
     bar.finish()
-
-   
