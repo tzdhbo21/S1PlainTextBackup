@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-09 02:04** 
+> ## **本文件最后更新于2021-01-09 16:03** 
 
 
 
@@ -3029,4 +3029,638 @@ Pph都毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/009.
 
 
 
-                                            
+
+
+-----
+
+####  rzrbtk  
+##### 28652#       发表于 2021-1-9 08:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49981011&amp;ptid=1969498" target="_blank">Micpun123 发表于 2021-1-9 01:35</a>
+她就是来搞笑的，反正我听笑了十分钟…
+
+概要栏写了不留档: アーカイブなんて消えるに决まってんだろ逆に ...</blockquote>
+是看到3dio的时候抱有期待的我的错<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">。
+省一楼，你虹别说观众了，stf都分不清人名，ヒスイ的名字被打成了北大路，莫名好笑<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 28653#       发表于 2021-1-9 09:12
+
+
+
+ 本帖最后由 pansherry 于 2021-1-9 09:15 编辑 
+
+这金憨憨麻将打的司会都要绝望了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 28654#       发表于 2021-1-9 09:30
+
+
+
+
+rion能稍微想起一点司教的就好了，不过看这样子也没复习过，估计忘的就剩个听牌但不立直暗杀别人了（
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28655#       发表于 2021-1-9 11:14
+
+
+
+
+投票选让猫猫留到最后的家伙真是有品啊…
+有23%选希望郡道被打飞，也很有品啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28656#       发表于 2021-1-9 11:58
+
+
+
+ 本帖最后由 FCCHua 于 2021-1-9 15:26 编辑 
+
+柴卡倒了——
+赫国无了——
+地滑又又又没了——
+舞元一轮游——
+德比虐——
+老师大胜利——
+完美诠释这里是乌江——
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28657#       发表于 2021-1-9 12:29
+
+
+
+
+来了，看看路易斯雀豪会不会败于魔法东风局
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 28658#       发表于 2021-1-9 12:32
+
+
+
+ 本帖最后由 凯文夏特 于 2021-1-9 13:58 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  thoroughwort  
+##### 28659#       发表于 2021-1-9 12:37
+
+
+
+
+谢谢你，fumi
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 28660#       发表于 2021-1-9 12:38
+
+
+
+
+飞鸟p24000点倍满大幅领先，这怪盗只有连庄才有机会了吧（
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28661#       发表于 2021-1-9 12:42
+
+
+
+
+东风专杀种子选手啊，开始魔法了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28662#       发表于 2021-1-9 12:53
+
+
+
+
+这桌太合理了。一二分太高了，三位只能拼了，毕竟比赛不是避四游戏。
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 28663#       发表于 2021-1-9 12:56
+
+
+
+
+船长这是奔着大家庭一起不复返了？
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28664#       发表于 2021-1-9 13:00
+
+
+
+
+露易丝牛逼
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28665#       发表于 2021-1-9 13:02
+
+
+
+<blockquote>烯丝短尾猫 发表于 2021-1-9 12:38
+飞鸟p24000点倍满大幅领先，这怪盗只有连庄才有机会了吧（
+
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+一看就是运气好的莽流打法，一旦没运就不行了，不防守一直被路易斯点炮
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28666#       发表于 2021-1-9 13:07
+
+
+
+
+强而有力！
+伊东life也来打钱了，真热闹啊。
+但是，该去看月之出海记了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28667#       发表于 2021-1-9 13:13
+
+
+
+
+月之迟到十分钟，搞什么，配信ないわ<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+郡道也开窗了，应援！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28668#       发表于 2021-1-9 13:41
+
+
+
+
+该谢罪了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28669#       发表于 2021-1-9 14:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">德比送走刀也，圭利复仇成功
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28670#       发表于 2021-1-9 14:18
+
+
+
+
+德比上次坑人送刀也冠军 这次被圭利复仇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28671#       发表于 2021-1-9 14:20
+
+
+
+
+很有质量的一局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">！一种轮回
+
+月之发错推还行，晚上再出海，现在去看郡道被飞了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28672#       发表于 2021-1-9 14:30
+
+
+
+
+郡道玩什么初心者rp，麻将大叔血压高速上升中<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 28673#       发表于 2021-1-9 14:32
+
+
+
+
+Mio这推特账号居然真的被冻结了，怎样操作才会变成这样……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28674#       发表于 2021-1-9 14:37
+
+
+
+
+这几局的配牌问题太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">，发牌姬看热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28675#       发表于 2021-1-9 14:45
+
+
+
+
+又来个野良猫行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28676#       发表于 2021-1-9 14:46
+
+
+
+
+郡道晋级！
+不求进决赛，好歹胜一局不丢人了，不错！
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28677#       发表于 2021-1-9 14:54
+
+
+
+
+谢谢长尾景！
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 28678#       发表于 2021-1-9 15:09
+
+
+
+
+先是自摸里三，又是振听立直自摸。项羽的魔法麻将不可战胜<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28679#       发表于 2021-1-9 15:11
+
+
+
+
+霸王无双<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28680#       发表于 2021-1-9 15:24
+
+
+
+
+翻盘了草
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28681#       发表于 2021-1-9 15:24
+
+
+
+
+霸王这也被翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28682#       发表于 2021-1-9 15:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">项羽啊
+
+
+
+
+
+
+
+-----
+
+####  thoroughwort  
+##### 28683#       发表于 2021-1-9 15:26
+
+
+
+
+此处竟是乌江
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28684#       发表于 2021-1-9 15:34
+
+
+
+
+小偶像这剧本可惜了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28685#       发表于 2021-1-9 15:35
+
+
+
+
+空星加油啊
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28686#       发表于 2021-1-9 15:42
+
+
+
+
+这油管的大赛评论栏满屏的葛叶看着好烦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 28687#       发表于 2021-1-9 15:59
+
+
+
+
+2434指定点炮王：石油王<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  絵生voice  
+##### 28688#       发表于 2021-1-9 16:02
+
+
+
+<img src="https://p.sda1.dev/0/4a4a46ed80fb98d11a9469b87cd00f67/IMG_CMP_178767246.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/70308b20fbef369e1dbc97f6148494dc/IMG_CMP_95649289.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28689#       发表于 2021-1-9 16:03
+
+
+
+
+空星翻了！好！
+
+
+
+
+
+                                           
