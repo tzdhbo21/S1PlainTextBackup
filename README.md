@@ -8,13 +8,13 @@ https://github.com/TomoeMami/S1PlainTextArchive
 ## 2020-01-08 增加GithubAction支持
 
 #### 触发方式
-    - 每隔一小时自动执行
-    - 自定义：.github/workflows/S1.yaml 编辑
+- 每隔一小时自动执行
+- 自定义：.github/workflows/S1.yaml 编辑
 
 #### 使用用法
-    - 点击右上角 `Fork` 项目
-    - `Settings` -> `Secrets` 中添加s1的账号Cookie
-	    - `S1_COOKIE`：账号Cookie
+- 点击右上角 `Fork` 项目
+- `Settings` -> `Secrets` 中添加s1的账号Cookie
+    - `S1_COOKIE`：账号Cookie
 
 ### 目前支持的特殊效果
 
