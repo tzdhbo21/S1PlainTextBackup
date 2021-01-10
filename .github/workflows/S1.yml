@@ -3,10 +3,10 @@
 
 name: Update S1
 
-on: 
-  schedule:
+on: push
+#  schedule:
     # * is a special character in YAML so you have to quote this string
-    - cron:  '0 */2 * * *'  
+#    - cron:  '0 */2 * * *'  
 jobs:
   deploy:
 
@@ -22,11 +22,11 @@ jobs:
       run: |
         python -m pip install --upgrade pip
         pip install setuptools wheel twine bs4 progress requests
-    - name: Run
-      env:
-        S1_COOKIE: ${{ secrets.S1_COOKIE }}
-      run: |
-        python s1.py
+#    - name: Run
+#      env:
+#        S1_COOKIE: ${{ secrets.S1_COOKIE }}
+#      run: |
+#        python s1.py
     - name: commit
       env:
         TZ: 'CST-8'
