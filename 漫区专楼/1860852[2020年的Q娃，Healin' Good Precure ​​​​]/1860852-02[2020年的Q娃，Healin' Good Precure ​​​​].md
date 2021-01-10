@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 10:01** 
+> ## **本文件最后更新于2021-01-10 06:38** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_pyJ04" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_IC6Jz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_iJ1sD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_E33tn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -22252,7 +22252,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_z5AQ2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_RFhcI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -25106,4 +25106,633 @@ https://www.konjikiblog.com/entry/sutapuriss-15kounen15miri1
 
 
 
-    
+
+
+-----
+
+####  HGCG  
+##### 2852#       发表于 2021-1-4 11:21
+
+
+
+
+治愈Q娃剧场版有两个版本，原版和疫情版，不知道爱奇艺是哪个版本 ​
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2853#       发表于 2021-1-4 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932508&amp;ptid=1860852" target="_blank">HGCG 发表于 2021-1-4 11:21</a>
+
+治愈Q娃剧场版有两个版本，原版和疫情版，不知道爱奇艺是哪个版本 ​</blockquote>
+据说是两个都会上，现阶段的是院线版，并加上了摇手电筒
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2854#       发表于 2021-1-4 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49932742&amp;ptid=1860852" target="_blank">lydia5989 发表于 2021-1-4 11:47</a>
+据说是两个都会上，现阶段的是院线版，并加上了摇手电筒</blockquote>
+有啥不一样吗，话说没有摇手电筒那不没了不少画面？
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2855#       发表于 2021-1-4 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49933015&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2021-1-4 12:17</a>
+
+有啥不一样吗，话说没有摇手电筒那不没了不少画面？</blockquote>
+等bd出了再看看吧
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 2856#       发表于 2021-1-4 13:05
+
+
+
+
+BD版据说反而比上映版少了一些内容
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 2857#       发表于 2021-1-4 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49933015&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2021-1-4 12:17</a>
+有啥不一样吗，话说没有摇手电筒那不没了不少画面？</blockquote>
+最明显的区别应该是开场动画，原版肯定是不带earth的，院线版因为时间关系earth已经TV登场了，就需要让她出来说我虽然有事到不了现场云云
+
+另外摇手电自然还是有摇的，完全砍掉那修改太多了但是你没发现iqiyi上的这版只有妖精和Q娃在摇吗？开场三森还说“在心里支持”啥的，影院规范小剧场也短的不行
+你回忆下去年的春映画，再看看这次这个
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 2858#       发表于 2021-1-4 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49933529&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2021-1-4 13:05</a>
+BD版据说反而比上映版少了一些内容</blockquote>
+单论片长，原版肯定比上映版要长（开场小剧场被砍短了）
+但是说到电影本体，我倾向于是只改了配音，画面和片长是不会变的
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2859#       发表于 2021-1-4 19:38
+
+
+
+<img src="http://wx4.sinaimg.cn/mw1024/006JgHrVly1gmbidekquoj30mz0fm0ul.jpg" referrerpolicy="no-referrer">
+
+脑补了一下，和佳穿着凹推特头像的衣服，给知優换上又色又帅的衣服，从后面抱住，说，凡是看过你的，都会想成为你的女人哦
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 2860#       发表于 2021-1-4 19:49
+
+
+
+
+我觉得愈q的yin兽（）都很好玩，算是这几年最出彩的了
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2861#       发表于 2021-1-4 21:56
+
+
+
+
+经费够全程保持不崩就看得很舒服<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">拥抱组还是很棒，还有凹也很棒
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2862#       发表于 2021-1-5 07:51
+
+
+
+<blockquote>HGCG 发表于 2021-1-4 19:38
+脑补了一下，和佳穿着凹推特头像的衣服，给知優换上又色又帅的衣服，从后面抱住，说，凡是看过你的，都会 ...</blockquote>
+找人画
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2863#       发表于 2021-1-5 09:07
+
+
+
+
+有种子了
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2864#       发表于 2021-1-5 09:31
+
+
+
+
+今年yin兽和q哇之间的关系处理是历代里面看过最舒服的了。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2865#       发表于 2021-1-5 23:34
+
+
+
+
+原来ost2发售了，真是好听，某些曲子听起来与其说是3岁女儿向动画更想是萝卜燃片<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2866#       发表于 2021-1-6 07:22
+
+
+
+ 本帖最后由 lyflyflxf 于 2021-1-6 07:48 编辑 
+
+剧场版的OST也发售了
+
+
+OST2的某些曲子让我想起小时候看的奥特曼<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+おそるべき強敵 和 ぶつかりあう闘志 的确像萝卜片。前者是我记忆中Q娃系列第一次在反派音乐中这样用鼓和号，有敌方巨型MA压来的感觉。
+
+熱血一直線 很昭和风
+作曲寺田志保的思维很活跃啊，真是 生きてるの感じ
+
+
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 2867#       发表于 2021-1-6 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951219&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2021-1-6 07:22</a>
+
+剧场版的OST也发售了
+
+
+OST2的某些曲子让我想起小时候看的奥特曼</blockquote>
+寺田志保是Garo的御用音乐来着的
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 2868#       发表于 2021-1-6 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">2021年了我还是喜欢哈利誉，愈q剧场版是最后的镜头了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2869#       发表于 2021-1-6 17:58
+
+
+
+
+剧场版好看！
+
+乌拉拉出息了啊世界名监督的主演啊（当然也有可能是利用Q娃关系上的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+和佳剧场形态太棒了 那个裸背<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2870#       发表于 2021-1-6 18:46
+
+
+
+
+重新开始追Q娃了。去年12月份的几集太好玩了，连学渣都渣出了风采<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2871#       发表于 2021-1-6 18:48
+
+
+
+<blockquote>宅音 发表于 2021-1-6 11:56
+2021年了我还是喜欢哈利誉，愈q剧场版是最后的镜头了</blockquote>
+最后的变身
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2872#       发表于 2021-1-6 18:59
+
+
+
+<img src="http://wx1.sinaimg.cn/mw690/a6720051gy1gme5d5wupdg20ao060b29.gif" referrerpolicy="no-referrer">
+
+击枪
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 2873#       发表于 2021-1-6 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957753&amp;ptid=1860852" target="_blank">csolfans 发表于 2021-1-6 18:48</a>
+最后的变身</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">再见抱q组就难了，虽然我对抱q结尾一直微妙
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2874#       发表于 2021-1-7 21:04
+
+
+
+ 本帖最后由 lyflyflxf 于 2021-1-7 21:09 编辑 
+
+好久没看到这么飒爽且霸气的Q娃了。和佳真棒！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+让我决定尽快补剧场版的是萌萌哒人畜无害的兔子和佳
+<img src="https://p.sda1.dev/0/81ecdaa0af76cd2e02d3e2f0524e8147/123 (1).jpg" referrerpolicy="no-referrer">
+
+最终战。白手套按住摄像机
+<img src="https://p.sda1.dev/0/b990f0fcbeca22f654dc5f81447af55c/123 (2).jpg" referrerpolicy="no-referrer">
+
+
+正义执行
+<img src="https://p.sda1.dev/0/5039f5631d9c7f3d3c53849e49fa639f/123 (3).jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/556ea28afd5cde1dc14dd1457d9782bd/123 (4).jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/cef161bdb030eb9e73a556c77cdb679b/123 (5).jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/de1b76e751815712f87737f04c3d9b74/123 (6).jpg" referrerpolicy="no-referrer">
+
+
+这张简直就是圆神附体
+<img src="https://p.sda1.dev/0/a9e1b619a11a384bc6d714874589ba87/123 (7).jpg" referrerpolicy="no-referrer">
+
+
+带有别样情绪的请多保重
+<img src="https://p.sda1.dev/0/caec3feeec462a903138adf0271de94a/123 (8).jpg" referrerpolicy="no-referrer">
+
+
+抢镜花又来啦
+<img src="https://p.sda1.dev/0/012cbf1c15dc06cea959a5bfd0f0f8f8/123 (9).jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2875#       发表于 2021-1-9 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49969268&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2021-1-7 21:04</a>
+
+好久没看到这么飒爽且霸气的Q娃了。和佳真棒！
+
+
+让我决定尽快补剧场版的是萌萌哒人畜无害的兔子和佳 ...</blockquote>
+人畜无害 x 让大友心脏骤停 √ 太有害了
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2876#       发表于 2021-1-9 16:50
+
+
+
+
+转微博:[cp]Q娃预告
+
+
+
+39（金月/志水/藤原）日向目击了古埃瓦在人类世界现身的地点，想要进去一探究竟，最后遇到了病根王
+
+
+
+40（平林/小村&amp;高户谷（关）/未定）Q娃终于净化了病根王，然而这一切都在古埃瓦的计划之中，他借Q娃之手灭掉病根王，自己变成了古埃瓦王
+
+
+
+41（香村/志田（岩井）/沼田）被关在病根王国的Q娃总算回到了健康市，病根子开始大闹，大家吧病根子进化后拿铁却没有回复
+
+
+
+42（香村/门/赤田）和佳必须守护的东西
+
+
+
+43（香村/角铜/稻上）进化的王，被腐蚀的健康市[/cp]
+
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 2877#       发表于 2021-1-9 17:10
+
+
+
+
+超级和佳的请多保重如果是特写那将绝杀
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2878#       发表于 2021-1-9 18:55
+
+
+
+
+从同期的时间来看配乐水平寺田比林先生好太多了
+真的想好好批判一下他<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2879#       发表于 2021-1-10 10:54
+
+
+
+
+所以古艾瓦路一直都在装傻？
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 2880#       发表于 2021-1-10 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49990204&amp;ptid=1860852" target="_blank">HGCG 发表于 2021-1-10 10:54</a>
+
+所以古艾瓦路一直都在装傻？</blockquote>
+我觉得有点不太对劲，整天赖家里不出门的少年这时究竟跑哪儿去了？
+
+是在等这货栽了的时候背刺？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2881#       发表于 2021-1-10 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49990204&amp;ptid=1860852" target="_blank">HGCG 发表于 2021-1-10 10:54</a>
+
+所以古艾瓦路一直都在装傻？</blockquote>
+应该说Q娃们太配合了吧（RPG游戏玩少了）
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2882#       发表于 2021-1-10 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">所以达鲁伊森这是被古埃瓦背刺了是吧，远古q娃就earth一个顶着？
+
+不过这集整活的地方还是整的挺好的
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2883#       发表于 2021-1-10 12:43
+
+
+
+
+手下竟然反杀了！再猜一个正太反杀古艾瓦路
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 2884#       发表于 2021-1-10 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49991001&amp;ptid=1860852" target="_blank">圆神最高 发表于 2021-1-10 12:43</a>
+
+手下竟然反杀了！再猜一个正太反杀古艾瓦路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甜点复刻
+
+
+
+
+
+   

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-06 18:25** 
+> ## **本文件最后更新于2021-01-10 07:07** 
 
 
 
@@ -21867,4 +21867,459 @@ YLS敢不敢来个仇凛宝具本背刺一下村正啊</blockquote>
 
 
 
-         
+
+
+-----
+
+####  黑上シグマ  
+##### 77710#       发表于 2021-1-6 18:55
+
+
+
+
+强化连续两次极大成功，又去来了2发11连，3宝了，附带又出一张宝石老头
+愉悦
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77711#       发表于 2021-1-6 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49957801&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-1-6 18:55</a>
+
+强化连续两次极大成功，又去来了2发11连，3宝了，附带又出一张宝石老头
+
+愉悦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕）
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77712#       发表于 2021-1-6 19:38
+
+
+
+
+补了一单抽一下伊利亚，没出，到头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77713#       发表于 2021-1-6 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49958152&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-1-6 19:38</a>
+
+补了一单抽一下伊利亚，没出，到头了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你变了 你又变回来了
+
+
+
+
+
+
+
+-----
+
+####  selfcest  
+##### 77714#       发表于 2021-1-6 20:19
+
+
+
+
+把星空凛拉满了，舒服<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77715#       发表于 2021-1-6 20:37
+
+
+
+
+补了一单还是啥都没出，放弃了，等周年福袋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 77716#       发表于 2021-1-6 21:25
+
+
+
+
+抽干了跑路
+
+月姬联动前没我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  森兰丸  
+##### 77717#       发表于 2021-1-6 22:21
+
+
+
+ 本帖最后由 森兰丸 于 2021-1-6 22:23 编辑 
+
+伊吹沉船后到现在存下来的60抽又沉了......现在整个人都不好了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+为什么这世上没有后悔药....要知道伊吹池这么毒....宇宙凛这么快就复刻我打死也不会去碰伊吹池子啊
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77718#       发表于 2021-1-6 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49959685&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-1-6 22:21</a>
+
+伊吹沉船后到现在存下来的60抽又沉了......现在整个人都不好了
+
+为什么这世上没有后悔药....要知道伊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课起来　你看上面那个头像黑漆漆的　　不课的时候多菜　　课了之后多欧
+
+
+
+
+
+
+
+-----
+
+####  森兰丸  
+##### 77719#       发表于 2021-1-6 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49959705&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-6 22:23</a>
+
+课起来　你看上面那个头像黑漆漆的　　不课的时候多菜　　课了之后多欧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我连15有偿石的福袋都没抽....你还指望我在这破游上多花一分钱呢
+
+
+
+
+
+
+
+-----
+
+####  jaicka  
+##### 77720#       发表于 2021-1-7 09:00
+
+
+
+
+这池有毒吧
+
+抽了1000多石就歪了一个阿周那<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 77721#       发表于 2021-1-7 09:18
+
+
+
+
+彩圈，蓝卡光炮，自充，特殊职阶
+
+
+大象：没错，正是在下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77722#       发表于 2021-1-7 09:59
+
+
+
+
+阿比、宇宙凛满宝达成。果然还是还债了，宇宙凛31发11连才补上最后一宝，中间又歪了一个米缸。阿比池最终来看还算正常，然而过程坐山车，前面30发11连0五星，最后10发11连直接抽4个顺便歪了个1001，果然叶式毒池要不不抽，要不抽满吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说你们这些c阶怎么回事，歪来歪去都是你们，能不能换呆毛拉二之类只有2宝的来啊，我检查了一下仓库，二世和米缸9宝，1001有7宝，王女5宝，三藏4宝，以上同志没有一个是up的时候抽得，全是歪出来的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zechins  
+##### 77723#       发表于 2021-1-7 19:29
+
+
+
+
+抽到凛了，想问问有孔明cba兰陵王的话能连发吗，具体怎么操作的？没有c呆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77724#       发表于 2021-1-7 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968313&amp;ptid=1085254" target="_blank">zechins 发表于 2021-1-7 19:29</a>
+
+抽到凛了，想问问有孔明cba兰陵王的话能连发吗，具体怎么操作的？没有c呆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">需要满破宝石和仇凛最少要三宝吧
+
+
+
+
+
+
+
+-----
+
+####  zechins  
+##### 77725#       发表于 2021-1-7 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968904&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-1-7 20:29</a>
+需要满破宝石和仇凛最少要三宝吧</blockquote>
+打扰了，继续长江上班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77726#       发表于 2021-1-7 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49968313&amp;ptid=1085254" target="_blank">zechins 发表于 2021-1-7 19:29</a>
+
+抽到凛了，想问问有孔明cba兰陵王的话能连发吗，具体怎么操作的？没有c呆 ...</blockquote>
+[https://www.bilibili.com/video/B ... =583487189710023038](https://www.bilibili.com/video/BV1dK411A7qM?from=search&amp;seid=583487189710023038)
+
+
+参考一下。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zechins| + 1|thx|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77727#       发表于 2021-1-8 18:53
+
+
+
+
+这活动单体多试了下杨贵妃。。。一个宝具伤害溢出 结果只回了20-30np。。这能用？ 
+
+大公好歹能回70-80。。
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77728#       发表于 2021-1-8 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49978150&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-8 18:53</a>
+这活动单体多试了下杨贵妃。。。一个宝具伤害溢出 结果只回了20-30np。。这能用？ 
+
+大公好歹能回70-80。。 ...</blockquote>
+我早试过了，不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77729#       发表于 2021-1-10 11:17
+
+
+
+
+新年任务差点忘记做<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77730#       发表于 2021-1-10 11:19
+
+
+
+<blockquote>引用第77728楼里村紅葉于2021-01-10 11:17发表的  :
+
+新年任务差点忘记做</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你到底是要多咸鱼
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77731#       发表于 2021-1-10 11:30
+
+
+
+
+我怎么记得上次星战2最后是可以带自己人的，这次变单挑了？
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77732#       发表于 2021-1-10 13:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还行村正满 丑凛2 看看最后能不能狗到3 不行再补了
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77733#       发表于 2021-1-10 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49990380&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-1-10 11:19</a>
+
+你到底是要多咸鱼
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+留了个幸运A+的忘记做了，因为想不起来谁幸运这么高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        

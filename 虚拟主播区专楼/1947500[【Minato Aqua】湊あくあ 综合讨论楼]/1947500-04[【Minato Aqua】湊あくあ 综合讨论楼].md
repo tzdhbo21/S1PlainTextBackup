@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-06 18:03** 
+> ## **本文件最后更新于2021-01-10 06:39** 
 
 
 
@@ -3432,4 +3432,643 @@ GMAIL应该能做到开播邮件。大不了加一个自动转发。
 
 
 
-                                           
+
+
+-----
+
+####  面具13  
+##### 4682#       发表于 2021-1-6 21:04
+
+
+
+
+今晚摸了。说是作业没弄完。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4683#       发表于 2021-1-6 21:08
+
+
+
+
+🈚️
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4684#       发表于 2021-1-7 23:17
+
+
+
+ 本帖最后由 面具13 于 2021-1-7 23:36 编辑 
+
+今天两动啊，挺勤奋。马车说练了基础变强了，确实第一比例稍微高了一点点。
+
+说话总感觉有凛子味。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4685#       发表于 2021-1-7 23:17
+
+
+
+ 本帖最后由 面具13 于 2021-1-7 23:45 编辑 
+
+风怒
+
+今晚疯狂谈钱的事情。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4686#       发表于 2021-1-7 23:45
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-8 00:25 编辑 
+
+这局太可惜了 本来有机会吃鸡的     说起来阿夸的声音模仿露娜公主其实真的蛮合适的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4687#       发表于 2021-1-7 23:49
+
+
+
+
+这两把真娱乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">apex是这么搞笑的游戏吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4688#       发表于 2021-1-7 23:59
+
+
+
+ 本帖最后由 面具13 于 2021-1-8 00:55 编辑 
+
+9号好像有什么企划。
+
+
+这萌声模仿被观众指出是在黑屁同事luna<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+LINE是486的提议下才开始用的（可能是指和同事用的新号？）
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4689#       发表于 2021-1-8 01:35
+
+
+
+
+游戏卡死，电脑白痴不会切新桌面杀apex进程，强制下播。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4690#       发表于 2021-1-8 01:35
+
+
+
+
+最后怕直播关不掉是直接拔电源了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4691#       发表于 2021-1-8 01:53
+
+
+
+
+只用在家做的工作，估计又是录音或者录歌的音源啥的
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4692#       发表于 2021-1-8 10:33
+
+
+
+
+出门了，这时候还要去东京不是作死吗 傻逼猴楼
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4693#       发表于 2021-1-8 12:41
+
+
+
+
+看她没提远征以为不用出门…妈的傻逼holo
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4694#       发表于 2021-1-8 14:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这傻逼公司能不能赶紧死
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4695#       发表于 2021-1-8 15:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">幸存者偏差，可以预见的事
+
+
+
+
+
+
+
+-----
+
+####  清枝  
+##### 4696#       发表于 2021-1-9 01:18
+
+
+
+
+大概从10月底开始，认识的需要新干线通勤的已经全部改用视频了，包括需要来现场的，由别人带着摄像头和笔记本电脑导出走
+
+那个时候夸还天天上京我就觉得cover这个公司能不能去死
+
+现在东京的录音棚都有很奇怪的规矩，一次只能进3-4个人（根据录音棚大小不同，staff那边无所谓），虽然是个**的东西，但是肉眼可见的cover不会遵守
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4697#       发表于 2021-1-9 13:26
+
+
+
+ 本帖最后由 面具13 于 2021-1-9 13:34 编辑 
+
+apex又freeeze了，这次会弄了。
+
+
+肌肉酸痛？跳舞去了吗？
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4698#       发表于 2021-1-9 13:34
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-9 13:43 编辑 
+
+[https://www.youtube.com/watch?v=28CvsSzsNg0](https://www.youtube.com/watch?v=28CvsSzsNg0)
+
+刚刚提到的马车剪辑 只能说这场确实教科书版的打開教学            附赠两个带字幕解说的马车剪辑：
+[https://www.youtube.com/watch?v=iPRjbXX0Byo](https://www.youtube.com/watch?v=iPRjbXX0Byo)
+[https://www.youtube.com/watch?v=Nn2Ebhzh1tc](https://www.youtube.com/watch?v=Nn2Ebhzh1tc)
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4699#       发表于 2021-1-9 14:21
+
+
+
+
+今天会读sc吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4700#       发表于 2021-1-9 14:41
+
+
+
+
+这人困了，开始脑死起来了
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 4701#       发表于 2021-1-9 15:17
+
+
+
+
+吃鸡了，爽
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4702#       发表于 2021-1-9 15:22
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-9 15:50 编辑 
+
+喜欢上用猎犬的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4703#       发表于 2021-1-9 16:16
+
+
+
+
+睡了，起来状态好的话，深夜播（可能是马车）
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4704#       发表于 2021-1-9 16:16
+
+
+
+
+排到一局夸宝，可是还没见到她好像就被别人打死了
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4705#       发表于 2021-1-9 16:19
+
+
+
+
+嗓子不行，眼睛疼，不知道是天气干还是鼻炎发作了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4706#       发表于 2021-1-9 16:50
+
+
+
+[https://www.youtube.com/watch?v=hqu2aR5CoGc](https://www.youtube.com/watch?v=hqu2aR5CoGc)
+
+原来私下和小粥486一起马车了 贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 不过没想到私下打游戏都不喊的，性格再评价
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 66367749| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4707#       发表于 2021-1-9 22:16
+
+
+
+
+明天有联动
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4708#       发表于 2021-1-9 22:31
+
+
+
+ 本帖最后由 面具13 于 2021-1-10 00:02 编辑 
+
+晚会儿会改成time attack练习。
+
+
+拿了第一再TA。「寝かせないよ」
+
+今天简直大会预演，集火攻击基本上没啥对策，虽然今晚失误也挺多。要变成第一耐久了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4709#       发表于 2021-1-10 00:32
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-10 01:23 编辑 
+
+学习能力真强啊<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+完全脑死了 精力在之前消耗的差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4710#       发表于 2021-1-10 01:19
+
+
+
+
+今晚整体操作精度不够
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4711#       发表于 2021-1-10 04:06
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-10 05:58 编辑 
+
+上位房间竞争真激烈啊，全程一群人打成一团，一位也能一下掉到12<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">终于拿了一次第一，还是刚刚重点练过的钟楼
+
+连续两次第一<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer"> 极限第一，快9000分了
+
+差1分到9000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4712#       发表于 2021-1-10 04:29
+
+
+
+ 本帖最后由 wwddrte 于 2021-1-10 05:11 编辑 
+
+好惨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，到现在好像还没进过前6，
+
+拿了次第1了，练的图还是有效果
+
+
+打出感觉了，阿夸好强
+
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4713#       发表于 2021-1-10 05:08
+
+
+
+ 本帖最后由 面具13 于 2021-1-10 05:33 编辑 
+
+在8k分段的房里乱杀。
+
+赢了3w的人拿了第一，1点妖不能下播
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4714#       发表于 2021-1-10 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">她太强了，木口杂鱼杯不是吊着打吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4715#       发表于 2021-1-10 13:37
+
+
+
+
+今晚杂holo杯要是没适当放水，前张拉开太大差距，本番就等着全社80集火吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+晚上必须卖点破绽，起跑失误、捷径失误多来点，进乱战，然后往上爬到第二到第四是不错的剧情。
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 4716#       发表于 2021-1-10 14:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49991402&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-10 13:37</a>
+今晚杂holo杯要是没适当放水，前张拉开太大差距，本番就等着全社80集火吧
+
+晚上必须卖点破绽，起跑失 ...</blockquote>
+剩下那帮9割意识为0的杂鱼也许连80kart都不知道怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+                                          

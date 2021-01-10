@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-09 20:41** 
+> ## **本文件最后更新于2021-01-10 06:43** 
 
 
 
@@ -4246,4 +4246,745 @@ inui这就交大了啊，不过确实是最适合她的的一首，比aimer那�
 
 
 
-                                          
+
+
+-----
+
+####  stygian  
+##### 28724#       发表于 2021-1-9 20:49
+
+
+
+
+「うごくちゃん」死去を悼む声が続々。ゲーム実況で人気のYouTuber
+
+『荒野行動』などのゲーム実況で人気のYouTuber「うごくちゃん」が、12月31日に死去していたことが発表されました。チャンネル登録者数50万人以上。ファンからは 「これからも忘れない。今までありがとう」 「もっともっと声聞きたかったです」と冥福を祈るメッセージが寄せられています。
+
+
+
+我还以为纯桑死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28725#       发表于 2021-1-9 20:59
+
+
+
+
+修女一人净化三人 救济执行成功！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浅仓透  
+##### 28726#       发表于 2021-1-9 21:50
+
+
+
+
+好家伙，突然虹浓度这么高有点不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28727#       发表于 2021-1-9 21:52
+
+
+
+
+准决第二组三个雀杰一个差不太多的，郡道进决赛有点难啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28728#       发表于 2021-1-9 22:19
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-9 22:27 编辑 
+
+郡虐被飞就在明天准决赛2桌<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+郡道感觉也心满意足了，明天这桌打输了也不丢人，早点完事早点APEX~
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 28729#       发表于 2021-1-9 22:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/09/222744ojk0oho0jz0kbqqj.png" referrerpolicy="no-referrer">
+
+
+<strong>Z72B]%L3PVYW`3EBPQE%I9L.png</strong> (84.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-9 22:27 上传
+
+
+
+
+
+ 葛尊糖来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 28730#       发表于 2021-1-9 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28731#       发表于 2021-1-9 22:42
+
+
+
+
+gzszd
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28732#       发表于 2021-1-9 22:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28733#       发表于 2021-1-9 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 今晚我做梦必魂穿葛叶
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28734#       发表于 2021-1-9 23:00
+
+
+
+
+2k魂穿葛叶的真正意图恐怕是加入gamers和阿葵一起打游戏
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 28735#       发表于 2021-1-9 23:06
+
+
+
+
+不是暗杀阿葵的韩国男友？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 28736#       发表于 2021-1-9 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那应该直接魂穿阿葵
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 28737#       发表于 2021-1-9 23:26
+
+
+
+
+刚看到切片 mrr疯狂试探也太生猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28738#       发表于 2021-1-9 23:43
+
+
+
+
+补了下 确实太质了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28739#       发表于 2021-1-10 00:35
+
+
+
+
+夏色まつり🏮2nd
+
+@7216_2nd
+
+·
+
+22m
+
+星川が好きすぎて泣きたくなってきた😭
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 28740#       发表于 2021-1-10 03:24
+
+
+
+ 本帖最后由 fastary 于 2021-1-10 03:35 编辑 
+
+没看麻将大会，听说长尾炎上了所以去搜了下什么情况：
+
+在麻将大会里直言【这局没什么撮れ高所以干脆搞野良猫行为(其他三人都是3万点差别不大，自己4位1万多点没得翻盘还故意立直和小胡断23位翻盘机会)好了】然后也确实这么做了；
+
+赛后采访中不以为然地说哎呀评论区真是地狱，这下肯定大量垃圾棉花糖要来了吧，主持和同局对手也(可能是场面话)附和说确实这样比较有撮れ高。
+
+要说批评他没有比赛精神为了撮れ高瞎搞也不是不能理解啦……
+
+编辑下，野良猫行为也是我查到的没了解全，多看了点讨论看到有人说野良猫当时不是故意的，说没想过算分之类乱打的结果，而且后面有反省？草啊，无意和有意这能一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 28741#       发表于 2021-1-10 03:37
+
+
+
+ 本帖最后由 AloissiolA 于 2021-1-10 03:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49989188&amp;ptid=1969498" target="_blank">fastary 发表于 2021-1-10 03:24</a>
+
+没看麻将大会，听说长尾炎上了所以去搜了下什么情况：
+
+在麻将大会里直言【这局没什么撮れ高所以干脆搞野良 ...</blockquote>
+因为野良猫当时是真的不懂麻将在乱打，类似于最后一把牛姨不会算分结果胡了个没立直的七对子保送了凛月，而长尾是故意的要搞的。性质还是不太一样的
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 28742#       发表于 2021-1-10 03:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49989204&amp;ptid=1969498" target="_blank">AloissiolA 发表于 2021-1-10 03:37</a>
+
+因为野良猫当时是真的不懂麻将在乱打，类似于最后一把牛姨不会算分结果胡了个没立直的七对子保送了凛月， ...</blockquote>
+多看了一些讨论看到详情了
+
+
+有一说一这个可大可小吧，有乐子看就好的人觉得整挺好和想看参赛者认真比赛的人觉得离谱都很正常
+
+比因为跟前辈说话不用敬语就炎要有道理多了
+
+估计最后还是看哪方声音大
+
+
+
+
+
+
+
+-----
+
+####  简巴•江斯特  
+##### 28743#       发表于 2021-1-10 08:31
+
+
+
+ 本帖最后由 简巴•江斯特 于 2021-1-10 08:40 编辑 
+
+编辑，我火星了
+
+
+
+
+
+
+
+-----
+
+####  玄玦  
+##### 28744#       发表于 2021-1-10 08:56
+
+
+
+
+发错版了 编辑
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28745#       发表于 2021-1-10 09:30
+
+
+
+
+没事，已经看到“长尾是受郡道影响才会那样”的言论了，有郡道引火其实还好，郡道后面自己也给长尾发做牌思路了，不知故意还是啥也没想，感觉就，还好。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28746#       发表于 2021-1-10 09:48
+
+
+
+
+郡道…引火可还行 没有炎上的v生是不完整的，郡道这是千锤百炼了
+
+
+
+
+
+
+
+-----
+
+####  Gundamslave  
+##### 28747#       发表于 2021-1-10 09:59
+
+
+
+
+小免在敌谭还真有不少拥趸啊，一家亲，一家亲
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28748#       发表于 2021-1-10 10:50
+
+
+
+
+lga杏奴多，选个话事人不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 28749#       发表于 2021-1-10 10:51
+
+
+
+
+小免在隔壁已经乐不思蜀了，都不在这边发嘻嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 28750#       发表于 2021-1-10 11:02
+
+
+
+ 本帖最后由 thisisaspider 于 2021-1-10 11:03 编辑 
+
+逛一圈下来，NGA，S1，V8,海外都是杏人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+连啊B也给我推送杏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 28751#       发表于 2021-1-10 11:05
+
+
+
+
+没有杏奴的管人粉就如同没有小丑的马戏团
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28752#       发表于 2021-1-10 12:52
+
+
+
+
+打个麻将又没有队友，我第四位还要管你其他几个分咋样么，日本人啥脑回路
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28753#       发表于 2021-1-10 12:59
+
+
+
+ 本帖最后由 古战场亡魂 于 2021-1-10 13:05 编辑 
+<blockquote>icecry 发表于 2021-1-10 12:52
+打个麻将又没有队友，我第四位还要管你其他几个分咋样么，日本人啥脑回路 ...</blockquote>
+分差太大追不上的情况下，四位进攻就是在帮一位。我之前看麻将比赛纪录片也是有一些这方面的讲究的。分差太大，你又不能连庄逆转的话，只能当工具人。[https://www.bilibili.com/video/BV1Ha4y1J72B?t=852](https://www.bilibili.com/video/BV1Ha4y1J72B?t=852)
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28754#       发表于 2021-1-10 13:23
+
+
+
+<[img src="https://i.loli.net/2021/01/10/67pwe5EiGBdLQbm.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/01/10/oRH1O64dQCEWwzt.png" referrerpolicy="no-referrer">
+
+泉彩最近专心学习blender中，并立下目标给女儿们做3D模型
+
+
+绝世好爸爸
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28755#       发表于 2021-1-10 13:28
+
+
+
+[https://www.youtube.com/watch?v=tEH8hil1LeA](https://www.youtube.com/watch?v=tEH8hil1LeA)
+
+【準決勝】新春！にじさんじ麻雀杯2021 準決勝【#にじさんじ麻雀杯​】
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28756#       发表于 2021-1-10 13:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这人可真够恶心的，明知道自己第四了还把其他人拉下水，
+
+彩虹社倒闭暴死的时候这种人为了自己也会把前辈黑料全都抖出来吧
+
+能不能引退啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28757#       发表于 2021-1-10 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">长尾那屁胡连避四都不行，如他自己所说就是要搞事的，奈罗花已经在要松阪牛肉道歉了
+
+阴湿忖度师给观众之前积攒的怨气是要爆发了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 28758#       发表于 2021-1-10 13:52
+
+
+
+
+比较有风度的做法是不放铳不和牌陪打，参考去年Mleague决赛上樱花的泽崎诚老爷子，但是对新手不能要求这么高吧，防守反而铳了挺尴尬的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28759#       发表于 2021-1-10 14:07
+
+
+
+
+草这进张，发牌员脸都不要了，感觉没有东二了。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28760#       发表于 2021-1-10 14:09
+
+
+
+
+又是一桌魔法麻将
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28761#       发表于 2021-1-10 14:11
+
+
+
+
+没办法，前期雀头是9饼又没碰到7饼基本上8饼就肯定要点的。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28762#       发表于 2021-1-10 14:13
+
+
+
+
+草，这要四暗刻了不是恐怖了……追梦，追追追！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28763#       发表于 2021-1-10 14:14
+
+
+
+
+汉气麻将下次叫上三枝吧，很猛啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28764#       发表于 2021-1-10 14:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">太热血了，有梦想就是好
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28765#       发表于 2021-1-10 14:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 免费分奴的样子真像个小丑
+
+
+
+
+
+                                         
