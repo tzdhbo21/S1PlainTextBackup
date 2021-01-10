@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 10:41** 
+> ## **本文件最后更新于2021-01-10 12:35** 
 
 
 
@@ -7284,4 +7284,1060 @@ dola2…诶……
 
 
 
-                                    
+
+
+-----
+
+####  kangkangsama  
+##### 28893#       发表于 2021-1-10 18:41
+
+
+
+
+卧槽！
+
+郡道你还真tm在apex！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28894#       发表于 2021-1-10 18:45
+
+
+
+
+郡道难得在介绍栏里emo了一回，还是忍不住去apex了，
+嘛，如果打几局apex就能用愉快的心情去打麻那也挺好
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28895#       发表于 2021-1-10 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992916&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-1-10 17:33</a>
+
+偷的B综repo
+
+
+绷不住了  海子姐霸榜虹社区一天了 千赞了</blockquote>
+日本人不会海外进出？
+
+靠中国人阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28896#       发表于 2021-1-10 18:47
+
+
+
+
+老师还在简介里提蛋蛋，好女人
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28897#       发表于 2021-1-10 18:49
+
+
+
+
+郡郡apex两连落地成盒，还是打麻算了吧
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 28898#       发表于 2021-1-10 18:50
+
+
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gmislwn89jj212i1kwn80.jpg" referrerpolicy="no-referrer">
+
+[twitter](https://twitter.com/yuzutouhu_ika/status/1348218500939010049?s=20)
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 28899#       发表于 2021-1-10 18:50
+
+
+
+
+1期的哈哥，seeds的社，19的郡道，20的甲斐田<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28900#       发表于 2021-1-10 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 天下无敌的gamers就这阿，开除gamers彩虹社籍
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28901#       发表于 2021-1-10 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer"> 别尬黑 说明麻将不是电子游戏
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28902#       发表于 2021-1-10 18:59
+
+
+
+
+大头开了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 28903#       发表于 2021-1-10 19:00
+
+
+
+
+【#尾丸ポルカ3D】尾丸ポルカ3Dお披露目するか！ポルカおるよ！【ホロライブ】
+
+40,322 人が待機しています
+[https://www.youtube.com/watch?v=GnW76d1A3YQ](https://www.youtube.com/watch?v=GnW76d1A3YQ)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 28904#       发表于 2021-1-10 19:03
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-1-10 19:05 编辑 
+
+占楼
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/190422f1f1qg9zs6ll6a7x.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (9.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 19:04 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/190508ond73efc3en7u5lh.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (5.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 19:05 上传
+
+
+
+
+
+不是很行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28905#       发表于 2021-1-10 19:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  上到六万多就卡主上不去了 就这？
+
+syl   准备看决赛了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28906#       发表于 2021-1-10 19:14
+
+
+
+
+这同接，holo完了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28907#       发表于 2021-1-10 19:16
+
+
+
+ 本帖最后由 katern 于 2021-1-10 19:18 编辑 
+
+8w5，还能涨涨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl  这沟也太假了，便宜贴图<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 28908#       发表于 2021-1-10 19:16
+
+
+
+
+分社差点无所谓，本社3d好就行
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28909#       发表于 2021-1-10 19:18
+
+
+
+
+郡道还要干嘛啦，
+希望能赛出水平赛出风格啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28910#       发表于 2021-1-10 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49993605&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-10 19:14</a>
+
+这同接，holo完了</blockquote>
+修正：
+
+
+这烂活还有快10W，holo还能混很久。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28911#       发表于 2021-1-10 19:27
+
+
+
+
+老师闪疯了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28912#       发表于 2021-1-10 19:28
+
+
+
+
+老师起手3宝好型  可以开奶了么
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28913#       发表于 2021-1-10 19:33
+
+
+
+ 本帖最后由 空集 于 2021-1-10 19:35 编辑 
+
+草 追梦的社筑草 最后一手避铳  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  没避就点中郡道的3宝了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28914#       发表于 2021-1-10 19:36
+
+
+
+
+非常愉快的氛围呢！
+真的是决赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28915#       发表于 2021-1-10 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49993775&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-10 19:33</a>
+
+草 追梦的社筑草 最后一手避铳    没避就点中郡道的3宝了</blockquote>
+追梦好说，最后那个没听牌肯定打安牌的。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28916#       发表于 2021-1-10 19:40
+
+
+
+
+草，流局满贯VS海底捞月……
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28917#       发表于 2021-1-10 19:40
+
+
+
+
+哈哥海底捞月了海星
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28918#       发表于 2021-1-10 19:42
+
+
+
+
+希望发牌姬一直灌好牌给郡道<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28919#       发表于 2021-1-10 19:44
+
+
+
+
+这3d回也太虚无了，非常木口。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28920#       发表于 2021-1-10 19:48
+
+
+
+
+突然发现决赛桌也挺燃的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28921#       发表于 2021-1-10 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 哈哥一人狂日全场，魔法麻将也燃阿，
+
+
+冠军直接给你好了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28922#       发表于 2021-1-10 19:49
+
+
+
+
+决赛有点猛，各种做大牌，完全没人速攻。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28923#       发表于 2021-1-10 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这哈哥 天神下凡  刚才能吃了听牌选择不吃 然后马上就立了 然后听的是坎牌5P这种难胡的，结果还自摸了，然后里一跳满 
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28924#       发表于 2021-1-10 19:50
+
+
+
+
+两边都能10万，还真挺厉害的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28925#       发表于 2021-1-10 19:52
+
+
+
+
+郡道完全没输出啊，算了算了，打完开心apex吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28926#       发表于 2021-1-10 19:53
+
+
+
+
+麻将十万了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 28927#       发表于 2021-1-10 19:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木口的同接大概是掉回en出道前了，hololive衰退论。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28928#       发表于 2021-1-10 20:01
+
+
+
+
+南三了 哈哥稳了吧。。
+
+倒是大家都起码满贯过就是了 
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28929#       发表于 2021-1-10 20:01
+
+
+
+
+这次大头自己的问题更大吧，活不行，越唱人还越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28930#       发表于 2021-1-10 20:01
+
+
+
+
+郡道可以了 不丢人
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28931#       发表于 2021-1-10 20:05
+
+
+
+
+破五万了，这要all last无敌已经只剩理论可能了吧...
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28932#       发表于 2021-1-10 20:07
+
+
+
+
+这狗逼进张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28933#       发表于 2021-1-10 20:10
+
+
+
+
+本质三保一甲斐田结果就他没立<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28934#       发表于 2021-1-10 20:11
+
+
+
+
+大家都打得很正经，很漂亮
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28935#       发表于 2021-1-10 20:11
+
+
+
+
+还有一个半庄好像，郡道以不被打飞为目标开心地上吧！
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28936#       发表于 2021-1-10 20:12
+
+
+
+
+希望有人能吃上肉啊，不然这比赛就不完整了
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28937#       发表于 2021-1-10 20:18
+
+
+
+
+岭上开花！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28938#       发表于 2021-1-10 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老师岭上开花
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28939#       发表于 2021-1-10 20:18
+
+
+
+
+郡道帅气！！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28940#       发表于 2021-1-10 20:19
+
+
+
+
+郡道这手岭上开花，看弹幕在吐槽正好现在雀魂在搞和天麻的联动了。
+
+看来郡道有女主角潜质 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28941#       发表于 2021-1-10 20:19
+
+
+
+
+岭上海底都有了，这是长野县决赛吧
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28942#       发表于 2021-1-10 20:20
+
+
+
+
+完璧な咲案件
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28943#       发表于 2021-1-10 20:21
+
+
+
+
+那一次岭上不够
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 28944#       发表于 2021-1-10 20:21
+
+
+
+
+老师这个岭上开花是什么传承吗，可惜不是逆转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28945#       发表于 2021-1-10 20:22
+
+
+
+
+哈哥一手阴湿默听断幺（）
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28946#       发表于 2021-1-10 20:23
+
+
+
+
+哈哥也太稳了吧。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28947#       发表于 2021-1-10 20:26
+
+
+
+
+哈哥感觉就是碾压啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28948#       发表于 2021-1-10 20:27
+
+
+
+
+哈哥这进张太过分了
+
+
+想骂人了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28949#       发表于 2021-1-10 20:28
+
+
+
+
+毕竟哈哥真的很努力嘛，之前麻将杯之后就拜师鸦天狗，搞了很久麻将强化周，打牌的时间都用来打麻，也是一种天道酬勤，跟路易斯差不多，
+郡道多看多学<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28950#       发表于 2021-1-10 20:31
+
+
+
+
+感觉哈哥刚才那手可能选择默听比较好  被直击有点伤 现在差距5000点
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28951#       发表于 2021-1-10 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天的哈哥简直神之手 无论进张还是各种自摸
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28952#       发表于 2021-1-10 20:34
+
+
+
+
+哈哥无双 是吸收了上一把修女的神凭依和公主的外星之力吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28953#       发表于 2021-1-10 20:34
+
+
+
+
+三家对日，热血疯了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28954#       发表于 2021-1-10 20:35
+
+
+
+
+ハジメ王<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
