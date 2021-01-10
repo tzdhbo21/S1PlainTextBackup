@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 12:35** 
+> ## **本文件最后更新于2021-01-10 14:31** 
 
 
 
@@ -8340,4 +8340,711 @@ syl  这沟也太假了，便宜贴图<img src="https://static.saraba1st.com/i
 
 
 
-                                  
+
+
+-----
+
+####  free  
+##### 28955#       发表于 2021-1-10 20:36
+
+
+
+[https://bbs.nga.cn/read.php?tid=25048440](https://bbs.nga.cn/read.php?tid=25048440)
+
+
+S1娘和矢吹奈子在绿帽坛被挂了，什么情况
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28956#       发表于 2021-1-10 20:44
+
+
+
+
+哈哥打牌的方式有种类似于加强版的普通玩家，小失误很少，但切牌的逻辑比较正常，没有什么惊人之举
+
+不过今天由于进张太好，一直在进攻，又没有遭遇巨大制裁，就显得无法击倒了
+
+毕竟是运气游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28957#       发表于 2021-1-10 20:45
+
+
+
+
+连泥哥都知道是在钓鱼，免费你怎么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28958#       发表于 2021-1-10 20:45
+
+
+
+
+提前恭喜哈哥
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28959#       发表于 2021-1-10 20:45
+
+
+
+
+哈哥 自摸的神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28960#       发表于 2021-1-10 20:46
+
+
+
+
+真的是无敌啊，哈哥，一直赢到最后<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28961#       发表于 2021-1-10 20:46
+
+
+
+
+最初和最后的主人公！涉谷初！！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28962#       发表于 2021-1-10 20:46
+
+
+
+
+这届冠军实至名归
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 28963#       发表于 2021-1-10 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人是打不过狗的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28964#       发表于 2021-1-10 20:47
+
+
+
+
+可以了，虽然有不甘心，但郡道也尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，麻将是好游戏！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28965#       发表于 2021-1-10 20:48
+
+
+
+
+2021年初，哈哥重归王座，是否暗示彩虹又续半年？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28966#       发表于 2021-1-10 20:48
+
+
+
+
+实至名归，哈哥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 28967#       发表于 2021-1-10 20:48
+
+
+
+
+哈哥最强！！！
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 28968#       发表于 2021-1-10 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49994343&amp;ptid=1969498" target="_blank">free 发表于 2021-1-10 20:36</a>
+
+https://bbs.nga.cn/read.php?tid=25048440
+
+
+S1娘和矢吹奈子在绿帽坛被挂了，什么情况</blockquote>
+整烂活啊，1000%是柰子写的台本……
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 28969#       发表于 2021-1-10 20:49
+
+
+
+
+大亏这水放得，能不能真诚点
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28970#       发表于 2021-1-10 20:49
+
+
+
+
+老师尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 28971#       发表于 2021-1-10 20:50
+
+
+
+
+哈哥牛逼啊，真正的天选之王<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28972#       发表于 2021-1-10 20:51
+
+
+
+
+成濑马车夺冠，哈哥麻将夺冠，
+下一个会是神田最协第一吗
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28973#       发表于 2021-1-10 20:52
+
+
+
+
+八万点真的太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">真的太牛了，虽然有运气成分，但也必须认识到镇妖塔的实力啊！
+
+
+
+
+
+
+
+-----
+
+####  thoroughwort  
+##### 28974#       发表于 2021-1-10 20:52
+
+
+
+
+哈哥天地人，社筑尽力了，郡道也打的很顽强了，观感还是挺好的
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 28975#       发表于 2021-1-10 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49994507&amp;ptid=1969498" target="_blank">thoroughwort 发表于 2021-1-10 20:52</a>
+哈哥天地人，社筑尽力了，郡道也打的很顽强了，观感还是挺好的</blockquote>
+打得蛮好看的，该火热火热，该赞叹赞叹，也没有太多狗血
+
+公司联谊这样不赖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 28976#       发表于 2021-1-10 21:04
+
+
+
+
+这次大会个人最大收获是露易丝
+
+以前只有和巴联动时才看过几次
+
+这次实况看起来就像是专业的麻将解说，反应迅速，思路清晰，而且语气异常沉稳
+
+比起舞元他们一惊一乍强多了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28977#       发表于 2021-1-10 21:04
+
+
+
+
+嶺上開花だあ！咲コラボじゃああ！！結果は残念だったけど、決勝まで進めてうれしかった！
+次の大会があるなら絶対雀豪まで行って優勝します('ω')！前回の大会は悔しくて泣いてしまったけれど、今回は高い手を無理に作りに行った結果なので悔いは一切無いです！応援ありがとう！
+
+#にじさんじ麻雀杯
+
+
+确实，上次团队战郡道被打爆我看着也觉得很可怜，也有人会说郡道水平就这搞什么雀魂公式番组，这回打出水平也算证明自己了，好！
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 28978#       发表于 2021-1-10 21:09
+
+
+
+
+没关注有段时间了，原来已经开始杏五的3D了啊
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 28979#       发表于 2021-1-10 21:14
+
+
+
+
+原来有熟肉了
+
+
+【谷鄉元昭】Yagoo要出道了！？初配信就有話跟性感海外兄貴說了？【Hololive精華/中文翻譯】【谷鄉元昭/Vtuber】
+[https://www.youtube.com/watch?v=tVUUtR5TTMY](https://www.youtube.com/watch?v=tVUUtR5TTMY)
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28980#       发表于 2021-1-10 21:19
+
+
+
+
+海底破流满可以进雀魂汪汪录，建议虹人投稿。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28981#       发表于 2021-1-10 21:23
+
+
+
+
+【にじたま】
+雀魂公式番組「にじたま」
+1/13(水)20時より三局目生配信！
+
+番組内で重大発表があるかもにゃ…？
+
+▼配信URL
+youtu.be/UAokTaBYTJc
+
+■出演者
+多井隆晴(@takaharu_ooi)
+郡道美玲(@g9v9g_mirei)
+舞元啓介(@maimoto_k)
+ルイス・キャミー(@Luis_Cammy)
+
+#雀魂 #じゃんたま #にじたま
+
+
+郡道说了很久的那个要来了？到底是啥啊，齐藤新衣服？齐藤周边？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28982#       发表于 2021-1-10 21:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/212958sghzgs5d2tog24g2.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #036 - 'YouTube' - www_youtube_com.png</strong> (13.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 21:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28983#       发表于 2021-1-10 21:30
+
+
+
+
+虹信真的哈人，还是满脑子花田的mmr杏奴好
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 28984#       发表于 2021-1-10 21:34
+
+
+
+
+船长拉了尊来马车还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28985#       发表于 2021-1-10 21:46
+
+
+
+
+“这人平常就不说敬语，现在突然谢罪肯定是被运营劝的吧，不过即使这样也比没被运营管的郡道好多了。本来用郡道做判断基础就很怪，郡道guna”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+そんな不器用さを守るには～
+僕がその盾になるしかない～
+世の中の常識に傷つくのなら～
+君の代わりに僕が炎上してやるさ～
+いつだってそばで立っててやるよ～
+悪意からの避雷針～
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28986#       发表于 2021-1-10 21:48
+
+
+
+
+这笔黑水军费用花的还是非常值得的，原谅yagoo一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/214822pycskfwbfhyz9sjm.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #037 - '鳴神 裁 (@narukami_sabaki) _ Twitter&amp;#0.png</strong> (17.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 21:48 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 28987#       发表于 2021-1-10 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">周末晚定番月灵魂SR完全忘了
+
+亡了亡了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28988#       发表于 2021-1-10 21:59
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-10 22:05 编辑 
+
+一万待机还行
+
+同接2W2
+
+虚拟スガ
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28989#       发表于 2021-1-10 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 呵呵。故意炎上诱导观众的人1w待机，，刚获得雀神称号的哈哥2k同接
+
+
+以后谁还好好玩阿，
+
+
+都去炎上算了，
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28990#       发表于 2021-1-10 22:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/220625wg5uh3h3h9wiyiw6.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210110220609.png</strong> (20.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 22:06 上传
+
+
+
+
+
+
+
+呵呵，冠军？有我炎上同接高么？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 28991#       发表于 2021-1-10 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49994994&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-1-10 21:53</a>
+
+周末晚定番月灵魂SR完全忘了
+
+亡了亡了</blockquote>
+亡了亡了，只能等月灵皮或者新歌复活了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
