@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 06:43** 
+> ## **本文件最后更新于2021-01-10 10:41** 
 
 
 
@@ -4987,4 +4987,2301 @@ lga杏奴多，选个话事人不是很正常吗<img src="https://static.saraba1
 
 
 
-                                         
+
+
+-----
+
+####  古战场亡魂  
+##### 28766#       发表于 2021-1-10 14:44
+
+
+
+
+南四局刺激了！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28767#       发表于 2021-1-10 14:49
+
+
+
+
+西入了 露易丝牌运不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 28768#       发表于 2021-1-10 14:49
+
+
+
+
+这都打到西入了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28769#       发表于 2021-1-10 14:50
+
+
+
+
+西入难顶啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，看着都紧张
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28770#       发表于 2021-1-10 14:51
+
+
+
+
+博士瞎打，虽然振听了，但是你立直赌自摸，或者争取连庄也好啊。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28771#       发表于 2021-1-10 14:53
+
+
+
+
+露易丝倒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28772#       发表于 2021-1-10 14:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">第一盘就超激烈了，后面可以放松看笨蛋桌了
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 28773#       发表于 2021-1-10 14:53
+
+
+
+
+yagoo新视频好乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28774#       发表于 2021-1-10 14:54
+
+
+
+
+怪盗牌运太差了。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28775#       发表于 2021-1-10 14:54
+
+
+
+
+第二盘空星加油啊 露易丝倒了 全看你了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28776#       发表于 2021-1-10 14:54
+
+
+
+
+居然是甲斐田晴，果然坐解说桌不利于打牌啊，
+该郡了，好慌
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28777#       发表于 2021-1-10 14:55
+
+
+
+
+怪盗，我的怪盗<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28778#       发表于 2021-1-10 14:56
+
+
+
+
+郡道空星力一司会。。感觉这局很有看点
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 28779#       发表于 2021-1-10 14:56
+
+
+
+
+キャミ真的可惜，东一运势就被截了一直在苦撑
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28780#       发表于 2021-1-10 14:58
+
+
+
+
+希望今天能看到飞人
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28781#       发表于 2021-1-10 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一盘就这么刺激
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28782#       发表于 2021-1-10 15:00
+
+
+
+
+之前郡道也和司会打过挺多次了，说实话我觉得郡道赢不了...
+放平心态啦，反正路易斯五元刀也啊喵喵都没进决赛，输了也不丢人啦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28783#       发表于 2021-1-10 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想看司会飞了金鱼妹同期
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28784#       发表于 2021-1-10 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49991941&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 15:00</a>
+
+之前郡道也和司会打过挺多次了，说实话我觉得郡道赢不了...
+
+放平心态啦，反正路易斯五元刀也啊喵喵都没进决 ...</blockquote>
+主持还是不怕的
+
+怕空星
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28785#       发表于 2021-1-10 15:03
+
+
+
+
+希望这次彩虹决赛能来质量局，别tm又是什么不会打的混进去玩三打一了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28786#       发表于 2021-1-10 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49991952&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-1-10 15:01</a>
+想看司会飞了金鱼妹同期</blockquote>
+根据mrra一贯的《配平》，金鱼自曝导致口了失踪，现在该郡道点空星炮被打飞了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28787#       发表于 2021-1-10 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49991959&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 15:03</a>
+
+根据mrra一贯的《配平》，金鱼自曝导致口了失踪，现在该郡道点空星炮被打飞了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 郡gachi想让郡道帮助口了杀了金鱼妹残党同期么？好狠的刀！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28788#       发表于 2021-1-10 15:08
+
+
+
+
+还是人妻👍
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/150820cf1zpq0ojzftvp7f.png" referrerpolicy="no-referrer">
+
+
+<strong>7hpmfx75pda61.png</strong> (660.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 15:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28789#       发表于 2021-1-10 15:15
+
+
+
+ 本帖最后由 空集 于 2021-1-10 15:23 编辑 
+
+发现自己对麻将术语好没敏感度 专心听了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28790#       发表于 2021-1-10 15:22
+
+
+
+
+和楼无关，看虹麻将有点手痒去试试，感受到了被连庄的痛苦。
+
+<img src="https://img.saraba1st.com/forum/202101/10/152038reig7ll42iqdoucu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210110151812878.jpg</strong> (107.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 15:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28791#       发表于 2021-1-10 15:28
+
+
+
+
+空星这手避铳，不过那时候确实也会拆一条
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28792#       发表于 2021-1-10 15:33
+
+
+
+
+圭利厉害啊，这把质量局。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28793#       发表于 2021-1-10 15:36
+
+
+
+
+真亏得这四个人还能说出话来，这个氛围太冻结了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28794#       发表于 2021-1-10 15:37
+
+
+
+ 本帖最后由 空集 于 2021-1-10 15:40 编辑 
+
+郡道这手默听胡了虽然也非常运气好但是也不错啊
+
+上来郡道好配牌速默听，然后力一立了把大的 紧张
+点了郡道的屁胡www
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28795#       发表于 2021-1-10 15:37
+
+
+
+
+美玲贪一波直接起飞
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 28796#       发表于 2021-1-10 15:38
+
+
+
+
+上次雀魂官方的团体战还要更冷，大将战所有人都闭嘴不说话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28797#       发表于 2021-1-10 15:40
+
+
+
+
+圭利太强了，防的好啊
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28798#       发表于 2021-1-10 15:43
+
+
+
+
+空星这牌运也太差了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28799#       发表于 2021-1-10 15:44
+
+
+
+
+在郡道视点看，圭利一直碰压迫力太强了好可怕啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28800#       发表于 2021-1-10 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992213&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 15:44</a>
+
+在郡道视点看，圭利一直碰压迫力太强了好可怕啊</blockquote>
+我站在圭利视角看，美玲的牌运太好了，圭利全靠科学，弃和果断的不行。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28801#       发表于 2021-1-10 15:47
+
+
+
+
+这桌老师和圭利在无双啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28802#       发表于 2021-1-10 15:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老师这起手也太好了吧。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28803#       发表于 2021-1-10 15:48
+
+
+
+
+主持人上帝视角司会是pro科学麻将 郡道是天选之子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  刚才东四那配牌
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28804#       发表于 2021-1-10 15:52
+
+
+
+
+都怪郡道立前没问齐藤成不成，摸不出惹
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28805#       发表于 2021-1-10 15:53
+
+
+
+ 本帖最后由 kangkangsama 于 2021-1-10 15:56 编辑 
+
+主持人才是天选吧
+
+大部分局起手有役
+
+
+南2起手三白
+
+这把又是中
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28806#       发表于 2021-1-10 15:56
+
+
+
+
+圭利也挺迷的，为啥老是起手就有中白发，发牌员就直接叫他速攻了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28807#       发表于 2021-1-10 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这自摸，你们摸摸良心说说这不是运气好么？
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28808#       发表于 2021-1-10 15:59
+
+
+
+
+空星倒了 这什么JB发牌员 太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28809#       发表于 2021-1-10 15:59
+
+
+
+
+科学麻将要输了啊，除非圭利炸美玲的庄。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28810#       发表于 2021-1-10 15:59
+
+
+
+
+dola2…诶……
+一直在叫空星加油，会不会最后点炮啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 28811#       发表于 2021-1-10 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自摸加里二，太魔法了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28812#       发表于 2021-1-10 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992333&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 15:59</a>
+dola2…诶……
+一直在叫空星加油，会不会最后点炮啊</blockquote>
+立直点了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28813#       发表于 2021-1-10 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992354&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-10 16:02</a>
+立直点了 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+这是好的，与其在牌桌上叫人加油，不如直接点一炮给分，
+好紧张看不了了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+开始怒骂指示厨还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28814#       发表于 2021-1-10 16:07
+
+
+
+
+老师晋级了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28815#       发表于 2021-1-10 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 郡道进决赛了，这含金量爆表了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28816#       发表于 2021-1-10 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老师进决赛了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28817#       发表于 2021-1-10 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992365&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 16:05</a>
+这是好的，与其在牌桌上叫人加油，不如直接点一炮给分，
+好紧张看不了了</blockquote>
+恭喜郡道。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 我看的官号错过了郡道怒骂这样看好可惜
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28818#       发表于 2021-1-10 16:08
+
+
+
+
+诶，额，啊？？？
+
+好！恭喜！恭喜郡道！！！
+不枉麻将杯被打脸成猪头
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28819#       发表于 2021-1-10 16:09
+
+
+
+ 本帖最后由 古战场亡魂 于 2021-1-10 16:14 编辑 
+
+这句也是之前楼里讨论的情况，南四局你是三位不是庄家，你的牌打不死一位，你还速攻，没人希望你和，然后你没办法拆了牌不听了却还点了一位的默听。
+
+这种局太难受了。不过老师今天真的强，圭利输的不冤。下次也该圭利解说了。
+
+<img src="https://img.saraba1st.com/forum/202101/10/160708x62zn5265u20nsn7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210110160514954.jpg</strong> (44.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 16:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28820#       发表于 2021-1-10 16:09
+
+
+
+
+这桌牌的气运怕不是全被老师和圭利抢了 剩下两人看着都可怜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28821#       发表于 2021-1-10 16:10
+
+
+
+
+恭喜老师，#郡道美玲天道酬勤<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28822#       发表于 2021-1-10 16:11
+
+
+
+
+力一好几次有机会都没成，太难受了
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 28823#       发表于 2021-1-10 16:11
+
+
+
+
+圭利去年也是新手，今年明显更强了，这人是真的有脑子
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28824#       发表于 2021-1-10 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992400&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2021-1-10 16:09</a>
+
+这桌牌的气运怕不是全被老师和圭利抢了 剩下两人看着都可怜</blockquote>
+之前那个2红宝三色同顺的不是圭利防的好这局难说。
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28825#       发表于 2021-1-10 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下一桌怎么解说我很期待
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28826#       发表于 2021-1-10 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992393&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 16:08</a>
+
+诶，额，啊？？？
+
+
+好！恭喜！恭喜郡道！！！</blockquote>
+已经是雀魂公式节目成员和mtp学园的独苗了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 28827#       发表于 2021-1-10 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 鹰宫的运气用完了，社应该是稳稳拿下
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28828#       发表于 2021-1-10 16:24
+
+
+
+
+悲报 舞元肚子坏了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28829#       发表于 2021-1-10 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992446&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-10 16:16</a>
+已经是雀魂公式节目成员和mtp学园的独苗了</blockquote>
+希望发牌姬给点面子<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，拿第一是不可能了，好歹别被飞，感觉决赛就很容易被飞啊，当初觉得郡道绝对到不了决赛都没看过规则，全庄来着？害怕
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 28830#       发表于 2021-1-10 16:26
+
+
+
+
+看看其他的解说，社的命运已经无可动摇
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28831#       发表于 2021-1-10 16:30
+
+
+
+
+感觉这局 社筑稳的吧 除非其他三人里有强运选手
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28832#       发表于 2021-1-10 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992514&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-10 16:25</a>
+
+希望发牌姬给点面子，拿第一是不可能了，好歹别被飞，感觉决赛就很容易被飞啊，当初觉得郡道绝对 ...</blockquote>
+但你想想
+
+准1出线的是个初心
+
+准3准4都是一个不错/还行的+3个纯新手
+
+
+唯一有威胁的还真是同门师兄哈哥了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28833#       发表于 2021-1-10 16:32
+
+
+
+ 本帖最后由 古战场亡魂 于 2021-1-10 16:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992546&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-10 16:30</a>
+
+感觉这局 社筑稳的吧 除非其他三人里有强运选手</blockquote>
+魔法启动
+
+<img src="https://img.saraba1st.com/forum/202101/10/163217ntexnxjxdjzbnitl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210110163201048.jpg</strong> (43.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 16:32 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/163359wi9ti0ih0g97ey84.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210110163342535.jpg</strong> (42.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 16:33 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28834#       发表于 2021-1-10 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  草草草草草 里三
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28835#       发表于 2021-1-10 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个异世界桌到底是社畜主角还是侦探主角啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28836#       发表于 2021-1-10 16:36
+
+
+
+
+立直的很魔法就算了，点的人不会防更麻烦，这把社筑估计要走了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28837#       发表于 2021-1-10 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992547&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-10 16:30</a>
+但你想想
+
+准1出线的是个初心
+
+准3准4都是一个不错/还行的+3个纯新手</blockquote>
+郡道能用魔法打败圭利，也可以被魔法打断鼻梁，
+郡郡当不了主角惹，哈哥挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28838#       发表于 2021-1-10 16:39
+
+
+
+
+这局太凶了  金憨憨惨  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> ， 虽然5S5P刚才本来也不太好点的
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28839#       发表于 2021-1-10 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">这盘决胜因素变成在大小姐飞之前拿到第一了
+
+
+
+
+
+
+
+-----
+
+####  在海岸  
+##### 28840#       发表于 2021-1-10 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是太同情社了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28841#       发表于 2021-1-10 16:42
+
+
+
+
+鹰宫别直接点了被飞吧。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28842#       发表于 2021-1-10 16:42
+
+
+
+
+这局和刚才那局画风差太大了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28843#       发表于 2021-1-10 16:44
+
+
+
+
+魔法大战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28844#       发表于 2021-1-10 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">大小姐发力了啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28845#       发表于 2021-1-10 16:44
+
+
+
+
+都tm什么魔法
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/164433cbm5v9zx7zxvjc33.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210110164409655.jpg</strong> (71.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 16:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28846#       发表于 2021-1-10 16:51
+
+
+
+
+这才是我想看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有机会看到飞人了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28847#       发表于 2021-1-10 16:52
+
+
+
+
+这桌真的水平和前面两桌差距明显。
+
+<img src="https://img.saraba1st.com/forum/202101/10/165123q4vyi2jxayy7dhld.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210110165105104.jpg</strong> (66.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 16:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28848#       发表于 2021-1-10 16:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">金憨憨这魔法打牌我真的看不懂
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28849#       发表于 2021-1-10 16:55
+
+
+
+
+这手一直留着两张白板结果最后自摸是真的 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28850#       发表于 2021-1-10 16:58
+
+
+
+
+3个魔法师打小魔王一个普通人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28851#       发表于 2021-1-10 16:58
+
+
+
+
+七对子混一色听5Wdora 然后鹰宫还点了是最骚的 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28852#       发表于 2021-1-10 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再怎么说这次肯定要飞了吧。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28853#       发表于 2021-1-10 17:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/170335n7y9r61e99r996zl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210110200323.png</strong> (13.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 17:03 上传
+
+
+
+
+
+
+是糖，我吃了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28854#       发表于 2021-1-10 17:04
+
+
+
+
+鹰宫 被飞危机回避！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28855#       发表于 2021-1-10 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">擦弹的大小姐，看得我手心冒汗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 28856#       发表于 2021-1-10 17:14
+
+
+
+
+插播一下，ptr魂2烟老师，绝赞受苦中。[https://youtu.be/TyL1hLthHAg](https://youtu.be/TyL1hLthHAg)
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 28857#       发表于 2021-1-10 17:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">憨憨无了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28858#       发表于 2021-1-10 17:18
+
+
+
+
+确定第二的飞人 好难受啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28859#       发表于 2021-1-10 17:18
+
+
+
+
+恭喜社筑，不过从追求晋级的角度，最后飞了晋级那一手也不是很应该吧。。虽然鹰宫点了很尴尬。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28860#       发表于 2021-1-10 17:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解说队唯一希望：阿社
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28861#       发表于 2021-1-10 17:18
+
+
+
+
+憨憨尽力了，输赢不在她。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 28862#       发表于 2021-1-10 17:19
+
+
+
+
+小魔王也是新手，不会算点，没办法，能看到大小姐被飞已经很满意了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28863#       发表于 2021-1-10 17:19
+
+
+
+
+不会是第一个被飞的吧，大小姐尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，
+
+怎么说呢，在各方面切实地感觉到郡道已经没有什么好怕的了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28864#       发表于 2021-1-10 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992809&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-10 17:18</a>
+
+憨憨尽力了，输赢不在她。</blockquote>
+输赢全靠她说的算。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28865#       发表于 2021-1-10 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992806&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-10 17:18</a>
+
+恭喜社筑，不过从追求晋级的角度，最后飞了晋级那一手也不是很应该吧。。虽然鹰宫点了很尴尬。 ...</blockquote>
+再多一番的样子哪怕飞的是大小姐也能反超社畜的
+
+更别说社畜直击了
+
+
+魔王这一手很有戏了
+
+是真的可惜了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28866#       发表于 2021-1-10 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992824&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-10 17:20</a>
+
+再多一番的样子哪怕飞的是大小姐也能反超社畜的
+
+更别说社畜直击了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 确实，小魔王估计也没去算点吧。总之是非常有戏剧性的一局了，本身小魔王庄家速攻是非常正确的。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 28867#       发表于 2021-1-10 17:24
+
+
+
+ 本帖最后由 古战场亡魂 于 2021-1-10 17:26 编辑 
+
+可惜了，不该胡的，反正是自己的庄也没必要怕的啊，再来一轮就是了。不过鹰宫被飞节目效果也不错。当然如果她东二就被飞了节目效果更好。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28868#       发表于 2021-1-10 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992842&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-10 17:23</a>
+
+确实，小魔王估计也没去算点吧。总之是非常有戏剧性的一局了，本身小魔王庄家速攻是非常正确的。 ...</blockquote>
+其实只要不胡鹰宫就行了
+
+不管是自摸还是直击社畜都能连庄
+
+
+应该是忘记要放过鹰宫了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|可能是没算点/忘了见逃|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 28869#       发表于 2021-1-10 17:32
+
+
+
+
+小魔王也是新手，她估计不会算点吧...
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 28870#       发表于 2021-1-10 17:33
+
+
+
+
+偷的B综repo
+
+
+绷不住了  海子姐霸榜虹社区一天了 千赞了
+
+欧美萌萌人到处求七海的切片还要学中文来看配信
+
+
+
+
+
+
+
+-----
+
+####  thoroughwort  
+##### 28871#       发表于 2021-1-10 17:33
+
+
+
+
+单纯的新手不会算点，非常正常
+
+但造就了完美的撮れ高
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28872#       发表于 2021-1-10 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992916&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-1-10 17:33</a>
+
+偷的B综repo
+
+
+绷不住了  海子姐霸榜虹社区一天了 千赞了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是不能理解 海子姐的声音上次我去听了会也挺有特色的脑控的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28873#       发表于 2021-1-10 17:36
+
+
+
+
+樱凛月怎么写着单纯是来应援的 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28874#       发表于 2021-1-10 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992925&amp;ptid=1969498" target="_blank">空集 发表于 2021-1-10 17:34</a>
+
+不是不能理解 海子姐的声音上次我去听了会也挺有特色的脑控的</blockquote>
+听你们一说我去虹reddit看了一眼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/173837pnelloooz5lb5jly.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #035 - '(2) Nijisanji' - www_reddit_com.png</strong> (97.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 17:38 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28875#       发表于 2021-1-10 17:44
+
+
+
+
+冷知识，除了郡道，194三人生日分别是三五七月的四号
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 28876#       发表于 2021-1-10 17:54
+
+
+
+
+都21年了怎么还在玲
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 28877#       发表于 2021-1-10 18:03
+
+
+
+
+白皮恋尸癖发作起来谁管你啥时候生日。三角姐贵和ema混的好好的他们就一定要在前东家的社区发情。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+你虹死人那么多，真要EN进出大成功了白皮到时候铺天盖地开追悼会这画面可太美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28878#       发表于 2021-1-10 18:08
+
+
+
+
+修女换听九万3dora对对和直击哈哥逆一了  酷啊
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28879#       发表于 2021-1-10 18:09
+
+
+
+
+这就是神的加护吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28880#       发表于 2021-1-10 18:10
+
+
+
+
+修女避铳还换掉胡不到三索成功直击哈哥
+
+这已经不是魔法程度的东西了
+
+
+神のご加護！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28881#       发表于 2021-1-10 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是神仙打架吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 28882#       发表于 2021-1-10 18:11
+
+
+
+
+首播两周年的阿菜今天会动吗？
+
+
+
+
+
+
+
+-----
+
+####  野々原雛桜  
+##### 28883#       发表于 2021-1-10 18:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">叹为观止，我在看天麻吗
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 28884#       发表于 2021-1-10 18:16
+
+
+
+
+我还想修女这手不该碰啊
+
+结果直接胡了
+
+
+修女；你以为我打错了？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28885#       发表于 2021-1-10 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">修女真有未来视？
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28886#       发表于 2021-1-10 18:16
+
+
+
+
+修女这什么玩意儿 被神凭依了 听到神启了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28887#       发表于 2021-1-10 18:19
+
+
+
+
+被这个状态的修女干掉也会是郡道的荣幸吧
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 28888#       发表于 2021-1-10 18:31
+
+
+
+
+人类赢了外星人和半神
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28889#       发表于 2021-1-10 18:31
+
+
+
+
+100点逆一也太戏剧性了  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  而且修女点的这种9P其实刚才也有机会切出去的  
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 28890#       发表于 2021-1-10 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈哥100分逆转，tql
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 28891#       发表于 2021-1-10 18:32
+
+
+
+
+刚刚好，惊了。
+甲斐田，郡道，社筑，哈吉咩，感觉都还挺可以的嘛，
+
+解说席快力竭了吧
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 28892#       发表于 2021-1-10 18:33
+
+
+
+
+修女这就完全不会玩，断幺都不会没法搞啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                    

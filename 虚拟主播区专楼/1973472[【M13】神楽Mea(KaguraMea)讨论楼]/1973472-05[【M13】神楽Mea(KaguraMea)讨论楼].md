@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-09 20:43** 
+> ## **本文件最后更新于2021-01-10 10:44** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_YL43L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_y8Ng8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21781,7 +21781,7 @@ syl，没记错
 
 
 
-<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_Uv541" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_v39Md" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_dHbub" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_AB17J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_Q9Qdn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_Z26AN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_zp27W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_Q1d0o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -22001,8 +22001,24 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 
 
+ 本帖最后由 路人辰 于 2021-1-10 00:26 编辑 
 
-女粉听mea聊男人居然会受不了吗？
+20210110东京1点
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/002548lcxut071qmml0thp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>22290E3D-6A30-4AC8-AFBF-D86D019AF7BA.jpeg</strong> (80.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 00:25 上传
+
+
+
+
+
 
 
 
@@ -22279,4 +22295,775 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 
 
-        
+
+
+-----
+
+####  路人庚  
+##### 7241#       发表于 2021-1-9 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49986793&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-1-9 20:37</a>
+
+我好奇很久了.... 你真的有“路人”加“天干地支”二十二个号吗怎么养啊，一天上一个？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能会有，甲乙丙丁这种神ID我当然是没有的，而且中间有几个我也是没注册到的
+
+说到底，要不是曾经的一换一版规我也不会在这论坛注册一大堆ID玩
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+
+
+
+
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7242#       发表于 2021-1-9 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">算了，今年日本这破样子还是让她在家里闷着吧，顺便发发酒疯
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7243#       发表于 2021-1-9 21:27
+
+
+
+
+yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7244#       发表于 2021-1-9 21:38
+
+
+
+
+那当然还有去牛 郎店
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7245#       发表于 2021-1-9 22:15
+
+
+
+
+突然又想起来了，b站扫楼视频呢，到底还发不发出来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 7246#       发表于 2021-1-9 22:41
+
+
+
+
+可能作为封入特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7247#       发表于 2021-1-9 22:57
+
+
+
+
+当然是因为b站跳闸导致硬盘损坏 扫楼视频无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 7248#       发表于 2021-1-9 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草，不会真当BD特典了吧
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7249#       发表于 2021-1-9 23:10
+
+
+
+
+封入演唱会盘，内容是她和阿b员工互动？不合适。
+那东西作宣传还差不多，如果当她演唱会bd特典纯属脑子有坑行为<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+还不如放fmt录像，和粉丝互动多有意思
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7250#       发表于 2021-1-9 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">寄给苦主的录像带
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7251#       发表于 2021-1-10 00:07
+
+
+
+
+今天准备播了还行，会凌晨突击吗（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7252#       发表于 2021-1-10 03:39
+
+
+
+
+别指望了，b现在也就想着止止损了，它能少整点超级尴尬的推广文案就谢天谢地了。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7253#       发表于 2021-1-10 11:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不出话
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7254#       发表于 2021-1-10 13:39
+
+
+
+
+今天会播<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，这是好的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7255#       发表于 2021-1-10 15:21
+
+
+
+
+咩姐卖cd可还行（虽然只有一首翻唱的“你不知道的物语”
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7256#       发表于 2021-1-10 15:24
+
+
+
+ 本帖最后由 A2014720 于 2021-1-10 15:25 编辑 
+
+有点看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然就给你来个cd肉猪
+
+成年了签卖身契了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7257#       发表于 2021-1-10 15:26
+
+
+
+
+膨胀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无论是肉体上还是心理上的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 7258#       发表于 2021-1-10 15:42
+
+
+
+
+这CD牌面啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7259#       发表于 2021-1-10 16:10
+
+
+
+ 本帖最后由 甘栗No.007 于 2021-1-10 16:13 编辑 
+
+这波是其他人赏饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+悄悄混入歌势的cd中
+
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7260#       发表于 2021-1-10 16:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这到底是怎么混进去的
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7261#       发表于 2021-1-10 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看到图，都有谁啊
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 7262#       发表于 2021-1-10 16:54
+
+
+
+
+<img src="https://p.sda1.dev/0/2c31d14f208fa8611e7cead695f3586a/-zue37Q5-dnn6KqT1kSbd-f1.jpg.thumb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 7263#       发表于 2021-1-10 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就离谱，狗妈好歹还有签约，麻酱咋混进去的，真就出卖色相
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7264#       发表于 2021-1-10 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又双叒向资本低头了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7265#       发表于 2021-1-10 17:08
+
+
+
+
+看了介绍，感觉第二个碟上说不定有合唱曲啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7266#       发表于 2021-1-10 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7267#       发表于 2021-1-10 17:25
+
+
+
+
+不会被歌势公开处刑吧麻 麻<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7268#       发表于 2021-1-10 17:27
+
+
+
+
+不是，这歌势的资源除了自己吃还要分给虹杏。
+
+你怎么吃到的？？？？？？？？？？？
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7269#       发表于 2021-1-10 17:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/10/172812hxzp1g4w5ll3mmu3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mtr.jpg</strong> (1.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 17:28 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7270#       发表于 2021-1-10 17:31
+
+
+
+
+也许有天神子兔音的推荐？不管怎么说，能上就挺好的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7271#       发表于 2021-1-10 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992874&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-1-10 17:27</a>
+
+不是，这歌势的资源除了自己吃还要分给虹杏。
+
+你怎么吃到的？？？？？？？？？？？ ...</blockquote>
+没有杏吧？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7272#       发表于 2021-1-10 17:34
+
+
+
+
+这歌是她在油管独唱中最高的，42万点击，不过应该和她把这曲子放首页也有关就是了。
+
+她为什么不把《针》放首页。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7273#       发表于 2021-1-10 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992926&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-1-10 17:34</a>
+
+没有杏吧？</blockquote>
+里面是没杏是没错，不过一般这种碟子虹杏都会插一脚的。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7274#       发表于 2021-1-10 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992938&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-1-10 17:36</a>
+里面是没杏是没错，不过一般这种碟子虹杏都会插一脚的。</blockquote>
+记得虹是索尼投资的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以没杏
+至于怎么拉上你麻的就不懂了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7275#       发表于 2021-1-10 18:00
+
+
+
+
+就不能说是叔叔牵的头
+
+之前索尼音乐不是投了4亿到B站<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 7276#       发表于 2021-1-10 18:03
+
+
+
+
+说明你咩自己请的马内甲还是有干活的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7277#       发表于 2021-1-10 18:05
+
+
+
+
+没有杏说明肯定有叔叔的因素在啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+叔叔可以告诉我小麻舒服么？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7278#       发表于 2021-1-10 18:06
+
+
+
+
+因为播放量是最高的就放上去，好朴实的想法啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，看不懂看不懂
+
+想想echo大概也是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7279#       发表于 2021-1-10 18:09
+
+
+
+
+说起来，这个fleet的谜底也许算是被这个cd解开了（我之前就在想bls忙完之后她还会有哪些事情会堆积起来来着，当时还以为是饭盒或者新衣服之类的事情
+
+<img src="https://img.saraba1st.com/forum/202101/10/180803z5dks5ynv59ys9k8.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (46.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-10 18:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7280#       发表于 2021-1-10 18:18
+
+
+
+
+那么今天几点播，别又是三更半夜吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7281#       发表于 2021-1-10 18:29
+
+
+
+
+那这几个V会开除虹籍吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7282#       发表于 2021-1-10 18:32
+
+
+
+
+快进到拄拐
+“sony出的碟子连xxx都在上面都没有杏，杏亡矣”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然这玩意实际和sony有个屁关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7283#       发表于 2021-1-10 18:38
+
+
+
+
+说不定第二张全是杏呢
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+       
