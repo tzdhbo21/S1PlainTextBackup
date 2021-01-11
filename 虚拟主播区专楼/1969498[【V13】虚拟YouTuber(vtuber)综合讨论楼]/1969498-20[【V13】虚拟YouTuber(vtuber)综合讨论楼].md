@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 11:01** 
+> ## **本文件最后更新于2021-01-11 14:05** 
 
 
 
@@ -10152,4 +10152,1931 @@ wtm先哭为敬
 
 
 
-                               
+
+
+-----
+
+####  admentus  
+##### 29050#       发表于 2021-1-11 19:02
+
+
+
+
+真请来了虹人不得把葵皇干死，不推也请对别的v好一点，拜托了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29051#       发表于 2021-1-11 19:11
+
+
+
+
+兔皇能不能不要赖着不下播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29052#       发表于 2021-1-11 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚还要生日配信呢，楼上的能不能积点德。
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 29053#       发表于 2021-1-11 19:19
+
+
+
+
+船长的剧本太完美了吧
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29054#       发表于 2021-1-11 19:20
+
+
+
+
+战犯波尔卡！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29055#       发表于 2021-1-11 19:20
+
+
+
+<blockquote>空集 发表于 2021-1-11 18:53
+就一个官台的话看都看不清，这个解说也没特别大意思，还不如各自开台
+
+
+—— 来自 Xiaomi Mi 10, Android 10 ...</blockquote>
+虹马车最多的时候12个屏幕挤在一起……看主持人切视角的功力了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29056#       发表于 2021-1-11 19:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前压了主台同接（实时）的有已经有三台了，兔猫船都是4w+，towa也太惨了。
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 29057#       发表于 2021-1-11 19:27
+
+
+
+
+露露喜欢恐龙，全肯定民感觉玩ark也挺不错的。
+
+之前ark在彩虹社正火的时候也有人问她要不要玩，她说她要玩也是玩单机…<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29058#       发表于 2021-1-11 19:28
+
+
+
+
+感谢尊妈，最后这把和阿希争第四，然后正好选的是昨天和尊妈狂练的一张图。。如果没有昨天那练，她这图本身玩的贼烂。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29059#       发表于 2021-1-11 19:28
+
+
+
+
+彩虹马车有掉线的吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29060#       发表于 2021-1-11 19:32
+
+
+
+
+彩虹人会集体打完赖着不下分主台流量吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29061#       发表于 2021-1-11 19:33
+
+
+
+<blockquote>OldGlory 发表于 2021-1-11 19:28
+彩虹马车有掉线的吗？</blockquote>
+路易斯掉线顺便开了雀魂直播麻将还和了个倍满
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29062#       发表于 2021-1-11 19:39
+
+
+
+
+towa能不能把夸兔狐猫拉主台来点trash talk涨点同接啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29063#       发表于 2021-1-11 19:39
+
+
+
+
+大米这FF10打老爹第一形态把全财产给用心棒出了斩魔刀，然后看着第二形态傻眼笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 29064#       发表于 2021-1-11 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50003850&amp;ptid=1969498" target="_blank">ポップコーン 发表于 2021-1-11 19:27</a>
+
+露露喜欢恐龙，全肯定民感觉玩ark也挺不错的。
+
+之前ark在彩虹社正火的时候也有人问她要不要玩，她说她要玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">波佬快写点棉花糖叫她玩点大作，对马岛，新战神什么的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29065#       发表于 2021-1-11 20:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/200219b6rfznfj6wlo2foo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210111195920.jpg</strong> (64.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 20:02 上传
+
+
+
+
+
+   <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29066#       发表于 2021-1-11 20:19
+
+
+
+
+wtm今天哭几次了？
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 29067#       发表于 2021-1-11 20:23
+
+
+
+
+鲨皇都要抄浏览器营业的活了吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29068#       发表于 2021-1-11 20:28
+
+
+
+
+所谓浏览器营业显然是假图，源头在4ch，不会真有人信了吧，谷歌账号头像都不一样
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 29069#       发表于 2021-1-11 20:35
+
+
+
+
+好吧，去4chan看了眼居然都给en每个人分楼了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29070#       发表于 2021-1-11 20:37
+
+
+
+
+草，大米这老爹打进二阶段，又叫用心棒一个全财产斩魔刀秒了，ガチャなんてなかった<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29071#       发表于 2021-1-11 20:45
+
+
+
+
+打的一片混乱
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29072#       发表于 2021-1-11 20:49
+
+
+
+
+4w人看夸一个人玩单机什么鬼
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29073#       发表于 2021-1-11 20:51
+
+
+
+
+甚么？这之后有星咏者crewbo5看？意外之喜的道路！
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 29074#       发表于 2021-1-11 20:53
+
+
+
+
+星街？？藏得也太深了吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29075#       发表于 2021-1-11 20:54
+
+
+
+
+大亏完美复刻狐皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29076#       发表于 2021-1-11 20:54
+
+
+
+
+没有想到是星街断了亏哥的连冠之路
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 29077#       发表于 2021-1-11 20:55
+
+
+
+
+再说一次 船长剧本太完美了吧 2次第4把的图
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 29078#       发表于 2021-1-11 20:55
+
+
+
+
+完了 再也黑不了狐狸了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29079#       发表于 2021-1-11 20:56
+
+
+
+
+这哭了又要一波人梁木拉满了吧
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29080#       发表于 2021-1-11 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">她哭的好伤心 我破防了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29081#       发表于 2021-1-11 20:57
+
+
+
+
+夸夸这哭的我心都碎了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 29082#       发表于 2021-1-11 20:58
+
+
+
+
+今年都拜读了免费的大作学会哭了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 29083#       发表于 2021-1-11 21:00
+
+
+
+
+哭，都可以哭。
+
+谁也别笑谁。
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 29084#       发表于 2021-1-11 21:01
+
+
+
+
+没有了，再也没有真正的Gamer了
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29085#       发表于 2021-1-11 21:01
+
+
+
+
+但是亏哥这直播间怎么都是黄的和绿的阿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+红的去哪了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29086#       发表于 2021-1-11 21:01
+
+
+
+
+meanwhile in the groupchat......
+
+
+
+
+
+
+
+捕获.PNG
+(570.17 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-11 21:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/210125civ5ulf5qppnq78i.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29087#       发表于 2021-1-11 21:02
+
+
+
+
+请填空：如果按照我们一般人的想法，公司举办的游戏比赛输了，对方还是全公司公认的第一高玩，这没什么好哭的吧。不过（）皇这一哭，把一切的流量都引到了自己身上，从绿帽坛到贴吧到铁勺群，无不在热烈讨论（）皇哭，而第一名的（）反而无人在意了。这次比赛，最彰显了自己游戏水平的是昨晚苦练通宵熟悉地图的（），出力最大的是费力做了PV，联系选手的主催（），不过她们在这次活动中收获的“流量”加起来怕是也比不了（）皇。（）皇这一哭不光收获了无数流量，还为自己添加了“对待比赛认真不服输”“忙于社务耽误了精进游戏水平”等等光环，相比之下，本格游戏玩家（）苦练通宵得个冠军有什么用呢？
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|好评加鹅|
+| UnhappyTails| + 1|**有赏！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29088#       发表于 2021-1-11 21:02
+
+
+
+
+杏今天哭了四个，夸，星街，阿希，wtm。
+话说如果代入crew的话还挺能理解为什么变得那么毒唯的，哭的那么伤心，哭了那么久，然后一开连线，其他大家庭的人高兴的声音就传出来了，如果是crew的话自然而然就会对大家庭产生梁木的吧。不过你要说有人做错什么吗，好像也没有吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29089#       发表于 2021-1-11 21:02
+
+
+
+
+https://nico.ms/sm38031659
+
+该模仿去星街评论栏刷了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29090#       发表于 2021-1-11 21:04
+
+
+
+ 本帖最后由 admentus 于 2021-1-11 21:07 编辑 
+
+维持“存在感”的最好例子，可以看前几天的holo马车杯，第二名的夸夸，真情实感的哭起来，搞到第一名的星街也跟着哭。如果按照我们一般人的想法，公司举办的游戏比赛输了，对方还是全公司公认的第一高玩，这没什么好哭的吧。不过夸夸这一哭，把一切的流量都引到了自己身上，从爱撕衣到5ch，无不在热烈讨论夸夸哭，而第一名的六边神反而无人在意了。这次比赛，最彰显了自己游戏水平的是苦练熟悉地图的星街，出力最大的是准备了赛事，联系选手的主催towa，不过她们在这次活动中收获的“流量”加起来怕是也比不了夸夸。夸神这一哭不光收获了无数流量，还为自己添加了“对待比赛认真不服输”“忙于社务耽误了精进游戏水平”等等光环，相比之下，本格游戏玩家星街苦练得个冠军有什么用呢？
+
+
+
+完成楼上的填空，不代表个人看法
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+| Map-2| + 1||
+| davidxxy| + 2|嘻嘻|
+| UnhappyTails| + 1|急了？|
+| 星の守|-1|思路广|
+| Maonpuyo|-1|欢乐多|
+| nowaki| + 1|虽不喜欢，但是回血|
+| OldGlory| + 1|这有啥可扣的|
+| fangjun96|-1|真欢乐 嘻嘻|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 29091#       发表于 2021-1-11 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年你把我打哭，今年我就把你打哭
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29092#       发表于 2021-1-11 21:05
+
+
+
+
+
+维持“存在感”的最好例子，可以看前几天的holo马车杯，第二名的夸夸，真情实感的哭起来，搞到第一名的星街也跟着哭。如果按照我们一般人的想法，公司举办的游戏比赛输了，对方还是全公司公认的第一高玩，这没什么好哭的吧。不过夸夸这一哭，把一切的流量都引到了自己身上，从爱撕衣到5ch，无不在热烈讨论夸夸哭，而第一名的六边反而无人在意了。这次比赛，最彰显了自己游戏水平的是苦练熟悉地图的星街，出力最大的是准备了赛事，联系选手的主催towa，不过她们在这次活动中收获的“流量”加起来怕是也比不了夸夸。夸神这一哭不光收获了无数流量，还为自己添加了“对待比赛认真不服输”“忙于社务耽误了精进游戏水平”等等光环，相比之下，本格游戏玩家星街苦练得个冠军有什么用呢？
+
+
+我是亏哥真爱crew好吧，我只是觉得admentus这话说的挺有意思的，能写出这样文字的人，实在是妙人啊！<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 29093#       发表于 2021-1-11 21:05
+
+
+
+
+这下免费该怎么黑白姨了
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 29094#       发表于 2021-1-11 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">第一名？看都不看，并没有特指彩虹麻将，还是木口马车
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 29095#       发表于 2021-1-11 21:07
+
+
+
+
+不得不说，写出这种傻逼文被反噬真的活该，也是夸倒霉遇上这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29096#       发表于 2021-1-11 21:08
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-1-11 21:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50004821&amp;ptid=1969498" target="_blank">冰寒之月 发表于 2021-1-11 21:05</a>
+
+这下免费该怎么黑白姨了</blockquote>
+没有的事，接下来该黑屁endolu德不配位了
+
+
+正好联动免指导在某论坛的超强人望，配上心碎跟风前星咏小鬼，简直就是天造的一对，地设的一双
+
+
+扒皮十八流征选落选者endolu的大字报已经在路上了！想想就有精神！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+《啊！歌势！》
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 29097#       发表于 2021-1-11 21:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不评价，嘻嘻
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|我对夸没啥坏想法，纯粹是免费写的东西放这.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 29098#       发表于 2021-1-11 21:09
+
+
+
+ 本帖最后由 Maonpuyo 于 2021-1-11 21:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">等一下，towa你怎么就切了，都不给阿夸复刻去年的机会啊，第二名连在大家庭面前哭的权力都没了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 29099#       发表于 2021-1-11 21:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/211053fuxvbtkvx7kzs5xw.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210111211027.png</strong> (20.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 21:10 上传
+
+
+
+
+
+
+代传，不代表本人意见。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29100#       发表于 2021-1-11 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50004862&amp;ptid=1969498" target="_blank">fangjun96 发表于 2021-1-11 21:09</a>
+
+不评价，嘻嘻</blockquote>
+我对夸没啥想法，纯粹是免费写的东西放这太有趣太合适了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|冷静下来确实很有趣，如果你不说是免费写的.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29101#       发表于 2021-1-11 21:12
+
+
+
+ 本帖最后由 pansherry 于 2021-1-11 21:33 编辑 
+
+安洁的NTR本十选<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+“いいですね”
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 29102#       发表于 2021-1-11 21:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/211809jgri2v2klvpjhicm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210111211559.png</strong> (35.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 21:18 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 29103#       发表于 2021-1-11 21:19
+
+
+
+
+安洁的ntr本确实好冲
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 29104#       发表于 2021-1-11 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50004798&amp;ptid=1969498" target="_blank">admentus 发表于 2021-1-11 21:04</a>
+
+维持“存在感”的最好例子，可以看前几天的holo马车杯，第二名的夸夸，真情实感的哭起来，搞到第一名的星街 ...</blockquote>
+所以努力鼓起笑容给冠军送上祝贺然后闭麦哭的夸宝凭啥要吃你这贷款黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29105#       发表于 2021-1-11 21:22
+
+
+
+ 本帖最后由 pansherry 于 2021-1-11 21:29 编辑 
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gmk2mo8uowj20ra0fiqhg.jpg" referrerpolicy="no-referrer">
+
+
+后面还有PICKUP介绍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29106#       发表于 2021-1-11 21:22
+
+
+
+
+你们说是免费的定型文，有截图或者给个链接吗？？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29107#       发表于 2021-1-11 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005002&amp;ptid=1969498" target="_blank">面具13 发表于 2021-1-11 21:22</a>
+
+所以努力鼓起笑容给冠军送上祝贺然后闭麦哭的夸宝凭啥要吃你这贷款黑屁 ...</blockquote>
+夸夸又看不到爱撕衣发的啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+可是楼友能看免费啥反应<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 29108#       发表于 2021-1-11 21:24
+
+
+
+
+虽然但是，我觉得大亏哭的很真，狐狸哭的很ooc（指烟头性癖）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 29109#       发表于 2021-1-11 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50004889&amp;ptid=1969498" target="_blank">admentus 发表于 2021-1-11 21:11</a>
+
+我对夸没啥想法，纯粹是免费写的东西放这太有趣太合适了</blockquote>
+你钓free我不反对，但你拿贷款黑屁开夸，有趣到令人感觉很弱智<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29110#       发表于 2021-1-11 21:27
+
+
+
+
+觉得是贷款黑屁的crew可以做一下我那个填空<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29111#       发表于 2021-1-11 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我来教你free怎么回复你们
+
+
+“***在你***哭，***！”
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29112#       发表于 2021-1-11 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005045&amp;ptid=1969498" target="_blank">fangjun96 发表于 2021-1-11 21:26</a>
+
+你钓free我不反对，但你拿贷款黑屁开夸，有趣到令人感觉很弱智</blockquote>
+准你crew拉踩？不准人黑回来？
+
+
+我来教教你，这就叫孽力回馈
+
+
+楼上crew只敢扣鹅毫无办法的样子真素好孝惹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29113#       发表于 2021-1-11 21:31
+
+
+
+
+说句公道话，这里用一手奥卡姆剃刀
+
+
+免指导核心思想是什么？
+
+
+第一名没哭，你一个lgd在这哭你马呢，哭就是蹭
+
+
+好，我们复习一下今天的剧情
+
+
+第一名星街还没哭，大亏一个lgd在这里哭你马呢
+
+
+结论是啥，留给楼里的各位crew共同分析<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29114#       发表于 2021-1-11 21:32
+
+
+
+
+一个谁都不看的隔着引啥战呢
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29115#       发表于 2021-1-11 21:32
+
+
+
+<img src="https://tva3.sinaimg.cn/large/771ca9d1gy1gmk2wn2mkyj20r90fegya.jpg" referrerpolicy="no-referrer">
+
+
+“Hです”
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 29116#       发表于 2021-1-11 21:32
+
+
+
+
+杏的大会效果没有，数字也没有，团建更没有，新的不仲却有了，蛮厉害的
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29117#       发表于 2021-1-11 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005091&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-11 21:32</a>
+
+一个谁都不看的隔着引啥战呢</blockquote>
+攻击发言者的身份是辩论技巧中的下中下了
+
+
+你就说我说的那句话是胡编的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29118#       发表于 2021-1-11 21:34
+
+
+
+ 本帖最后由 NBXX 于 2021-1-11 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005008&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2021-1-11 21:22</a>
+
+你们说是免费的定型文，有截图或者给个链接吗？？</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 857164&amp;pid=45533030](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1857164&amp;pid=45533030)
+<img src="https://static01.imgkr.com/temp/0403ad77a8174c4aa7f73db0462830c9.png" referrerpolicy="no-referrer">
+
+把这里的[专楼备份](https://gitee.com/TomoeMami/S1PlainTextBackup)下载下来了，需要的时候用ripgrep做个快速搜索。
+
+最近打算把什么 半年论 阳光虹人 之类的楼友原创梗出处总结下，申请非遗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|草生|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 29119#       发表于 2021-1-11 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么跟的好像第一次认识尾导一样
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 29120#       发表于 2021-1-11 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005082&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-1-11 21:31</a>
+
+说句公道话，这里用一手奥卡姆剃刀
+
+
+免指导核心思想是什么？</blockquote>
+星姐好像也哭了，我这是云的消息，而你连云都没云，在那里张口就来，实在过于低级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29121#       发表于 2021-1-11 21:36
+
+
+
+
+论坛吹水谁给你辩论 我不爽就跳刀杀你马 有裁判判我离场吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29122#       发表于 2021-1-11 21:36
+
+
+
+
+狐皇笑哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29123#       发表于 2021-1-11 21:37
+
+
+
+
+怎么真有人上尾宝的档的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，
+
+巨魔终于钓到鱼了草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29124#       发表于 2021-1-11 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狐皇差不多得了，比赛的时候你不开播，比赛完了你开播了，还边笑边哭边苦呀洗，你差不多得了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29125#       发表于 2021-1-11 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005082&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-1-11 21:31</a>
+
+说句公道话，这里用一手奥卡姆剃刀
+
+
+免指导核心思想是什么？</blockquote>
+免费写的傻逼文别扩大到“楼里的各位crew”
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 29126#       发表于 2021-1-11 21:39
+
+
+
+
+狐皇你干的好啊，干得好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毒蛇王维诺米隆  
+##### 29127#       发表于 2021-1-11 21:40
+
+
+
+
+狐皇差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 29128#       发表于 2021-1-11 21:40
+
+
+
+
+所以姜还是老的辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">顺便夸宝认赌服输挺好的，电子竞技这东西可没这么简单
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29129#       发表于 2021-1-11 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005149&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-1-11 21:37</a>
+
+狐皇差不多得了，比赛的时候你不开播，比赛完了你开播了，还边笑边哭边苦呀洗，你差不多得了。
+
+
+— ...</blockquote>
+有一说一，去年这么搞就没那事了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29130#       发表于 2021-1-11 21:41
+
+
+
+<img src="https://tvax1.sinaimg.cn/large/771ca9d1gy1gmk35p3lc0j20r70f7qg2.jpg" referrerpolicy="no-referrer">
+
+
+第一个确实满色的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 29131#       发表于 2021-1-11 21:41
+
+
+
+
+把安洁推荐的十本ntr本快速看完了，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望每年成年礼安洁都能推荐本子
+
+
+
+
+
+
+
+-----
+
+####  mumulyn  
+##### 29132#       发表于 2021-1-11 21:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">问题不是没在颁奖台哭吗
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29133#       发表于 2021-1-11 21:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005122&amp;ptid=1969498" target="_blank">星の守 发表于 2021-1-11 21:34</a>
+
+星姐好像也哭了，我这是云的消息，而你连云都没云，在那里张口就来，实在过于低级 ...</blockquote>
+意思第一届后来亏哥没哭呗
+
+
+星街人可是上了领奖台才嬉しいの涙的
+
+
+您亏跟狐皇当年区别无非就是闭了麦呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29134#       发表于 2021-1-11 21:45
+
+
+
+
+万智牌在日本这么火的吗，社这抽卡直播这么多人看
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29135#       发表于 2021-1-11 21:48
+
+
+
+<img src="https://tva1.sinaimg.cn/large/771ca9d1gy1gmk3d8ltpgj20r40f6na1.jpg" referrerpolicy="no-referrer">
+
+
+嗯。。。你开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29136#       发表于 2021-1-11 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005233&amp;ptid=1969498" target="_blank">Aminor 发表于 2021-1-11 21:45</a>
+
+万智牌在日本这么火的吗，社这抽卡直播这么多人看</blockquote>
+一百万日元的福袋，谁不喜欢看呢
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29137#       发表于 2021-1-11 21:50
+
+
+
+
+差不多得了，现在免费已经加冕隔壁的皇了收了一大群小弟，还有空理你们吗？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29138#       发表于 2021-1-11 21:51
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-1-11 21:52 编辑 
+
+至于骂我巨魔的，看看最开始我针对的是谁，是给野兔宝扣鹅的crew们，别一顶巨魔的帽子扣上就转进了，这一套在s1真没绿帽谭好使呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+你们crew贷款黑狐皇发散80小作文黑料那么多年，而且在绿帽谭天天发散到其他成员身上，唯一的真凭实据是什么呢？不就是狐皇那一哭？
+
+
+现在我们把免费这个当年的扩大化的神论拉出来鞭，你们倒知道切割了？早干嘛去了？早怎么没见你们跑出来说免费是免费crew是crew呢？
+
+
+你们心里哪怕要有一丝丝地挨打站直之心，都不会扣鹅的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 29139#       发表于 2021-1-11 21:52
+
+
+
+ 本帖最后由 狐言乱语 于 2021-1-11 21:54 编辑 
+
+狐皇也太恶心了吧，两次马车杯明显都针对夸宝。
+
+
+孩子都哭的那么伤心了，你们忍心车吗？还有没有一点同情心了？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29140#       发表于 2021-1-11 21:54
+
+
+
+ 本帖最后由 admentus 于 2021-1-11 21:57 编辑 
+
+尾宝也别我们你们了，几个楼友定型文填空也就是乐一乐免费拿出来好几次v5v6v10都引用过的文章，巨魔意义上实在太有趣了，没必要拿免费当靶劈别人
+
+没劈crew和夸的想法，夸这次玩得也挺好的
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29141#       发表于 2021-1-11 21:54
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29142#       发表于 2021-1-11 21:55
+
+
+
+<img src="https://tva3.sinaimg.cn/large/771ca9d1gy1gmk3kt1y2uj20r60f4qfb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 29143#       发表于 2021-1-11 21:57
+
+
+
+
+草，这件事怎么样，和你尾巴是个连云都懒得云就急着出来放屁的傻逼，有什么冲突么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| UnhappyTails| + 1|骂得好！希望不要ky污染版面！.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29144#       发表于 2021-1-11 21:58
+
+
+
+
+男子前列腺花开<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29145#       发表于 2021-1-11 22:02
+
+
+
+<img src="https://tva2.sinaimg.cn/large/771ca9d1gy1gmk3smvuyqj20r40feqf6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 29146#       发表于 2021-1-11 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">雌吹好啊 我永远喜欢8man老师
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29147#       发表于 2021-1-11 22:04
+
+
+
+
+巨魔钓鱼 我咬钩了我输了 呜呜呜 要被截图传播到各个群了
+
+
+
+
+
+                            

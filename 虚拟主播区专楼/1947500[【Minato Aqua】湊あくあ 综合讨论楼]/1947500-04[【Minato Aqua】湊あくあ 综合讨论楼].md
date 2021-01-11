@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 11:53** 
+> ## **本文件最后更新于2021-01-11 14:01** 
 
 
 
@@ -4551,4 +4551,1029 @@ KSNB
 
 
 
-                                         
+
+
+-----
+
+####  乌鸦绅士  
+##### 4743#       发表于 2021-1-11 20:03
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-11 20:09 编辑 
+
+怕了怕了，要被集火了<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4744#       发表于 2021-1-11 20:06
+
+
+
+ 本帖最后由 面具13 于 2021-1-11 20:09 编辑 
+
+夸宝：我已经做好了被集火的准备了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一进discord发现别人再开湊あくあ对策会议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4745#       发表于 2021-1-11 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今日地图就叫落夸坡
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4746#       发表于 2021-1-11 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4747#       发表于 2021-1-11 20:12
+
+
+
+ 本帖最后由 面具13 于 2021-1-11 20:31 编辑 
+
+夸宝：仲良くしよ！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+等会儿比赛过程中电脑卡一下就神作了。
+
+
+赛后可以统计一下龟壳数中弹情况。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4748#       发表于 2021-1-11 20:37
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-11 20:41 编辑 
+
+能有2次第一就差不多稳了 加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer"> 先下一城！
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4749#       发表于 2021-1-11 20:41
+
+
+
+
+运气好啊，蓝龟壳来的时候抽到喇叭
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4750#       发表于 2021-1-11 20:42
+
+
+
+
+腹 部 奇（咬牙）
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4751#       发表于 2021-1-11 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4752#       发表于 2021-1-11 20:44
+
+
+
+ 本帖最后由 黑耀星尘 于 2021-1-11 20:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">KSNB
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4753#       发表于 2021-1-11 20:48
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-11 20:53 编辑 
+
+nice!决胜局了
+
+GG！
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 4754#       发表于 2021-1-11 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">不对劲不对劲
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4755#       发表于 2021-1-11 20:49
+
+
+
+
+星街不失误就没了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">阿库虐要来了，要来了哦
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4756#       发表于 2021-1-11 20:50
+
+
+
+
+这盘没了 纯运气图
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4757#       发表于 2021-1-11 20:51
+
+
+
+
+1点差
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 4758#       发表于 2021-1-11 20:52
+
+
+
+
+夸夸尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4759#       发表于 2021-1-11 20:52
+
+
+
+
+1分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来正戏可以出节目效果啊，夸宝该哭了
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4760#       发表于 2021-1-11 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">草少一分 哭了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 4761#       发表于 2021-1-11 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没啥能拉差距地方，没办法
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4762#       发表于 2021-1-11 20:53
+
+
+
+
+第二局的道具太差了 中段拿太阳花太要命了 操作也变形了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4763#       发表于 2021-1-11 20:53
+
+
+
+
+果然哭得很厉害啊
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4764#       发表于 2021-1-11 20:54
+
+
+
+
+夸宝也要哭哭领奖吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 4765#       发表于 2021-1-11 20:54
+
+
+
+
+她哭的好厉害<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4766#       发表于 2021-1-11 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4767#       发表于 2021-1-11 20:55
+
+
+
+
+流鼻血了还
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4768#       发表于 2021-1-11 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4769#       发表于 2021-1-11 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4770#       发表于 2021-1-11 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为了今天练了多久啊，一分之差输了还有运气成分可不得伤心
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4771#       发表于 2021-1-11 20:56
+
+
+
+
+这也没得办法呀 彗星确实太稳了……
+
+唉
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4772#       发表于 2021-1-11 20:57
+
+
+
+
+好好哭一哭也好，发散一下压力
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4773#       发表于 2021-1-11 20:57
+
+
+
+
+没想到一场团建能在夸宝频道里留下比尼尔结局更长的哭鼻子
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是，抽鼻子抽出鼻血又是怎样
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4774#       发表于 2021-1-11 20:59
+
+
+
+
+最后那把，赌的那次，最后半圈的龟壳，还有最后终点那次被狐坦撞的那下，没有一个都赢了，哎只能说时也命也
+哭一下也好
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4775#       发表于 2021-1-11 20:59
+
+
+
+
+要是第三盘再失误吗，或者第四盘被拉个十多分就好了 这1分确实太可惜了，怎么想都是自己第二盘的错
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 4776#       发表于 2021-1-11 21:00
+
+
+
+
+对面给机会了，自己没把握住也没办法
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4777#       发表于 2021-1-11 21:00
+
+
+
+
+可以让夸宝开个房自己跑，这样就不会被打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4778#       发表于 2021-1-11 21:01
+
+
+
+
+到了强颜欢笑time了。
+
+
+
+
+
+
+
+-----
+
+####  笔仁SaSaSa  
+##### 4779#       发表于 2021-1-11 21:02
+
+
+
+
+虚拟扎小人，sui酱胜之不武！
+
+<img src="https://img.saraba1st.com/forum/202101/11/210149y51eogc1ectabsys.png" referrerpolicy="no-referrer">
+
+
+<strong>F}S2ULV8N~2HWKLV_S(S3TM.png</strong> (20.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 21:01 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/210156m5a0reako5aa0eet.png" referrerpolicy="no-referrer">
+
+
+<strong>1]ZUPB7OSHC[F2{4LK_R8]U.png</strong> (3.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 21:01 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4780#       发表于 2021-1-11 21:02
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  LightersFAN  
+##### 4781#       发表于 2021-1-11 21:04
+
+
+
+
+心疼夸宝<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4782#       发表于 2021-1-11 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4783#       发表于 2021-1-11 21:07
+
+
+
+
+星街方块斩咩，赛车斩夸
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 4784#       发表于 2021-1-11 21:08
+
+
+
+ 本帖最后由 deadinside666 于 2021-1-11 21:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">哭的好。小姑娘就应该多哭哭，争取给自己的脑子里的花田脱脱水。
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">提前半个月就自己把自己架得下不来台。还直球点草社会人中年女领导，惹得人一直给你下绊子。这下努力半个月同接也无了，冠军也无了，还给自己丢了个大人。
+好好反省吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">年轻人。
+p.s海蓝宝石szd
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4785#       发表于 2021-1-11 21:09
+
+
+
+
+❤️❤️❤️❤️❤️❤️❤️
+谁告诉我，评论栏这是bot大军吗
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 4786#       发表于 2021-1-11 21:12
+
+
+
+
+小丑竟是我自己系列
+
+
+
+
+
+
+
+-----
+
+####  LightersFAN  
+##### 4787#       发表于 2021-1-11 21:13
+
+
+
+
+谢谢你夸宝，あく虐光速觉醒中<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 4788#       发表于 2021-1-11 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">crew可不是什么会心疼人的粉丝群体（会心疼的都让内鬼出警打死了）。
+盲猜一下夸宝这次要掉多少爹味冠军粉丝。
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">塔诺西
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4789#       发表于 2021-1-11 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">面具戴上不许哭，上播还是大家庭
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4790#       发表于 2021-1-11 21:19
+
+
+
+
+我现在最想复盘不是第二局，而是最后一盘这地图谁选的。当时我看到选中一瞬间心都凉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4791#       发表于 2021-1-11 21:19
+
+
+
+
+好
+是我的夸宝
+好
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 4792#       发表于 2021-1-11 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不错不错。挺有风度。
+
+
+
+
+
+
+
+-----
+
+####  月下红魔  
+##### 4793#       发表于 2021-1-11 21:20
+
+
+
+
+调整的这么快我是挺心疼的⊙﹏⊙
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4794#       发表于 2021-1-11 21:22
+
+
+
+
+我的2020结束了
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4795#       发表于 2021-1-11 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下播以后肯定又要大哭一场
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4796#       发表于 2021-1-11 21:25
+
+
+
+
+嘛，最近压力挺大的，发泄一下也挺好
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4797#       发表于 2021-1-11 21:26
+
+
+
+
+等等，那……我的……歌回呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 4798#       发表于 2021-1-11 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">压力一直都没小过。指望马车杯给自己回san值的希望落空了。好奇夸宝接下来要怎么办。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">21岁了。该长大了。
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4799#       发表于 2021-1-11 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">草忘了还有歌回这回事，彗星。。还是狐狸来着我鲨了你
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 4800#       发表于 2021-1-11 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4801#       发表于 2021-1-11 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">冠军不冠军粉的，第二盘跑的那么烂最后都能跟第一名差一分，我反正已经很满意了
+
+虽然确确实实看那1分有点不爽，要是她操作没失误就好了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4802#       发表于 2021-1-11 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">最后一盘复盘了下 真的是运气极差，无近路，连续的诡异的龟壳，终点前的碰撞，天要亡你啊
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4803#       发表于 2021-1-11 21:57
+
+
+
+
+最后一盘他不是运气不运气的问题
+
+这地图是我最喜欢的
+
+因为一堆人互相炸拉不开，他跟别的地图要点操作的完全不同
+
+最后就算是这个运气不差，也会在别的地方运气差的，哪怕是倒数第一我都没什么意外，所以夸要是懊悔还是懊悔自己第二盘吧
+
+
+
+
+
+                                       
