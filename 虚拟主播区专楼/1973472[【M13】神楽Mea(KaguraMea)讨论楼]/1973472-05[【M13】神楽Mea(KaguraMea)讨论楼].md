@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 06:06** 
+> ## **本文件最后更新于2021-01-11 11:56** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_BLX65" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_GJ8FF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21781,7 +21781,7 @@ syl，没记错
 
 
 
-<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_OWOi8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_HY22w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_b6SsW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_Fe61M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_U5O4g" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_e1iiv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_UVkVa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_utkfu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -23822,10 +23822,11 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Eutopia| + 1|欢乐多|
 | Mr.shelter| + 1|思路广|
 
 
@@ -23889,4 +23890,467 @@ BGM：请校准时钟
 
 
 
-     
+
+
+-----
+
+####  A2014720  
+##### 7327#       发表于 2021-1-11 14:32
+
+
+
+
+first time?.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7328#       发表于 2021-1-11 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50000541&amp;ptid=1973472" target="_blank">LIPP 发表于 2021-1-11 13:30</a>
+
+原来冲蝗军不是勃艮第政体吗 就是黑太阳不太灵</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是大祭司
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7329#       发表于 2021-1-11 15:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+-はじめまして
+
+-久しぶりだね
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 7330#       发表于 2021-1-11 15:55
+
+
+
+
+BLS这个周边质量真的一言难尽 权当上供了 
+
+
+徽章0质感 印刷质量一般 战衣薄得像纸 钱包放个驾驶证都勉强
+
+
+下次真的会让人考虑买不买
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7331#       发表于 2021-1-11 16:00
+
+
+
+
+毒唯线是和神圣bs帝国线冲突的
+
+国策: 尊皇讨奸
+
+效果: 执政党变更为毒唯党 若国策完成时毒唯党支持率低于50% 则毒唯党会发动一场内战
+
+          获得民族精神 女王万岁
+
+               效果: 生产力+50 单位攻击+50 战争不会增加厌战度
+
+          领导人神乐mea获得特质 受欢迎的傀儡 凝聚力+5%
+
+          世界紧张度+50
+
+国策: 只有一个屑女仆
+
+          移除政党: 贴贴人 若国策完成时贴贴人支持率大于30%则贴贴人会发动一场内战
+
+          解锁特殊间谍任务:
+
+              支持大家庭粉
+
+              引导本土夸anti
+
+              宣传称号sixxto aqua
+
+              散播谣言:凑阿库娅与冲蝗军合作
+
+              散播谣言:凑阿库娅暗中黑屁同事
+
+              散播谣言:凑阿库娅的四个男友
+
+            完成所有间谍任务后 凑阿库娅将被移出猴楼帝国内阁
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7332#       发表于 2021-1-11 16:06
+
+
+
+
+钱包用来放硬币了，别的不知道还能放啥
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7333#       发表于 2021-1-11 16:07
+
+
+
+
+还是打sl吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 7334#       发表于 2021-1-11 16:20
+
+
+
+
+咩咩今天会参加成人礼吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还是说明年满20岁才参加
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7335#       发表于 2021-1-11 16:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">都取消了，而且就她这样就算没取消也不会去的罢
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7336#       发表于 2021-1-11 16:39
+
+
+
+
+不去就不去吧，但可以来个穿着和服的直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7337#       发表于 2021-1-11 16:50
+
+
+
+
+221开播必sc厄介，小麻给我个机会<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7338#       发表于 2021-1-11 17:13
+
+
+
+
+她这辈子都没在那天播过，这次必然更不会例外（奶
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7339#       发表于 2021-1-11 17:34
+
+
+
+
+又到了每年的这个时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7340#       发表于 2021-1-11 17:46
+
+
+
+
+今年是大姑娘了，再也不是那个小屁孩儿了，我的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7341#       发表于 2021-1-11 17:55
+
+
+
+
+今年就要从小姑娘成长为女人了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7342#       发表于 2021-1-11 17:57
+
+
+
+
+多亏xx今天成为大人了（
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7343#       发表于 2021-1-11 18:11
+
+
+
+
+以后只有麻姨了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7344#       发表于 2021-1-11 18:18
+
+
+
+
+麻 麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7345#       发表于 2021-1-11 18:21
+
+
+
+
+年轻的麻。。。一去不复返了。
+变成大人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7346#       发表于 2021-1-11 18:23
+
+
+
+
+我寻思今天不仅不是221，连121都不是，怎么突然感慨这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7347#       发表于 2021-1-11 18:24
+
+
+
+
+青涩的果实成熟了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7348#       发表于 2021-1-11 18:28
+
+
+
+
+从死小鬼变成sb幕刃力，不爱了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7349#       发表于 2021-1-11 18:52
+
+
+
+
+追いつけないまま大人になって
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7350#       发表于 2021-1-11 18:54
+
+
+
+
+还是小屁孩好啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7351#       发表于 2021-1-11 19:20
+
+
+
+
+大人になれば寂しさも忘れていけるの？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7352#       发表于 2021-1-11 19:54
+
+
+
+
+今天会播是指中午的突击联动吗？
+
+
+
+
+
+    

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 06:39** 
+> ## **本文件最后更新于2021-01-11 11:53** 
 
 
 
@@ -4071,4 +4071,484 @@ apex又freeeze了，这次会弄了。
 
 
 
-                                          
+
+
+-----
+
+####  面具13  
+##### 4717#       发表于 2021-1-10 16:27
+
+
+
+
+youtube评论区某个老哥关于其他holo member马车技术的对比分析，虽然我不懂马车，但感觉有一定道理<blockquote>Subaru is... alright. Her drift is fine, and her item use is fine enough. She does take shortcuts, but she doesn't take any advanced or massive skip shortcuts (think Rainbow Road skip, Mario Circuit Skip, etc). She also isn't super consistent with her shortcuts and sometimes just messes them up. Overall, C Rank. 
+
+
+Okayu knows shortcuts on some stages, and will do grass shortcuts, but won't do many gap jumps, skips, and sometimes falls off when she drifts. Her item use is also worse than Aqua's. Overall C+ Rank
+
+
+Luna is... hard to tell. She played against CPUs in her last stream, which anyone can beat, and seemed to do okay. She knows some shortcuts, but there's a lot she just doesn't do, even if they are very easy or obvious, and then other speed tricks that even decently skilled players don't do she knows. So her shortcuts are okay, but in a very odd sense. Most of all, she falls off a pretty decent amount, especially on stages like rainbow road. So I don't really have a rank for her, but I'm gonna have to say C- or D. 
+
+
+And Suisei is probably the next best after Aqua but not quite there. Her drift is very good and she is very skilled at the inside lane, but her item usage is worse, and while she can handle herself well, what really sets her back are the advanced shortcuts. She doesn't do any non-mushroom based skips unlike Aqua and doesn't do any super long skips, which will hurt on a lot of stages.
+
+
+Aqua is on a different level. For one, she uses the rear view camera the most and very well, which already is like the mark of a good player. Her item use is very good. I didn't realize what she was doing at first, and then I realized: She's holding onto items as long as possible for either a shortcut or right before she hits an item box in order to maximize her distance from her and first, which allows her to get better items because 8D is based on distance from 1st. She also has very good knowledge of when she needs mushrooms for shortcuts, knows not to use shells offensively when you are in a position to get hit by a shell (usually in the middle places where people get lots of triples), and knows how to use items with the rearview camera, giving her very good backwards item usage and super horn usage. And most importantly of all, she easily knows the most shortcuts and is most consistent with basically all of them. She knows skips even I didn't know were in the game. It's clear nobody is at her level right now.
+
+
+I feel like Fubuki is odd. Watching her recent MK videos (like with the Bakatare Trio), she's not very good. Watching her "Stream Ends When..." videos, but also, Fubuki is a wildcard. She could secretely be the best player and be hiding it. She seems to be good in theory, she has good drift, good shortcuts, and generally good understanding of the game, so we'll see.
+
+ Fubuki is the most likely to overtake Aqua (she also plays the most throughout the years with her rando Mario Kart streams), with maybe one of the other high skilled gamers like Botan also in the running, so who knows. I think Aqua by far has everyone beat in experience (she has the most points online by far, 9k while most have around 2-3k), but who knows. 
+
+
+I also don't think Fubuki wouldn't try super hard to win. She obviously would try her best to win, and does care about winning, but I feel like she isn't as competitive as a lot of the others. Fubuki is gonna be the one I root for (I mean, who wouldn't root for their friend to win), but she seems to be satisfied if anyone else wins and doesn't seem to be devoting too much time to it. I mean, she's playing it obviously, but she doesn't seem to be grinding it as much. I think the one grinding the most aside from Aqua is Matsuri, and she's so far behind in skill and experience (she got bottom 3 5/5 times in a row in her last unarchived stream) that she isn't a threat. She's the Hololive Ultimate Support, there to cheer on all her competition and try her best anyways. </blockquote>
+小粥实力我觉得比他的评价里的更好一点；Luna虽然在彩虹杯表现不突出，但是基本功还是高于holo平均值的，如果能更熟悉赛道和更多利用一些简单的捷径在holo内就算强的了。sui酱跟去年比进步最大，然后towa和sui酱实力应该差不多。pekora要播如龙0所以赛前练习可能不那么充分，之前练习了一些基础，学了点捷径，不过不够熟练，去年应该是第四，今年估计在差不多的位置。狐狸不知道是藏实力还是提前躺平，感觉不到求胜心，合同训练也不是很认真。
+
+盲猜正式比赛前三：夸宝，小粥，luna（爆冷）。
+
+
+夸宝感觉比去年强了，应该是苦练了基本功，所以线路选择可以更优化，不用那么求稳，加上漂移加速的灵活使用，并且临场能把练习的东西用上。寂静城市的捷径昨晚TA的时候，说是比较简单、安定，结果突然一直抓不准时机，一直失败，但是后面跑排位的时候用这个捷径确实都跳成功了。
+
+
+
+
+
+
+
+-----
+
+####  66367749  
+##### 4718#       发表于 2021-1-10 20:15
+
+
+
+
+粥还挺厉害的嘛
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4719#       发表于 2021-1-10 20:15
+
+
+
+
+激战<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4720#       发表于 2021-1-10 20:16
+
+
+
+
+感谢最后那个红龟壳
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4721#       发表于 2021-1-10 20:17
+
+
+
+
+原来夸宝组织这个是为了探敌情啊，看别人选什么图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一场，个人战，感觉放了点水，然后第一了。小粥，星姐，towa。
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 4722#       发表于 2021-1-10 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">除了夸可能都没人知道大炮前面的道具在距离计算上是有bug的，就这程度也别指望80kart了
+
+— from OPPO PDEM30, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4723#       发表于 2021-1-10 20:36
+
+
+
+
+夸宝你别跑那么快啊，这样没节目效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4724#       发表于 2021-1-10 20:43
+
+
+
+
+フブキちゃん落とした
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4725#       发表于 2021-1-10 20:59
+
+
+
+
+谁拔网线了（
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4726#       发表于 2021-1-10 21:15
+
+
+
+ 本帖最后由 Kanchiki 于 2021-1-10 21:19 编辑 
+
+感觉被集火的话还是挺悬的……
+
+会被小粥彗星闷声发大财啊
+
+SYL，开练习窗了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4727#       发表于 2021-1-10 22:47
+
+
+
+
+学哈恰玛真像啊 不过这3人一起太地狱太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4728#       发表于 2021-1-10 22:47
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-11 00:20 编辑 
+
+小粥和486真是hololive的宝啊 炒热气氛的神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+和小粥价值观很像     已经是好朋友间互相问最近喜欢什么的对话了，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4729#       发表于 2021-1-10 22:51
+
+
+
+ 本帖最后由 面具13 于 2021-1-11 00:32 编辑 
+
+夸宝巨魔了起来 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Luna的实力得到了三人的认可。
+
+
+刚才那个集中火力要是holo杯就太酷了。“你就待在此处，不要走动”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+今晚基本上就是考前放松了，也就个别地方不说话稍微练习一下。聊得超开心的。喜欢朱雀胜过鲁鲁修。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4730#       发表于 2021-1-11 00:30
+
+
+
+
+486好样的 多套点兴趣爱好出来
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4731#       发表于 2021-1-11 13:22
+
+
+
+ 本帖最后由 wwddrte 于 2021-1-11 16:01 编辑 
+
+这两天把b站上阿夸以前和mea玩mc的合集补了，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+感觉我有点像是核爆过后避难所里出生的人第一次踏上废土，地表只剩往日繁华的断壁残垣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4732#       发表于 2021-1-11 16:39
+
+
+
+
+不敢奶了，不管正奶还是反奶。要是没拿到第一估计会哭得很大声啊。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4733#       发表于 2021-1-11 18:06
+
+
+
+
+草，你这能紧张个屁啊，领先了快半圈<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4734#       发表于 2021-1-11 18:06
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-11 18:16 编辑 
+
+第一局很稳 领先快半圈<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+确定出线后语气都放松了  全胜出线<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4735#       发表于 2021-1-11 18:08
+
+
+
+
+场面话还是要说的
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4736#       发表于 2021-1-11 18:13
+
+
+
+
+加了这么多天班 今晚终于看夸了  不过没看别人马车，听说今年有很多强的，看样子今年悬了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 4737#       发表于 2021-1-11 18:15
+
+
+
+
+安定安定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2004J7AC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 4738#       发表于 2021-1-11 18:17
+
+
+
+
+你这是一点都不演了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 4739#       发表于 2021-1-11 18:21
+
+
+
+
+KSNB 
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4740#       发表于 2021-1-11 18:31
+
+
+
+
+小组赛还是看不出啥，等决赛看看谁会有惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4741#       发表于 2021-1-11 19:26
+
+
+
+
+无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4742#       发表于 2021-1-11 19:37
+
+
+
+
+为啥不开窗啊。在别人窗的语音里。
+
+
+船长：大家一起80あくたん吧，一起扔龟壳吧。
+
+
+稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+                                         

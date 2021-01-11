@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 04:13** 
+> ## **本文件最后更新于2021-01-11 12:17** 
 
 
 
@@ -223,7 +223,7 @@ Aile to Yell / TRINITYAiLE
 
 
 比较好奇的是推上这个人物好像不在10人内？
-<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_rn297" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_gAdm0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1584,4 +1584,196 @@ CG制作：ラークスエンタテインメント
 
 
 
-                                               
+
+
+-----
+
+####  chexk03  
+##### 82#       发表于 2021-1-11 13:26
+
+
+
+
+阴间偶像 太草
+10个人，要学虹咲一话一个人攻略么？这也太急，第一话是不是就是“我”的自我攻略了啊
+
+会继续看，希望第一支团live给力。
+
+
+
+
+
+
+
+-----
+
+####  chexk03  
+##### 83#       发表于 2021-1-11 13:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49996713&amp;ptid=1868192" target="_blank">最强惠酱 发表于 2021-1-11 01:32</a>
+相比幽灵更让我震惊的是一个20来岁的阿姨混在jk里演出</blockquote>
+这有现实根据吧，akb元A也是一堆jk jc塞进去一个20多岁的发传单妹（而且毕业后发展也是最好的几个人之一）
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 84#       发表于 2021-1-11 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50000548&amp;ptid=1868192" target="_blank">chexk03 发表于 2021-1-11 13:31</a>
+这有现实根据吧，akb元A也是一堆jk jc塞进去一个20多岁的发传单妹（而且毕业后发展也是最好的几个人之一 ...</blockquote>
+淦，还能这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通哈尼  
+##### 85#       发表于 2021-1-11 16:43
+
+
+
+
+我服了，又整阴间活
+
+
+
+
+
+
+
+-----
+
+####  Frady燕  
+##### 86#       发表于 2021-1-11 17:04
+
+
+
+
+麻奈定位应该跟爱马仕动画里的律子差不多，追了
+
+
+
+
+
+
+
+-----
+
+####  jianghaofan  
+##### 87#       发表于 2021-1-11 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50002540&amp;ptid=1868192" target="_blank">Frady燕 发表于 2021-1-11 17:04</a>
+
+麻奈定位应该跟爱马仕动画里的律子差不多，追了</blockquote>
+麻奈对应的是小鸟啊
+
+
+大龄过气偶像对应的是遥子吧
+
+
+
+
+
+
+
+-----
+
+####  Boliva  
+##### 88#       发表于 2021-1-11 17:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这是直接给你绑定了个老婆啊，可以安心养女儿了……
+
+
+
+
+
+
+
+-----
+
+####  伊布桑  
+##### 89#       发表于 2021-1-11 19:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49996713&amp;ptid=1868192" target="_blank">最强惠酱 发表于 2021-01-11 01:32:04</a>
+相比幽灵更让我震惊的是一个20来岁的阿姨混在jk里演出</blockquote>区区20来岁。
+隔壁灰姑娘的安部菜菜可是xx岁啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  伊布桑  
+##### 90#       发表于 2021-1-11 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49996854&amp;ptid=1868192" target="_blank">灼眼的夏娜酱 发表于 2021-01-11 02:15:28</a></blockquote>话说看这关系图，一堆人是围绕长濑麻奈展开的啊，这个幽灵戏份肯定多到爆。就是有点想不通这么重要的角色，一开始的live居然是ppt，真就只是跟着男主做个幕后就完了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 91#       发表于 2021-1-11 19:39
+
+
+
+<blockquote>伊布桑 发表于 2021-1-11 19:31
+话说看这关系图，一堆人是围绕长濑麻奈展开的啊，这个幽灵戏份肯定多到爆。就是有点想不通这么重要的角色， ...</blockquote>
+神田沙也加名气大 是被策划拉来客串制造话题的 这企划真正的目的是捧那10个新人 live作画的重点资源肯定在新人身上 
+
+
+
+
+
+
+
+-----
+
+####  oznark  
+##### 92#       发表于 2021-1-11 19:48
+
+
+
+
+我也想和幽灵偶像谈恋爱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                              
