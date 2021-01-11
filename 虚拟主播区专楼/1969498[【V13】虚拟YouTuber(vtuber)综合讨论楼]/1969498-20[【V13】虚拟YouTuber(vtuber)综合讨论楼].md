@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 14:05** 
+> ## **本文件最后更新于2021-01-11 14:56** 
 
 
 
@@ -10846,10 +10846,12 @@ meanwhile in the groupchat......
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 4战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 过不了审| + 1|骂人没必要啊|
+| Kanchiki|-1|傻逼|
 | Map-2| + 1|好评加鹅|
 | UnhappyTails| + 1|**有赏！|
 
@@ -10924,10 +10926,12 @@ https://nico.ms/sm38031659
 
 
 
- 参与人数 9战斗力 +4
+ 参与人数 11战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 过不了审| + 1|不要骂人|
+| Kanchiki|-1|傻逼|
 | 空集| + 1|欢乐多|
 | Map-2| + 1||
 | davidxxy| + 2|嘻嘻|
@@ -10976,6 +10980,26 @@ https://nico.ms/sm38031659
 
 我是亏哥真爱crew好吧，我只是觉得admentus这话说的挺有意思的，能写出这样文字的人，实在是妙人啊！<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|不要骂人|
+| Kanchiki|-1|傻逼|
+
+
+
+查看全部评分
 
 
 
@@ -11253,6 +11277,25 @@ https://nico.ms/sm38031659
 维持“存在感”的最好例子，可以看前几天的holo马车杯，第二名的夸夸，真情实感的哭起来，搞到第一名的星街 ...</blockquote>
 所以努力鼓起笑容给冠军送上祝贺然后闭麦哭的夸宝凭啥要吃你这贷款黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kanchiki| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -11761,6 +11804,25 @@ https://nico.ms/sm38031659
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|忘了提醒第二本正常人别用|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11930,6 +11992,25 @@ https://nico.ms/sm38031659
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|1贴号好评|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12057,7 +12138,9 @@ https://nico.ms/sm38031659
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">雌吹好啊 我永远喜欢8man老师
+ 本帖最后由 peh 于 2021-1-11 22:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">所以第三话什么时候出啊
 
 
 
@@ -12079,4 +12162,323 @@ https://nico.ms/sm38031659
 
 
 
-                            
+
+
+-----
+
+####  集合酱  
+##### 29148#       发表于 2021-1-11 22:08
+
+
+
+
+这雌吹把我看自闭了。。
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29149#       发表于 2021-1-11 22:09
+
+
+
+<img src="https://tva2.sinaimg.cn/large/771ca9d1gy1gmk3zd8kqcj20ra0fd7g3.jpg" referrerpolicy="no-referrer">
+
+
+“不是喜欢巨乳，只是最近喜欢的作品是巨乳罢了”
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29150#       发表于 2021-1-11 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005467&amp;ptid=1969498" target="_blank">pansherry 发表于 2021-1-11 22:09</a>
+
+“不是喜欢巨乳，只是最近喜欢的作品是巨乳罢了”</blockquote>
+这些都是寝取本吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29151#       发表于 2021-1-11 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005477&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-1-11 22:11</a>
+
+这些都是寝取本吗</blockquote>
+NTR本一开始推了10本，后面的我阅本资历不够<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29152#       发表于 2021-1-11 22:16
+
+
+
+
+听了下电音部最近放的曲，ptr的那首太ptr了，随到的时候一下子就反应过来了，
+制作人阵容方面虹女真挺好的，就是唱的还有点不太有角色感，
+港白金倒是各方面都好，想入一张<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29153#       发表于 2021-1-11 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005510&amp;ptid=1969498" target="_blank">pansherry 发表于 2021-1-11 22:13</a>
+NTR本一开始推了10本，后面的我阅本资历不够</blockquote>
+我还是要尽量减少寝取本摄入<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29154#       发表于 2021-1-11 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005543&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-1-11 22:17</a>
+
+我还是要尽量减少寝取本摄入</blockquote>
+这不是还是勉为其难推荐了5本纯爱么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29155#       发表于 2021-1-11 22:21
+
+
+
+
+观众：“安洁为什么那么喜欢NTR题材啊”
+
+安洁：“咦需。。。需要理由么。。。就是觉得很色啊”
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29156#       发表于 2021-1-11 22:24
+
+
+
+
+安洁品味真是还挺懂的，我对自己阅历足够自信都感觉还是也学习到了很多<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 29157#       发表于 2021-1-11 22:25
+
+
+
+
+事故物件那本是挺好看的，但是我觉得这作者后来画的那本教会CG更好用<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">另外BL（？）推的那本とても雑魚的，这作者原来是画おそ松さん的，导致我看这本的时候直接串戏
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 29158#       发表于 2021-1-11 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005477&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-1-11 22:11</a>
+这些都是寝取本吗</blockquote>
+其他我印象不深，昼寝基本是没牛头人的，像推荐的这本算纯爱的。不过他的作品强调画面冲击感<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 29159#       发表于 2021-1-11 22:37
+
+
+
+ 本帖最后由 nian1538 于 2021-1-11 22:38 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/223836y11bup34bwgz8hg3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>恭喜星街彗星2.jpg</strong> (274.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 22:38 上传
+
+
+
+
+
+
+请星街すいせい自觉将马车杯奖杯送回硬实力冠军湊あくあ家中
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OldGlory| + 2|欢乐多|
+| UnhappyTails| + 1|好p！恭喜星街！|
+| 过不了审| + 1|原来真的很忙|
+| admentus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 29160#       发表于 2021-1-11 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005250&amp;ptid=1969498" target="_blank">pansherry 发表于 2021-1-11 21:48</a>
+
+嗯。。。你开心就好</blockquote>
+只见过34的放流，3确实还挺色的而且是女装本
+
+4的作者脑洞非常之大人体非常之夸张，虽然我对夸张肢体如气球**完全不能接受但是因为画得够色而且雌堕够快约等于都是纯爱所以作为纯r本来说我个人评价很高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 29161#       发表于 2021-1-11 22:46
+
+
+
+
+真正的games–星姐，雪山狼人永远的神经病，v界俄罗斯方块的雨宫太阳，现在holo马车杯第一，tmd谁还能阻止的了（笑）
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29162#       发表于 2021-1-11 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005186&amp;ptid=1969498" target="_blank">pansherry 发表于 2021-1-11 21:41</a>
+第一个确实满色的</blockquote>
+刚看别人发了细看名字才想起来提醒你们别去看第二本，是真恐怖漫画，会吓阳痿那种
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29163#       发表于 2021-1-11 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005779&amp;ptid=1969498" target="_blank">离心 发表于 2021-1-11 22:46</a>
+
+真正的games–星姐，雪山狼人永远的神经病，v界俄罗斯方块的雨宫太阳，现在holo马车杯第一，tmd谁还能阻止 ...</blockquote>
+马车杯金牌的含金量 不是由夺得者决定的 必须要把金牌给配得上的人才能证明其含金量 不然也只是弄虚作假耍小聪明而已 星街彗星我知道 你有几分姿色 但你这些通过下三滥的手段获得的荣誉 只是在玷污马车杯的金牌而已 你若还有良知 我希望你把金牌还给他原本的主人 我想主人是谁 大家都知道 群众的眼睛是雪亮的 希望你不要一辈子活在虚伪的荣誉之中！
+
+
+
+
+
+                           
