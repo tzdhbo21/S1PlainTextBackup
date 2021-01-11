@@ -8,7 +8,7 @@ https://github.com/TomoeMami/S1PlainTextArchive
 ## 2020-01-08 增加GithubAction支持
 
 #### 触发方式
-- 每隔两小时自动执行
+- 每小时自动执行
 - 自定义：.github/workflows/S1.yaml 编辑
 
 #### 使用用法
