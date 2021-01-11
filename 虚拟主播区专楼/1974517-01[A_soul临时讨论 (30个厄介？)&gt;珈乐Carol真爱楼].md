@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 00:07** 
+> ## **本文件最后更新于2021-01-11 03:53** 
 
 
 
@@ -2136,7 +2136,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Ztf08" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_avVDt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -9757,9 +9757,9 @@ v8定型文，泥哥正义春。
 
 
 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49914402&amp;ptid=1974517" target="_blank">奥比斯 发表于 2021-1-2 03:51</a>
-nga已经形成正确记忆了：不是我们车的嘉然  都是v8去车的 车完就投降了</blockquote>
-V圈没有历史，V圈历史都是新人编出来的，自然想怎么编就怎么编，反正最后大家开心就好
+ 本帖最后由 雪空 于 2021-1-8 14:34 编辑 
+
+编辑
 
 
 
@@ -12579,7 +12579,7 @@ xdm能不能多搞几张嘉然的动图，我去骗几个人入坑</blockquote>
 
 
 -3496c2a2208b0a29.gif
-(283 KB, 下载次数: 7)
+(283 KB, 下载次数: 13)
 
 
 
@@ -12608,7 +12608,7 @@ xdm能不能多搞几张嘉然的动图，我去骗几个人入坑</blockquote>
 
 
 -77601956e8a570a6.png
-(295.06 KB, 下载次数: 1)
+(295.06 KB, 下载次数: 3)
 
 
 
@@ -12637,7 +12637,7 @@ xdm能不能多搞几张嘉然的动图，我去骗几个人入坑</blockquote>
 
 
 2e0a219ca0999858.gif
-(92.9 KB, 下载次数: 5)
+(92.9 KB, 下载次数: 9)
 
 
 
@@ -12929,4 +12929,575 @@ xdm能不能多搞几张嘉然的动图，我去骗几个人入坑</blockquote>
 
 
 
-                           
+
+
+-----
+
+####  物流大亨常凯申  
+##### 662#       发表于 2021-1-8 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49970474&amp;ptid=1974517" target="_blank">临界点 发表于 2021-1-7 23:03</a>
+
+https://tieba.baidu.com/p/7184259255?pn=1
+
+贴吧都直播了  这楼里有人中了吗</blockquote>
+我中了
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 663#       发表于 2021-1-8 01:23
+
+
+
+
+总结一下吧
+
+首播没看
+
+谈下今天的一些看法吧
+
+开局倒是有点像接弹幕的话题，不过似乎不太会挑选弹幕和编弹幕。
+
+我模仿mmr带了下“套皮女主播”的节奏，结果居然被捡到了，虽然说回应很难让人不gachi。不过捡这种节奏弹幕多少不太好。
+
+后面带节奏弹幕多了之后，就开始不看弹幕自己聊自己的。
+
+感觉上的确就是那种20出头的训练生的感觉，太现充了，总感觉和V圈目标受众基本没有交集。
+
+抛出去的梗能接的也不多。连咸甜豆腐脑这种经典节奏弹幕也能被钓上。
+
+感觉还是要多看看斗鱼或者睿国同行直播，其他知道一两个梗。不过我个人觉得啊，直播杂谈这种东西，确实讲一个天分，有的人是聊不来。
+
+所以我是觉得像珈乐贝拉这种，可能日后还是往歌势方向发展。平时多发点唱跳mv短视频吸路人粉，尽量少直播，少杂谈，多唱歌。直播整活这块还是交给两位指导
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 664#       发表于 2021-1-8 09:12
+
+
+
+
+ late to the party 
+
+张开嘴时候的嘴部模型也太惊悚了。
+
+还有贝拉这模型动起来也太像米忽悠后崩坏书那谁了吧
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 665#       发表于 2021-1-8 11:42
+
+
+
+
+是在什么地方抗压的？q群限定？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30勇士有抖友吗
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 666#       发表于 2021-1-8 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49971508&amp;ptid=1974517" target="_blank">物流大亨常凯申 发表于 2021-1-8 01:23</a>
+
+总结一下吧
+
+首播没看
+
+谈下今天的一些看法吧</blockquote>
+有提意见的环节吧    杂谈这个真的很看性格  最多估计也就练不尬就可以了  她们这种3D很合适搞那种MV短片的
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 667#       发表于 2021-1-8 17:57
+
+
+
+[https://www.bilibili.com/video/BV1fK411M7NL](https://www.bilibili.com/video/BV1fK411M7NL)
+
+呦呦呦，这不晚指导吗？
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 668#       发表于 2021-1-8 20:33
+
+
+
+
+什么老二次元
+
+
+
+
+
+
+
+-----
+
+####  绯想alter2nd  
+##### 669#       发表于 2021-1-8 20:38
+
+
+
+
+好老<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 670#       发表于 2021-1-8 21:20
+
+
+
+
+懂了，是歌姬姐妹企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 671#       发表于 2021-1-8 21:41
+
+
+
+
+贝拉应该是喜欢mamamoo吧，跳的大都是她们的歌
+
+
+
+
+
+
+
+-----
+
+####  五性八卦  
+##### 672#       发表于 2021-1-9 02:25
+
+
+
+<blockquote>harry3 发表于 2021-1-8 09:12
+late to the party 
+
+张开嘴时候的嘴部模型也太惊悚了。
+
+还有贝拉这模型动起来也太像米忽悠后崩坏书那谁了 ...</blockquote>
+这个我觉得真不行，后崩那模型的头发作为长发相当棒了
+
+
+
+
+
+
+
+-----
+
+####  五性八卦  
+##### 673#       发表于 2021-1-9 02:39
+
+
+
+
+确实不怎么二次元，但要说跳舞水平……总之好看就行，我也不在乎她们的定位，好看就ok。
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 674#       发表于 2021-1-9 22:04
+
+
+
+
+工具人每次唱歌声音都有问题，怕不是聋哑人士就业<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 675#       发表于 2021-1-9 22:33
+
+
+
+
+上流
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 676#       发表于 2021-1-10 02:26
+
+
+
+
+乃琳这也够懂啊，这也是个真指导，不是带资进组的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MAO_DREAMER  
+##### 677#       发表于 2021-1-10 21:19
+
+
+
+
+嘉然今天是不是太累了，声音是非常疲惫的那种感觉
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 678#       发表于 2021-1-10 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49994732&amp;ptid=1974517" target="_blank">MAO_DREAMER 发表于 2021-1-10 21:19</a>
+嘉然今天是不是太累了，声音是非常疲惫的那种感觉</blockquote>
+每个月总有那么几天
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 679#       发表于 2021-1-10 22:06
+
+
+
+
+诶搜播游戏哪一次不拉的😅
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 680#       发表于 2021-1-10 22:25
+
+
+
+
+建议asoul星期天都播游戏，周一周二交给粉丝自由发挥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  剑魔独孤求败  
+##### 681#       发表于 2021-1-10 22:32
+
+
+
+
+今天直播效果也没那么差吧 怎么都sc骂起来了
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 682#       发表于 2021-1-10 22:53
+
+
+
+
+说句实话，弹幕nt太多了，有点过头了，不知道是真纯看乐子还是魔怔了。不过嘉然确实也是实力没到驾驭住这帮观众。以前看维阿感觉魔怔的人也不少，但是正常人比较多。看今天这弹幕就是nt大乱斗
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hchan  
+##### 683#       发表于 2021-1-10 23:17
+
+
+
+
+有些弹幕说ky都轻了，简直就是没心没肺，今晚的都不说了，昨晚乃o读到投稿说奶奶去世的时候一群人在刷什么鹦鹉烂梗，找乐子也不能毫无尊重吧
+
+
+如今直播间这种无政府状态下，感觉会挺劝退路人的
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 684#       发表于 2021-1-10 23:24
+
+
+
+
+没房管还真不行 v8成分太杂了
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 685#       发表于 2021-1-10 23:24
+
+
+
+
+逮着几个烂梗不停刷，刚开始跳舞我还在感叹竟然没人刷害怕日语，结果后面直接垮掉还发sc冲<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 686#       发表于 2021-1-10 23:28
+
+
+
+
+房管还是必要的，混的话直球批评没毛病，但一直刷nt烂梗，v8的，真的恶心人。
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 687#       发表于 2021-1-11 03:27
+
+
+
+
+其实想想看，然指导这个拉胯回其实蛮有韵味的。
+什么都懂完了的然指导固然可爱，但毕竟还是有丶姨。今天的然然居然会对着弹幕手足无措，这种不安desu的表现实在太青春叻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 688#       发表于 2021-1-11 04:06
+
+
+
+
+昨天只看了前半个小时，虽然从一开始摸鱼聊天到调试设备就用了半个小时。
+
+阿骚目前所有游戏回，也就糖豆人观感还不错，最起码知道分图层了。
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 689#       发表于 2021-1-11 04:19
+
+
+
+ 本帖最后由 浇砼结衣 于 2021-1-11 04:27 编辑 
+
+<img src="http://border=0" id="aimg_wa2hG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
+
+
+
+
+
+
+2021-1-11_4-16-54.PNG
+(464.18 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-11 04:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/042136mfr6818igg1688z6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 690#       发表于 2021-1-11 04:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49997026&amp;ptid=1974517" target="_blank">浇砼结衣 发表于 2021-1-11 04:19</a>
+
+评论区看起来还正常(指评论比点赞多)</blockquote>
+如果嘉然自己能调整过来而且进行改进的话，这次说不定还是个好事。
+
+评论区虽然都是批评但能看出来是真的喜欢，还把8xj给顺劈了，估计弹幕环境未来都能好不少。
+
+当然前提是主播自己能听进去意见而且改进。
+
+
+
+
+
+
+
+-----
+
+####  goudante  
+##### 691#       发表于 2021-1-11 09:15
+
+
+
+
+确实，能有这么多直球指出不足、真心想主播进步的粉丝是好事，总比MMR把头埋土里好。看运营和妹几个之前的态度应该是会听进去的，但就是不知道能不能理解到矛盾所在，能不能改到点子上了。
+
+
+
+
+
+                          
