@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 14:31** 
+> ## **本文件最后更新于2021-01-11 06:04** 
 
 
 
@@ -8903,6 +8903,25 @@ youtu.be/UAokTaBYTJc
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 集合酱| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9047,4 +9066,438 @@ youtu.be/UAokTaBYTJc
 
 
 
-                                 
+
+
+-----
+
+####  JoelBirch  
+##### 28992#       发表于 2021-1-10 22:31
+
+
+
+
+本来是要看02的，临时被拉走<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 28993#       发表于 2021-1-10 22:41
+
+
+
+
+露皇这真・工作推特，不播的日子说只发一条推决不发第二条<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+一开始瞄了一眼开头只看到说今天不播明天播新游戏，现在闲下来了仔细一看第二段还轻描淡写地写着因为本社演播室方针（大家都懂的）22日的sololive延期了，打算搞点什么活儿替代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28994#       发表于 2021-1-10 22:52
+
+
+
+
+https://youtu.be/vqjjua9IMFY
+jst 24.00 宝钟马琳和龙胆尊联动马车
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28995#       发表于 2021-1-10 23:06
+
+
+
+
+开头细说了一段之前会限讲过的怎么两个人勾搭上的过去
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28996#       发表于 2021-1-10 23:15
+
+
+
+
+尊妈玩的真好
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 28997#       发表于 2021-1-10 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">虹杏两家就没有一个会开エキバ的了吗
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 28998#       发表于 2021-1-10 23:23
+
+
+
+<blockquote>Ketestrait 发表于 2021-1-10 22:41
+露皇这真・工作推特，不播的日子说只发一条推决不发第二条
+
+
+一开始瞄了一眼开头只看到说今天不播明 ...</blockquote>
+通告机，都不运营一下..
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 28999#       发表于 2021-1-10 23:26
+
+
+
+ 本帖最后由 空集 于 2021-1-10 23:27 编辑 
+
+尊妈也太母性包容了，示范过一次的内容这船长尝试了n遍疯狂掉出赛场，如果是开在尊妈的台我都想打个感谢代了
+尊妈妈太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29000#       发表于 2021-1-10 23:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 毕竟阿尊有可能是king手把手教的，
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">尊坐在king的怀里，king一边演示，尊就学的有模有样
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29001#       发表于 2021-1-10 23:57
+
+
+
+
+马车玩的稀烂，性骚扰话语停不下来的宝钟马琳
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 29002#       发表于 2021-1-11 00:01
+
+
+
+[https://twitter.com/nekokan_chu/status/1348277842564419592](https://twitter.com/nekokan_chu/status/1348277842564419592)
+
+
+野良猫ムーブしなくても勝てるように、
+
+文野環様が長尾君に麻雀教えてあげよ
+
+
+这情商，所以说真别以为野良猫行为是一般人学得来的啊
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29003#       发表于 2021-1-11 09:18
+
+
+
+[https://news.yahoo.co.jp/article ... e9758a2f19dfd0b64e5](https://news.yahoo.co.jp/articles/6b84b7242722f4ed3d7c8e9758a2f19dfd0b64e5)
+
+中国で高まるバーチャルアイドル熱 「世界初」のスター発掘番組も
+<img src="https://i.loli.net/2021/01/11/nWZvjUE4AQexd3a.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29004#       发表于 2021-1-11 10:25
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-1-11 11:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本奥运没了。好像只是八卦周刊的传言，官方没有说。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29005#       发表于 2021-1-11 11:14
+
+
+
+
+那边的官媒 官网什么都没说啊
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29006#       发表于 2021-1-11 12:04
+
+
+
+
+日本奥运18号开会，还有余地<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过以后各种线下活动估计是麻了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29007#       发表于 2021-1-11 12:16
+
+
+
+<blockquote>katern 发表于 2021-1-11 12:04
+日本奥运18号开会，还有余地
+
+不过以后各种线下活动估计是麻了</blockquote>
+所谓的有余地指的是将奥运会推迟到2032年？？？
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29008#       发表于 2021-1-11 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49997753&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-1-11 09:18</a>
+https://news.yahoo.co.jp/articles/6b84b7242722f4ed3d7c8e9758a2f19dfd0b64e5
+
+中国で高まるバーチャルア ...</blockquote>
+人设看着一股鹅味
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29009#       发表于 2021-1-11 12:27
+
+
+
+
+今年奥运肯定没了，这还用想吗...
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29010#       发表于 2021-1-11 12:37
+
+
+
+
+不知道什么来头的新拼盘CD，暂时没搜到相关消息。
+
+[https://www.sonymusicshop.jp/m/i ... mp;cd=SNCL000000042](https://www.sonymusicshop.jp/m/item/itemShw.php?site=S&amp;ima=3550&amp;cd=SNCL000000042) <blockquote>私達は輝き続ける、14組のVtuberによる音楽の宝箱を貴方へ
+
+2017年よりYouTubeを中心に活動が始まり今では日本を代表するカルチャーとなった「Vtuber」。国内は勿論のこと海外でもその人気は絶大なものになりつつある。トーク、ゲーム実況、歌など幅広いカテゴリーで活動するVtuberがいる中、今後バーチャルミュージックシーンをより一層盛り上げることを目的としバーチャルミュージックレーベル「Dimension Labels」を設立。相羽ういは／カグラナナ／神楽めあ／KMNZ／桜凛月／しぐれうい／獅子神レオナ／健屋花那／somunia／天神子兎音／花鋏キョウ／ラトナ・プティ／竜胆尊らが参加となる「SPOTLIGHT vol.1」は、レーベル旗揚げ第一弾パッケージとして2枚組の大ボリュームで構成。DISC1は参加アーティストのソロ、アニソンやVOCALOIDカバーを始め、このアルバムで初公開となる人気ボカロPによるオリジナル楽曲も複数収録。DISC2では参加アーティストが"JPOPの珠玉の名曲"をテーマに、ここでしか聞くことのできない貴重なコラボレーションを実現。オリジナル楽曲、カバー楽曲の収録に加え、アニソン・ボカロ・JPOPコラボという幅広いジャンルが1枚に詰まったコンピレーションアルバムはVtuberシーンでは初。
+
+
+相羽ういは／カグラナナ／神楽めあ／KMNZ／桜凛月／獅子神レオナ／しぐれうい／健屋花
+
+那somunia／天神子兎音／花鋏キョウ／ラトナ・プティ／竜胆尊
+
+※参加者は確定、楽曲は決定次第差し替え
+
+
+【収録内容】
+
+【DISC1-Solo Disc-】※曲順未定／順不同
+
+KMNZ「八王子P書き下ろしオリジナルソング」
+
+しぐれうい「メランコリック」
+
+カグラナナ「オレンジ」
+
+獅子神レオナ「シルエット」
+
+花鋏キョウ「曖昧さ回避」
+
+天神子兎音「地球最後の告白を」
+
+神楽めあ「君の知らない物語」
+
+somunia「収録曲未定」
+
+相羽ういは
+
+ラトナ・プティ
+
+健屋花那
+
+桜凛月
+
+竜胆尊
+
+
+【発売元：(株)シンプルノーツ】【レーベル名：Dimension Labels】</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29011#       发表于 2021-1-11 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49999724&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2021-1-11 12:16</a>
+
+所谓的有余地指的是将奥运会推迟到2032年？？？</blockquote>
+总比直接取消好吧，至少能要点补偿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 29012#       发表于 2021-1-11 12:48
+
+
+
+
+还要推到22？跟冬奥会一起办算了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29013#       发表于 2021-1-11 13:22
+
+
+
+
+安倍都跑路了还开啥
+
+
+
+
+
+                                

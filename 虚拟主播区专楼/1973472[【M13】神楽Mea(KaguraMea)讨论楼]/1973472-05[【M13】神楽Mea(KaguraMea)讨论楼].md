@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 12:37** 
+> ## **本文件最后更新于2021-01-11 06:06** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_C8v31" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_BLX65" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21781,7 +21781,7 @@ syl，没记错
 
 
 
-<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_joMR0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_HyXYk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_fdlX9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_RyKKf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_OWOi8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_HY22w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_b6SsW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_Fe61M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -22067,11 +22067,24 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 
 
+ 本帖最后由 路人辰 于 2021-1-11 07:03 编辑 
 
-其实频率是在下降的了（
+20210111东京3点
 
 
-之前油管第一播我本来想聊nino逗她玩，但听她基本没聊阿拉希的事也就没提了
+<img src="https://img.saraba1st.com/forum/202101/11/070256x362j8j5i6cj2ezl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8294B75C-56BC-446A-8191-FC92CDDC749D.jpeg</strong> (97.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 07:02 上传
+
+
+
+
+
 
 
 
@@ -23195,4 +23208,685 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 
 
 
-      
+
+
+-----
+
+####  Mr.shelter  
+##### 7292#       发表于 2021-1-10 21:00
+
+
+
+
+男粉好惨哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7293#       发表于 2021-1-10 21:01
+
+
+
+
+一眼看上去还是蛮惊悚的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7294#       发表于 2021-1-10 21:11
+
+
+
+
+mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫的也是nagisa，暗示
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7295#       发表于 2021-1-10 21:18
+
+
+
+
+还会把男朋友和自己的姓写在一起<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7296#       发表于 2021-1-10 21:44
+
+
+
+
+猫党又胜利了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7297#       发表于 2021-1-10 21:50
+
+
+
+
+又来又来呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7298#       发表于 2021-1-10 21:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49994722&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-1-10 21:18</a>
+
+还会把男朋友和自己的姓写在一起</blockquote>
+男朋友都要跟自己姓 微博女拳都没这么狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7299#       发表于 2021-1-10 21:53
+
+
+
+ 本帖最后由 路人庚 于 2021-1-10 21:55 编辑 
+
+歇了，明天预定播
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不需要对阿拉希这么敏感吧，阿咩刚刚也说了她已经满足了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7300#       发表于 2021-1-10 21:57
+
+
+
+
+arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不爱不是yhm
+他们的综艺挺有意思的，没事可以去看看
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7301#       发表于 2021-1-10 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不许和女粉啵嘴
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7302#       发表于 2021-1-11 02:28
+
+
+
+
+这个点又发推
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7303#       发表于 2021-1-11 07:12
+
+
+
+
+夜宵居然动了，还以为她真跑路了
+
+而且夜宵之后居然还在安排神乐组新人，这是小紫小绿在用她们的通讯录拉人么…
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7304#       发表于 2021-1-11 07:23
+
+
+
+
+你们在期待什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7305#       发表于 2021-1-11 07:30
+
+
+
+
+之前神楽组建的时候以为她要开始往管理者方向干了，没想到组员一个比一个摸，夜宵索性直接人没了。很迷惑这个组织是什么鬼。
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7306#       发表于 2021-1-11 07:36
+
+
+
+
+又来b博戳💩了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7307#       发表于 2021-1-11 08:42
+
+
+
+
+好奇啥色儿的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以到底会不会有u1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7308#       发表于 2021-1-11 08:45
+
+
+
+
+还在拉人往火坑里跳，**罪大恶极啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7309#       发表于 2021-1-11 09:22
+
+
+
+ 本帖最后由 clvan_ 于 2021-1-11 09:58 编辑 
+
+她说的就是夜宵吧，这人居然没跑路。神乐组不就是个亲友讨论组嘛，连群都算不上，别真当什么组织了。草，我把eve看成eva了，原来真有个新人啊……这人不会也神隐半年吧
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7310#       发表于 2021-1-11 09:27
+
+
+
+
+咩的陪玩组？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7311#       发表于 2021-1-11 10:00
+
+
+
+
+有没有u1加上梅丽的的超神拳啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7312#       发表于 2021-1-11 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7313#       发表于 2021-1-11 10:53
+
+
+
+
+万一是麻妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7314#       发表于 2021-1-11 10:56
+
+
+
+
+胆子大点，夸子哥原地转生的梦可以再做一次了，和eve同时出道
+
+             
+
+《50%的bs》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 7315#       发表于 2021-1-11 11:08
+
+
+
+
+昨天乐府还口嗨要让meaqua再来B限，今天mea就说有新人要出道了，斧子哥我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+计划很好但第一部就夭折了，乐府根本联系不到mea
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7316#       发表于 2021-1-11 11:32
+
+
+
+
+离谱起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7317#       发表于 2021-1-11 11:43
+
+
+
+
+什么暗黑贴贴人，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7318#       发表于 2021-1-11 11:55
+
+
+
+
+好，麻 麻再加一个凛子一个u1，咩pro就是bs三跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7319#       发表于 2021-1-11 12:36
+
+
+
+
+在组长那边突击联动雀魂，还有文野环？？？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7320#       发表于 2021-1-11 12:38
+
+
+
+
+你咩姐去组长那找男人了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7321#       发表于 2021-1-11 13:00
+
+
+
+
+尬疯了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7322#       发表于 2021-1-11 13:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7323#       发表于 2021-1-11 13:13
+
+
+
+
+决议: 建立神圣bs帝国
+
+效果: 神乐组现在被称为神圣bs帝国
+
+          政党亡国民重组为帝国民
+
+          影响力+100
+
+          凝聚力+100
+
+          贴贴人支持率+50
+
+          帝国民支持率+100
+
+          解锁特殊单位:帝国军
+
+需要:
+
+领导人为麻或凛                       √
+
+完成国策向日葵的约定           x
+
+完成国策故国的遗产               x
+
+拥有不少于原bs的内阁成员  3/6
+
+国策: 向日葵的约定
+
+效果: 凛子加入内阁
+
+          影响力+50
+
+          贴贴人支持率+100
+
+          士气+100
+
+          人力+700k
+
+          解锁特殊单位: 反抗军
+
+           对他国的影响:
+
+              猴楼帝国:
+
+                 影响力-100 
+
+                 凝聚力-500
+
+                 人力    -800k
+
+                 领土内叛军攻击+50
+
+                 大家庭粉支持率-100
+
+                 失去政党: crew
+
+                 凑阿库娅被移出内阁
+
+                 对神乐组好感度-100
+
+                 向神乐组宣战
+
+              冲蝗共和国
+
+                 士气+100
+
+                 人力+100k
+
+                 对神乐组好感度+50
+
+                 与神乐组结盟时单位对猴楼帝国攻击+100
+
+国策: 故国的遗产
+
+效果: u18r加入内阁
+
+          影响力+50
+
+          凝聚力+100
+
+          亡国民支持率+100
+
+          解锁特殊单位: 亡国军
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7324#       发表于 2021-1-11 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50000375&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2021-1-11 13:13</a>
+
+决议: 建立神圣bs帝国
+
+效果: 神乐组现在被称为神圣bs帝国
+
+          政党亡国民重组为帝国民</blockquote>
+BGM：请校准时钟
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7325#       发表于 2021-1-11 13:30
+
+
+
+
+原来冲蝗军不是勃艮第政体吗 就是黑太阳不太灵
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7326#       发表于 2021-1-11 14:03
+
+
+
+
+那是不是毒唯又该吊路灯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+     
