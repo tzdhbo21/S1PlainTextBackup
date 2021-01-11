@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 06:04** 
+> ## **本文件最后更新于2021-01-11 11:01** 
 
 
 
@@ -9500,4 +9500,656 @@ somunia「収録曲未定」
 
 
 
-                                
+
+
+-----
+
+####  Suny08  
+##### 29014#       发表于 2021-1-11 14:36
+
+
+
+
+如何看待葵皇最近天天和月之一起玩不和男人玩了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29015#       发表于 2021-1-11 14:43
+
+
+
+
+不知道怎么解释，有请2K。我觉得是发挥箱纽带功能
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29016#       发表于 2021-1-11 15:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏奴连yygq都说不好，求着2000点评的样子是真的难看啊。
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">遭不住了，这是被杏奴小团体孤立了，哭**跑出来抱着虹人求温暖么
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|呜呜呜，破防了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 29017#       发表于 2021-1-11 15:46
+
+
+
+
+喷了 海苔还真的回B站了 
+
+
+是全世界嗅觉最灵敏的Vtuber吗
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29018#       发表于 2021-1-11 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">葵皇再和男人玩魔武天就要被axf橄榄了，现在虹老害就靠吸杏血维持地位了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29019#       发表于 2021-1-11 15:54
+
+
+
+
+阿夸这直播间标题非常葛叶
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29020#       发表于 2021-1-11 15:55
+
+
+
+
+葛叶超月就在眼前了吧
+king
+（尊妈面子越来越大到底有没有联系呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29021#       发表于 2021-1-11 16:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好羡慕葛叶
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 29022#       发表于 2021-1-11 16:07
+
+
+
+
+好羡慕尊妈<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29023#       发表于 2021-1-11 16:44
+
+
+
+
+葛叶离开月之还有3-4个月，也不算很快，倒是叶师离葵师傅没几步路了
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29024#       发表于 2021-1-11 16:57
+
+
+
+
+天使うと被多方炎上了啊，以后还能继续蹭木口吗
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/165654j9lwtmgkqh696bkw.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210111165336.png</strong> (9.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 16:56 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29025#       发表于 2021-1-11 16:58
+
+
+
+
+才1k踩也算炎吗
+感觉还能蹭
+而且估计后来人不会少了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29026#       发表于 2021-1-11 17:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 欧米anti战斗力也就是JP阴湿虹anti的十分之一吧，
+
+
+口了炎上都是1w起步的
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29027#       发表于 2021-1-11 17:07
+
+
+
+
+10:1都没有能算炎上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29028#       发表于 2021-1-11 17:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 昨天kmm播老游戏，我想了一下，如果当初这些生主还存着当初的游戏录像，那么直播放这些录像，左下角放个gif，是不是也算一种直播
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29029#       发表于 2021-1-11 17:22
+
+
+
+
+国内不就有个弹琴放MIDI的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29030#       发表于 2021-1-11 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1k踩怎么就不算炎上，lga冲蝗踩还没1k呢
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29031#       发表于 2021-1-11 17:24
+
+
+
+
+年底的buff真强啊，虹杏sc都创新高了。年初这月估计也不会差到哪去吧。<img src="https://p.sda1.dev/0/77e387b494ff52f4d50870fc6c6565e9/-61ce9df396e17d53.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29032#       发表于 2021-1-11 17:31
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-11 17:33 编辑 
+
+虽然久远tama这个人V综前几个楼就有人发过了，但是最近发现唱某些歌声线真的好听。而且作为小箱数字也不错了。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 29033#       发表于 2021-1-11 17:35
+
+
+
+<blockquote>IDIDIDID 发表于 2021-1-11 17:31
+虽然久远tama这个人V综前几个楼就有人发过了，但是最近发现唱某些歌声线真的好听。而且作为小箱数字也不错 ...</blockquote>
+必看猫里奥回😻😻
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29034#       发表于 2021-1-11 18:09
+
+
+
+
+露露今天要玩ark<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29035#       发表于 2021-1-11 18:09
+
+
+
+
+月之这，好综艺的综艺啊（毕竟抄的），
+不知谁剪的，节奏挺好的，有能！
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29036#       发表于 2021-1-11 18:14
+
+
+
+
+露露 nmd 为什么ark 我心态崩了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29037#       发表于 2021-1-11 18:26
+
+
+
+ 本帖最后由 poipanchao 于 2021-1-11 18:44 编辑 
+
+正好今天打大米，也没有乐华
+垃圾ark不看的
+
+露露，离本间远点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 29038#       发表于 2021-1-11 18:29
+
+
+
+
+露露，远离阿葵
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29039#       发表于 2021-1-11 18:31
+
+
+
+ 本帖最后由 Ketestrait 于 2021-1-11 18:34 编辑 
+
+露皇还买不到PS5吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+我现在十分担心露皇说的22号代替延期的sololive的内容不要是掏出跳跳王DLC<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29040#       发表于 2021-1-11 18:35
+
+
+
+
+月之这个给不同人发“要交往一个月了一起来吃饭吧”真的很不独角兽友好诶！亏得lize一转女同救场，之前又是不回男友line的绘马，这回又是误发交往短信，给条活路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+说实话想起了开闭的总嘟嘟恋爱整蛊，你虹抄一个嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29041#       发表于 2021-1-11 18:43
+
+
+
+
+这个木口马车杯能不能找个懂一点的解说。。。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29042#       发表于 2021-1-11 18:44
+
+
+
+
+木口马车，官台同接被兔皇分台同接爆了。如果说喜欢看箱大活动的是箱推，感觉木口现在箱推其实挺拉的，大部分都是毒唯。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29043#       发表于 2021-1-11 18:45
+
+
+
+
+那你想谁来
+夸和白姨配合主持吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29044#       发表于 2021-1-11 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50003460&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-1-11 18:45</a>
+
+那你想谁来
+
+夸和白姨配合主持吗</blockquote>
+这俩联动基本没出过什么毛病，没问题啊
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 29045#       发表于 2021-1-11 18:49
+
+
+
+
+杏开分台的目的是什么，就这么不想给一个人引流吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29046#       发表于 2021-1-11 18:50
+
+
+
+
+我刚才在隔壁也说了，去虹借个阿葵过来解说，反正葵皇本人肯定没意见。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29047#       发表于 2021-1-11 18:51
+
+
+
+
+wtm先哭为敬
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29048#       发表于 2021-1-11 18:53
+
+
+
+
+就一个官台的话看都看不清，这个解说也没特别大意思，还不如各自开台
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29049#       发表于 2021-1-11 18:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/185810xd9x1ehenlemhm1k.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210111185501.png</strong> (15.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 18:58 上传
+
+
+
+
+
+
+我们粉虹女郎还忙着和免费、不破、油男这种帅哥互动呢，哪有时间搭理你
+
+
+
+
+
+                               
