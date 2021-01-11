@@ -7,7 +7,7 @@ import json
 import io
 import time
 
-rootdir="/home/riko/S1PlainTextBackup/"
+rootdir="/root/S1PlainTextBackup/"
 with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
 flag = 1
