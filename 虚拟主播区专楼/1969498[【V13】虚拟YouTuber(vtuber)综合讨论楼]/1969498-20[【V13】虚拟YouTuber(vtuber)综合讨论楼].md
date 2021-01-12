@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 14:56** 
+> ## **本文件最后更新于2021-01-12 03:20** 
 
 
 
@@ -10846,10 +10846,11 @@ meanwhile in the groupchat......
 
 
 
- 参与人数 4战斗力 +2
+ 参与人数 5战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fightonion|-1||
 | 过不了审| + 1|骂人没必要啊|
 | Kanchiki|-1|傻逼|
 | Map-2| + 1|好评加鹅|
@@ -10926,10 +10927,12 @@ https://nico.ms/sm38031659
 
 
 
- 参与人数 11战斗力 +4
+ 参与人数 13战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fightonion|-1||
+| 稀勢のささ| + 1|欢乐多|
 | 过不了审| + 1|不要骂人|
 | Kanchiki|-1|傻逼|
 | 空集| + 1|欢乐多|
@@ -10990,10 +10993,12 @@ https://nico.ms/sm38031659
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 4战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fightonion|-1||
+| qesto|-1||
 | 过不了审| + 1|不要骂人|
 | Kanchiki|-1|傻逼|
 
@@ -12392,10 +12397,12 @@ NTR本一开始推了10本，后面的我阅本资历不够</blockquote>
 
 
 
- 参与人数 4战斗力 +5
+ 参与人数 6战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 絵生voice| + 1|草|
+| ylssb10438| + 1|草|
 | OldGlory| + 2|欢乐多|
 | UnhappyTails| + 1|好p！恭喜星街！|
 | 过不了审| + 1|原来真的很忙|
@@ -12481,4 +12488,674 @@ NTR本一开始推了10本，后面的我阅本资历不够</blockquote>
 
 
 
-                           
+
+
+-----
+
+####  离心  
+##### 29164#       发表于 2021-1-11 23:04
+
+
+
+<blockquote>OldGlory 发表于 2021-1-11 22:53
+马车杯金牌的含金量 不是由夺得者决定的 必须要把金牌给配得上的人才能证明其含金量 不然也只是弄虚作假 ...</blockquote>
+下三滥的手段也是取胜的一种办法（震声） 胜者为王败者为寇，赢了就是赢了，输了就是输了。星姐从第一届的败者组到第二届的冠军你知道她付出了多大的努力了吗？，反观aqua不思进取，只顾朋友之间的那点虚假的友谊畏畏缩缩，不肯前进。输是必然的。建议哭了的aqua给星姐磕三个响头嗷（艹说的我都信了）
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29165#       发表于 2021-1-11 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹马车冠军成濑，杏马车冠军星街，es部最强
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29166#       发表于 2021-1-11 23:13
+
+
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gmk5tkc0vhj219p0rs44k.jpg" referrerpolicy="no-referrer">
+
+[twitter](https://twitter.com/Creanex/status/1348648662562340864?s=20)
+
+
+船长XD
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 真飞鸟i| + 1|表情生动形象|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 29167#       发表于 2021-1-11 23:13
+
+
+
+
+“那一年的决赛，是湊阿库娅对白上吹雪。当时我看见吹雪颓坐在椅子上，泣不成声。这个画面我永生难忘。” “那一刻我在想，如果我能成为hololive的一员，我一定要赢下所有。如今奖杯就在眼前，我必须考虑这会不会是我此生仅有的机会。我相信hololive能有过去的霸主地位，狐皇功不可没。” “重铸hololive的荣光，我辈义不容辞！” ——星街彗星
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29168#       发表于 2021-1-11 23:15
+
+
+
+
+兔子明天北京时间八点生日直播，有自己努力过的东西作为重大发表
+
+<img src="https://img.saraba1st.com/forum/202101/11/231337gu6tz232wuu9m69t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErdZ6beUcAI2cKf.jpg</strong> (120.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 23:13 上传
+
+
+
+
+
+[https://twitter.com/satsuki_yukimi/status/1348645853641117696](https://twitter.com/satsuki_yukimi/status/1348645853641117696)
+
+<img src="https://img.saraba1st.com/forum/202101/11/231344uabarooe1agr5ur1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErdayzqVoAMeB5-.jpg</strong> (389.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 23:13 上传
+
+
+
+
+
+[https://twitter.com/satsuki_yukimi/status/1348645853641117696](https://twitter.com/satsuki_yukimi/status/1348645853641117696)
+
+<img src="https://img.saraba1st.com/forum/202101/11/231340fjmeez0zy50mvhgu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErdaPeGVkAE1pcM.jpg</strong> (294.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 23:13 上传
+
+
+
+
+
+[https://twitter.com/Nano__Kun/status/1348645861899702273](https://twitter.com/Nano__Kun/status/1348645861899702273)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 29169#       发表于 2021-1-11 23:19
+
+
+
+
+杏仁差不多，见好就收
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 29170#       发表于 2021-1-11 23:21
+
+
+
+
+你juan怎么天天偷一堆刀圈撸圈烂梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29171#       发表于 2021-1-11 23:33
+
+
+
+
+我想开了，我甚至提前原谅了凑阿夸，老粉丝的心里话
+
+如果现在坐在switch前的是我，在巨大的轮回感与压迫感面前，我想我早就抱着小麦哭了，我会哭着说把季军的奖金给我就好了，我会回家对着船长摇尾乞怜，我要回家然后征战apex，不告诉别人我曾经是个vtb。
+
+我本人一直以来都是个心理上的懦夫，我不敢去想不敢去面对，不敢去看血腥的电影。去年到年底我才重新看管人，我甚至不知道黑黑是谁。啊，这一切都像上刑一样痛苦！但我又想，我是否太过于把自己的胜负心与荣誉心寄托于别人的成功与失败了，我总想着让别人来替我去赢，替我去风光无限。哎，我不该这样的，我应该更多的去关注自己怎么处理好自己的生活与朋友，要把自己去变得更强。
+
+凑阿夸输了之后，我想我也就不再会去关注管人圈风风雨雨了吧，不像以往对着vtb风流韵事如数家珍。我不能控制vtb们想的是无上荣誉还是不背锅，亦或是高额sc背后的为所欲为，还是体面的开重大发表直播到终老，但我会发好我的每一个绿龟壳，我要赢就自己赢。
+
+我要打就自己打。我会试着去接受血腥的电影，因为那是残酷世界的缩影。啊，我想起来了，我应该去好好跑一次长跑，每次跑到第二圈就不停暗示自己膝盖会有磨损的，我想我应该去跑一次真正的长跑，现在就出发，写在凑阿夸受难的今天。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kamen| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 29172#       发表于 2021-1-11 23:37
+
+
+
+
+求问一下这个动图的出处是哪个视频
+
+
+<img src="https://img.saraba1st.com/forum/202101/11/233752c713zj0fisfwd00h.gif" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210111233317.gif</strong> (207.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-11 23:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29173#       发表于 2021-1-11 23:44
+
+
+
+ 本帖最后由 NBXX 于 2021-1-11 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006228&amp;ptid=1969498" target="_blank">哈曼的YY 发表于 2021-1-11 23:37</a>
+
+求问一下这个动图的出处是哪个视频</blockquote>
+[https://youtu.be/ZsWEYac2UFg?t=1981](https://youtu.be/ZsWEYac2UFg?t=1981)
+
+【3Dお披露目】異界の扉が開かれる #でびるさま3D【にじさんじ/でびでび・でびる】
+<img src="https://static01.imgkr.com/temp/e1e6cd26890547ec9e670f7b5b5b40a3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 29174#       发表于 2021-1-11 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006228&amp;ptid=1969498" target="_blank">哈曼的YY 发表于 2021-01-11 23:37:57</a>
+求问一下这个动图的出处是哪个视频</blockquote>后面这个窗帘应该说德比的3D，然后这个gif可能是33分钟左右的露露的动作
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 29175#       发表于 2021-1-12 00:28
+
+
+
+<img src="https://ae01.alicdn.com/kf/Uee8a672eda334ba38842134240d073137.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29176#       发表于 2021-1-12 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006526&amp;ptid=1969498" target="_blank">sonyjam 发表于 2021-1-12 00:28</a></blockquote>
+来的比我想象的稍微慢一点点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 29177#       发表于 2021-1-12 00:41
+
+
+
+
+月灵契约者推发的这张图，好阴间啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+syl，今天貌似是玩恐怖游戏吓到了呢
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29178#       发表于 2021-1-12 00:46
+
+
+
+
+看完推，月灵什么时候能播个恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 29179#       发表于 2021-1-12 07:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006391&amp;ptid=1969498" target="_blank">ygysh0505 发表于 2021-01-11 23:59:02</a>
+后面这个窗帘应该说德比的3D，然后这个gif可能是33分钟左右的露露的动作</blockquote>啊感谢 我明明看过的完全没在意这个动作 这剪辑 加上各种设定真的觉得是抹脖子<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 29180#       发表于 2021-1-12 08:29
+
+
+
+
+aqua现在这状态，弯道漂移，捷径超车，蘑菇加速躲蓝龟壳等等小细节，而且现在稳的一笔，真的看湿了，一天200把的马车真的是有效果的，天道酬勤。
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29181#       发表于 2021-1-12 08:45
+
+
+
+
+えらちゃん最近匀下来都快每天公开播一小时了，是被马内甲喷了还是女大生一时兴起搞“绝对要播2021”啊，去年那个绝对要瘦2020是失败了还是咋的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29182#       发表于 2021-1-12 09:09
+
+
+
+
+这样算时长真的好吗？除了真大友美妙天堂粉丝以外能看江良整这个东西六小时？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29183#       发表于 2021-1-12 09:15
+
+
+
+
+为什么每次点进直播间いちか这傻妞都在笑着拍手，她真的不知道什么叫愁吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29184#       发表于 2021-1-12 09:22
+
+
+
+
+蓝狗就是自带快乐光环，看着她不自觉地就被传染了快乐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 深渊萃取| + 1|确实，她真好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29185#       发表于 2021-1-12 10:12
+
+
+
+
+小红病好了，这下要播爆了吧，幻士大胜利！
+
+但就算继续不播，也是可以理解的，毕竟优质的内容需要时间去沉淀，比起木口虚无直播，我宁愿选择没有直播。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29186#       发表于 2021-1-12 10:25
+
+
+
+
+不发奖是8<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/dbdc3b0b92e4401f2332c5849a0f0735/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 29187#       发表于 2021-1-12 10:39
+
+
+
+
+草，杏楼太真实了，前几天楼里连车轱辘都没有，结果木口一个马车流量一下子就上来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还以为挂过路灯杏奴会少，结果这一个个不是都看得挺开心的吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天悬星河|-2|睁眼说瞎话|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 29188#       发表于 2021-1-12 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50008729&amp;ptid=1969498" target="_blank">mr.dragon 发表于 2021-1-12 10:39</a>
+草，杏楼太真实了，前几天楼里连车轱辘都没有，结果木口一个马车流量一下子就上来了
+
+还以为挂过路灯 ...</blockquote>
+你这种正义人士为啥不去尼哥伸张正义，那边现在可是发个招魂就会被删呢
+
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 29189#       发表于 2021-1-12 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50008750&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2021-1-12 10:42</a>
+
+你这种正义人士为啥不去尼哥伸张正义，那边现在可是发个招魂就会被删呢 ...</blockquote>
+别尬黑，nga那边还有贴贴楼能直球发情，昨晚浓度可高了
+
+
+要不是狐皇针对夸宝哪来这么多crew破防？哪来这么多杏仁招魂？说到底还是狐皇的错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29190#       发表于 2021-1-12 11:06
+
+
+
+
+想当初病栋连体人，crew和天狗闹分家。没想到现在泥哥想讨论大天使都得借法兰西人的光，连体楼流量激增，连体人赢麻了，还不赶紧给桐生女士烧香。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29191#       发表于 2021-1-12 11:13
+
+
+
+
+连体楼就nm坏文明，到现在没炸也算奇迹了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29192#       发表于 2021-1-12 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50008729&amp;ptid=1969498" target="_blank">mr.dragon 发表于 2021-1-12 10:39</a>
+
+草，杏楼太真实了，前几天楼里连车轱辘都没有，结果木口一个马车流量一下子就上来了
+
+还以为挂过路灯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">  呦 你又出来找喷了啊   
+
+
+
+
+
+                          
