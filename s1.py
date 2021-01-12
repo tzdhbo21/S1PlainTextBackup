@@ -158,8 +158,10 @@ if __name__ == '__main__':
             namelist, replylist,totalpage,titles= parse_html(data)
             if((int(time.time()) - thdata[i]['lastedit']) > 2592000 or totalpage == 1):
                 thdata[i]['active'] = False
-                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'[A]'+titles+'/'
+                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'【已归档】'+titles+'/'
                 mkdir(filedir)
+                with open((filedir+str(ThreadID)+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
+                    f.write('1')
             elif(totalpage > lastpage):
                 if(totalpage > 50):
                     filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
