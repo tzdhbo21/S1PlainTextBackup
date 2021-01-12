@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-12 03:20** 
+> ## **本文件最后更新于2021-01-12 07:01** 
 
 
 
@@ -10846,10 +10846,11 @@ meanwhile in the groupchat......
 
 
 
- 参与人数 5战斗力 +1
+ 参与人数 6战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 不知道留下什么| + 1|思路广|
 | fightonion|-1||
 | 过不了审| + 1|骂人没必要啊|
 | Kanchiki|-1|傻逼|
@@ -10927,10 +10928,11 @@ https://nico.ms/sm38031659
 
 
 
- 参与人数 13战斗力 +4
+ 参与人数 14战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 不知道留下什么| + 1|好评加鹅|
 | fightonion|-1||
 | 稀勢のささ| + 1|欢乐多|
 | 过不了审| + 1|不要骂人|
@@ -10993,10 +10995,11 @@ https://nico.ms/sm38031659
 
 
 
- 参与人数 4战斗力 -2
+ 参与人数 5战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fangjun96|-1|回血|
 | fightonion|-1||
 | qesto|-1||
 | 过不了审| + 1|不要骂人|
@@ -11585,10 +11588,11 @@ https://nico.ms/sm38031659
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| LilMemo| + 1|支持|
 | 过不了审| + 1|草生|
 
 
@@ -12374,7 +12378,7 @@ NTR本一开始推了10本，后面的我阅本资历不够</blockquote>
 <img src="https://img.saraba1st.com/forum/202101/11/223836y11bup34bwgz8hg3.jpg" referrerpolicy="no-referrer">
 
 
-<strong>恭喜星街彗星2.jpg</strong> (274.38 KB, 下载次数: 0)
+<strong>恭喜星街彗星2.jpg</strong> (274.38 KB, 下载次数: 1)
 
 下载附件
 
@@ -12796,10 +12800,13 @@ NTR本一开始推了10本，后面的我阅本资历不够</blockquote>
 
 
 
+ 本帖最后由 ygysh0505 于 2021-1-12 12:16 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006228&amp;ptid=1969498" target="_blank">哈曼的YY 发表于 2021-01-11 23:37:57</a>
-求问一下这个动图的出处是哪个视频</blockquote>后面这个窗帘应该说德比的3D，然后这个gif可能是33分钟左右的露露的动作
 
-[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+求问一下这个动图的出处是哪个视频</blockquote>
+后面这个窗帘应该是德比的3D，然后这个gif可能是33分钟左右的露露的动作
+
+
 
 
 
@@ -13158,4 +13165,600 @@ aqua现在这状态，弯道漂移，捷径超车，蘑菇加速躲蓝龟壳等�
 
 
 
-                          
+
+
+-----
+
+####  Devi_Lito  
+##### 29193#       发表于 2021-1-12 11:55
+
+
+
+
+V版流量又回到和PC数码抱团取暖的水平了，下一个大瓜什么时候来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29194#       发表于 2021-1-12 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50008729&amp;ptid=1969498" target="_blank">mr.dragon 发表于 2021-1-12 10:39</a>
+草，杏楼太真实了，前几天楼里连车轱辘都没有，结果木口一个马车流量一下子就上来了
+
+还以为挂过路灯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁指定夸楼和指定木口楼欢迎你
+
+
+
+
+
+
+
+-----
+
+####  绯想alter2nd  
+##### 29195#       发表于 2021-1-12 12:41
+
+
+
+
+真小人比伪君子好，隔壁那个样子更让人难受一点
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 29196#       发表于 2021-1-12 12:53
+
+
+
+ 本帖最后由 离心 于 2021-1-12 12:55 编辑 
+
+贴贴楼（✘）aqua楼（✔）贴贴只是一种形式的体现罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 29197#       发表于 2021-1-12 13:00
+
+
+
+
+贴贴楼可以说mea的坏话，不能说阿夸的坏话
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29198#       发表于 2021-1-12 13:03
+
+
+
+
+冲蝗是泥哥的盾，泥哥是s1和v吧的盾
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 29199#       发表于 2021-1-12 13:03
+
+
+
+
+s1永不输
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29200#       发表于 2021-1-12 13:04
+
+
+
+
+2021年还看猴楼莱舞的确实该骂，心里就没一点正义感吗？cnandy在抗猴前线与白皮拼刺刀，画重金买帐号冲击tskk，画大时间分析木口数据造假，终于在多条战线上都取得了实质性进展，tskk精神不稳定，而大亏也被扒出被狐姨迫害买粉，多次挫败猴楼工商造成木口资金链断裂，泥潭杏奴还在这歌舞升平看马车，拿着虚假的数据吹嘘粉饰太平，却不知末日将至，木口已是行尸走肉。
+
+奉劝各位杏奴买点小红装扮，给小红上舰并背诵小红直播，时间不是很长还是比较好背的。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29201#       发表于 2021-1-12 13:09
+
+
+
+ 本帖最后由 Mr.shelter 于 2021-1-12 13:17 编辑 
+
+没有AOE某个群体的意思，但是某个自称贴贴人双推的那句“黑称吗，我觉得还好啊，就像三字母什么的我完全可以接受，但是圣皇这个黑称绝对不行”真的笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+野怪标记真的是弱智文明，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29202#       发表于 2021-1-12 13:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50010321&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-12 13:04</a>
+2021年还看猴楼莱舞的确实该骂，心里就没一点正义感吗？cnandy在抗猴前线与白皮拼刺刀，画重金买帐号冲击ts ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">擅自剥夺冲蝗老哥们的精神安慰剂
+#查询成分#标记野怪
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 29203#       发表于 2021-1-12 13:30
+
+
+
+
+yysy啊查对方的回复真的是low爆了还野怪都出来了，劲爆大象部落<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29204#       发表于 2021-1-12 13:41
+
+
+
+
+查成分不是老一套了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 29205#       发表于 2021-1-12 13:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本质上还是一帮人觉得劈的不够狠，另一帮人不肯老实被劈上路灯
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29206#       发表于 2021-1-12 13:55
+
+
+
+
+不，本质是NGA版务傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 29207#       发表于 2021-1-12 14:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">论坛这个东西就是这样的，不服来s1，哦这边也差不多啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 29208#       发表于 2021-1-12 14:02
+
+
+
+
+u1s1，crew在隔壁确实沾了天狗版务的光，不然连体楼怎么能活到现在<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 29209#       发表于 2021-1-12 14:09
+
+
+
+
+哈哈哈避难所先生截图被挂了哈哈哈，什么是真正的毒唯啊哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 29210#       发表于 2021-1-12 14:12
+
+
+
+
+我还以为进错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29211#       发表于 2021-1-12 14:13
+
+
+
+
+月灵似乎在学新中文歌，问“的”有几种发音
+
+
+
+
+
+
+1L[SLLJB6YC]DLQ}9L}A{49.png
+(16.27 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-12 14:13 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/12/141344n58c6k94551kk11c.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29212#       发表于 2021-1-12 14:13
+
+
+
+ 本帖最后由 Mr.shelter 于 2021-1-12 14:24 编辑 
+
+哈哈哈哈哈哈哈哈居然有人跨坛挂我哈哈哈哈哈哈哈笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">爷可不是什么野怪，喷的就是你这种司马太监哦
+
+
+另外我是女粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29213#       发表于 2021-1-12 14:18
+
+
+
+
+看看隔壁B综被阉了几回了，NGA买个V区版主把杏奴都干死不就得了，很难不支持嗷。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 29214#       发表于 2021-1-12 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50010980&amp;ptid=1969498" target="_blank">Mr.shelter 发表于 2021-1-12 14:13</a>
+哈哈哈哈哈哈哈哈居然有人跨坛挂我哈哈哈哈哈哈哈笑死我了，挂我还匿名？行不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我从昨晚就开始看他们马车团建，乐了快一天了，突然就他妈被打断施法了，你有没有公德心啊，草
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 29215#       发表于 2021-1-12 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011222&amp;ptid=1969498" target="_blank">草牛 发表于 2021-1-12 14:34</a>
+我从昨晚就开始看他们马车团建，乐了快一天了，突然就他妈被打断施法了，你有没有公德心啊，草 ...</blockquote>
+我的错，我就是想跟crew说别意淫夸从holo毕业了，然后就被围殴了，都是我的错，避难所女士只是傻乎乎跟着我
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|草，女士|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 29216#       发表于 2021-1-12 14:42
+
+
+
+
+我觉得时机差不多了，nga也该开放对木口的讨论了，专楼什么的都搞起来，和贴贴人冲蝗人公用专楼怪难受的。
+
+大家冲蝗归冲蝗，看木口归看木口，互不干扰，大不了把蝗狐心的讨论给ban了，再不成就开夸宝的单人专楼，让大伙都take over一下，干碎cover指日可待。
+
+反正那边版务打脸也不差这一次，坦诚相待对大家都好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 29217#       发表于 2021-1-12 14:47
+
+
+
+
+草，被nga口了就来s1发泄，天狗还是老一套<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 29218#       发表于 2021-1-12 14:49
+
+
+
+
+我没被口啊，当什么垃圾桶啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 29219#       发表于 2021-1-12 14:50
+
+
+
+
+nga什么太监论坛，狗都不去
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 29220#       发表于 2021-1-12 14:50
+
+
+
+
+勒夫坛耗子尾汁啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">少指手画脚了
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 29221#       发表于 2021-1-12 14:51
+
+
+
+
+哭丧系主播差不多得了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29222#       发表于 2021-1-12 14:56
+
+
+
+ 本帖最后由 古战场亡魂 于 2021-1-12 14:57 编辑 
+
+如果你觉得nga不好，就去建设它，反正已经证明了cp楼是合法的，就不要在s1叽叽哇哇了。
+
+去彩虹专区开个神冈家的楼，不但能讨论凑阿夸还能讨论小粥。
+
+什么夏色英雄转世楼，什么犬山信姬转世楼，什么童话社转生楼，杏人就是傻不如crew脑子灵活。还要打着冲桐生可可的名义才能在自己的区苟延残喘，真的聪明的都去其他区开租界。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 29223#       发表于 2021-1-12 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011328&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2021-1-12 14:42</a>
+我的错，我就是想跟crew说别意淫夸从holo毕业了，然后就被围殴了，都是我的错，避难所女士只是傻乎乎跟着 ...</blockquote>
+你以为去那是说大亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可nga有多少人巴不得进去把俩人一块劈送走呢
+
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 29224#       发表于 2021-1-12 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011502&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2021-1-12 14:56</a>
+如果你觉得nga不好，就去建设它，反正已经证明了cp楼是合法的，就不要在s1叽叽哇哇了。
+
+去彩虹专区开个神冈 ...</blockquote>
+童话社可以有，想看三家粉丝大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+                         

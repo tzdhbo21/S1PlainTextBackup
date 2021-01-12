@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-07 20:00** 
+> ## **本文件最后更新于2021-01-12 06:59** 
 
 
 
@@ -7305,4 +7305,543 @@ mio的占卜分析已經品鑒過了，準不準確留待未來確認，起碼�
 
 
 
-                                    
+
+
+-----
+
+####  FCCHua  
+##### 10892#       发表于 2021-1-7 20:23
+
+
+
+
+练习能直播下吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10893#       发表于 2021-1-7 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">apex最协是哪天比赛来着？
+
+又要重复上年的剧情吗。
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10894#       发表于 2021-1-7 21:45
+
+
+
+ 本帖最后由 因为你不会 于 2021-1-7 21:53 编辑 
+
+绫总怕不是眼药水都买好了准备往枕头上浇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+一开始练都不练该吃吃该睡睡，然后临时抱佛脚配合细碎，最后比赛被吊锤流下不甘的泪水
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10895#       发表于 2021-1-7 21:46
+
+
+
+ 本帖最后由 一仙 于 2021-1-7 21:52 编辑 
+
+怎么现在播糖豆人还有一万人看阿 这个游戏还没过气吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+初不初见都一样菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10896#       发表于 2021-1-7 21:51
+
+
+
+
+新赛季了，余觉得自己又行了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10897#       发表于 2021-1-7 21:56
+
+
+
+
+看到绫总还是一样菜我就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10898#       发表于 2021-1-7 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好菜啊
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10899#       发表于 2021-1-7 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本不是一个莱芜的
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10900#       发表于 2021-1-7 23:15
+
+
+
+
+绫总还是找个电子厂上班吧
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10901#       发表于 2021-1-8 00:45
+
+
+
+
+我在R6被人虐的時候，綾總被糖豆人虐了嗎...我去放重播好了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10902#       发表于 2021-1-8 16:05
+
+
+
+
+开始pua了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10903#       发表于 2021-1-8 16:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钩直饵咸 但神秘回复还真不少
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10904#       发表于 2021-1-8 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">高强度PUA
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10905#       发表于 2021-1-9 01:06
+
+
+
+ 本帖最后由 一仙 于 2021-1-9 01:11 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/09/010625uujj22xxijzpm4jp.png" referrerpolicy="no-referrer">
+
+
+<strong>20210108221521.png</strong> (250.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-9 01:06 上传
+
+
+
+
+
+
+[https://twitter.com/dEi_pft/status/1347534585387577345?s=20](https://twitter.com/dEi_pft/status/1347534585387577345?s=20)
+
+
+syl 今天又点开新年歌会听了好多遍这首 [貴方解剖純愛歌~死ね~](https://youtu.be/Nu0vyXUrdvU?t=4407) <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Fami水| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10906#       发表于 2021-1-9 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好喜欢这首唱一半时候的坏笑
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10907#       发表于 2021-1-10 04:29
+
+
+
+
+狗頭大哥，綾總有在練apex嗎
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10908#       发表于 2021-1-10 16:27
+
+
+
+
+她练个鸡儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10909#       发表于 2021-1-10 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是练声 又是练声
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10910#       发表于 2021-1-10 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">apex是什么？
+
+
+
+
+
+
+
+-----
+
+####  alexmax1  
+##### 10911#       发表于 2021-1-10 20:54
+
+
+
+
+10点歌回
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10912#       发表于 2021-1-11 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">推什么意思，喂小小绫么
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10913#       发表于 2021-1-11 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10914#       发表于 2021-1-11 23:15
+
+
+
+
+看着楼外的各种不仲发散
+
+绫总：switch被猫咬了
+
+
+所以绫总究竟什么时候开练apex
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10915#       发表于 2021-1-11 23:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次一定
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10916#       发表于 2021-1-11 23:31
+
+
+
+
+绫总就算不练了你黄泉能一枪崩了我？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10917#       发表于 2021-1-12 00:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">战术性咬坏
+其实只是太长时间没开机，开不起叻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10918#       发表于 2021-1-12 14:05
+
+
+
+
+今日は新年初の晩酌配信したいなぁ
+
+所以那個apex比賽......
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10919#       发表于 2021-1-12 14:17
+
+
+
+
+许久没来怎么都进化成apex事业楼了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">她狗今晚有mio妈那儿的okfams...大概吧
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10920#       发表于 2021-1-12 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求生之路吗
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10921#       发表于 2021-1-12 14:19
+
+
+
+ 本帖最后由 寺川愛美 于 2021-1-12 14:21 编辑 
+
+喔今晚還有L4D
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10922#       发表于 2021-1-12 14:31
+
+
+
+
+不知道是想起来了还是被提醒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，晚酌改了， 看了下应该是okam的求生
+
+
+
+
+
+                                   
