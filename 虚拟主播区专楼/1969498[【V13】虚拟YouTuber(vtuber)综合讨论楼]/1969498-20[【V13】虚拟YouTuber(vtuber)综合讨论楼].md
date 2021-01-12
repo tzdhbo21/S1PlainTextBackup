@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-12 09:05** 
+> ## **本文件最后更新于2021-01-12 11:56** 
 
 
 
@@ -10846,10 +10846,11 @@ meanwhile in the groupchat......
 
 
 
- 参与人数 6战斗力 +2
+ 参与人数 7战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| admentus| + 1|骂人不至于|
 | 不知道留下什么| + 1|思路广|
 | fightonion|-1||
 | 过不了审| + 1|骂人没必要啊|
@@ -14315,4 +14316,611 @@ kr浓度甚至需要2k来守护<img src="https://static.saraba1st.com/image/smil
 
 
 
-                        
+
+
+-----
+
+####  poipanchao  
+##### 29254#       发表于 2021-1-12 17:21
+
+
+
+
+说实话黑黑我还OK，挑染组小废物有一个算一个都很无聊（黑客整活儿的时候还行）
+导致现在虹楼没法看了……
+
+视奸的虹人一码归一码啊，上面的话回虹楼我不认的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29255#       发表于 2021-1-12 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012919&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-1-12 17:21</a>
+
+说实话黑黑我还OK，挑染组小废物有一个算一个都很无聊（黑客整活儿的时候还行）
+
+导致现在虹楼没法看了……
+
+ ...</blockquote>
+这话说的有夹总“本帐号所发言论不代表本人”内味了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29256#       发表于 2021-1-12 17:25
+
+
+
+
+V无关
+
+
+菅首相がビル・ゲイツ氏と会談 <strong>東京五輪は「必ずやりきる」</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29257#       发表于 2021-1-12 17:25
+
+
+
+
+U1S1杏奴确实烦，我来增加点虹浓度
+
+
+<img src="https://img.saraba1st.com/forum/202101/12/172535iia2xaxbxh4bdxdj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>b7260653cc802273cfe94235e58c2e43f16747ac.jpg</strong> (51.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 17:25 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|足控狂喜乱舞|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29258#       发表于 2021-1-12 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012951&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-12 17:24</a>
+这话说的有夹总“本帐号所发言论不代表本人”内味了</blockquote>
+特殊生态，虹楼基本各聊各的，v综反而会有交流
+所以v综打架不影响虹楼搭楼
+不把s1恩怨带到nga就行
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 29259#       发表于 2021-1-12 17:32
+
+
+
+
+女粉消费力强，那才是真正的人上人。什么时候杏星把虹男干倒，田角就破产了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29260#       发表于 2021-1-12 17:32
+
+
+
+
+Mhr 的数字确实不行啊，阿喵喵首播数字就比她平a高一点点，她还算玩的不错的老猎人了，不知道正式版数字怎么样
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29261#       发表于 2021-1-12 17:33
+
+
+
+
+我刚贴的这个也是号称MHW能玩一辈子的老猎人了，到时候看看她的表现吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  突然空虚  
+##### 29262#       发表于 2021-1-12 17:38
+
+
+
+
+我上次就看到她被黄黑单刷，不知道后面有没有被黑龙solo。
+
+syl，你的0上次开直播聊天也有快3000同接，惊到了。
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29263#       发表于 2021-1-12 17:40
+
+
+
+[https://twitter.com/rin7914/status/1348905295498539009](https://twitter.com/rin7914/status/1348905295498539009)
+
+<img src="https://img.saraba1st.com/forum/202101/12/174015qficoy377o5jndib.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErhFsW0U0AASdli.jpg</strong> (204.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 17:40 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 29264#       发表于 2021-1-12 17:43
+
+
+
+
+[f:023阿喵喵的mhr 推流不行掉帧的 同接不行很正常
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29265#       发表于 2021-1-12 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 露脸女歌手要彩虹前一天超大型live，第二天虹liver燃尽，然后再播mhr，才有那味道
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29266#       发表于 2021-1-12 18:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/12/181208lx6l16krqffgzo6e.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210112181153.png</strong> (11.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 18:12 上传
+
+
+
+
+
+
+半年之前我跟你说kmm一天播四次，你们一定会笑我野区放盒子，
+
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29267#       发表于 2021-1-12 18:45
+
+
+
+
+2000还不看爆
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29268#       发表于 2021-1-12 18:49
+
+
+
+ 本帖最后由 poipanchao 于 2021-1-12 18:50 编辑 
+
+1.会限，2000看不了
+2.月下樱，有2000最喜欢的黑客和不破
+3.怪猎，有2000最喜欢的老师
+4.深夜apex，公务员看毛啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29269#       发表于 2021-1-12 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012410&amp;ptid=1969498" target="_blank">66367749 发表于 2021-1-12 16:29</a>
+
+那你是没见过事发之后的百鬼（lol吃瘪）楼吧，虽然那边整合专楼之后不见了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">那边的百鬼楼我经常看啊，可那都不聊直播的，而且聊野男人多过聊百鬼，跟贴贴楼那边聊的差远了。。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29270#       发表于 2021-1-12 19:09
+
+
+
+
+撇撇现在怎么只剩200多同接了，阿菜最菜的时候也比这个好啊。
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 29271#       发表于 2021-1-12 19:20
+
+
+
+
+撇撇不知道有没有联系下露姨蹭个六期的名额<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 29272#       发表于 2021-1-12 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012584&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2021-1-12 16:47</a>
+不去杏难道去虹吗？49入国军？</blockquote>
+一直想问，这个是不是2000小号啊
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 29273#       发表于 2021-1-12 19:24
+
+
+
+
+我就是特地注册了来学2000说话的，看来我可以出山了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29274#       发表于 2021-1-12 19:27
+
+
+
+
+一开始看着像2k小号 但是段位还是差距太大
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29275#       发表于 2021-1-12 19:28
+
+
+
+
+昨天郡道apex排到一个名字叫“男桐竟在我身边”的海外哥，我直播的时候不在，要是在的话就跟郡道解释这个梗了……
+然后，西选复活！！好耶！
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 29276#       发表于 2021-1-12 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50014304&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2021-1-12 19:24</a>
+我就是特地注册了来学2000说话的，看来我可以出山了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">时代已经进化到2000都有人学了，接下来你只要去上海迪士尼拉一泡屎就可以从此自称激光2000了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29277#       发表于 2021-1-12 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 可别乱说，我可是最期待在黑客频道的月下樱联动了，
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 29278#       发表于 2021-1-12 19:30
+
+
+
+
+没被月丿看到的迪士尼拉屎是不完整的，只能自称激光1000
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29279#       发表于 2021-1-12 19:31
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-12 19:28
+昨天郡道apex排到一个名字叫“男桐竟在我身边”的海外哥，我直播的时候不在，要是在的话就跟郡道解释这个梗 ...</blockquote>
+她俩上次联动的时候我还是猩猩众
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29280#       发表于 2021-1-12 19:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/12/195014cbddox55g5esws8o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErfltmiVgAAEh31.jpg</strong> (518.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 19:50 上传
+
+
+
+
+
+[https://twitter.com/kutar22/status/1348800229840093184](https://twitter.com/kutar22/status/1348800229840093184)
+
+<img src="https://img.saraba1st.com/forum/202101/12/195010gmyo0uftfsmfg2if.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErhSOnSUcAQm4CN.jpg</strong> (169 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 19:50 上传
+
+
+
+
+
+[https://twitter.com/Sco_ttie/status/1348918672757125123](https://twitter.com/Sco_ttie/status/1348918672757125123)
+
+<img src="https://img.saraba1st.com/forum/202101/12/195019t7rja7a3jrzaoa77.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErhVp9aVkAE7EGR.jpg</strong> (145.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 19:50 上传
+
+
+
+
+
+[https://twitter.com/a999895/status/1348923031578570752](https://twitter.com/a999895/status/1348923031578570752)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29281#       发表于 2021-1-12 19:52
+
+
+
+[https://www.youtube.com/watch?v=2EGrFV24Ic4](https://www.youtube.com/watch?v=2EGrFV24Ic4)
+
+8点有我们家大葵的歌回，一定要来听
+
+
+另外......
+[https://www.youtube.com/watch?v=QvIt-zIAU1g](https://www.youtube.com/watch?v=QvIt-zIAU1g)
+
+emma，现在应该叫上田敦美了，是真的不会唱这种，你都不当V了就别唱了......
+
+
+
+
+
+                       
