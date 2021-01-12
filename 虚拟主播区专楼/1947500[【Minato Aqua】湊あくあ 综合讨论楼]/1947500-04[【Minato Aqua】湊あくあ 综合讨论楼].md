@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 14:01** 
+> ## **本文件最后更新于2021-01-12 08:01** 
 
 
 
@@ -5576,4 +5576,583 @@ p.s海蓝宝石szd
 
 
 
-                                       
+
+
+-----
+
+####  新磕娘  
+##### 4804#       发表于 2021-1-11 22:01
+
+
+
+
+这样也好，给明年马车杯夺冠埋个伏笔
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4805#       发表于 2021-1-11 22:15
+
+
+
+
+第二局领先时吃了towa的喇叭，后面减速躲蓝龟壳的时候被sui酱挤进攻击范围，吃了sui酱的食人花攻击跑赛道外，变道的时候撞到团长的火箭，吃闪电，最后撞柱子撞墙操作失误。
+
+第四局前期吃了狐狸的一个向后扔的绿龟壳（看到夸宝在身后狐狸前后两次绿龟壳都是往身后扔的，虽然第二次没中），后面在抄近道的时候一头撞到团长瞎扔的绿龟壳上。
+
+总的来说，因为船长开赛前的调侃，所以没有特别严重的集火情况，只能说马车本来就有运气成分，以及自己没能避免失误。
+
+
+syl，狐狸不开台是不是为了方面盯着夸宝打啊
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4806#       发表于 2021-1-11 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005518&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-11 22:15</a>
+
+第二局领先时吃了towa的喇叭，后面减速躲蓝龟壳的时候被sui酱挤进攻击范围，吃了sui酱的食人花攻击跑赛道外 ...</blockquote>
+可不就是吗
+
+搞不好一边打一边嘴里骂骂咧咧的
+
+去年也是说为了集中注意力不开台
+
+台都不敢开还有脸比赛
+
+
+
+
+
+
+
+-----
+
+####  zpy393  
+##### 4807#       发表于 2021-1-11 22:21
+
+
+
+
+虽然但是阴谋论入脑了就要给人看笑话了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本质上还是自己失误太多输了，所以才那么不甘心，都怪别人反而没什么好哭嘛
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4808#       发表于 2021-1-11 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没什么不服气的，觉得不服的可以去看第二把
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 4809#       发表于 2021-1-11 22:30
+
+
+
+ 本帖最后由 deadinside666 于 2021-1-11 22:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">强行送人头不可取。
+这连体婴出身的就是不长脑子。
+心态35p化，却没有35p的狠毒和手段<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">真是菜啊。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">牡丹妹也有权力不安啊。牡丹妹lives matter
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 4810#       发表于 2021-1-11 22:43
+
+
+
+
+一条回复编辑一万次像樱花妹一样，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 4811#       发表于 2021-1-11 22:46
+
+
+
+
+35P不就斗鱼一般节奏哥的水平吗？除了像nt一样喜欢把粪坑当宝外没啥狠毒的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  memo2025  
+##### 4812#       发表于 2021-1-11 22:49
+
+
+
+
+怎么大家都在说哭的事, 不觉得夸宝第二名的发言不仅没哭, 而且很得体很赞么
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kanchiki| + 1|那群人脑子有坑|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  66367749  
+##### 4813#       发表于 2021-1-11 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005812&amp;ptid=1947500" target="_blank">memo2025 发表于 2021-1-11 22:49</a>
+怎么大家都在说哭的事, 不觉得夸宝第二名的发言不仅没哭, 而且很得体很赞么 ...</blockquote>
+嗯，还担心会不会调整不好心态放送事故，实际发言时能控制好我是挺感动的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+不过你也知道这里为什么这样的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4814#       发表于 2021-1-11 22:59
+
+
+
+
+我反正心态很正，夸宝有不足，运气也不算最佳，输了就输了，也不是输不起。但是狐狸全村唯一一个不开台，两次有多个绿龟壳的时候都是在夸宝在身后时给夸宝留一份，第一次是超车后拐了一个大弯走到中线来；第二次是自己第三名，towa就在正前方，第一个绿龟壳歪的离谱的情况下，第二个绿龟壳找的身后的夸宝。实锤狐狸报私仇当然是实锤不了的，但是绝对够可疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4815#       发表于 2021-1-11 23:02
+
+
+
+
+很难不支持，fbk复仇成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 4816#       发表于 2021-1-11 23:04
+
+
+
+
+很不好的预感，明天要耐久100W了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 4817#       发表于 2021-1-11 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005899&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-11 22:59</a>
+
+我反正心态很正，夸宝有不足，运气也不算最佳，输了就输了，也不是输不起。但是狐狸全村唯一一个不开台，两 ...</blockquote>
+小声bb一下：巧可也没开台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4818#       发表于 2021-1-11 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005956&amp;ptid=1947500" target="_blank">OldGlory 发表于 2021-1-11 23:05</a>
+
+小声bb一下：巧可也没开台</blockquote>
+我指的胜者组辣，巧可那个是真的惨绝人寰，但你去年准优胜就算打算躺平，不开台吃流量也会让人浮想联翩的
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4819#       发表于 2021-1-11 23:12
+
+
+
+
+狐狸故意不故意的根本就没什么关系，
+
+故意的怎么样，道具赛你还能禁用她道具不成，更何况就她那排名说她故意的都算抬举她了
+
+阿夸顶多从第一掉到第二，还仅仅是一分，狐狸这边连前三都进不去的选手
+
+不记得前两天谁说狐狸藏招，就藏了这么个玩意？她要是不故意的我也就嘲讽一下变菜了，要是故意的那我可真能笑一晚上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4820#       发表于 2021-1-11 23:13
+
+
+
+
+求求别说了，有什么意思呢，输了菜是原罪好好挨打就完了，何必还要说这个说那个的，说那么多还不是别人的笑话。你是去年冠军，公认的实力最强，不针对你针对谁？车是选手开的，比赛是选手参加的，当然是人家想怎么玩就怎么玩，哪里来的针对不针对这么一说？去年赢了笑一笑也就算了，今年输了再抓着这个不放真的是没意思。
+
+
+
+
+
+
+
+-----
+
+####  LightersFAN  
+##### 4821#       发表于 2021-1-12 00:04
+
+
+
+
+都是糊比了（指在这边），真的怕车与被车吗
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4822#       发表于 2021-1-12 10:54
+
+
+
+ 本帖最后由 离魂仙 于 2021-1-12 11:21 编辑 
+
+[https://www.youtube.com/watch?v=X7qJ1v9VwME](https://www.youtube.com/watch?v=X7qJ1v9VwME)
+
+BV1zv411x7wJ
+
+复盘了一下あく虐，这剪辑里没把三声自我打气的“湊あくあです！”给收录进来很可惜（原档 01:09:35 突然の自己紹介）
+
+这一出擦干眼泪逞强、告诉自己不能哭的场景让我想起了厕所里的冈崎汐<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+一直认为虹的最大优点是日剧一般的箱推企划
+
+没想到杏这边终于让我感受到了一次，却是夸宝以惨烈的失误换来的，心情复杂
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|自我打气这真的太打动人了，破防ing.|
+| 乌鸦绅士| + 1|“美丽的眼泪”|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4823#       发表于 2021-1-12 11:10
+
+
+
+
+补完剑圣阿夸打只狼了，阿夸强无敌<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，不过b站弹幕好恶心，忍了两集我就关掉了。不知道阿夸今年会不会播老头环呢
+
+
+感觉补了不少旧货了，想找点新的就加了油管会员，可怎么会限视频都是杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4824#       发表于 2021-1-12 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50009117&amp;ptid=1947500" target="_blank">wwddrte 发表于 2021-1-12 11:10</a>
+
+补完剑圣阿夸打只狼了，阿夸强无敌，不过b站弹幕好恶心，忍了两集我就关掉了。不知道阿夸今年会不会 ...</blockquote>
+草生，新来的游戏民吗，你踏上的可是修罗之路啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+为心理健康考虑，不要去期待夸能播什么时髦游戏比较好，时代变了
+
+
+瞅了一眼会限，几部同时视听里看轻音的那一次印象中比较欢乐
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4825#       发表于 2021-1-12 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50009444&amp;ptid=1947500" target="_blank">离魂仙 发表于 2021-1-12 11:37</a>
+
+草生，新来的游戏民吗，你踏上的可是修罗之路啊
+
+为心理健康考虑，不要去期待夸能播什么时髦游戏比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+谢谢
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4826#       发表于 2021-1-12 11:48
+
+
+
+
+【初おうち3D】いろいろはなそう！【湊あくあ/ホロライブ】
+
+23:00（CST）
+
+
+喷了家用3D，2021年了都，不知道会出现什么奇景
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4827#       发表于 2021-1-12 12:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">家用3d，不容易啊，都挤出来了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4828#       发表于 2021-1-12 13:05
+
+
+
+
+时隔一年半的家用3D
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4829#       发表于 2021-1-12 14:17
+
+
+
+
+可以期待一下3D版的奶油面包吗
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 4830#       发表于 2021-1-12 15:06
+
+
+
+
+平常搞些莫名奇妙的重大发表
+
+家用3d这种却又一点预告都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（还是说最近在直播里透露过？）
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4831#       发表于 2021-1-12 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50009117&amp;ptid=1947500" target="_blank">wwddrte 发表于 2021-1-12 11:10</a>
+
+补完剑圣阿夸打只狼了，阿夸强无敌，不过b站弹幕好恶心，忍了两集我就关掉了。不知道阿夸今年会不会 ...</blockquote>
+FS家的游戏很有可能以后再也不会玩了。按照条款，关了收益化玩本来应该是没有问题的，但是一个是以前好几次都是开着收益玩的（holo其他人也是），虽然档都删了，但是毕竟还有那么一群“版权卫士”在盯着，加上cover没打算去找FS谈（或者FS不想理），这样的一个状态cover运营那边是会阻止liver直播玩FS的游戏的。
+
+
+会限杂谈听不懂的话，一来可以先听听歌回和看死肥猫的图，二来就是可以找评论区的“ユーPていとく”，会用两三个词概括各个时间点夸宝大致在说些什么或是有什么有趣的反应。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4832#       发表于 2021-1-12 15:33
+
+
+
+
+cover估计就是看你哭得那么惨，就把早就做好放一边的东西拿出来一点给你冲冲喜。
+
+她不搞重大告知，一个是心情没到位，干脆直接上调整一下心情；另一个可能是最近没那么追求数字了，大概是前期追求数字的目标已经达成，可以从cover那边拿到一定的资源了，所以重心就放在偶像梦、和同事社交、以及游戏中的一些自我挑战上了，唱唱歌、跳跳舞、聊聊天、玩玩游戏、适当媚宅，基本上定调了。
+
+
+
+
+
+                                      
