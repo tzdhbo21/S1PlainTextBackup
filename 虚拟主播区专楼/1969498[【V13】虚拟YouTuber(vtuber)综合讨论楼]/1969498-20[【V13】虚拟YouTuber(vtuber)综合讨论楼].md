@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-12 07:01** 
+> ## **本文件最后更新于2021-01-12 09:05** 
 
 
 
@@ -13316,6 +13316,25 @@ s1永不输
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 深渊萃取| + 1|这还被没开除贴籍呢？|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13761,4 +13780,539 @@ nga什么太监论坛，狗都不去
 
 
 
-                         
+
+
+-----
+
+####  月下红魔  
+##### 29225#       发表于 2021-1-12 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011328&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2021-01-12 14:42:31</a>
+我的错，我就是想跟crew说别意淫夸从holo毕业了，然后就被围殴了，都是我的错，避难所女士只是傻乎乎跟着 ...</blockquote>活该，嘻嘻
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29226#       发表于 2021-1-12 15:17
+
+
+
+
+V综的kpi已经下降到要被天狗团建淹没了，Q综c综害人不浅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29227#       发表于 2021-1-12 15:35
+
+
+
+
+所以夸夸到底为什么算神冈家的？
+
+
+
+
+
+
+
+-----
+
+####  Kitali  
+##### 29228#       发表于 2021-1-12 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011902&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-12 15:35</a>
+所以夸夸到底为什么算神冈家的？</blockquote>
+大亏跟神岡家走的挺近的，神岡家电台一个月一次，以后还有大亏和sasaki做客的机会的，可惜nass去年玩的次数不多，不然以nass的名义开也行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29229#       发表于 2021-1-12 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50010971&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-12 14:13</a>
+
+月灵似乎在学新中文歌，问“的”有几种发音</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这次会选什么曲子啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29230#       发表于 2021-1-12 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 椎名笹木作为叛忍二人众，怕不是早就被阳光囚人开除社籍了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29231#       发表于 2021-1-12 16:09
+
+
+
+
+2000最喜欢的阿道现在在虹楼混的风生水起的
+（就是越来越向mmr方向魔怔了）
+整个虹楼也越来越mmr和女粉化
+
+2000你该换个号混进去了，说不定还能约个女虹人啥的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29232#       发表于 2021-1-12 16:11
+
+
+
+
+牙膏厂不考虑给彩虹搞点工商吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29233#       发表于 2021-1-12 16:13
+
+
+
+
+建议2000等一个时机，在king订阅超月之的那天
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29234#       发表于 2021-1-12 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了楼友发言才知道隔壁贴贴楼现状，去看了下，crew浓度真高，看来crew在nga不算杏奴。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29235#       发表于 2021-1-12 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012243&amp;ptid=1969498" target="_blank">stedckk 发表于 2021-1-12 16:13</a>
+看了楼友发言才知道隔壁贴贴楼现状，去看了下，crew浓度真高，看来crew在nga不算杏奴。 ...</blockquote>
+鲸落前连体楼一潭死水，鲸落后连体楼人丁兴旺，现在里面都是啥玩意，不用说了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 29236#       发表于 2021-1-12 16:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来大家都在隔壁钓鱼
+
+
+
+
+
+
+
+-----
+
+####  66367749  
+##### 29237#       发表于 2021-1-12 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012243&amp;ptid=1969498" target="_blank">stedckk 发表于 2021-1-12 16:13</a>
+看了楼友发言才知道隔壁贴贴楼现状，去看了下，crew浓度真高，看来crew在nga不算杏奴。 ...</blockquote>
+那你是没见过事发之后的百鬼（lol吃瘪）楼吧，虽然那边整合专楼之后不见了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29238#       发表于 2021-1-12 16:29
+
+
+
+
+钓鱼（叉）
+被连体人辱骂然后抽楼被口（勾）
+NGA坏耶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29239#       发表于 2021-1-12 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">皆守女士15w耐久了这么久，真让人感到舒适
+
+
+当初给夏色女士下跪舔进隔壁，怕不是现在都51w了，
+
+
+能不能别提阳光囚人代表了，当初被人赶出虹楼，现在又混的风生水起，只能说阳光囚人在不要脸这块拿捏的死死的，
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 29240#       发表于 2021-1-12 16:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/12/162622azoqkgq0ru2grrw2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210112162511.png</strong> (111.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 16:26 上传
+
+
+
+
+
+
+杏味儿十足啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+你虹这个月的月刊能想到有多丢人了
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29241#       发表于 2021-1-12 16:33
+
+
+
+
+怎么有人在耶路撒冷钓鱼的，大不敬啊。
+
+我每次点开nga前都要沐浴更衣，用冷水浇头让自己清醒才敢点开帖子。冲蝗兄弟们的一言一语都充满了年轻人的朝气和对信念的执着。小红专楼里没有v8的混乱，s1的硝烟，有的只是对小红善意的讨论和期盼。难怪鲸落会发生在nga，正如所罗门王在耶路撒冷建圣殿，耶稣在此受难一样，不是偶然，而是长久以来文化熏陶下的必然。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29242#       发表于 2021-1-12 16:35
+
+
+
+
+nga到底逼疯了你楼多少人
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29243#       发表于 2021-1-12 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50012448&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-1-12 16:32</a>
+
+杏味儿十足啊
+
+你虹这个月的月刊能想到有多丢人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这些加起来都不如昨天月之偷综艺丢人
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 29244#       发表于 2021-1-12 16:36
+
+
+
+
+本来就是疯的，也不差nga
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 29245#       发表于 2021-1-12 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">按2K的说法当VTB的都去杏算了，不然就别做梦
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 29246#       发表于 2021-1-12 16:47
+
+
+
+
+不去杏难道去虹吗？49入国军？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29247#       发表于 2021-1-12 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">当然了，不得不承认，男人就去虹好点，而且天天有人美声甜的免费妹子陪玩，
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 29248#       发表于 2021-1-12 16:51
+
+
+
+
+02怕不是在准备贺岁歌曲，贷款一个北国之春<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29249#       发表于 2021-1-12 16:53
+
+
+
+
+2000你可以别激寒小号自问自答了吗？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29250#       发表于 2021-1-12 16:54
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/12/165411qd07x8xp803zz8hx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210112165347.jpg</strong> (11.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 16:54 上传
+
+
+
+
+
+
+
+原来发动态至少还有韩文翻译，
+
+
+现在连翻译都省了，不行的话我去下面写个韩文版吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29251#       发表于 2021-1-12 16:56
+
+
+
+
+kr浓度甚至需要2k来守护<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 29252#       发表于 2021-1-12 16:56
+
+
+
+
+还可以来bilibili
+
+上限一个红团长
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29253#       发表于 2021-1-12 17:05
+
+
+
+<blockquote>poipanchao 发表于 2021-1-12 16:09
+2000最喜欢的阿道现在在虹楼混的风生水起的
+
+（就是越来越向mmr方向魔怔了）
+
+整个虹楼也越来越mmr和女粉化</blockquote>
+虹楼其实蛮早的时候女粉浓度就挺高的了，不过那时候还只限于黑黑的女粉，现在感觉挑染组的女粉和黑黑的女粉五五开了
+
+
+
+
+
+                        
