@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-13 12:07** 
+> ## **本文件最后更新于2021-01-13 15:03** 
 
 
 
@@ -15910,6 +15910,25 @@ https://www.youtube.com/watch?v=2EGrFV24Ic4
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| peh| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15945,6 +15964,25 @@ bsyl
 
 链接: [[https://pan.baidu.com/s/17xkfcatgvalCodqfcNbflA](https://pan.baidu.com/s/17xkfcatgvalCodqfcNbflA)] 提取码: ptbw
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| peh| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -16038,4 +16076,944 @@ bsyl
 
 
 
-                     
+
+
+-----
+
+####  耻照  
+##### 29343#       发表于 2021-1-13 20:15
+
+
+
+
+接下来是不是该思索怎么把她上面那帮德不配位的拉下来了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29344#       发表于 2021-1-13 20:22
+
+
+
+
+不知今天CNcrew会给cover送多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 29345#       发表于 2021-1-13 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别尬黑，给正确的人送钱当然也是冲蝗的一部分
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 29346#       发表于 2021-1-13 20:32
+
+
+
+
+阿夸这是含金量最高的金盾吧，其它人没法比
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 2|除了阿夸还有别的金盾？ccll还差一点吧？.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29347#       发表于 2021-1-13 20:37
+
+
+
+
+江猴这直接写个集金枠有内味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 29348#       发表于 2021-1-13 20:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同接播放量SC都不是最高的，哪敢说是含金量最高的金盾
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 29349#       发表于 2021-1-13 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么不敢，楼上就敢
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 29350#       发表于 2021-1-13 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠勤冠勤
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29351#       发表于 2021-1-13 20:49
+
+
+
+
+去猴那里看了一下，就一个立绘=数不清的血血红的一排SC，建议田角让其他虹女脱产学习，学习感想不得少于1000字。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 29352#       发表于 2021-1-13 20:57
+
+
+
+ 本帖最后由 cheatdeath3 于 2021-1-13 20:58 编辑 
+
+"只要正确的人套了正确的皮，钱就会像垃圾一样源源不断地涌进来。"
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29353#       发表于 2021-1-13 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4id说啥呢，这就源源不断了嘛没看过阿希apex抽卡么，直接500wsc
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 29354#       发表于 2021-1-13 21:02
+
+
+
+
+具crew所述CN金主都跑光了，但大亏这几个月sc暴涨
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 29355#       发表于 2021-1-13 21:03
+
+
+
+
+夸宝这个金盾甚至是国内外双金盾（国内还差一些），确实是含金量最高的金盾了
+
+
+
+
+
+
+
+-----
+
+####  rinphon  
+##### 29356#       发表于 2021-1-13 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">居然上手就给萌新推魔女blog，两个月后又多一个防守型雀士
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29357#       发表于 2021-1-13 21:16
+
+
+
+
+这不是说明CN crew只是费拉不堪的不良资产么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 29358#       发表于 2021-1-13 21:25
+
+
+
+ 本帖最后由 掉头学姐 于 2021-1-13 21:57 编辑 
+
+我来论述下，为啥说阿夸的金盾是含金量最高的
+
+
+1.早期被油管炮打，坚持不懈逆风上分
+
+2.不靠外人独立打下中国盘，谁人不识理解理解，向日葵，还有被dd津津乐道的b站二创鉴赏也是阿夸开创
+
+3.从不吸箱内血，早期箱内困难的时候，积极联动2434，帮助箱内大家庭引流虹人
+
+4.顶着holo和龙皇两大debuff，差一点点就获得双金盾前无古狐的伟业
+
+5.虽然知道holo和龙皇是蠢货，发扬不放弃不抛弃的精神，忍痛告别国内最好的crew群体，继续为holo立下汗马功劳，而国内crew也英雄惜英雄，继续追随最好的阿夸，真是可歌可泣
+
+6.人品魅力无敌，有多个vtber想跟阿夸组成cp，阿夸从来不偏向哪个，帮这些cp都引到了流，大公无私
+
+7.游戏力无敌，这个相信大家都知道
+
+8.最重要的一点，其它人金盾都有买粉嫌疑，而holo内部的几个金盾更是确凿无疑的买了粉，只有阿夸出淤泥而不染，完全靠自己拼搏到了金盾（特此声明据全管人圈最正义的群体冲蝗老哥透露邪恶的狐皇4月给阿夸买了粉，从而用大家庭压力阻止其社外联动，另外还有某些不明成分的人士污蔑给阿夸买粉，望千万不要上当）
+
+
+试问这样一个金盾，难道不是含金量最高的吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DDWarrior| + 1|思路广|
+| JoelBirch| + 1|没必要|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 29359#       发表于 2021-1-13 21:26
+
+
+
+ 本帖最后由 目力干员leison 于 2021-1-13 21:34 编辑 
+
+杏仁翻出去打钱的连4v人打钱的零头都没有好吧，别乱劈<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+虽然我也看某些人又当又立很不爽，不过这种时候还黑屁就没必要了吧
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 29360#       发表于 2021-1-13 21:27
+
+
+
+
+  出淤泥而不染 确实含金量
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 29361#       发表于 2021-1-13 21:30
+
+
+
+
+果然是我眼里有梁木，你这一条条列着咋感觉全是yygq啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29362#       发表于 2021-1-13 21:31
+
+
+
+ 本帖最后由 nowaki 于 2021-1-13 21:39 编辑 
+
+最后一条明显就是帆船吧nga最新研究证据是 狐姨4月给阿夸买了粉，从而用大家庭压力阻止其社外联动，破坏meaqua咖啡厅计划。那天问着要了证据还直接被禁言四天标记野怪了，看来是真事了。望改正
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 29363#       发表于 2021-1-13 21:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50026544&amp;ptid=1969498" target="_blank">darkpiece365 发表于 2021-1-13 21:30</a>
+
+果然是我眼里有梁木，你这一条条列着咋感觉全是yygq啊</blockquote>
+除了1.7全是阴阳怪气啊😄7可能也是🤔
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29364#       发表于 2021-1-13 21:42
+
+
+
+
+谁能告诉我ars是怎么吸到毛子粉的？她这新衣服也不像阿迪达斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29365#       发表于 2021-1-13 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50026517&amp;ptid=1969498" target="_blank">aisakahammer 发表于 2021-1-13 21:27</a>
+
+出淤泥而不染 确实含金量</blockquote>
+对了486，你当初帮凑阿夸油管买了多少粉来着我有点不记得了。2000有吗？？
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 29366#       发表于 2021-1-13 21:52
+
+
+
+
+买了4000粉 分批发货 我是5月份买的
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29367#       发表于 2021-1-13 22:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4000粉得多少钱啊
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29368#       发表于 2021-1-13 22:04
+
+
+
+
+所以可以举报夸夸帐号了吗？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29369#       发表于 2021-1-13 22:10
+
+
+
+[https://live.bilibili.com/21737386](https://live.bilibili.com/21737386)
+
+小免的A+ hachi被车中
+
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 29370#       发表于 2021-1-13 22:12
+
+
+
+
+夸宝确实是硬实力金盾，顶着社内的压力才走到了今天，原本应该是木口第一个双边金盾的主播，但被tskk坏了好事。
+
+
+太可惜了，为木口立下血汗功劳却在今天才得以加冕，对孩子实在是太不公平了。
+
+
+不说了，污染tskk蓝鸟tag去了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29371#       发表于 2021-1-13 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50026907&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-13 22:10</a>
+
+https://live.bilibili.com/21737386
+
+小免的A+ hachi被车中</blockquote>
+这哪位啊，中之人是声乐老师吗？？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29372#       发表于 2021-1-13 22:23
+
+
+
+<blockquote>エーテル Vtuberなのです
+
+@AT_Crescentia
+
+日本時間の23:30からニコ生配信をするのです～！
+
+よかったら遊びに来てほしいのです
+
+
+我将从日本时间23:30开始niconico直播～！
+
+如果可以的话，请大家也来直播</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29373#       发表于 2021-1-13 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50027016&amp;ptid=1969498" target="_blank">古战场亡魂 发表于 2021-1-13 22:20</a>
+
+这哪位啊，中之人是声乐老师吗？？</blockquote>
+只知道是原勒夫旗下的歌势组合的高手
+
+
+
+
+
+
+
+-----
+
+####  7200词  
+##### 29374#       发表于 2021-1-13 22:33
+
+
+
+
+呜呜呜好想现在就看看管人玩马力欧3d世界
+
+
+
+
+
+
+
+-----
+
+####  索菲超可爱的  
+##### 29375#       发表于 2021-1-13 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50026490&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2021-01-13 21:25:03</a>
+）
+
+
+试问这样一个金盾，难道不是含金量最高的吗？</blockquote>1.早期被油管炮打，转身就来b站和三酱搞贴贴营业
+2.靠着狐狸和三酱打下中国盘，谁人不识理解理解，向日葵，还有被dd津津乐道的b站二创鉴赏(加上b限连体婴营业）也是阿夸开创
+3.从不给箱内输血，早期箱内困难的时候，舍弃万组，积极联动2434，帮助crew加速毒唯化
+4.顶着holo和龙皇两大buff，差一点点点点点点点点点点点点点点点点点就获得双金盾，前无古狐的伟业
+5.虽然知道holo和龙皇是**，发扬不放弃不抛弃的精神，忍痛告别国内最好的crew群体，手扣condragon，继续为holo立下汗马功劳，而国内crew也纷纷开除自己杏奴籍，“看阿夸不算杏奴”头插土里继续追随最好的阿夸，真是可歌可泣
+6.人品魅力无敌，有多个vtber跟阿夸组成cp，阿夸从来不偏向哪个，把这些cp的粉丝通通都引流来后一脚踢开真不熟(此刻神乐女士，椎名女士有点绷不住）大私无公
+7.游戏力无敌，这个相信大家懂得都懂
+8.最重要的一点，其它人金盾都有买粉嫌疑，而holo内部的几个金盾更是确凿无疑的买了粉，只有阿夸靠着嗯实力冠军，靠着伙伴和贴贴对象们拼搏到了金盾
+试问这样一个金盾，难道不是含金量最高的吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 目力干员leison| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29376#       发表于 2021-1-13 22:36
+
+
+
+
+不基德
+怎么还让塔克车时乃空的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 29377#       发表于 2021-1-13 22:37
+
+
+
+
+马力欧3d世界能自建地图吗
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29378#       发表于 2021-1-13 22:37
+
+
+
+ 本帖最后由 NBXX 于 2021-1-13 22:38 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/13/223849zp11jwwbbbzv1d41.png" referrerpolicy="no-referrer">
+
+
+<strong>太菜了不用听.png</strong> (39.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-13 22:38 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29379#       发表于 2021-1-13 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50027179&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-1-13 22:37</a></blockquote>
+free急个锤子，他又不是空友，他就一个crew吗，时乃空不过是他的挡箭牌迫害对象行为艺术展示品。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29380#       发表于 2021-1-13 22:41
+
+
+
+
+这个塔克的腔调好ww，跟想象中很不一样
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 29381#       发表于 2021-1-13 22:41
+
+
+
+
+没有tskk狐皇不也是双金盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29382#       发表于 2021-1-13 22:41
+
+
+
+
+rp空友也得在公共场合rp到位嘛
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29383#       发表于 2021-1-13 22:45
+
+
+
+
+free哥在夸夸亚军哭泣的那晚没出现，很怀疑是湿了裤子
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 29384#       发表于 2021-1-13 22:45
+
+
+
+
+【求战】夸哥这么努力holo什么时候才能倒下
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29385#       发表于 2021-1-13 22:45
+
+
+
+
+好吧，free可能真的要急了，哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29386#       发表于 2021-1-13 22:46
+
+
+
+
+啊？这是免费套皮？<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29387#       发表于 2021-1-13 22:46
+
+
+
+
+感觉每次车歌力都是为了看免指导笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29388#       发表于 2021-1-13 22:50
+
+
+
+
+居然还有人闲到点评阿菜，关注了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29389#       发表于 2021-1-13 22:51
+
+
+
+
+这个是奇袭之风根据我的榜做的视频版...一个个级别往上车呢，现在刚车到D级
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 29390#       发表于 2021-1-13 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50027325&amp;ptid=1969498" target="_blank">free 发表于 2021-1-13 22:51</a>
+
+这个是奇袭之风根据我的榜做的视频版...一个个级别往上车呢，现在刚车到D级 ...</blockquote>
+原来是风男啊，难怪，可惜了。
+
+<img src="https://img.saraba1st.com/forum/202101/13/225436lr4nor89wzw4j84e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210113225427826.jpg</strong> (51.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-13 22:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29391#       发表于 2021-1-13 22:57
+
+
+
+
+不必车歌力，免费本身就已经够好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
