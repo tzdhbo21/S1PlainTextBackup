@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-13 15:03** 
+> ## **本文件最后更新于2021-01-13 17:45** 
 
 
 
@@ -16379,10 +16379,11 @@ bsyl
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 耻照| + 1|追着扣鹅|
 | DDWarrior| + 1|思路广|
 | JoelBirch| + 1|没必要|
 
@@ -16716,10 +16717,13 @@ https://live.bilibili.com/21737386
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 2black| + 1||
+| 落雪无痕| + 1|欢乐多|
+| Map-2| + 1|索菲你好勇|
 | 目力干员leison| + 1||
 
 
@@ -17016,4 +17020,257 @@ free哥在夸夸亚军哭泣的那晚没出现，很怀疑是湿了裤子
 
 
 
-                    
+
+
+-----
+
+####  IDIDIDID  
+##### 29392#       发表于 2021-1-13 23:07
+
+
+
+
+看了几分钟这个直播被嗓音恶心走了，顺手搜了一下最近B站杏人切片，评论区和弹幕竟然已经回到925之前的全肯定状态了，mmr牛逼啊。
+
+尼哥政委这不去B站肃反？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 29393#       发表于 2021-1-13 23:10
+
+
+
+
+肃什么反，现在尼哥已经不需要藏屁股了。杏奴不需要赢过cover，只需要别人不把他们当杏奴就行了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 29394#       发表于 2021-1-13 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50027464&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-13 23:07</a>
+看了几分钟这个直播被嗓音恶心走了，顺手搜了一下最近B站杏人切片，评论区和弹幕竟然已经回到925之前的全肯 ...</blockquote>
+你懂什么？cover的败退是必然的事情，今天的AMD就赢麻了，不急着自肃。
+
+况且真正有问题也就只有“蝗心狐”组成的“蝗派”，对社内其他的成员，尤其是夸宝这样无辜的成员，无需转火，造成liver内部分裂即可。crew更是冲蝗的主力军，不能得罪，要给予优待才能拉拢民心。
+
+被恶龙看守的公主还等着我们去拯救呢，为什么要内斗？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 29395#       发表于 2021-1-13 23:23
+
+
+
+
+这人会留档吗，想听一下对hachi的评价
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29396#       发表于 2021-1-13 23:30
+
+
+
+
+去晚了，车阿菜说的啥<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29397#       发表于 2021-1-13 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50027611&amp;ptid=1969498" target="_blank">peh 发表于 2021-1-13 23:23</a>
+这人会留档吗，想听一下对hachi的评价</blockquote>
+有录播组
+章塔克今天工作了吗
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29398#       发表于 2021-1-13 23:48
+
+
+
+
+这视频后面hachi还会出来，说不定再车一次
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29399#       发表于 2021-1-13 23:52
+
+
+
+
+西西刀也这个氛围不错，刀也怎么跟谁都能那个得起来啊（褒义）
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29400#       发表于 2021-1-13 23:55
+
+
+
+
+到hachi了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29401#       发表于 2021-1-14 00:19
+
+
+
+
+这个指导听歌偏好还挺合我口味的，讲得也到位，就是讲话声音好受
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 29402#       发表于 2021-1-14 00:27
+
+
+
+ 本帖最后由 YODOboi 于 2021-1-14 00:51 编辑 
+
+塔克太gay了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+“himehina在我这里就是唱功唱商都在线的，就是我的推”评委就是酒姬民怎么算啊
+
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 29403#       发表于 2021-1-14 00:45
+
+
+
+
+刚进去就听到塔克在夸HH，关注了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29404#       发表于 2021-1-14 00:51
+
+
+
+ 本帖最后由 pansherry 于 2021-1-14 01:01 编辑 
+
+<img src="https://p.sda1.dev/0/4bd11a4efa178bd7ed37e9ec25ee2f1d/IMG_CMP_187867922.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/04d590e9d01df1952ed1493ca799a019/IMG_CMP_69575344.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d37b4e84f3caf1a508b47340dbbc933c/IMG_CMP_204618820.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/cc2c97c0e9234e86d0859ce5e1fd2af1/IMG_CMP_259480676.jpeg" referrerpolicy="no-referrer">
+
+有笑到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+https://twitter.com/BiliBili_Drake/status/1349320108716421120?s=19
+
+<img src="https://p.sda1.dev/0/51dced0f2fc7d597ff3d4bbbeca21607/IMG_CMP_202181854.jpeg" referrerpolicy="no-referrer">
+
+https://twitter.com/t_kamui/status/1349399507054678016?s=09
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29405#       发表于 2021-1-14 00:56
+
+
+
+
+千麻也休息一两周<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
