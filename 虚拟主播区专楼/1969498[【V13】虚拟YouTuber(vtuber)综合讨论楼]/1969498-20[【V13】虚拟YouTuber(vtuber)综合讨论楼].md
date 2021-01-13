@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-13 05:12** 
+> ## **本文件最后更新于2021-01-13 12:07** 
 
 
 
@@ -15512,4 +15512,530 @@ Live2D公式コンテストである「Live2D Creative Awards 2020」にて！�
 
 
 
-                      
+
+
+-----
+
+####  Porsche  
+##### 29314#       发表于 2021-1-13 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50021004&amp;ptid=1969498" target="_blank">katern 发表于 2021-1-13 12:20</a>
+看原神的是真的只看原神，和以前方舟的也差不多，只要不播就开始高强度刷评，可能这就是手游信者吧 ...</blockquote>
+乳手游了
+只是原和舟的信者行为特征高度一致
+
+
+
+
+
+
+
+-----
+
+####  kakera9576  
+##### 29315#       发表于 2021-1-13 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50014600&amp;ptid=1969498" target="_blank">free 发表于 2021-1-12 19:52</a>
+https://www.youtube.com/watch?v=2EGrFV24Ic4
+
+8点有我们家大葵的歌回，一定要来听</blockquote>
+我记得这个是棉花糖的点歌，现在的粉丝或多或少是看EMMA过来的，很难避免不碰V，你们会点歌就去发棉花糖啊！
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29316#       发表于 2021-1-13 16:58
+
+
+
+ 本帖最后由 nowaki 于 2021-1-13 17:06 编辑 
+
+随至小亭，已设樽俎：盘置青梅，一樽煮酒。二人对坐，开怀畅饮。酒至半酣，忽阴云漠漠，尼格将至。从人遥指桐生开播，鲨与红凭栏观之。
+鲨曰：“使君知龙之变化否？”红曰：“未知其详。”鲨曰：“龙能大能小，能升能隐；大则兴云吐雾，小则隐介藏形；升则飞腾于宇宙之间，隐则潜伏于波涛之内。方今春深，龙乘时变化，犹人得志而纵横四海。龙之为物，可比世之英雄。红久历两站，必知当世英雄。请试指言之。”红曰：“赤肉眼安识英雄？”鲨曰：“休得过谦。”红曰：“赤叨鲸落，得仕于劈。天下英雄，实有未知。”鲨曰：“既不识其面，亦闻其名。”
+红曰：“油管老爱，订阅第一，可为英雄？”鲨笑曰：“冢中枯骨，吾早晚必超之！”
+红曰：“彩虹兔头，文化遗产，门多囚人；今虎踞文化中心之地，囚人能吹者极多，可为英雄？“鲨笑曰：“月之色厉胆薄，好谋无断；干大事而惜身，见小利而忘命：非英雄也。“
+红曰：“有一人名称狐皇，人颂少主：FBK可为英雄？”鲨曰：“狐姨虚名无实，非英雄也。”
+红曰：“有一人硬实力冠军，crew领袖——凑阿夸乃英雄也？”鲨曰：“大亏亚军假哭，非英雄也。”
+红曰：“SC第一可可，可为英雄乎？”鲨曰：“桐生空有钱财，同接拉跨，乃守户之犬耳，何足为英雄！”
+红曰：“如oto、兔田、葵皇等辈皆何如？”鲨鼓掌大笑曰：“此等碌碌小人，何足挂齿！”
+红曰：“舍此之外，赤实不知。”鲨曰：“夫英雄者，同接（人气）霸主，会员（舰长）近万，有包藏宇宙之机，吞吐天地之志者也。”红曰：“谁能当之？”鲨以手指红，后自指，曰：“今天下英雄，惟使君与鲨耳！”红闻言，吃了一惊，手中所执匙箸，不觉落于地下。时正值尼哥将至，独轮车大作。红乃从容俯首拾箸曰：“一震之威，乃至于此。”鲨笑曰：“丈夫亦畏泥哥乎？”红曰：“圣人行见泥必躲，安得不畏？”
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29317#       发表于 2021-1-13 17:06
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-1-13 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50023942&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-13 16:58</a>
+
+随至小亭，已设樽俎：盘置青梅，一樽煮酒。二人对坐，开怀畅饮。酒至半酣，忽阴云漠漠，骤雨将至。从人遥指 ...</blockquote>
+鲨已陨落，换成唯一兔king才符合事实。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 29318#       发表于 2021-1-13 17:21
+
+
+
+
+你葵回老家去了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29319#       发表于 2021-1-13 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种时候活动休止跑去现充，到时候不知道还能不能回东京都。
+这工作态度怎么和木口同台竞技。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29320#       发表于 2021-1-13 17:27
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-13 17:28 编辑 
+
+本 间 桑 ！
+
+【お知らせ】少しの間、活動をお休みします
+[https://www.youtube.com/watch?v=iEWJL6gkppU&amp;feature=emb_logo](https://www.youtube.com/watch?v=iEWJL6gkppU&amp;feature=emb_logo)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29321#       发表于 2021-1-13 17:29
+
+
+
+
+你葵摸了，最近虹杏上位联动没得看了。
+
+
+
+
+
+
+
+-----
+
+####  typeikaros  
+##### 29322#       发表于 2021-1-13 17:30
+
+
+
+
+阿葵放寒假了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29323#       发表于 2021-1-13 17:31
+
+
+
+
+休息休息也挺好，希望这期间能发几个视频吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29324#       发表于 2021-1-13 17:47
+
+
+
+
+呵呵，隔壁椎名一天播三次四次，我看了一眼你葵频
+道，到今天十三天，播了也就六七次，休不休没什么区别
+
+“这段时间大家都自肃不出去玩了，那现在不是和家人（划掉）哥哥享受二人世界的最好时机？”
+
+“旅游胜地人少了呢^ ^”
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29325#       发表于 2021-1-13 17:56
+
+
+
+<blockquote>qq845629713 发表于 2021-1-13 17:47
+呵呵，隔壁椎名一天播三次四次，我看了一眼你葵频
+
+道，到今天十三天，播了也就六七次，休不休没什么区别
+</blockquote>
+2000过来多看看西西吧，她很可爱的
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29326#       发表于 2021-1-13 17:57
+
+
+
+
+2k心在滴血<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 29327#       发表于 2021-1-13 18:00
+
+
+
+
+呜呜，2000<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29328#       发表于 2021-1-13 18:05
+
+
+
+
+收到line信息
+“我今年就要回去服兵役了，不知道还能不能再见面，现在情况危急，你千万不要来送我，照顾好自己”
+
+“我会跟你一起去，我们先去济州吃黑猪，然后去釜山，接着去首尔，只要欧巴你同意，我可以去任何地方”
+
+特此声明，以上事件和真实人物历史没有任何关系，如有雷同纯属巧合
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 29329#       发表于 2021-1-13 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">要坚强啊2000
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29330#       发表于 2021-1-13 18:34
+
+
+
+
+没了葵中堂就搞不起虹杏联动？尊妈上去顶一顶也是可以的嘛。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29331#       发表于 2021-1-13 19:13
+
+
+
+
+你虹和雀魂搞的这个节目转播这边还搞了语音同传的，看来五元说的雀魂的staff很给力是真的
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 29332#       发表于 2021-1-13 19:35
+
+
+
+
+这里懂日麻的佬多，日麻入门有推荐吗，没有语言障碍，没有任何版本麻将经验，就打算玩玩雀魂
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29333#       发表于 2021-1-13 19:37
+
+
+
+
+多井被打飞了！难得啊！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29334#       发表于 2021-1-13 19:38
+
+
+
+
+一首歌+1K，这就是前世界第一的底力<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29335#       发表于 2021-1-13 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50025540&amp;ptid=1969498" target="_blank">peh 发表于 2021-1-13 19:35</a>
+这里懂日麻的佬多，日麻入门有推荐吗，没有语言障碍，没有任何版本麻将经验，就打算玩玩雀魂 ...</blockquote>
+一边玩一边就会了，雀魂里能参考的东西很多
+
+曾经会算符报分才叫做会玩日麻
+如今网络麻将横行，除非面基，这个技能已经不需要了
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29336#       发表于 2021-1-13 19:47
+
+
+
+
+bsyl
+夸夸今天就要金盾了，不知道现在你楼还有多少人知道她当年被油管锁订阅的日子
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29337#       发表于 2021-1-13 19:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50025540&amp;ptid=1969498" target="_blank">peh 发表于 2021-1-13 19:35</a>
+
+这里懂日麻的佬多，日麻入门有推荐吗，没有语言障碍，没有任何版本麻将经验，就打算玩玩雀魂 ...</blockquote>
+魔女blog。适合楼上911佬说完的那些基础之后的进阶学习。
+
+链接: [[https://pan.baidu.com/s/17xkfcatgvalCodqfcNbflA](https://pan.baidu.com/s/17xkfcatgvalCodqfcNbflA)] 提取码: ptbw
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 29338#       发表于 2021-1-13 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50025645&amp;ptid=1969498" target="_blank">Porsche 发表于 2021-1-13 19:47</a>
+bsyl
+夸夸今天就要金盾了，不知道现在你楼还有多少人知道她当年被油管锁订阅的日子 ...</blockquote>
+嘻嘻，反正有国内大佬帮她买视频呢
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 29339#       发表于 2021-1-13 19:51
+
+
+
+
+什么视频<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29340#       发表于 2021-1-13 19:51
+
+
+
+
+迎接百万的瞬间：
+
+兔田：king
+
+夸夸：网管
+
+
+输在了野心的差距上。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29341#       发表于 2021-1-13 19:55
+
+
+
+
+多井也杠上开花，最近雀魂是不是为了贴saki做了点手脚啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29342#       发表于 2021-1-13 20:02
+
+
+
+
+地声夸suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
