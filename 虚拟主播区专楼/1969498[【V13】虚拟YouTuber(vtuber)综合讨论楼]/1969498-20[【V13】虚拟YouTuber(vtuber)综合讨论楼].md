@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-12 11:56** 
+> ## **本文件最后更新于2021-01-13 05:12** 
 
 
 
@@ -14923,4 +14923,593 @@ emma，现在应该叫上田敦美了，是真的不会唱这种，你都不当V
 
 
 
-                       
+
+
+-----
+
+####  OldGlory  
+##### 29282#       发表于 2021-1-12 20:03
+
+
+
+
+来自冰箱的问好！
+中国的大家，初次见面！我-燦鳥ノム来中国玩啦!( Ծ▿Ծ )
+入乡随俗，专门起了一个中文名，叫灿鸟NOMU！
+快要122岁的我还是第一次来中国玩呢(˘◡˘✿) 
+对这个地方充满好奇！希望和中国的大家分享我喜欢的各种事物！
+( ◜◡◝ ✿)
+第一次挑战中文所以发音可能有点奇怪，我会继续努力的，请大家多多关照！
+那么，下次视频再见。╭( Ծ▿Ծ)و̑ ✧
+#燦鳥ノム# #灿鸟NOMU# 
+
+https://m.weibo.cn/7533851009/4592619190229969
+三得利开微博了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29283#       发表于 2021-1-12 20:04
+
+
+
+
+喷了，这些人为什么要开微博，烂货圆脸当年也是先开了微博再来B的，是不是觉得国内的微博就相当于墙外的推啊
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 29284#       发表于 2021-1-12 20:05
+
+
+
+
+难道不是吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29285#       发表于 2021-1-12 20:06
+
+
+
+
+2021年了还有管人入驻微博？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29286#       发表于 2021-1-12 20:06
+
+
+
+
+该查询免费成分了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29287#       发表于 2021-1-12 20:06
+
+
+
+
+当初b的动态功能出来还有人觉得多余呢
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 29288#       发表于 2021-1-12 20:07
+
+
+
+
+微博女人多，要是黑黑或者挑染组来几个说不定还管用
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29289#       发表于 2021-1-12 20:26
+
+
+
+
+叔叔是不是调人气翻车了
+我现在看叶直播间有70w人气了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29290#       发表于 2021-1-12 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50014933&amp;ptid=1969498" target="_blank">黑之和 发表于 2021-1-12 20:26</a>
+
+叔叔是不是调人气翻车了
+
+我现在看叶直播间有70w人气了</blockquote>
+外面看是5w进去就是70w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29291#       发表于 2021-1-12 20:37
+
+
+
+
+外面5万里面50万，小陈你在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29292#       发表于 2021-1-12 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50014391&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-12 19:31</a>
+她俩上次联动的时候我还是猩猩众</blockquote>
+我对西选印象最深的就是郡道mrra那事之后联的第一个就是西西，然后西西临时打了快一个小时G，低评价如潮。
+过了这么久，郡道还是在炎上，但西选依然活着，感谢西西<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29293#       发表于 2021-1-12 20:40
+
+
+
+[https://space.bilibili.com/1667334057](https://space.bilibili.com/1667334057)
+
+三得利B站官号
+
+
+
+
+
+
+
+-----
+
+####  fghc_h  
+##### 29294#       发表于 2021-1-12 20:49
+
+
+
+ 本帖最后由 fghc_h 于 2021-1-12 20:59 编辑 
+
+重大发表。。这歌唱得很难不让人点踩
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 29295#       发表于 2021-1-12 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50015051&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-12 20:39</a>
+
+我对西选印象最深的就是郡道mrra那事之后联的第一个就是西西，然后西西临时打了快一个小时G，低评价如潮 ...</blockquote>
+当时郡道担心自己炎上会不会影响西西
+
+西西反过来担心郡道精神健康
+
+
+真心好女人
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29296#       发表于 2021-1-12 21:05
+
+
+
+
+JK队：大福，金憨憨，石油王<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29297#       发表于 2021-1-12 21:14
+
+
+
+
+木口这个l4d2对抗居然不放446视角
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29298#       发表于 2021-1-12 21:22
+
+
+
+<blockquote>はちゃち ⛩ Live2Dデザイナー・小説家・Vtuber
+
+@hatyati
+
+ということで、なんと！
+
+
+Live2D公式コンテストである「Live2D Creative Awards 2020」にて！！
+
+グランプリをいただきました！！！ありがとうございます！！！！！
+
+
+　(ӦｖӦ｡)
+
+　(　　　▲＿＿</blockquote>
+<img src="https://i.loli.net/2021/01/12/NupBbg5qixmHELc.gif" referrerpolicy="no-referrer">
+
+
+
+好久没看的V原来获得了live2D头奖，最近还在写小说
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 29299#       发表于 2021-1-12 22:16
+
+
+
+
+哇塞三得利耶
+
+<img src="https://img.saraba1st.com/forum/202101/12/221527eyiyainaiaen9tzx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20181104297884_aLHIgP.jpg</strong> (10.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-12 22:15 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  毒蛇王维诺米隆  
+##### 29300#       发表于 2021-1-12 22:19
+
+
+
+
+猫雷B限首播开了，可能是尬聊不下去了，杂谈一转歌回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鳕鱼子  
+##### 29301#       发表于 2021-1-12 22:53
+
+
+
+
+不容易啊不容易来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29302#       发表于 2021-1-12 23:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">又漏了月灵的nico直播
+
+算了算了，等她来B站吧
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29303#       发表于 2021-1-13 00:06
+
+
+
+
+小豆今天初次B限，来丶关注<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+[https://space.bilibili.com/1103073471/](https://space.bilibili.com/1103073471/)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29304#       发表于 2021-1-13 02:15
+
+
+
+<img src="https://p.sda1.dev/0/65c74c51d9c75d49dd35f70eb27f75b4/IMG_CMP_138004856.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 29305#       发表于 2021-1-13 06:42
+
+
+
+
+狮白那种懒狗怎么可能搞日更节目，nga想多了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29306#       发表于 2021-1-13 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50017013&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-01-12 23:58:05</a>
+又漏了月灵的nico直播
+
+算了算了，等她来B站吧</blockquote>1月 已经快一半了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29307#       发表于 2021-1-13 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50017013&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-1-12 23:58</a>
+
+又漏了月灵的nico直播
+
+算了算了，等她来B站吧</blockquote>
+估计要等中文学的差不多了才会过来，好难啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29308#       发表于 2021-1-13 10:40
+
+
+
+
+日本奥组委：东京奥运将如期举办
+
+嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29309#       发表于 2021-1-13 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50019922&amp;ptid=1969498" target="_blank">free 发表于 2021-1-13 10:40</a>
+
+日本奥组委：东京奥运将如期举办
+
+嘻嘻</blockquote>
+“只要我跑得快，病毒就追不上我”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29310#       发表于 2021-1-13 11:09
+
+
+
+
+郡道组长天开life一起桃铁，
+郡道没睡醒吧，这声线姨度爆了啊，但反正这个组合无所谓什么萌音，随便啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29311#       发表于 2021-1-13 11:55
+
+
+
+ 本帖最后由 十四洲 于 2021-1-13 11:58 编辑 
+
+原神民真的只看游戏的啊，叶师最近沉迷塔科夫和黑幸，这两天评论栏原神民憋不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29312#       发表于 2021-1-13 12:18
+
+
+
+
+哈恰嘛真的在做鱼。。。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29313#       发表于 2021-1-13 12:20
+
+
+
+
+看原神的是真的只看原神，和以前方舟的也差不多，只要不播就开始高强度刷评，可能这就是手游信者吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
