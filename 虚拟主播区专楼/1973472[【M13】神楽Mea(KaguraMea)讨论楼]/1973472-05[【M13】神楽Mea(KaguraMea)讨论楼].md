@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-13 02:01** 
+> ## **本文件最后更新于2021-01-14 20:12** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_nDSGk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_NiG3L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21781,7 +21781,7 @@ syl，没记错
 
 
 
-<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_Wj86z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_c9h9f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_NixXe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_piR0I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_UzToH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_DnA02" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_KeSNN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_Q8dF7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -25341,4 +25341,564 @@ syl，
 
 
 
-  
+
+
+-----
+
+####  Mr.shelter  
+##### 7412#       发表于 2021-1-13 17:36
+
+
+
+
+隐隐约约有种今天也不会播的预感<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7413#       发表于 2021-1-13 17:39
+
+
+
+
+晚上会不会突击b限LOL啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7414#       发表于 2021-1-13 19:40
+
+
+
+
+醒了，估计快播了
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7415#       发表于 2021-1-13 20:05
+
+
+
+
+20210113东京20点
+
+<img src="https://img.saraba1st.com/forum/202101/13/200511f5vppngvabakvyyp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C46F2998-EEF6-4C2C-9F23-FFB9D1CABC97.jpeg</strong> (107.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-13 20:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 7416#       发表于 2021-1-13 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">11点歌回
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7417#       发表于 2021-1-13 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7418#       发表于 2021-1-13 21:59
+
+
+
+
+终于等到有麻的夜晚了，昨天晚上做梦都梦见她在唱歌，唱的还是炎，早上醒的时候让我听了好几遍
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7419#       发表于 2021-1-13 22:31
+
+
+
+[https://www.youtube.com/watch?v=AqooBZEMilg](https://www.youtube.com/watch?v=AqooBZEMilg)
+
+待机间
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7420#       发表于 2021-1-13 23:09
+
+
+
+
+开了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7421#       发表于 2021-1-13 23:20
+
+
+
+ 本帖最后由 Mr.shelter 于 2021-1-13 23:24 编辑 
+
+算了是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，编辑编辑
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7422#       发表于 2021-1-13 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然看到那个新闻了（
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7423#       发表于 2021-1-13 23:21
+
+
+
+<blockquote>Mr.shelter 发表于 2021-1-13 23:20
+怎么还有.....</blockquote>
+别人老婆怀孕了可是大新闻啊，我微博不关注那些方面都刷到了。
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7424#       发表于 2021-1-13 23:30
+
+
+
+ 本帖最后由 路人辰 于 2021-1-13 23:32 编辑 
+
+说的居然是toire而不是oshiko…
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">果然是因为游戏没下线心乱了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7425#       发表于 2021-1-13 23:31
+
+
+
+
+久违的听歌time
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7426#       发表于 2021-1-13 23:47
+
+
+
+
+我有一种今晚是翻车大赏的预感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7427#       发表于 2021-1-13 23:48
+
+
+
+
+手指轻轻划过她的l2d，像在抚摸小麻的脸庞一样<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7428#       发表于 2021-1-13 23:51
+
+
+
+
+原来mea是由多个小麻轮流驾驶的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7429#       发表于 2021-1-14 00:00
+
+
+
+
+mea老师，为什么说话一顿一顿的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7430#       发表于 2021-1-14 00:02
+
+
+
+
+这嗓子感觉不对劲啊
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 7431#       发表于 2021-1-14 01:12
+
+
+
+
+听说是最后一首了<img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">
+
+
+各位早上好 现在是美好的中午呢 中午十二点 很健康很规律 睡迷糊了吗？无礼呢 你知道你说这话有多无礼吗（开场都是大小姐语气）能和大家在这里交流真是非常好呢 今天打算大概唱唱 唱到中午结束吧大概两小时左右 最近嗓子感觉有点沙了 一段时间不怎么唱歌就感觉没啥状态 在k歌的APP上甚至只有69分了 平时都是8 90分的 唱的什么？那当然是唱K必点的做意大利面啊！ 当然直播不唱的 今天唱温和的温柔的歌 来点胡子男啥的 好冷啊 说话这个ジェラピケ（一个衣服牌子）的衣服（还是睡衣？）真的好暖和啊（怪叫开嗓）
+
+
+话说尼诺生孩子了诶 果然转生成尼诺的孩子没办法了 本来就几率很低 但是现在可以转生去做尼诺的孩子的同学 在学校里产生恋情 或者低一年级也可以的 尼诺是和年上结婚的但是说不定他孩子是喜欢年下的 现在的话可不行 跟尼诺孩子差了38岁呢 等他长大了我说不定都没了 对在那之前就先闭经了 
+
+
+啊游戏忘记下了 等我下一下 啊好了 这就是专业意识呢 失敬失敬 缺少职业（pro）意识呢 你是职业选手吗？是吧 听起来好弱 哈？ 像是小学生说的fami通啥 
+
+
+“神乐mea不是很可爱吗” 你听说过神乐mea这个可爱的女孩子吗 真的很可爱呢  你最喜欢她唱的什么歌呢？我的话果然还是喜欢她唱的意大利面呢 mea的意大利面好听呢 序言？我正好也想唱这个 真巧呢 最近在练习这首 用神乐mea的感觉来唱
+
+
+我很喜欢神乐mea呢 以前神乐mea有过试音会来着 我去应聘过星期四担当来着 不过现在以前换别人了 你喜欢神乐mea的哪个地方？啊....感觉就挺温柔的吧 负责其他日子的人都很摸来着 打着昼夜颠倒的旗号摸鱼 只有我认真负责 “说的感觉在跟很多个男人打炮一样”为什么要说出来啊 万一是真的怎么办啊 啊...不好 大家要保密哦 万一被本人听到了就糟了 协议里是有写禁止泄密的呢 （模仿兔妈妈唱零距离）
+
+
+打嗝是可以做的很可爱的打嗝的哦（开始装打嗝）
+
+
+啊 打嗝停不下来呢（可爱）装打嗝的话会真的打嗝的 诶真的吗那不装了  我就是打嗝系vtb了 说不定会有喜欢打嗝的女孩子的男的呢 说不定就有这样的xp的 憋气可以停住？那我试试哦 吸 嗝 诶还是会打嗝诶（可爱）停不下来了啦~ 怎么办啦~ 一口气喝水可以？gokugoku（可爱的喝水声）诶还是不行啊~
+
+
+听自己打嗝的声音有点适应不了 被恶到了 可能是饮食问题吧这么多嗝 想吃烤肉了“比父母的打嗝听的还多的mea的打嗝”这说明和我在一起的时间比父母还多nya  
+
+
+打钱故障了好像 诶？谁的 我的你的？“昨天打不了”啊？咋回事 是被ban了吗 不知道 现在是有bug？那没事了 不安 都在bug 那没事了 诶只有我一个人这样吗？这样的话就不一样了啊 去查一下 啊paypal出bug了 糟了要是palpay被ban了被冻结了就坏了 只取过一次钱 把paypal当成是银行一样的想着哪次要用了一口气取出来就好了就没去取过 啊心脏好痛要不能直播了 不会没收的 那没事了 应该没问题吧 我可没有做过坏事啊 从出生开始就没做过坏事 怕怕 生气气 我看看 打钱的记录一直到13号为止 哼--昨天原来是最后的晚餐吗 我能信你们说的话吧  要是不能恢复你们要怎么负责 斩首？在那之前先把paypal里面的钱给我啊 嘛到时候恢复了就全取出来去
+
+
+“看了下是streamlabs的问题”真的吗 今晚能安眠了
+
+尼诺真的帅啊 虽然对大家保密 但是今天定了下未来的梦想了 梦的话还是大点好 告诉我们 才不 有小秘密才是女人啊 决定了要追逐更加现实的梦 抱持着梦然后和大家度过美好的日常 懂吗 恭喜结婚 啊谢谢 还没那么快呢 圣诞节结束了吗？我心里还在和尼诺过着圣诞节呢 不要藤原君了吗？藤原君没关系的 我已经和他住一起了
+
+
+”可能是paypal账户被限制了“为什么 要说这个啊 明明刚刚还安心了的 不是bug吗 不安 得去找二宫商量了 他一直会过来帮助自己的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 10战斗力 +11
+
+|昵称|战斗力|理由|
+|----|---|---|
+| czkt615477| + 1|什v什粉实锤了|
+| elect| + 1||
+| 秋游刃| + 1|好评加鹅|
+| A2014720| + 1|好评加鹅|
+| 鷹書たかしょ| + 2||
+| Mr.shelter| + 1|好评加鹅|
+| Cushaw| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
+| llconforever| + 1|好评加鹅|
+| LIPP| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7432#       发表于 2021-1-14 01:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">今晚我就是最大ky让小麻不安了
+
+你们可以鲨我了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7433#       发表于 2021-1-14 11:34
+
+
+
+
+最近倒是没有联动预订呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，兔妈妈那边四人桃铁，还有一个薛定谔的野良猫新组合，都没说啥时候再开
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7434#       发表于 2021-1-14 17:04
+
+
+
+
+小麻能去德云社学相声吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7435#       发表于 2021-1-14 17:58
+
+
+
+
+唱歌聊天跳舞漫才萌音rp明明都还可以的，就是偏偏要当普通yhm，这就是吸引人的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7436#       发表于 2021-1-14 19:13
+
+
+
+
+萌音太累了，而且感觉她渐渐肥到发不出来了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7437#       发表于 2021-1-14 19:16
+
+
+
+
+年龄大了身体是会走形的 要变肥婆喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7438#       发表于 2021-1-14 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦终赢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7439#       发表于 2021-1-14 20:36
+
+
+
+
+其实还是麦的问题啦，演唱会作战会议那会儿的声音又尖又亮，麻味儿真的重好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7440#       发表于 2021-1-14 23:20
+
+
+
+
+想听asmr麦味儿的麻 麻<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 7441#       发表于 2021-1-15 03:24
+
+
+
+ 本帖最后由 柚子皮 于 2021-1-15 03:33 编辑 
+
+想要麻...
+
+
+
+
+
+ 
