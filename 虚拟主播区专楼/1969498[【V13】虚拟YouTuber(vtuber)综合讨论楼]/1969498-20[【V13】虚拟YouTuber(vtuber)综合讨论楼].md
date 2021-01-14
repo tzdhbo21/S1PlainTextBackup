@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-13 17:45** 
+> ## **本文件最后更新于2021-01-14 12:07** 
 
 
 
@@ -16673,14 +16673,7 @@ https://live.bilibili.com/21737386
 ####  7200词  
 ##### 29374#       发表于 2021-1-13 22:33
 
-
-
-
-呜呜呜好想现在就看看管人玩马力欧3d世界
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16717,10 +16710,13 @@ https://live.bilibili.com/21737386
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| WDDzzZ| + 1|思路广|
+| fangjun96| + 1|嘻 没必要|
+| 獅白ぼたん| + 1|you fought well|
 | 2black| + 1||
 | 落雪无痕| + 1|欢乐多|
 | Map-2| + 1|索菲你好勇|
@@ -17273,4 +17269,522 @@ https://twitter.com/t_kamui/status/1349399507054678016?s=09
 
 
 
-                   
+
+
+-----
+
+####  十四洲  
+##### 29406#       发表于 2021-1-14 01:54
+
+
+
+
+好，原来是虹箱推，还喜欢看虹男贴贴，虹又赢（
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29407#       发表于 2021-1-14 11:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/14/114140os0y11bbkjkzbn4y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 674 - 多井隆晴（おおいたかはる） 在 Twitter_ _僕の配信の一部を.jpg</strong> (121.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-14 11:41 上传
+
+
+
+
+
+
+
+你们V圈真的很麻烦诶！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29408#       发表于 2021-1-14 12:33
+
+
+
+<blockquote>（13日19:06更新）菅首相は13日夜の記者会見で、緊急事態宣言の対象区域に<strong>大阪・兵庫・京都・愛知・岐阜・福岡・栃木の7府県を追加する</strong>と表明しました。期間は14日から2月7日までです。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29409#       发表于 2021-1-14 14:32
+
+
+
+ 本帖最后由 NBXX 于 2021-1-14 14:34 编辑 
+
+[https://panora.tokyo/archives/17841](https://panora.tokyo/archives/17841)
+<strong>日本人の中国進出支援のぬるぬる、bilibili動画公式MCNに認定　期間限定「bilibiliアカウント無料開設キャンペーン」実施</strong> <blockquote>この度、当社の公式MCN認定を記念して、当該サイトで日本人No.1クリエイターである山下智博の所属する当社中国SNSクリエイターズネットワーク【B.U.G】のノウハウを用いて、中国進出を希望する日本人タレントやアーティスト、YouTuberなどの動画クリエイターの中国での活躍機会の創出を人数限定で無料にて後押しいたします。</blockquote><blockquote><strong>その他にも、当社は既報の通り、これまでにも有名芸能人やお笑い芸人、VTuberの方々の公式アカウント運営サポートを行っております</strong>(※)
+
+(※)
+
+◆「『山下智博』が出演・アドバイザーを務めるVtuber『ブイ子』の公式アカウントが、中国bilibili動画にて開設後わずか２週間で10万登録者達成！」
+
+引用元URL:　[https://prtimes.jp/main/html/rd/p/000000008.000035366.html](https://prtimes.jp/main/html/rd/p/000000008.000035366.html)。</blockquote>
+<img src="https://prtimes.jp/i/35366/12/resize/d35366-12-993127-7.png" referrerpolicy="no-referrer">
+
+◆bilibiliアカウント無料開設キャンペーン 特設サイトはこちら
+[https://peraichi.com/landing_pages/view/nulunulumcn](https://peraichi.com/landing_pages/view/nulunulumcn)
+サポート①：<strong>KOL広告プラットフォームが利用可能になり、収益化機会を増大</strong>サポート②：<strong>bilibiliからの運営サポート、公式宣伝資源を受けられる可能性が増加</strong>
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29410#       发表于 2021-1-14 15:13
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-1-14 15:15 编辑 
+
+官方mcn，没有额外抽成的话，就是相当于阿b拿多抽的20%做事了吧？魔女也解体了，唯一指定mcn笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29411#       发表于 2021-1-14 15:20
+
+
+
+
+不会真有人觉得魔女公司这个名字没了代表乐府不做了吧？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29412#       发表于 2021-1-14 15:23
+
+
+
+[https://news.livedoor.com/article/detail/19532901/](https://news.livedoor.com/article/detail/19532901/)
+
+「ドラクエ」シリーズの動画配信、個人利用の収益化解禁　ガイドラインを改定 <blockquote>スクウェア・エニックスは14日、同社の人気ゲームシリーズ「ドラゴンクエスト」の「動画・生配信・画像投稿に関するガイドライン」を改定。ガイドライン内に定める動画共有サイトが正式に提供する収益化機能を通じ、個人が収益を得る行為について、商用利用とみなさないことを決定した。<strong>これにより、個人利用による同シリーズ作品の動画・生配信の投稿で収益を得ることが可能となる。</strong></blockquote>
+<img src="https://i.loli.net/2021/01/14/yHKh5RYJjoNgpC4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29413#       发表于 2021-1-14 15:30
+
+
+
+ 本帖最后由 admentus 于 2021-1-14 15:32 编辑 
+
+能玩dq了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+但是看有说法是利用dq内容收益化的规矩仅限于法人对象外的配信者，企业势能开收益玩dq吗
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29414#       发表于 2021-1-14 16:02
+
+
+
+<blockquote>admentus 发表于 2021-1-14 15:30
+能玩dq了，好耶
+
+但是看有说法是利用dq内容收益化的规矩仅限于法人对象外的配信者，企业势能开收益玩 ...</blockquote>
+好像不行吧，我记得牛姨玩dq 都不开sc 的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29415#       发表于 2021-1-14 16:31
+
+
+
+[https://www.youtube.com/c/HeroHei/videos](https://www.youtube.com/c/HeroHei/videos)
+
+<img src="https://img.saraba1st.com/forum/202101/14/163102kfx5o8u0jff5fpbr.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #042 - 'Hero Hei - YouTube' - www_youtube_com.png</strong> (8.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-14 16:31 上传
+
+
+
+
+
+
+
+
+白皮杏奴骑士团好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29416#       发表于 2021-1-14 16:32
+
+
+
+
+BSYL：
+
+
+点了几个视频进去看，NGA被白皮杏奴疯狂认知，尼又赢。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29417#       发表于 2021-1-14 16:34
+
+
+
+
+郡道去和马内甲开真剑会议，会不会，会不会被骂啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 29418#       发表于 2021-1-14 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50033903&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-01-14 16:31:24</a></blockquote>看见频道名就知道不用看了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 29419#       发表于 2021-1-14 17:13
+
+
+
+
+这不是被泥哥钓到过好几次的铁憨憨吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 29420#       发表于 2021-1-14 17:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/14/171546cbpa6xh0ujj8ddpj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>44.jpeg</strong> (122.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-14 17:15 上传
+
+
+
+
+
+
+可脱，很色。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29421#       发表于 2021-1-14 17:16
+
+
+
+
+头两天保持前3，连续3天油管日区趋势前20实现了百万点击，并带来了约8000订阅增长，这个企划的热度出乎意料。
+
+另一方面，葵皇这一波从点击和赞踩数来看显然吓到了不少人，不过也有一波订阅增长。似乎是要休息到3月，还蛮久的……
+<img src="https://p.sda1.dev/0/059a9bab533fe8b792c2fbc7193830fd/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/bfec9ecdbd93974e6757fa4a4ebe3b40/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/cddb636761499767a2a0c167a565ff7a/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d66d7f99246bb6302b4fd468f05ca2fc/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29422#       发表于 2021-1-14 17:41
+
+
+
+ 本帖最后由 caupollen 于 2021-1-14 17:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50033903&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-14 16:31</a>
+[https://www.youtube.com/c/HeroHei/videos](https://www.youtube.com/c/HeroHei/videos)</blockquote>
+这弱智的视频就是读一遍推特各种屎（来源还不少4v）点进去都是浪费时间，像他这样硬读垃圾推特录成视频的方式一天想做能做十几个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">（也稍微符合现在人喜欢听别人说不愿意自己看的潮流
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29423#       发表于 2021-1-14 17:48
+
+
+
+
+之前兔头借“学友”之口说的订阅目标是多少？76W？
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 29424#       发表于 2021-1-14 18:50
+
+
+
+
+
+鳴花ヒメ・ミコト鬼角つき笑顔(公式だよ！)
+
+@himemiko_jp
+
+角つき笑顔私からも、今まで本当にありがとうございました！
+
+ヒメを押さえつけるのに精一杯だったけど、これで解放され、、、いやいやそんなことより、私たちをフォローして絡んでくれた人たちのお陰で、私たちは成り立っていました。
+
+
+次の中の人になったら、今以上にみんな絡んでくれたら嬉しいです！！(ミ)
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 29425#       发表于 2021-1-14 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">补了塔克昨天的录播，讲得也太好了吧
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 29426#       发表于 2021-1-14 19:10
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-14 11:42
+你们V圈真的很麻烦诶！</blockquote>
+v豚の民度低いwwww
+
+
+她还点赞了，是糖
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29427#       发表于 2021-1-14 19:36
+
+
+
+
+eva都提桶跑路了，你虹真的要一亿宅宅总玉碎吗……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29428#       发表于 2021-1-14 19:38
+
+
+
+
+郡道星川神成队菜的有够可以，到时候最协不会是去争取把把垫底吧，
+娱乐性倒是比单人好多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29429#       发表于 2021-1-14 19:49
+
+
+
+
+彩虹怕个屁啊，先等奥运会延期再说。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29430#       发表于 2021-1-14 19:56
+
+
+
+
+towa丽姐和西西的组合？
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29431#       发表于 2021-1-14 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50034750&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-14 17:48</a>
+
+之前兔头借“学友”之口说的订阅目标是多少？76W？</blockquote>
+78万
+
+不过起因是某大物YouTuber做视频开包V联动零食的时候开到天皇预测的订阅数。
+
+
+
+
+
+                  
