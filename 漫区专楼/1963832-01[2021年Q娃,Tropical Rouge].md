@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-12-26 14:11** 
+> ## **本文件最后更新于2021-01-14 13:18** 
 
 
 
@@ -5360,4 +5360,544 @@ q娃形态眼睛好多爱心啊，感觉观感会怪怪的
 
 
 
-                                       
+
+
+-----
+
+####  太阳灿灿  
+##### 302#       发表于 2020-12-26 14:26
+
+
+
+
+女主这身看着就很会肉搏战，别到时候还是在那边对波
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 303#       发表于 2020-12-26 18:10
+
+
+
+
+女主那个武器是东方棍？
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 304#       发表于 2020-12-26 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49852094&amp;ptid=1963832" target="_blank">真红眼教授 发表于 2020-12-26 18:10</a>
+女主那个武器是东方棍？</blockquote>
+你在哪里看到武器了，而且这个名字是毒奶粉流传开来的？那种武器不是拐么
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 305#         楼主| 发表于 2020-12-26 18:39
+
+
+
+
+銀河を越えてやってきた
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gm1duobokpj20wb0u0797.jpg" referrerpolicy="no-referrer">
+
+
+正義の戦士UFOダイアポロン
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gm1duos56sj21kw0sgaet.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 306#       发表于 2020-12-26 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49843603&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2020-12-25 19:17</a>
+
+这是画笔还是麦克风
+
+黄q娃怎么感觉变身后矮了不少，还是说比例问题
+
+还是很期待的 ...</blockquote>
+是比例问题。单看头的高度，你会发现每个人都变矮了，其实是因为头发变高了
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 307#       发表于 2020-12-26 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">所以说，这才是真正的海萤堡续作啊，甚至连没有存在感女士都还原了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 308#       发表于 2020-12-26 23:05
+
+
+
+<blockquote>菊妖不是怪 发表于 2020-12-26 19:27
+所以说，这才是真正的海萤堡续作啊，甚至连没有存在感女士都还原了
+
+
+  -- 来自 能看大图的 Stage1官 ...</blockquote>
+为什么这么说？
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 309#       发表于 2020-12-27 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49854943&amp;ptid=1963832" target="_blank">达达葱2 发表于 2020-12-26 23:05:36</a>
+为什么这么说？</blockquote>海洋主题，海里来的公主，人鱼，贝壳变身器，心心眼，没有存在感的黄战士，反传统配色的队长<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 310#       发表于 2020-12-28 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49852743&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2020-12-26 19:27</a>
+
+所以说，这才是真正的海萤堡续作啊，甚至连没有存在感女士都还原了
+
+
+  -- 来自 能看大图的 Stage1官 ...</blockquote>
+讲道理这女主不是比黄毛要更像夏凡吗，各种方面（。
+
+
+
+
+
+
+
+-----
+
+####  112zero  
+##### 311#       发表于 2020-12-28 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">都很好看，想让她们轮流坐在我脸上口牙！
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 312#       发表于 2020-12-28 01:24
+
+
+
+
+なつなつ…
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 313#         楼主| 发表于 2020-12-28 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49863715&amp;ptid=1963832" target="_blank">modkingr 发表于 2020-12-28 01:24</a>
+
+なつなつ…</blockquote>
+あきあき
+
+
+
+
+
+
+
+-----
+
+####  linhaitora  
+##### 314#       发表于 2020-12-29 13:15
+
+
+
+<blockquote>HGCG 发表于 2020-12-28 19:38
+あきあき</blockquote>
+ふゆふゆ
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 315#       发表于 2020-12-29 19:30
+
+
+
+
+明年的食玩要开卖了
+<img src="https://p.sda1.dev/0/8228667ba9567da1cba93c8e1b732374/msedge_2020-12-29_19-29-27.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2fe678e56f5ccf87ddf8d78f7333883c/2020-12-29_19-30-33.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 316#       发表于 2020-12-31 22:15
+
+
+
+
+cp不明<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 317#         楼主| 发表于 2021-1-6 20:12
+
+
+
+<img src="http://wx2.sinaimg.cn/large/69559a0aly1gmd8fg9rsij20go0beqet.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/69559a0aly1gmd8fggnufj20bf0gotkd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 318#       发表于 2021-1-6 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以人鱼到底定位的是q娃还是yin兽？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 319#         楼主| 发表于 2021-1-6 22:01
+
+
+
+<img src="http://wx3.sinaimg.cn/large/69559a0agy1gme01ptumej20u00u0498.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/69559a0agy1gme01ppuxvj20u00u0tlb.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/69559a0agy1gmdzxvz5vij20u00u0tnw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 320#       发表于 2021-1-6 23:44
+
+
+
+
+真夏这个下唇彩真好看
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 321#       发表于 2021-1-9 19:01
+
+
+
+
+明天可以出声优不
+还是准备等听力测试
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 322#       发表于 2021-1-9 20:25
+
+
+
+
+感觉人鱼会早点进，说不定追加另有其人
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 323#         楼主| 发表于 2021-1-11 17:41
+
+
+
+
+我觉得声优差不多该有香菜了吧
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 324#       发表于 2021-1-11 20:56
+
+
+
+
+没准人鱼就是香菜
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 325#         楼主| 发表于 2021-1-11 20:57
+
+
+
+<img src="http://wx3.sinaimg.cn/large/71f87cc0ly1gmjwo1gt71j20hn0p0ttz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 326#       发表于 2021-1-11 21:51
+
+
+
+
+怎么看起来像小时候就遇到人鱼，还是萌化了
+
+
+
+
+
+
+
+-----
+
+####  饭冢武也  
+##### 327#       发表于 2021-1-12 21:57
+
+
+
+
+是2月28开播不？
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 328#       发表于 2021-1-14 10:44
+
+
+
+
+上北老师画的真夏也是用拳头啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 329#         楼主| 发表于 2021-1-14 19:07
+
+
+
+ 本帖最后由 HGCG 于 2021-1-14 19:09 编辑 
+
+<img src="http://wx4.sinaimg.cn/large/69559a0aly1gmn7yz01ftj20ku0ht773.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/69559a0aly1gmn7z08yb0j21kw16ok61.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/69559a0aly1gmn7z0rjv9j21kw16owsk.jpg" referrerpolicy="no-referrer">
+
+真夏居然和蓝猫虹马分在一起
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 330#       发表于 2021-1-14 19:10
+
+
+
+
+那么女主到底是谁？这都成女二了
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 331#         楼主| 发表于 2021-1-14 21:03
+
+
+
+<img src="http://wx1.sinaimg.cn/large/a3f7af34ly1gmnigxw38rj20au0iwjur.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 332#       发表于 2021-1-14 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50036321&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-01-14 21:03:59</a></blockquote>夏夏真是太元气了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                                      
