@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-15 10:13** 
+> ## **本文件最后更新于2021-01-15 15:03** 
 
 
 
@@ -18301,10 +18301,11 @@ ars这直播间英语同传与俄语同传齐飞，缺一个文化自信的中�
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| -rm7-| + 1|欢乐多|
 | admentus| + 1|思路广|
 | 空集| + 1|好评加鹅|
 | 过不了审| + 1|欢乐多|
@@ -18478,10 +18479,11 @@ bzml不行还有jdml吗，浓度绝对高
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| CAserlumos| + 1|逐渐理解下巴|
 | NBXX| + 1||
 
 
@@ -18525,4 +18527,675 @@ bzml不行还有jdml吗，浓度绝对高</blockquote>
 
 
 
-                 
+
+
+-----
+
+####  OldGlory  
+##### 29464#       发表于 2021-1-15 18:21
+
+
+
+
+琴吹梦虽然内容上拉夫了一点，但台风还不错，希望各位中资箱当过水大闸蟹的时候不要一股脑跳进歌势这个坑了，歌势是没有未来的。
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 29465#       发表于 2021-1-15 18:36
+
+
+
+<blockquote>admentus 发表于 2021-1-15 17:37
+据郡噶吃说的，jdml不是有学英文和学中文的要素吗？</blockquote>
+不是你当了骗子就有傻子来排队上当的
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 29466#       发表于 2021-1-15 18:51
+
+
+
+
+那些没有箱推没有烤肉的小底边，不靠唱歌吸海外兄贵，难道指望靠杂谈打游戏在本土市场杀出一片天吗？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29467#       发表于 2021-1-15 19:48
+
+
+
+
+那那堆车歌力的，就是在拆日V最后的底了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29468#       发表于 2021-1-15 20:05
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-15 20:09 编辑 
+
+[https://twitter.com/BARD713/status/1350050291249397762](https://twitter.com/BARD713/status/1350050291249397762)
+
+
+<img src="https://img.saraba1st.com/forum/202101/15/200552wymbc5p9kqjclqx9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErxXlFDVgAMrRQ9.jpg</strong> (90.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 20:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29469#       发表于 2021-1-15 20:06
+
+
+
+
+我操……
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29470#       发表于 2021-1-15 20:13
+
+
+
+
+刚想发……
+
+没想到半年没出现的原因竟然是这样
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29471#       发表于 2021-1-15 20:26
+
+
+
+
+啥？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29472#       发表于 2021-1-15 20:28
+
+
+
+
+狐狸萝卜这俩也太丢人了
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 29473#       发表于 2021-1-15 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是焦茶去世了吗？前几天还在回味他的画作
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29474#       发表于 2021-1-15 20:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/15/204209y116yymttyamfn96.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ErxeYV9VEAYEt_g.jpg</strong> (217.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 20:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29475#       发表于 2021-1-15 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045403&amp;ptid=1969498" target="_blank">admentus 发表于 2021-1-15 17:37</a>
+据郡噶吃说的，jdml不是有学英文和学中文的要素吗？</blockquote>
+郡道当时是在霜降会限（人没有特别多），然后想用英语限定这个名头来让粉丝说不出评论，结果发现粉丝英语比她好，怒换中文聊天（其实也就是复读谷歌），没想到有听得懂的中国听众在（当时深夜三点），最后放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+当说实话郡道本人应该，应该是想学好英文的，前阵子还买了线上英语对话训练课，很期待啊。
+省一楼，郡道怎么永远在抽卡暴死啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29476#       发表于 2021-1-15 21:08
+
+
+
+
+杏星这队最协拿冠军可能性很大啊，你虹这几十个小废物没一队打得过的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29477#       发表于 2021-1-15 21:08
+
+
+
+
+看了一局 杏女垫底两队 大腿都带不动   一之濑队感觉乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 29478#       发表于 2021-1-15 21:19
+
+
+
+
+这同接分布彷佛比赛是为葛皇一人办的，可惜主人公自己接不住戏<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 29479#       发表于 2021-1-15 21:40
+
+
+
+
+にじめぐり。【公式】  @nijimeguri
+
+
+【「にじめぐり。」サービス終了のお知らせ】
+
+
+スマートフォンアプリ「にじめぐり。」は1月31日（日）23:59をもって終了とさせて頂きます。
+
+
+なお、ご購入後もしくはこれからご購入頂く「全開放スイッチ」「ランダムボイス」のダウンロードおよび「ありがとう」の権利も、同様に1月31日（日）23:59までとなりますのでご注意いただきますようよろしくお願いします。
+
+
+※ご購入頂きました「ありがとう」の払い戻しは致しかねますのでご了承ください。
+
+<img src="https://img.saraba1st.com/forum/202101/15/214014ywwlfw2yi0xritr2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EnpJVjoVcAECf-5.jpg</strong> (186.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 21:40 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29480#       发表于 2021-1-15 21:44
+
+
+
+
+这最协虽然没有cr带劲，但是还挺有意思的🤣
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29481#       发表于 2021-1-15 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感谢虹派了这么多垫脚队
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29482#       发表于 2021-1-15 21:45
+
+
+
+
+夏小姐都吃鸡了，这队有点实力阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29483#       发表于 2021-1-15 21:47
+
+
+
+
+啊，这位画师我收藏了好多他的作品<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 29484#       发表于 2021-1-15 21:53
+
+
+
+
+惨，给德龙花谱画的几张我还挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29485#       发表于 2021-1-15 22:02
+
+
+
+
+虹的队伍真的是互相堵，千堵着bora，bora堵着公主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29486#       发表于 2021-1-15 22:04
+
+
+
+
+彩虹apex日常内战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29487#       发表于 2021-1-15 22:08
+
+
+
+
+噗和ib这个大招组合真爽啊，15杀吃鸡厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29488#       发表于 2021-1-15 22:11
+
+
+
+
+小千伤害数据可以啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29489#       发表于 2021-1-15 22:16
+
+
+
+
+这夜见这队最敢冲的居然是夜见我是真的服了，明明可以把噗那队直接劝架劝死的，噗的红甲都被打掉了ib都成盒了，结果西西一句想去舔包直接把俩残血人直接放跑了，服了，西斯科赶紧来教一下指挥吧……
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29490#       发表于 2021-1-15 22:16
+
+
+
+ 本帖最后由 Suny08 于 2021-1-15 22:18 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29491#       发表于 2021-1-15 22:16
+
+
+
+[https://www.youtube.com/watch?v=LBIqMeWUxQQ](https://www.youtube.com/watch?v=LBIqMeWUxQQ)
+
+MISIA - Everything / Covered by 奏みみ【歌ってみた】
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29492#       发表于 2021-1-15 22:26
+
+
+
+
+没有大腿指挥是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29493#       发表于 2021-1-15 22:37
+
+
+
+
+我奶丽姐那队
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29494#       发表于 2021-1-15 22:37
+
+
+
+
+噗这队今天两次被丽姐他们罩子骑脸灭队了，感觉丽姐这队优胜候补啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29495#       发表于 2021-1-15 22:38
+
+
+
+
+最后那波噗没堵住门，堵住就能让白雪的罩子交在外面，失误了
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29496#       发表于 2021-1-15 22:42
+
+
+
+
+现在丽姐队第一90分，第二53分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29497#       发表于 2021-1-15 22:44
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-1-15 22:46 编辑 
+
+cr训练赛里乱杀的nori、噗、丽姐正赛也就前10，现在才第一天，没事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29498#       发表于 2021-1-15 22:49
+
+
+
+
+郡道的真剑比赛！好！
+然后比完就搞真剑asmr，更好！
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29499#       发表于 2021-1-15 22:52
+
+
+
+
+重生你这是修了个什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29500#       发表于 2021-1-15 22:58
+
+
+
+
+我觉得很多队都藏牛了吧
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29501#       发表于 2021-1-15 22:59
+
+
+
+
+bora这队比我想的打得要好 还行吧
+
+
+
+
+
+                
