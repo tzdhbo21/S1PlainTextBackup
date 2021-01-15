@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-05 14:01** 
+> ## **本文件最后更新于2021-01-15 12:05** 
 
 
 
@@ -4595,19 +4595,7 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ####  黑色风衣  
 ##### 1715#       发表于 2020-10-24 03:57
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49110620&amp;ptid=1915171" target="_blank">提挈天地 发表于 2020-10-21 10:58</a>
-
-1Ⅱ和5Ⅱ屏幕什么调光有知道的吗？
-
-
-—— 来自 vivo NEX S, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
-pwm，你用慢速摄像头拍一下就知道
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11584,4 +11572,639 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 
 
 
-                              
+
+
+-----
+
+####  Cray  
+##### 2072#       发表于 2021-1-5 17:08
+
+
+
+<blockquote>引用第2069楼我很费纸于2021-01-05 12:01发表的  :
+
+引用:zhongjie 发表于 2021-1-5 11:40我还是等等1m3，毕竟期待4k 120h......</blockquote>
+感觉要把热管加回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2073#       发表于 2021-1-6 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945915&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-5 17:08</a>
+感觉要把热管加回来了
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+加回来也不够用，就目前Mi11的表现，888还需要一个非常奔放的温控才能保证性能满血释放……而索移从来就没给过奔放的温控，连着几代机器温度墙只有60度了，X5M2大概有几秒70度的瞬时温度墙（boost），然后基本稳定状态是锁60度……这个温度墙865都没法做到全程满血不降频，何况888<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 2074#       发表于 2021-1-6 05:39
+
+
+
+
+这888翻了，等等党大失败。
+准备买国行1m2了，看了下tb卖6k5左右，不知道靠不靠谱。
+还有一个担心的就是贴膜了，一张100+也太不值得了，有没有性价比高点的啊?
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2075#       发表于 2021-1-6 07:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951095&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-6 05:39</a>
+
+这888翻了，等等党大失败。
+
+准备买国行1m2了，看了下tb卖6k5左右，不知道靠不靠谱。
+
+还有一个担心的就是贴 ...</blockquote>
+找闲鱼啊
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 2076#       发表于 2021-1-6 10:20
+
+
+
+ 本帖最后由 拍不到脑袋 于 2021-1-6 10:21 编辑 
+
+那么，5m2买什么型号呢，国行还是港刷国行？一是谷歌套件打游戏，二是国行那个耗电优化也挺想要的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">能中度使用一天一充就行，我使用量还蛮低的，移动过程中都是听歌。
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 2077#       发表于 2021-1-6 10:55
+
+
+
+
+一直想找X51代的壳子，就是没有比较心水的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2078#       发表于 2021-1-6 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952516&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-6 10:20</a>
+
+那么，5m2买什么型号呢，国行还是港刷国行？一是谷歌套件打游戏，二是国行那个耗电优化也挺想要的能 ...</blockquote>
+直接买国行，激活谷歌就可以了。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2079#       发表于 2021-1-6 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952516&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-6 10:20</a>
+那么，5m2买什么型号呢，国行还是港刷国行？一是谷歌套件打游戏，二是国行那个耗电优化也挺想要的能 ...</blockquote>
+直接买国行就行了……不推荐刷机，就算通刷也容易出一些奇奇怪怪的小问题
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 2080#       发表于 2021-1-6 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951095&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-6 05:39</a>
+这888翻了，等等党大失败。
+准备买国行1m2了，看了下tb卖6k5左右，不知道靠不靠谱。
+还有一个担心的就是贴 ...</blockquote>
+不亏，等等便宜多了
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2081#       发表于 2021-1-6 11:24
+
+
+
+<blockquote>引用第2075楼拍不到脑袋于2021-01-06 10:20发表的  :
+
+本帖最后由 拍不到脑袋 于 2021-1-6 10:21 编辑 那么，5m2买什么型号呢，国行还是港......</blockquote>
+中度使用两天一充都可以  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  狂风DKC  
+##### 2082#       发表于 2021-1-6 16:12
+
+
+
+ 本帖最后由 狂风DKC 于 2021-1-6 16:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">泥潭真的索菲集中地，我也是发现888翻车想要不真香MK2的，一看这楼……
+
+现在纠结是1ii还是5ii，5ii便宜1000多，有120HZ，但是只有8G，摄像头还阉割一点
+
+1ii啥都好就是贵了1000而且没120HZ……
+
+6500的淘宝店应该问题不大吧，我手上的1mk1就是类似店买的，反正国行联保。
+
+最近1mk1电量尿崩+指纹保费，想换了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+草闲鱼上看到一个卖冲新二手的，号称都是国行退货机几乎全新只要5599，我的手快压不住了
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2083#       发表于 2021-1-6 17:07
+
+
+
+
+正好家里妹妹要换手机，问她1m2和5m2看中哪个，说是1m2镜紫，理由是好看，现在用的 XZ3 所以也不觉得大。 于是可以体验一下这次国行的软件做得如何了 XD
+
+
+
+
+
+
+
+-----
+
+####  狂风DKC  
+##### 2084#       发表于 2021-1-6 17:49
+
+
+
+ 本帖最后由 狂风DKC 于 2021-1-6 23:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">草咸鱼价格太香了，一晃神发现已经下单了。
+
+希望别翻车
+
+编辑下，顺便问问现在X1和X1ii传输文件用啥APP比较好？
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2085#       发表于 2021-1-7 09:46
+
+
+
+<blockquote>狂风DKC 发表于 2021-1-6 17:49
+草咸鱼价格太香了，一晃神发现已经下单了。
+
+希望别翻车
+
+编辑下，顺便问问现在X1和X1ii传输文 ...</blockquote>
+SD 卡？我的音乐视频大文件都是直接换卡换机的…
+
+
+其他的都在网盘里，不用传输…
+
+
+
+
+
+
+
+-----
+
+####  狂风DKC  
+##### 2086#       发表于 2021-1-7 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49962663&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-7 09:46</a>
+
+SD 卡？我的音乐视频大文件都是直接换卡换机的…
+
+
+其他的都在网盘里，不用传输… ...</blockquote>
+微信历史、APP之类的……视频和照片我也都是在卡里
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2087#       发表于 2021-1-7 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49963073&amp;ptid=1915171" target="_blank">狂风DKC 发表于 2021-1-7 10:31</a>
+微信历史、APP之类的……视频和照片我也都是在卡里</blockquote>
+来自小米的shareme，至少比Sony半残的xperia transfer 2在穿文件上好事。
+
+app数据我全部手动一个一个软件内备份，然后穿过去再一个一个手动恢复，没有找到批量克隆的解决方案。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Tochika  
+##### 2088#       发表于 2021-1-7 14:29
+
+
+
+
+5ii自带相机对人脸可以眼部对焦，对动物识别不了，打开摄影大师人脸和动物都可以，这个正常吗？还是说要打开什么选项
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2089#       发表于 2021-1-7 15:31
+
+
+
+
+有没有5M2能用的索尼相册app啊，谷歌相册实在用不习惯
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 2090#       发表于 2021-1-14 17:58
+
+
+
+
+入手了鬼灭套装，这个手机壳手感还不错啊。
+初始应用又没微信也没支付宝，但又有微博，直接开始迷惑。
+系统更新不支持断点传输，梦回2010（
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2091#       发表于 2021-1-14 19:17
+
+
+
+<blockquote>引用第2087楼Tochika于2021-01-07 14:29发表的  :
+
+5ii自带相机对人脸可以眼部对焦，对动物识别不了，打开摄影大师人脸和动物都可以，这个正常吗？还是说要......</blockquote>
+正常
+因为相机APP就是主要给你拿来用前置的。
+
+全功能需要用摄影大师。
+
+触摸对焦要在af-s下使用， 拍照要活用ael锁曝光还有半按快门。 auto模式会自动加暗角 平时用auto就好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Tochika| + 1|学习了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2092#       发表于 2021-1-14 19:20
+
+
+
+<blockquote>里少 发表于 2021-1-14 17:58
+入手了鬼灭套装，这个手机壳手感还不错啊。
+
+初始应用又没微信也没支付宝，但又有微博，直接开始迷惑。
+
+系统 ...</blockquote>
+话说现在系统更新速度如何？
+
+之前更新服务器在海外，据说速度极慢经常断开。我走代理倒是几分钟几百兆更新包就好了无压力，但国内网络用户就怨声载道…
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2093#       发表于 2021-1-14 19:26
+
+
+
+<blockquote>引用第2091楼leystage于2021-01-14 19:20发表的  :
+
+引用:里少 发表于 2021-1-14 17:58入手了鬼灭套装，这个手机壳手感还不错啊。初始应用又......</blockquote>
+电信一向很慢 。用移动卡会好很多。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 2094#       发表于 2021-1-14 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50035544&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-14 19:20</a>
+话说现在系统更新速度如何？
+
+之前更新服务器在海外，据说速度极慢经常断开。我走代理倒是几分钟几百兆更 ...</blockquote>
+我是电信，更新速度快跑满了
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2095#       发表于 2021-1-15 04:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49321735&amp;ptid=1915171" target="_blank">leystage 发表于 2020-11-8 17:17</a>
+
+是的，现在两台双持同时作为主力的表示，在最明显的相机、指纹、屏幕、续航几方面都明显进步。
+
+
+相机启动 ...</blockquote>
+真的，微信会假死这一点真的太真实了。
+
+
+mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感觉索尼像是之前经历了三年三代才能开窍迭代成这个样子。
+
+
+但是震动质感依旧稀烂，高刷缺席，这两个问题还是无法忽视的。以及，希望下一代，支付宝也能用指纹支付，还有快冲也希望尽可能的给力
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2096#       发表于 2021-1-15 04:36
+
+
+
+
+888既然这代这个样子，那么也没必要着急上MK2吧。
+
+
+可以预见到的是，如果照这个节奏下去，MK Ⅳ Mk Ⅴ MKⅥ 的完成度预计会相当的高
+
+
+没准过两年就会出现在索尼现行产品思路下臻于完美的一代神机呢
+
+
+现在就换MK2真的感觉挺亏的
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2097#       发表于 2021-1-15 08:49
+
+
+
+ 本帖最后由 我很费纸 于 2021-1-15 08:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50039043&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-1-15 04:36</a>
+888既然这代这个样子，那么也没必要着急上MK2吧。
+
+
+可以预见到的是，如果照这个节奏下去，MK Ⅳ Mk Ⅴ MKⅥ ...</blockquote>
+按相机传统，3代会是完成度最高的一代，4代挤牙膏。
+
+按照手机传统，每次完成度最高的那代都会遇上一颗火热的心（Z5P、XZ2P、接下来该到X1M3了）
+
+完成度高却热，或者要相对均衡的mark2，二选一吧……毕竟mark2系列都没法满血发挥865，对于888这颗更火热的心，我对翔移表示怀疑。这么保守的散热策略，压不住火力全开的888。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2098#       发表于 2021-1-15 08:56
+
+
+
+<blockquote>wqm2008 发表于 2021-1-15 04:36
+888既然这代这个样子，那么也没必要着急上MK2吧。
+
+
+可以预见到的是，如果照这个节奏下去，MK Ⅳ Mk Ⅴ MKⅥ ...</blockquote>
+虽然我相信m3会继续小幅迭代改进（先不说888会是多大的坑），但m2相对无印甚至和 XZ 系列的进步能那么大，很大程度上是因为索尼从 XZP 之后病急乱投医路线错误导致的。XZ2、3 不能说一无是处，但真的是条弯路，1 算是改革阵痛，很多地方也都没做好。m2 算是水准恢复到 XZP 在同代的水平罢了。
+
+不过新 CEO 思路还蛮清晰，又有把 alpha 做成了的经验，不说销量，只说能做出让（一小撮）用户喜欢的产品这一点，还是可以相信的
+
+
+
+
+
+
+
+-----
+
+####  ut0  
+##### 2099#       发表于 2021-1-15 13:56
+
+
+
+
+现在5m2可以root吗？如果可以会丢失算法和补救包之类的吗？
+以前还有个机锋论坛有大法版块有ROOT教程，现在哪里去找类似的论坛了？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2100#       发表于 2021-1-15 14:08
+
+
+
+
+我有个问题，为什么微信的图片和视频保存下来，时间自动变成1970-1-1了？用微信直接拍的视频和照片也是这样。
+
+
+
+
+
+
+
+-----
+
+####  zzzeven  
+##### 2101#       发表于 2021-1-15 19:27
+
+
+
+
+5II 你们有没有会在打开支付宝健康码，微信小程序这些应用时候，奇卡无比，要缓个几秒才能加载出来？
+
+
+
+
+
+                             

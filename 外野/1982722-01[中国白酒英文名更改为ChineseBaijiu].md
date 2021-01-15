@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-15 02:27** 
+> ## **本文件最后更新于2021-01-15 12:31** 
 
 
 
@@ -2782,4 +2782,1432 @@ moon cake很羞耻？诛心说句，就是见不得中国人特立独行用表�
 
 
 
-                                             
+
+
+-----
+
+####  赚钱娶老婆  
+##### 139#       发表于 2021-1-15 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50039185&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 06:59</a>
+
+对的，所以唐人街的华工最高贵，所以dim sum是音译。印度人也不是英国最忠实的殖民地，所以全部是音译。
+
+ ...</blockquote>
+white liquor是英文来对应中文吗？还是以英语为尊，让中文去对应英文呢？
+
+
+baijiu是中文去对应英文吗？还是让英文来对应中文里的拼音？
+
+
+
+再再自信一点，以后让jiu完全取代liquor，还有jiu完全取代nine又如何？
+
+两个拼法一样？那让他们写汉字区分呗。
+
+
+让他们理解moon cake的构词法？那为什么不让他们想去了解yuebing中yue和bing的含义，甚至让yue取代他们的moon呢？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 140#       发表于 2021-1-15 18:24
+
+
+
+ 本帖最后由 riczxc 于 2021-1-15 18:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045389&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 17:35</a>
+
+white liquor是英文来对应中文吗？还是以英语为尊，让中文去对应英文呢？
+
+
+baijiu是中文去对应英文吗？还 ...</blockquote>
+
+汉字之所以能统一中国，或者说汉字文化圈之所以成立，就在于不拘泥语音，是表意文字。
+
+
+翻译成baijiu是英语典型的外来词规则，翻译成white liquor是将中文输入外来词的意译规则用在英语上。问10个英语母语的人，只要在中国喝过白酒，10个希望你翻译成baijiu。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 141#       发表于 2021-1-15 18:29
+
+
+
+ 本帖最后由 13. 于 2021-1-15 18:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50039185&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 06:59</a>
+
+对的，所以唐人街的华工最高贵，所以dim sum是音译。印度人也不是英国最忠实的殖民地，所以全部是音译。
+
+ ...</blockquote>
+为什么放弃自己本身的读音去搞表意是自信，不能理解。
+
+
+特立独行就是自信这个奇葩逻辑到底是怎么来的？偏要翻出来一点奇奇怪怪的东西？
+
+
+
+正常人到底是觉得让人叫baozi毕竟好还是让人叫什么steamed buns毕竟好，我反正是觉得叫baozi比较自信。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 142#       发表于 2021-1-15 18:29
+
+
+
+ 本帖最后由 赚钱娶老婆 于 2021-1-15 18:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045818&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:24</a>
+
+汉字之所以能统一中国，或者说汉字文化圈之所以成立，就在于不拘泥语音，是表意文字。 ...</blockquote>
+所以说让非英语国家的外国人用酒字和九字来表意，和用liquor和nine来哪个更合你心意？
+
+还有，你强调了很多次自信，那可以不要一直说什么英语规则什么日本怎么样吗？
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 143#       发表于 2021-1-15 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045818&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:24</a>
+
+汉字之所以能统一中国，或者说汉字文化圈之所以成立，就在于不拘泥语音，是表意文字。
+
+
+翻译成baijiu是英 ...</blockquote>
+gin是不是white liquor，rum是不是white liquor？
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 144#       发表于 2021-1-15 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045865&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 18:29</a>
+
+为什么放弃自己本身的读音去搞表意是自信，不能理解。
+
+
+特立独行就是自信这个奇葩逻辑到底是怎么来的？偏 ...</blockquote>
+他这种逻辑是故意忽略
+
+
+英文拼写中国人也要理解的问题
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 145#       发表于 2021-1-15 18:36
+
+
+
+
+突然想到一件事 这几年陆地边境海关 把一些展示牌
+
+
+你好，欢迎来到XXX
+
+
+从Hello welcome toXXX改成了nihao，huanying laidaoXXX
+
+
+照楼上说法一定是文化不自信了
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 146#       发表于 2021-1-15 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045899&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 18:33</a>
+
+gin是不是white liquor，rum是不是white liquor？</blockquote>
+有关系吗？将white liquor变成一个专有名词，不挺好的？就好像你问，杜松子酒为什么不是白酒一样。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 147#       发表于 2021-1-15 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045935&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:38</a>
+
+有关系吗？将white liquor变成一个专有名词，不挺好的？就好像你问，杜松子酒为什么不是白酒一样。 ...</blockquote>
+你弄个范围很广泛的意思然后强行变成一个东西的专有名词，gin rum vodka tequila sake怎么办？而且查了下white liquor在化学上还有特别的意思。
+
+
+意译本身就这毛病强行不认<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 148#       发表于 2021-1-15 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045865&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 18:29</a>
+
+为什么放弃自己本身的读音去搞表意是自信，不能理解。
+
+
+特立独行就是自信这个奇葩逻辑到底是怎么来的？偏 ...</blockquote>
+那是因为你没有理解，中文表意文字的实质。坚持表意文字的实质，不和表音文字混同，这不是自信是什么。
+
+
+我就不说baozi这到底是孢子、豹子还是雹子，拉丁化的中文这么好，zenmebujianniyonga?
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 149#       发表于 2021-1-15 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045976&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:43</a>
+
+那是因为你没有理解，中文表意文字的实质。坚持表意文字的实质，不和表音文字混同，这不是自信是什么。
+
+
+ ...</blockquote>
+豹子孢子雹子需要你音译吗？能不能先想想大部分音译的是什么玩意儿
+
+
+你要搞点中国人要反应一下，外国人要反应一下的翻译，为什么不搞点中国人直接能懂的翻译？
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 150#       发表于 2021-1-15 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045986&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 18:45</a>
+
+豹子孢子雹子需要你音译吗？能不能先想想大部分音译的是什么玩意儿
+
+
+你要搞点中国人要反应一下，外国人要 ...</blockquote>
+而且我寻思你意译不还得用拉丁文字？好像意译就写this is 白色的酒一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 151#       发表于 2021-1-15 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045925&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 18:36</a>
+
+突然想到一件事 这几年陆地边境海关 把一些展示牌
+
+
+你好，欢迎来到XXX</blockquote>
+即便他们改成nǐ hǎo什么的，我觉得也算不上文化自信。始终，汉字拉丁化的原意还在那里。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 152#       发表于 2021-1-15 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046009&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:48</a>
+
+即便他们改成nǐ hǎo什么的，我觉得也算不上文化自信。始终，汉字拉丁化的原意还在那里。 ...</blockquote>
+中翻英意译才是更加以外为尊
+
+
+完全忽略英文翻译也是需要中国人理解的
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 153#       发表于 2021-1-15 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045974&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 18:42</a>
+
+你弄个范围很广泛的意思然后强行变成一个东西的专有名词，gin rum vodka tequila sake怎么办？而且查了下 ...</blockquote>
+我没有说，意译完美。你举的例子是说，英语母语的人可能不理解，因为音译才是最符合他们思维方式的东西。
+
+
+白酒，本来就是一个很广泛的意思，但是就是一个专有名词。直接意译到英语里，为什么不是最中国思维的方式？
+
+
+单纯从文化自信这个维度，和受到英语中日语外来词影响、秉承汉语拉丁化思路、懂英语觉得steam buns很羞耻的朋友们所相信的相反，土味翻译white liquor才是最有文化自信的。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 154#       发表于 2021-1-15 18:53
+
+
+
+ 本帖最后由 赚钱娶老婆 于 2021-1-15 18:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">理我一下好吗？
+
+
+white liquor是英文来对应中文吗？还是以英语为尊，让中文去对应英文呢？
+
+
+baijiu是中文去对应英文吗？还是让英文来对应中文里的拼音？
+
+
+
+再再自信一点，以后让jiu完全取代liquor，还有jiu完全取代nine又如何？
+
+两个拼法一样？那让他们写汉字区分呗。
+
+
+让他们理解moon cake的构词法？那为什么不让他们想去了解yuebing中yue和bing的含义，甚至让yue取代他们的moon呢？
+
+所以说让非英语国家的外国人用酒字和九字来表意，和用liquor和nine来哪个更合你心意？
+还有，你强调了很多次自信，那可以不要一直说什么英语规则什么日本怎么样吗？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 155#       发表于 2021-1-15 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046044&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 18:53</a>
+
+理我一下好吗？
+
+
+white liquor是英文来对应中文吗？还是以英语为尊，让中文去对应英文呢？</blockquote>
+我是说，最优秀的情况是不需要拉丁字母，直接使用汉字。
+
+
+在使用拉丁字母的情况下，到底要舍音还是舍意。
+
+
+我认为，汉语使用表意，翻译舍音比舍意好。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 156#       发表于 2021-1-15 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046043&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:53</a>
+
+我没有说，意译完美。你举的例子是说，英语母语的人可能不理解，因为音译才是最符合他们思维方式的东西。 ...</blockquote>
+你这汉语拉丁化的点我真不懂。
+
+你搞翻译最后呈现的样态是英语，abcdefg，那500%是写在这点字母上的，你要怎么样？直接写白酒好啊，可能吗，不可能。那找个和白酒中文读音最相近的，你说因为写成baijiu是汉语拉丁化。
+
+
+那问题来了。
+
+
+那倒是他妈的怎么不拉丁化，white liquor就他妈的不是中文拉丁化吗，不仅文字拉丁化还读音英语化意思模糊化，你这不觉得white liquor是中文拉丁化因为是这东西实在太拉丁化了你都想不起来是中文来的，你baijiu说中文拉丁化因为你心里有数这是中国的
+
+
+你继续杠吧我懒得说了
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 157#       发表于 2021-1-15 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046024&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 18:50</a>
+
+中翻英意译才是更加以外为尊
+
+
+完全忽略英文翻译也是需要中国人理解的</blockquote>
+我是从文化自信的角度，你是从对外交流时，怎么方便中国人学习一个英语内的中文外来词的角度，也就是学英语怎么方便的角度。角度不一样。
+
+
+文化自信的角度是，表意文字优先使用意译，用构词法进行中文外来词，这才是中文更内核，在思想角度的内容。你们只看到读音，是因为只看到外表没有看到实质。
+
+
+再者，你觉得拼音很自然，是因为你走了汉语拉丁化的文化方向，没有考虑这其实并不是原生的文化。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 158#       发表于 2021-1-15 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046077&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 18:59</a>
+
+我是说，最优秀的情况是不需要拉丁字母，直接使用汉字。
+
+
+在使用拉丁字母的情况下，到底要舍音还是舍意。 ...</blockquote>
+直说吧，你一直强调文化自信，那到底包不包括让外国人不得不先学拼音后学汉字的自信？
+
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 159#       发表于 2021-1-15 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046078&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 18:59</a>
+
+你这汉语拉丁化的点我真不懂。
+
+你搞翻译最后呈现的样态是英语，abcdefg，那500%是写在这点字母上的，你要 ...</blockquote>
+那我说清楚点，汉语拉丁化的思路是舍意表音，废除汉字。
+
+
+我们因为都学过拼音，很清楚这一套思路，觉得很自然，所以在英语引进外来词的时候，也帮他们这么用。
+
+
+假设我们没有学过拼音（好像老一辈翻译家一样），那么意译作为表意文字其实是最自然的。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 160#       发表于 2021-1-15 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046153&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:09</a>
+
+那我说清楚点，汉语拉丁化的思路是舍意表音，废除汉字。
+
+
+我们因为都学过拼音，很清楚这一套思路，觉得很 ...</blockquote>
+那你不如假设我根本不会英语好了
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 161#       发表于 2021-1-15 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046129&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 19:05</a>
+
+直说吧，你一直强调文化自信，那到底包不包括让外国人不得不先学拼音后学汉字的自信？
+
+
+ ...</blockquote>
+自信就是他们要学怎么都得学，而不是希望润物细无声地希望用拼音外来词做营销。
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 162#       发表于 2021-1-15 19:12
+
+
+
+ 本帖最后由 riczxc 于 2021-1-15 19:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046161&amp;ptid=1982722" target="_blank">13. 发表于 2021-1-15 19:11</a>
+
+那你不如假设我根本不会英语好了</blockquote>
+
+完全不会英语，那当然是想王小明的名字，王字对应什么英文"字"了。
+
+
+这才是表意文字的第一直觉。
+
+
+就是因为太会英语，也会拼音，你们才觉得音译很自然。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 163#       发表于 2021-1-15 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046163&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:11</a>
+
+自信就是他们要学怎么都得学，而不是希望润物细无声地希望用拼音外来词做营销。 ...</blockquote>
+你这也太不自信了吧。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“汉语，天朝上国的语言，你们猴子猩猩能学汉语是上辈子修来的福分。谁管你们之前怎么哇哇叫的，汉字不会写？那就先学拼音，把你们所有单词都改成拼音。”
+
+这才算有点自信吧？
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 164#       发表于 2021-1-15 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046123&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:04</a>
+
+我是从文化自信的角度，你是从对外交流时，怎么方便中国人学习一个英语内的中文外来词的角度，也就是学英 ...</blockquote>
+你解释来解释去
+
+
+都无法解释 为外为尊叫什么文化自信
+
+
+中翻英音译  英翻中意译  这才叫文化自信
+
+
+一切以中国人理解为标准
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 165#       发表于 2021-1-15 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046178&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:12</a>
+
+完全不会英语，那当然是想王小明的名字，王字对应什么英文"字"了。
+
+
+这才是表意文字的第一直觉。</blockquote>
+还要去对应英语，这很不自信好吗？让外国人自己来对应中文才行吧？
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 166#       发表于 2021-1-15 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046163&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:11</a>
+
+自信就是他们要学怎么都得学，而不是希望润物细无声地希望用拼音外来词做营销。 ...</blockquote>
+所以你没这个文化自信是吗？
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 167#       发表于 2021-1-15 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046206&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 19:17</a>
+
+还要去对应英语，这很不自信好吗？让外国人自己来对应中文才行吧？</blockquote>
+对 他解释来解释去的逻辑就是
+
+
+文化自信竟然要以外国人是否理解为第一标准。。。
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 168#       发表于 2021-1-15 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046198&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 19:15</a>
+
+你这也太不自信了吧。
+
+
+“汉语，天朝上国的语言，你们猴子猩猩能学汉语是上辈子修来的福分。谁管 ...</blockquote>
+且不说你脑补太多，你的思路还是怎么方便外国人学中文的思路。我就不评论了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 月千一夜|-1|民科浓度过高|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 169#       发表于 2021-1-15 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046225&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:19</a>
+
+且不说你脑补太多，你的思路还是怎么方便外国人学中文的思路。我就不评论了。 ...</blockquote>
+那你真没有让全世界都说中国话的自信吗？
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 170#       发表于 2021-1-15 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046225&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:19</a>
+
+且不说你脑补太多，你的思路还是怎么方便外国人学中文的思路。我就不评论了。 ...</blockquote>
+不说远的，让外国人深刻理解baijiu中jiu的汉字以及含义的自信总有吧？
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 171#       发表于 2021-1-15 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046178&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:12</a>
+
+完全不会英语，那当然是想王小明的名字，王字对应什么英文"字"了。
+
+
+这才是表意文字的第一直觉。</blockquote>
+你下次介绍自己名字不用意译你biss。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 172#       发表于 2021-1-15 19:27
+
+
+
+
+你认为，用jiu来表示酒好，还是用liqo什么的好？
+
+我都打不完整那个词。
+
+
+
+
+
+
+
+-----
+
+####  桜吹雪花小町  
+##### 173#       发表于 2021-1-15 19:30
+
+
+
+
+就叫baijiu也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 174#       发表于 2021-1-15 19:33
+
+
+
+
+假设你想让悠然幻影自信一点，那他应该叫leisurely illusory shadow还是leisurely phantom？还有“然”字怎么自信呢？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 175#       发表于 2021-1-15 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046205&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 19:17</a>
+
+你解释来解释去
+
+
+都无法解释 为外为尊叫什么文化自信</blockquote>
+一切以汉语纯粹性为准，乃至输出汉语的逻辑。
+
+
+
+读音是次要的。中国人怎么学英语方便、外国人怎么学中文方便也不在考虑范围内。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 176#       发表于 2021-1-15 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046375&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:38</a>
+
+一切以汉语纯粹性为准，乃至输出汉语的逻辑。</blockquote>
+可以先试着输出一下悠然幻影这四字汉语的逻辑吗？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 177#       发表于 2021-1-15 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046221&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 19:19</a>
+
+对 他解释来解释去的逻辑就是
+
+
+文化自信竟然要以外国人是否理解为第一标准。。。 ...</blockquote>
+那你们的文化自信是以外国人是否能读为第一标准（还是符合英语外来词原则为标准？）英语母语的人也会很认同你们的。
+
+
+汉字表意是第一标准，表音不是。
+
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 178#       发表于 2021-1-15 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046375&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:38</a>
+
+一切以汉语纯粹性为准，乃至输出汉语的逻辑。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为外国人考虑如何对应英文
+
+
+算什么文化自信啊
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 179#       发表于 2021-1-15 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046433&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:44</a>
+
+那你们的文化自信是以外国人是否能读为第一标准（还是符合英语外来词原则为标准？）英语母语的人也会很认 ...</blockquote>
+我的文化自信就是以中国人为标准
+
+
+因为你眼中英文拼写只是照顾外国人，和中国人无关
+
+
+我很明白  英翻中意译  中翻英音译
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 180#       发表于 2021-1-15 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046433&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:44</a>
+
+那你们的文化自信是以外国人是否能读为第一标准（还是符合英语外来词原则为标准？）英语母语的人也会很认 ...</blockquote>
+你要用什么来汉字表意？没多少能对应上的英语单词还是专为汉字注音的拼音？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 181#       发表于 2021-1-15 19:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046449&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 19:46</a>
+
+我的文化自信就是以中国人为标准
+
+
+因为你眼中英文拼写只是照顾外国人，和中国人无关</blockquote>
+
+中翻英以输出中国文化、输出表意文字构词法为标准，即使不方便中国人学习英语，那有什么关系？
+
+
+怎么整天没事要学英语了，要不要文化自信？
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 182#       发表于 2021-1-15 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046475&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:48</a>
+
+中翻英以输出中国文化为标准，即使不方便中国人学习英语，那有什么关系？ ...</blockquote>
+你还不是典型以外为尊？
+
+
+一切以洋人需求优先？
+
+
+你好意思说自己文化自信？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 183#       发表于 2021-1-15 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046488&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 19:50</a>
+
+你还不是典型以外为尊？
+
+
+一切以洋人需求优先？</blockquote>
+洋人的需求是用中文音译外来词。
+
+
+拼音本身就是搞拉丁化，以洋人需求优先的产物。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 184#       发表于 2021-1-15 19:52
+
+
+
+ 本帖最后由 赚钱娶老婆 于 2021-1-15 19:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046475&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:48</a>
+
+中翻英以输出中国文化、输出表意文字构词法为标准，即使不方便中国人学习英语，那有什么关系？
+
+
+怎么整天 ...</blockquote>
+你只想着输出构词法，连半点输出为汉字注音的拼音的自信都没有。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 185#       发表于 2021-1-15 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046495&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:51</a>
+
+洋人的需求是用中文音译外来词。
+
+
+拼音本身就是搞拉丁化，以洋人需求优先的产物。 ...</blockquote>
+谁和你中翻英就是照顾洋人需求的？
+
+
+你这才是没有文化自信
+
+
+因为你始终故意回避中国人有英文需求这件事
+
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 186#       发表于 2021-1-15 19:54
+
+
+
+ 本帖最后由 riczxc 于 2021-1-15 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046508&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 19:52</a>
+
+你只想着输出构词法，连半点输出拼音的自信都没有。</blockquote>
+什么叫输出拼音，拼音本身就是我们削足适履迎合洋人，要废除汉字的产物。
+
+
+我就问一句，汉语是表意文字还是表音文字。nizemebuyongpinyinhaole?
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 187#       发表于 2021-1-15 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046520&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 19:53</a>
+
+谁和你中翻英就是照顾洋人需求的？
+
+
+你这才是没有文化自信</blockquote>
+中国人的英文需求，和中国文化的强势程度，在这个情况下是矛盾的。
+
+
+所以为了文化而牺牲中国人的方便，有什么关系？什么都想着方便，那要不中国人直接用英语好了，最方便。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 188#       发表于 2021-1-15 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046546&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:56</a>
+
+中国人的英文需求，和中国文化的强势程度，在这个情况下是矛盾的。
+
+
+所以为了文化而牺牲中国人的方便，有 ...</blockquote>
+输出文化逻辑才是是典型的迎合洋人逻辑，英文词就是需要外国人来理解
+
+
+你看你又故意忽略中国人有英文的需求
+
+
+对于中国人来说 用英文词和用拼音  明显用拼音那个更方便？
+
+
+你看你 果然是以洋为尊
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 189#       发表于 2021-1-15 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046561&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 19:59</a>
+
+输出文化逻辑才是是典型的迎合洋人逻辑，英文词就是需要外国人来理解
+
+
+你看你又故意忽略中国人有英文的需 ...</blockquote>
+你们也考虑文化输出，考虑的是怎么输出方便外国人（当然是表音了）还有中国人有学英语的需求，这就和文化输入有关系了，所以不搞文化输出搞文化输入反而有自信了？
+
+
+
+方便？中国人学会了拼音，所以觉得拼音方便，没有发觉这和汉语表意的逻辑不相通。举个例子，一个美国长大的中国人，他用英语是方便了，我要是强迫他用中文，是不是就是不顾他作为一个中国人怎么说话方便了？你是不是要说，我不让（一个）中国人说话，以洋为尊？
+
+
+
+其实，有些译名中国人自己不懂，有什么关系？最重要的是那些译名在思维上够中国。方便性、符合英语的规则，这都是次要的。
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 190#       发表于 2021-1-15 20:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046526&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 19:54</a>
+
+什么叫输出拼音，拼音本身就是我们削足适履迎合洋人，要废除汉字的产物。
+
+
+我就问一句，汉语是表意文字还 ...</blockquote>
+你真的没想过把表意的构词法附加在拼音上再打出去吗?
+
+不自信的才会怕喧宾夺主啊。
+
+
+用white根本表达不出中文的内涵。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 191#       发表于 2021-1-15 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046626&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 20:08</a>
+
+你们也考虑文化输出，考虑的是怎么输出方便外国人（当然是表音了）还有中国人有学英语的需求，这就和文化 ...</blockquote>
+停 你从头到尾的逻辑就是
+
+
+弄个英文词就是文化输出了？
+
+1 我不认同这是文化输出
+
+2 我不觉得需要文化输出
+
+
+中国人确实有英语的需求 从技术 现实 政治各方面没什么不好承认的啊。
+
+
+你要讲文化逻辑，那么一个美国长大完全是美国文化下的自然不能算中国人了。
+
+
+你要求他说中文反而才是文化自信
+
+
+你看 中国人不懂没关系  需要符合英语规则
+
+
+这不叫以洋为尊 什么叫以洋为尊？ 我看最没自信的是你
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 192#       发表于 2021-1-15 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046634&amp;ptid=1982722" target="_blank">赚钱娶老婆 发表于 2021-1-15 20:09</a>
+
+你真的没想过把表意的构词法附加在拼音上再打出去吗?
+
+不自信的才会怕喧宾夺主啊。</blockquote>
+所以那个是主，那个是次你搞清楚了？
+
+
+表意构词法，怎么加在拼音上？拼音文字就是表音的，只要是作为外来词就是这样的结果，在此时此刻，因为都不是英语的语素。
+
+
+从结果上，就是作为英语的表音外来词音译了，失去表意的本质。本末倒置。
+
+
+
+你要发散，我也可以发散说书同文，搞汉字训读啊。这才是汉字文化圈的传统。
+
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 193#       发表于 2021-1-15 20:17
+
+
+
+ 本帖最后由 riczxc 于 2021-1-15 20:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046662&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 20:13</a>
+
+停 你从头到尾的逻辑就是
+
+
+弄个英文词就是文化输出了？</blockquote>
+
+你的baijiu就是最符合英语规则的外来词了。white liquor反而只有中国人才喜欢这么翻译。你觉得是以谁为尊？
+
+
+
+按照你的逻辑，以文化的说法，拉丁化中文的黑历史拼音，本来就是外来文化。所以以中华文化为主的翻译，要看不懂拼音的人怎么翻译，结果就是steamed buns。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 194#       发表于 2021-1-15 20:18
+
+
+
+
+反正真要论文化自信
+
+
+让外国人说拼音比说原有英文词文化自信的多
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 195#       发表于 2021-1-15 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046703&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 20:17</a>
+
+你的baijiu就是最符合英语规则的外来词了。white liquor反而只有中国人才喜欢这么翻译。你觉得是以谁为尊 ...</blockquote>
+white liquor是英文原有词
+
+
+还在英文框架下 不叫以洋为尊？
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 196#       发表于 2021-1-15 20:20
+
+
+
+
+举个例子，假设我们用一个词来形容“两个核弹炸日本”，叫“哈哈”，拼音“haha”；日本则用“ツ”。
+
+
+你觉得让全世界的外国人用haha还是用别的来指代会有自信？
+
+
+
+
+
+
+
+-----
+
+####  riczxc  
+##### 197#       发表于 2021-1-15 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046721&amp;ptid=1982722" target="_blank">悠然幻影 发表于 2021-1-15 20:19</a>
+
+white liquor是英文原有词
+
+
+还在英文框架下 不叫以洋为尊？</blockquote>
+表意文字的逻辑就是这样，一一找对应，你不承认是因为你觉得汉语拉丁化自然而然，以洋为尊得不假思索。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 198#       发表于 2021-1-15 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046733&amp;ptid=1982722" target="_blank">riczxc 发表于 2021-1-15 20:23</a>
+
+表意文字的逻辑就是这样，一一找对应，你不承认是因为你觉得汉语拉丁化自然而然，以洋为尊得不假思索。 ...</blockquote>
+因为你从头到尾忽略人的需求
+
+
+不是以英文为尊叫以洋为尊
+
+
+而是以英文为母语的人为尊叫以洋为尊
+
+
+
+
+
+                                           
