@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-04 14:08** 
+> ## **本文件最后更新于2021-01-15 16:09** 
 
 
 
@@ -13453,4 +13453,73 @@ all in之后还是单吊初音<img src="https://static.saraba1st.com/image/smile
 
 
 
-                                  
+
+
+-----
+
+####  曾经的小伊  
+##### 478#         楼主| 发表于 2021-1-6 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曾经的小伊  
+##### 479#         楼主| 发表于 2021-1-12 22:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近没啥大新闻了啊，等下次直播了
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 480#       发表于 2021-1-15 23:50
+
+
+
+
+想入坑顺便换个手机，大家一般用什么手机打？安卓限定
+
+听说小米10和11打这玩意都掉帧，是miui问题还是u的问题……
+
+
+
+
+
+
+
+-----
+
+####  hummysiren  
+##### 481#       发表于 2021-1-16 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048327&amp;ptid=1953033" target="_blank">Reimu853 发表于 2021-1-15 23:50</a>
+想入坑顺便换个手机，大家一般用什么手机打？安卓限定
+
+听说小米10和11打这玩意都掉帧，是miui问题还是u的问 ...</blockquote>
+miui的问题好像，b站有专栏写了解决方法，试了下疯狂掉帧偶尔还是会有，勉强能玩的程度吧。
+
+—— 来自 Xiaomi M2007J1SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                                 
