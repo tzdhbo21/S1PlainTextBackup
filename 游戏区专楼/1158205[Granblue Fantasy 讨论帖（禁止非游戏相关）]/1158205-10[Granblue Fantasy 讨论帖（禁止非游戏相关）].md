@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-08 21:25** 
+> ## **本文件最后更新于2021-01-15 08:24** 
 
 
 
@@ -17952,17 +17952,7 @@ fkhr承诺的东西统统默认往后加半年就对了<img src="https://static.
 ####  紫苑寺友子  
 ##### 14488#       发表于 2020-12-22 08:28
 
-
-
- 本帖最后由 紫苑寺友子 于 2020-12-22 08:30 编辑 
-
-我如闪电般归来，死字母宁台上请（虽然是小号百三）<img src="https://p.sda1.dev/0/5de2cc65f06dac40fcca74902e000bb2/IMG_CMP_5932574.jpeg" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17990,17 +17980,7 @@ fkhr承诺的东西统统默认往后加半年就对了<img src="https://static.
 ####  紫苑寺友子  
 ##### 14490#       发表于 2020-12-22 09:04
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803902&amp;ptid=1158205" target="_blank">super0395 发表于 2020-12-22 08:47</a>
-这不是最终日必200连的截图吗</blockquote>
-不是，我转到30，绿毛哥直接把转盘拆了换这个
-
-—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -23101,4 +23081,539 @@ zemadao也没有草生
 
 
 
-       
+
+
+-----
+
+####  Lamas  
+##### 14762#       发表于 2021-1-8 23:02
+
+
+
+
+武器杯子怎么搞啊 一堆武器排着队要喂每天能攒两个杯子都算多了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 14763#       发表于 2021-1-8 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49979986&amp;ptid=1158205" target="_blank">Lamas 发表于 2021-1-8 23:02</a>
+
+武器杯子怎么搞啊 一堆武器排着队要喂每天能攒两个杯子都算多了</blockquote>
+战货活动还有古战场 刷箱子
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14764#       发表于 2021-1-9 04:03
+
+
+
+
+去年大半年在坑外的玩家年底回坑之后觉得有点意思的只有沙盒<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+六龙这玩意儿农了今天就不想农了，现在属于一周有那么一两天有心情随缘自发一下结束
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 14765#       发表于 2021-1-9 10:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">鏖战了两周终于用残缺的阵容打过去了.我也知道打打多人省力，但是总觉得船新玩法也得好好体验一下。
+
+最终过的时候我开心么，当然不开心，只想杀了四字母的🐎。这每个机制都是为了恶心人的副本究竟为什么存在的。用极乐靠dot转血单人过了一次之后就再也没打开过单人，只想黄龙双剑混。
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 14766#       发表于 2021-1-9 11:00
+
+
+
+
+暗龙是唯一不能fa的阴间玩意。io炸过后就当不存在。
+
+
+
+
+
+
+
+-----
+
+####  西人  
+##### 14767#       发表于 2021-1-9 16:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">暗龙每天去共斗混个6连10连吃个自发红箱不难吧，这破玩意18人丢野还能翻车
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14768#       发表于 2021-1-9 16:24
+
+
+
+
+还fa六龙呢，从副本出来算起每天自发放置丢一下推到现在三把暗龙剑都出来了..
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 14769#       发表于 2021-1-9 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49984803&amp;ptid=1158205" target="_blank">西人 发表于 2021-1-9 16:06</a>
+
+暗龙每天去共斗混个6连10连吃个自发红箱不难吧，这破玩意18人丢野还能翻车 ...</blockquote>
+嗯，所以现在就这样办， 虽然掉率一般，只是吐槽一下这副本的设计思路
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14770#       发表于 2021-1-11 14:45
+
+
+
+
+想不到古战场要总才能换石英的事能吵那么久。。。
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14771#       发表于 2021-1-11 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50001154&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-11 14:45</a>
+
+想不到古战场要总才能换石英的事能吵那么久。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一开始错看成十愿才能抽石英，还在等看戏
+
+真没想到......
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 14772#       发表于 2021-1-11 15:36
+
+
+
+
+早上随手扫了眼NGA，吵的这么厉害还以为是要极才能换石英，结果定睛一看是总....
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14773#       发表于 2021-1-11 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想把攒了好久的90张塔罗清一下，清了6张就吐了
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14774#       发表于 2021-1-11 17:37
+
+
+
+ 本帖最后由 syndrome2032 于 2021-1-11 17:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50001154&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-11 14:45</a>
+想不到古战场要总才能换石英的事能吵那么久。。。</blockquote>
+思路估摸和十天统以后才能选黑钢渣渣和照片是一样的，不算奇怪，算意料之中吧。
+
+具体到实施上可能就是天人不终突普遍弱鸡不想为此砸ffj和3000石，或者单纯就是没做完希望能换。
+
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14775#       发表于 2021-1-11 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50002831&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-1-11 17:37</a>
+
+思路估摸和十天统以后才能选黑钢渣渣和照片是一样的，不算奇怪，算意料之中吧。
+
+
+具体到实施上可能就是天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我奇怪的是撕了整天
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 14776#       发表于 2021-1-11 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50002588&amp;ptid=1158205" target="_blank">peh 发表于 2021-01-11 17:10:17</a>
+突然想把攒了好久的90张塔罗清一下，清了6张就吐了</blockquote>这游戏啥时候才出转世扫荡报酬不减的功能
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14777#       发表于 2021-1-11 21:27
+
+
+
+ 本帖最后由 areklose 于 2021-1-11 21:30 编辑 
+
+自从井了芬之后。除了BB和CF，其他的无属性本基本只会无脑用芬土.......即使不想给戒指男人的我都蠢蠢欲动了，我觉得芬不止9.8，10分都可以了
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14778#       发表于 2021-1-12 08:10
+
+
+
+
+恨纸片人恨到不想加入队伍，啥玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 14779#       发表于 2021-1-12 14:24
+
+
+
+
+把二姐赶制出来了，那么问题来了，太久没干这事了，现在踢罐子去哪个本呢...
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14780#       发表于 2021-1-12 14:47
+
+
+
+ 本帖最后由 武の炽羽 于 2021-1-12 14:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005049&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-11 21:27</a>
+
+自从井了芬之后。除了BB和CF，其他的无属性本基本只会无脑用芬土.......即使不想给戒指男人的我都蠢蠢欲动 ...</blockquote>
+土只有一个10分，那就是Mao...土芬能和鸡一个分数算是很公正了，毕竟除了无属一般克属正常打芬是不上前排的，Mao则是从日常打拳到solo法桑都能上，土芬相比之下还是差一点点啦。顺便瞅了一眼GW后面的评分，说没有给10分而是给了9.8因为是因为要发挥出土芬的作用需要武器盘+Mao为代表的限定人物，我觉得说得也还是在理的。
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 14781#       发表于 2021-1-12 15:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从运营角度倒也不是不能理解十总才能换石英
+
+不过这个门槛在上次说古战场可以换石英的时候同时说就好了
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 14782#       发表于 2021-1-12 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011099&amp;ptid=1158205" target="_blank">凌云三才 发表于 2021-1-12 14:24</a>
+把二姐赶制出来了，那么问题来了，太久没干这事了，现在踢罐子去哪个本呢... ...</blockquote>
+现在上加急可能有点费事了，110也就多了那点上限，建议所有日课扔后排，古战反正突了就能用，慢慢磨就好
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14783#       发表于 2021-1-12 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011099&amp;ptid=1158205" target="_blank">凌云三才 发表于 2021-1-12 14:24</a>
+
+把二姐赶制出来了，那么问题来了，太久没干这事了，现在踢罐子去哪个本呢... ...</blockquote>
+拉满水滴冲进沙盒，最后再留点经验古战打牛
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14784#       发表于 2021-1-13 10:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2021年了，福源没想过把某些本的等级限制放开吗
+说的就是湿婆到梅塔特隆这几个，我想终突光婊但是120才能自发梅塔
+方阵2.0该放开就放开吧 反正现在战力膨胀，方阵2.0也不怕没人打
+1.0hl才是真的重灾区，开了真是很少有人来
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14785#       发表于 2021-1-13 10:59
+
+
+
+ 本帖最后由 syndrome2032 于 2021-1-13 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50020093&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-1-13 10:57</a>
+2021年了，福源没想过把某些本的等级限制放开吗
+说的就是湿婆到梅塔特隆这几个，我想终突光婊但是12 ...</blockquote>
+你游rank100才入门算是常规了。应该这么说才对。。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14786#       发表于 2021-1-13 11:13
+
+
+
+ 本帖最后由 areklose 于 2021-1-13 11:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真2.0也没人打啊。点名黑叔叔。不是UP这个活动存在。估计都没人自发和去舔了。除了2.5炎柱超级阴间的白叔叔。我开2.0自发都是抱着自己FA，SOLO到死的。
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14787#       发表于 2021-1-13 11:23
+
+
+
+
+黑叔叔还是等暗团吧。
+
+上次掉落活动黑叔叔没紫箱根本没人来一拳，我怀疑是fkhr故意的。
+
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 14788#       发表于 2021-1-13 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50011392&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-1-11 22:47</a>
+
+土只有一个10分，那就是Mao...土芬能和鸡一个分数算是很公正了，毕竟除了无属一般克属正常打芬是不上前排 ...</blockquote>
+這說法不對 喇叭也不是要有法皇才有奇效
+
+那不是喇叭最多9.9而不是10
+
+
+涼鞋上不了一般克屬也是謊言
+
+打野良刷素材時能封住歐羅巴的水牢還有射手的麻痺讓我的精神衛生好了不只兩倍
+
+現在完全不會發生水牢打中Mao的噁心人情況了
+
+玩土方還可以故意不開3技能來玩FA
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14789#       发表于 2021-1-15 15:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49979986&amp;ptid=1158205" target="_blank">Lamas 发表于 2021-1-8 23:02</a>
+
+武器杯子怎么搞啊 一堆武器排着队要喂每天能攒两个杯子都算多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也深受杯子困扰 直到我为了2姐110星本疾走刷了7k光记忆
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 14790#       发表于 2021-1-15 16:05
+
+
+
+
+杯子、金币这种东西，月底剧情活动坚持几次20箱就不会缺了，也就几个晚上的at一键而已
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14791#       发表于 2021-1-15 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当我想把武器从150升到200，我也会缺杯子。我也是次次20箱
+
+
+
+
+
+      
