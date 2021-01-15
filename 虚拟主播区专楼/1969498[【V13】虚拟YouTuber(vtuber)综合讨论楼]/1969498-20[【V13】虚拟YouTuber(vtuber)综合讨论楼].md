@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-14 12:07** 
+> ## **本文件最后更新于2021-01-15 10:13** 
 
 
 
@@ -17787,4 +17787,742 @@ towa丽姐和西西的组合？
 
 
 
-                  
+
+
+-----
+
+####  qq845629713  
+##### 29432#       发表于 2021-1-14 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你葵不大可能休到三月的，有个fes在，
+
+
+当然了，也有可能是信号，fes没了
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29433#       发表于 2021-1-14 20:49
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcly1gmniju2aktj20ha0dc7bj.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29434#       发表于 2021-1-14 21:31
+
+
+
+
+Azulim删稿事件的原因
+[https://www.bilibili.com/read/cv9274380](https://www.bilibili.com/read/cv9274380)
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 29435#       发表于 2021-1-14 22:02
+
+
+
+
+看了昨天的录播。
+
+
+想起早年VR圈核心也搞过一次底边歌力比赛。最后观众票出了Milky Queen，评委给了Edo Lena。
+
+对比下不得不说日本平民的音乐素养真不错。
+
+
+
+
+
+
+
+-----
+
+####  nehon13  
+##### 29436#       发表于 2021-1-14 22:51
+
+
+
+ 本帖最后由 nehon13 于 2021-1-14 22:55 编辑 
+
+【歌】ほんのすこし、今までで一番ほんのすこし【戌亥とこ/にじさんじ】
+[https://youtu.be/mBqt_QO01bA](https://youtu.be/mBqt_QO01bA)
+
+<img src="https://img.saraba1st.com/forum/202101/14/225506zfz7o1bqzq4x4cxc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault.jpg</strong> (90.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-14 22:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29437#       发表于 2021-1-14 23:07
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-14 23:13 编辑 
+
+刚想说今晚怎么这么姨，唐突wherever you are还行
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29438#       发表于 2021-1-15 00:18
+
+
+
+
+京都女人真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29439#       发表于 2021-1-15 00:42
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gmnp78m8n2j20c9041t91.jpg" referrerpolicy="no-referrer">
+
+
+ars这直播间英语同传与俄语同传齐飞，缺一个文化自信的中文同传啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29440#       发表于 2021-1-15 00:57
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29441#       发表于 2021-1-15 02:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/15/023241e161i326j2fj3g6b.gif" referrerpolicy="no-referrer">
+
+
+<strong>20210115_022641.gif</strong> (916.67 KB, 下载次数: 1)
+
+下载附件
+
+2021-1-15 02:32 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 29442#       发表于 2021-1-15 02:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50038819&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-1-15 02:32</a></blockquote>
+学过芭蕾就是不一样
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29443#       发表于 2021-1-15 10:34
+
+
+
+ 本帖最后由 喜闻乐见 于 2021-1-15 10:43 编辑 
+
+0123下周六  2000再开
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmo6d0jxw5j20hm0mktc7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29444#       发表于 2021-1-15 11:20
+
+
+
+[https://twitter.com/ShibuyaHAL/status/1349899106471313408](https://twitter.com/ShibuyaHAL/status/1349899106471313408) <blockquote>VTuber最協決定戦 ver. APEX LEGENDS Season2 出場チーム一覧
+
+
+#VTuber最協決定戦S2</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/15/112042id2033bs8ut4cd04.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EruQnkPVgAEkCOC.jpg</strong> (293.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 11:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/15/112044jhgxru1hug333qou.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EruQnkRUcAEo8Ge.jpg</strong> (296.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 11:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/15/112045a71sh89dbz4fdqrb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EruQnkSU0AEunPb.jpg</strong> (289.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 11:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/15/112046vngoae8gxvie1lvt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EruQnkUUwAETNvF.jpg</strong> (291.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-15 11:20 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29445#       发表于 2021-1-15 11:53
+
+
+
+
+感觉最近V综冷清了很多，捡一点这两天的新闻提高下信息浓度。
+<strong>ASMR配信者「みやぢ」がVTuberデビュー、1/27生放送決定 Twitterでみやぢさんのアバターコンテストも開催</strong>
+[https://panora.tokyo/archives/17875](https://panora.tokyo/archives/17875)
+<img src="https://static01.imgkr.com/temp/923102c087d14e3998d239751f39977c.jpg" referrerpolicy="no-referrer"> <blockquote>カスタムキャスト公式チャンネルは、１月27日（水）20時より、MCに声優の「青木志貴」さん、ゲストにASMR配信者の「みやぢ」さんを迎え、「カスタムキャストでVTuber体験!!」を放送します。事前に、みやぢさんが使うカスタムキャストのアバターコンテストを開催し、ユーザーから集まったアバターの中から視聴者と共にお気に入りの1体を選んでVTuber体験をしていただきます。</blockquote><strong>中国向け「KOL JAPAN」、琴吹ゆめに続く2人目の専属VTuberオーディション開催　機材貸与・月給15万～</strong>
+[https://panora.tokyo/archives/17957](https://panora.tokyo/archives/17957)
+<img src="https://static01.imgkr.com/temp/7804fcd6b8214a6c9cc24142fb108ddb.jpg" referrerpolicy="no-referrer"> <blockquote>Kyoukanは15日、同社内プロダクション「KOL JAPAN」の2人目となる専属VTuberの声優オーディションを開催すると発表した。募集期間は2月14日までとなる。
+
+●応募期間：1月14日～2月14日
+
+
+●応募資格
+
+・18歳～23歳の日本国籍女性。東京在住。
+
+・歌に自信がある方
+
+・元気で明るい方
+
+・中国に興味のある方
+
+・パソコンの基本操作ができる方
+
+
+●歓迎資格
+
+・中国語が喋れる方
+
+・楽器、イラスト、ゲームなどどれかが好き、得意な方
+
+・演技ができる方
+
+
+●報酬
+
+給料は稼働に応じ、月額固定15万～
+
+＊生配信での投げ銭、グッズ販売等での売り上げによりインセンティブなども付与</blockquote><strong>電子妖精プロジェクトの公式配信に声優・深川芹亜が出演、その他bilibili動画への進出延期や主題歌新情報も</strong>
+[https://panora.tokyo/archives/17851](https://panora.tokyo/archives/17851)
+<img src="https://static01.imgkr.com/temp/0a776afc91c244039a5c4cfae2ef1b6a.png" referrerpolicy="no-referrer"> <blockquote>DELTA-Vは14日、バーチャル×ゲームを体現するプロジェクト「電子妖精プロジェクト」に関する各種情報を公開した。 
+
+まず、27日の21時から配信される電子妖精プロジェクト公式配信にゲストとして「アイドルマスターシンデレラガールズ」喜多日菜子役など様々なアニメキャストを務めている声優・深川芹亜さんのゲスト出演が決定。
+
+
+同じく「アイドルマスターシンデレラガールズ」乙倉悠貴役の中島由紀さんと「八月のシンデレラナイン」初瀬麻里安役の八島さららさん、この二人とともに配信のMCを行う。配信には総勢19名の電子妖精たちやゲストVTuberも出演予定。さらにVR機器が当たる視聴者プレゼントも準備している。 
+
+次に、bilibili動画進出延期の決定。当初、同プラットフォームでの配信が1月から予定されていたが、それが4月へと延期になった。延期理由については、今年1月から3月期に運営における調整の必要な部分が発生した為、海外市場に対して万全の運営態勢で臨みたいから、ということ。
+
+
+また、bilibili動画進出メンバーも変更され、モデルスタンダード4名とモデルラボ4名が進出予定となる。 </blockquote>
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29446#       发表于 2021-1-15 11:59
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-1-15 13:11 编辑 
+
+槽点都多起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个月薪15w在东京算过的不错吗？
+
+房租很贵的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29447#       发表于 2021-1-15 12:48
+
+
+
+
+日本国籍女性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+生怕混进去血统不纯的玷污yhm身份
+问题是国籍就够了吗
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 29448#       发表于 2021-1-15 13:28
+
+
+
+
+不是，你们看公司介绍那写得叫一个令人迷惑…
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29449#       发表于 2021-1-15 13:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有护照证明血统就行
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29450#       发表于 2021-1-15 13:31
+
+
+
+
+一眼中资<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29451#       发表于 2021-1-15 15:14
+
+
+
+ 本帖最后由 caupollen 于 2021-1-15 15:17 编辑 
+
+琴吹梦那个公司吗，那做的视频和直播yhm里好像还没比她更接地气的。肯定背后都中国人啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29452#       发表于 2021-1-15 16:08
+
+
+
+
+听闻木口bzml开设棉花糖，群里被en进出折磨的一味嗷的一声就疯了，非要写en劝退文。
+
+劝退文内容分为五段。第一段主要是呈上此篇表文；第二段主要阐明了一个道理：主播要质配于天地，好好管理粉丝，开宗明义，直逼主题，同时也为下文的叙述做好铺垫；第三段首先讲了木口初年一二期励精图治进出cn，使木口达到繁荣和恢复，紧接着又历数兔田之祸、桐生之难，兔、龙二帝先后遭到炎上，而后就此退出cn唏嘘痛悼，同时表示了对木口和船长的极大忠诚；第四段用“否泰相济”、“历数有归”的道理，列举历史上衰以启兴、多难兴邦的事实，以及当时众心背离，en进出有害无利的情况，再三劝说bzml应该“及时退出en；第五段则进一步反复陈说“尊位不可久虚，万机不可久旷”的利害，劝bzml即使加冕jp女王，废狐自立。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|思路广|
+| 空集| + 1|好评加鹅|
+| 过不了审| + 1|欢乐多|
+| 目力干员leison| + 1|smjb|
+| 某穆克拉| + 1|天下岂有五期之太子？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29453#       发表于 2021-1-15 16:35
+
+
+
+
+月之也太杂鱼了，跑了倒一<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29454#       发表于 2021-1-15 16:54
+
+
+
+
+船长这么喜欢en进出可以试试去老鼠台播嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来35那会搞了个老鼠台账号，还有其他几个木口人，现在也不管了。
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 29455#       发表于 2021-1-15 16:57
+
+
+
+
+你虹今天mc同接也太惨烈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 29456#       发表于 2021-1-15 16:58
+
+
+
+
+还想了下bzml是哪位，你这是在写劝进表啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29457#       发表于 2021-1-15 17:00
+
+
+
+
+工作日下午，懂的都懂
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29458#       发表于 2021-1-15 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50044975&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-15 16:54</a>
+船长这么喜欢en进出可以试试去老鼠台播嘛说起来35那会搞了个老鼠台账号，还有其他几个木口人，现在 ...</blockquote>
+支持，希望赶紧来个twich学英文直播宣告我可以彻底滚了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 29459#       发表于 2021-1-15 17:13
+
+
+
+
+bzml不行还有jdml吗，浓度绝对高
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 29460#       发表于 2021-1-15 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50041913&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-1-15 11:59</a>
+槽点都多起来了这个月薪15w在东京算过的不错吗？
+
+房租很贵的吧
+
+ ...</blockquote>
+这是保底工资啊，分成另算。估计是每月播满xx小时就能拿，算起来肯定比便利店打工时薪高
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 29461#       发表于 2021-1-15 17:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">https://youtu.be/UL7dUtNFveI
+
+
+堂堂凛然唱见メリッサ变成ロリッサ，撑不住撑不住，可爱极了，可惜就10分钟<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29462#       发表于 2021-1-15 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50045182&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2021-1-15 17:13</a>
+
+bzml不行还有jdml吗，浓度绝对高</blockquote>
+据郡噶吃说的，jdml不是有学英文和学中文的要素吗？
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29463#       发表于 2021-1-15 17:45
+
+
+
+
+老师在抽雀魂 好有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                 
