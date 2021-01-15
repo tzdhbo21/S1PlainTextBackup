@@ -36,8 +36,10 @@ jobs:
         git config --global user.name TomoeMami
         datime=$(date "+%Y年%m月%d日 %H:%M")
         echo "git commit: 上传于 $datime"
-        git add .
-        git commit -m "上传于 $datime" -a
+        if [ -n "$(git status -s)" ];then
+            git add .
+            git commit -m "上传于 $datime" -a
+        fi
     - name: Push changes
       uses: ad-m/github-push-action@master
       with:
