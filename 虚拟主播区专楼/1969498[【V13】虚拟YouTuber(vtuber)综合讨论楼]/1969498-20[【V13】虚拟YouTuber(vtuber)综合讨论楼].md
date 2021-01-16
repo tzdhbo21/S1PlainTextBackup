@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-15 15:03** 
+> ## **本文件最后更新于2021-01-16 05:14** 
 
 
 
@@ -18159,10 +18159,11 @@ ars这直播间英语同传与俄语同传齐飞，缺一个文化自信的中�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| MisForTunez| + 1||
 | 空集| + 1|好评加鹅|
 
 
@@ -19198,4 +19199,482 @@ bora这队比我想的打得要好 还行吧
 
 
 
-                
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29502#       发表于 2021-1-15 23:03
+
+
+
+
+美夜子和神田还是有两把刷子的啊，把bora她们干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29503#       发表于 2021-1-15 23:14
+
+
+
+
+我瞄到一眼，刚才bora不是激战中掉了嘛
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 29504#       发表于 2021-1-15 23:15
+
+
+
+ 本帖最后由 -rm7- 于 2021-1-16 00:03 编辑 
+
+报
+误报
+菜就菜
+真有你的
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 29505#       发表于 2021-1-15 23:23
+
+
+
+
+这队abo他们队吃鸡了 ，楼友一骂垃圾，虹就打的好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29506#       发表于 2021-1-15 23:25
+
+
+
+
+葛皇10杀2700伤害吃鸡，还手刃了杏星，这是要告诉世界谁才是king吗
+
+
+
+
+
+
+
+-----
+
+####  えびふらいおん  
+##### 29507#       发表于 2021-1-15 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048061&amp;ptid=1969498" target="_blank">-rm7- 发表于 2021-1-15 23:15</a>
+
+报
+
+啊祭在ob激战的时候睡过去了
+
+真有你的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带了一波团灭队友没说话呢自己把锅全揽了 
+
+就自闭闭麦了 这抗压能力怎么吸apex民嘛
+
+最后结束还老卑微的说跟两个人关系变好了真的很开心
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 29508#       发表于 2021-1-15 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048165&amp;ptid=1969498" target="_blank">えびふらいおん 发表于 2021-1-15 23:31</a>
+带了一波团灭队友没说话呢自己把锅全揽了 
+
+就自闭闭麦了 这抗压能力怎么吸apex民嘛
+
+最后结束还老 ...</blockquote>
+是嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看了三把  后边我都放着当bgm了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没声音了就去看了眼评论
+
+这么菜，那太好了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29509#       发表于 2021-1-15 23:44
+
+
+
+
+胡桃那队跟叶这队莫名开始杠上抢落点了，看练习赛有劲了😆
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29510#       发表于 2021-1-15 23:52
+
+
+
+
+才看15日更新的O榜完整年榜，没想到你虹还有戏份。
+
+顺便管人CD是被O榜分类到动画CD的，迫真二次元套皮人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+2020年度艺人别销售额年榜TOP100：
+
+
+“にじさんじ”第84位，总销售额5億3140万円。
+
+
+从O榜检索来看，可以确定的统计范围是：专辑《SMASH The PAINT!!》、专辑《Prismatic Colors》、音乐BD《JAPAN TOUR 2020 Shout in the Rainbow!》
+
+不确定的是Virtual to LIVE两国演唱会BD是否计入，虽然O榜有统计销量且艺人写的是“にじさんじ”但数据库里搜不到。2019年发售的幕张LIVE应该是不在圈内。
+
+
+
+2020年度新人专辑销量年榜TOP10：
+
+
+Rain Drops 一专与二专分列第9、10位。
+<img src="https://p.sda1.dev/0/b5711d229133ca0aacb357e0eff85f22/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4d5b6d50ffdb37e7720478cf07a189af/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29511#       发表于 2021-1-16 00:02
+
+
+
+
+郡道心跳快过头了吧……
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29512#       发表于 2021-1-16 00:06
+
+
+
+
+ドラクエの規約がでまして規約の通り今は配信が出来なくなってしまったです坚持脸
+
+またなんかレトロRPG探してみる！！
+
+
+你虹终于被版权大棒砸到了，太舒服了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29513#       发表于 2021-1-16 00:32
+
+
+
+
+郡道搞不清展现母性和说人坏话之间的区别啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">听asmr听得生气了也是一种难得的体验
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 29514#       发表于 2021-1-16 00:34
+
+
+
+ 本帖最后由 MisForTunez 于 2021-1-16 01:42 编辑 
+
+[https://www.youtube.com/watch?v=wlX78Iq-03Q](https://www.youtube.com/watch?v=wlX78Iq-03Q)
+
+【WIXOSS】ヒラナ × しぐれうい【#ういヒラ】
+
+wixoss官方live2d
+
+https://twitter.com/rariemonn765/status/1350128441253773313?s=19
+果然又是rariemonn做的
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29515#       发表于 2021-1-16 01:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/015514cajrjazadfs7a7l7.png" referrerpolicy="no-referrer">
+
+
+<strong>Erx0VY8VoAAy1ZK.png</strong> (233.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 01:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/015509liadota1dkav13ra.png" referrerpolicy="no-referrer">
+
+
+<strong>Erx0VY9UcAAfyFD.png</strong> (239.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 01:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/015504m6h18ow8hgponano.png" referrerpolicy="no-referrer">
+
+
+<strong>Erx0VY8U0AASmCG.png</strong> (470.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 01:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/015501nhzzuf0u61601xbb.png" referrerpolicy="no-referrer">
+
+
+<strong>Erx0VY6VQAgBq7j.png</strong> (446.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 01:55 上传
+
+
+
+
+
+[https://twitter.com/akistalu/status/1350081951982518272](https://twitter.com/akistalu/status/1350081951982518272)
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 29516#       发表于 2021-1-16 03:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50026490&amp;ptid=1969498" target="_blank">掉头学姐 发表于 2021-1-13 21:25</a>
+我来论述下，为啥说阿夸的金盾是含金量最高的
+
+
+1.早期被油管炮打，坚持不懈逆风上分</blockquote>
+“皇军给我的好处，都被你小子给吃了回扣吧”
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29517#       发表于 2021-1-16 10:05
+
+
+
+
+【お知らせ 1/2】#にじFes2021 に関して
+
+
+政府からの緊急事態宣言を受け、にじさんじ Anniversary Festival 2021 実行委員会は本公演の開催方法について検討しております。
+
+
+つきまして、受付済みチケットの抽選結果発表、今後予定している申込受付を延期いたします。
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这么好的好消息为什么不在楼里发啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29518#       发表于 2021-1-16 10:10
+
+
+
+<blockquote>qq845629713 发表于 2021-1-16 10:05
+【お知らせ 1/2】#にじFes2021 に関して
+
+
+政府からの緊急事態宣言を受け、にじさんじ Anniversary Festival ...</blockquote>
+这不是还要讨论么，实质还是硬撑，不到最后一天不会说取消的
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 29519#       发表于 2021-1-16 12:17
+
+
+
+
+这不是越晚取消粉丝越失望吗，被吊那么多天。虽然是不可抗力
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 29520#       发表于 2021-1-16 12:24
+
+
+
+
+一鼓作气再而衰三而竭
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 29521#       发表于 2021-1-16 12:51
+
+
+
+
+想看mkt姐贵的扶桑浮游炮和圣皇的中华浮游炮硬碰硬
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29522#       发表于 2021-1-16 12:57
+
+
+
+
+江戸レナ1.5万人登録行くまで歌い続ける！
+[https://www.youtube.com/watch?v=hgcF0Y6r1KU](https://www.youtube.com/watch?v=hgcF0Y6r1KU)
+
+
+
+
+
+               

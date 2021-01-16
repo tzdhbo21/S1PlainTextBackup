@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-12 06:59** 
+> ## **本文件最后更新于2021-01-16 05:11** 
 
 
 
@@ -7837,11 +7837,527 @@ syl 今天又点开新年歌会听了好多遍这首 [貴方解剖純愛歌~死�
 
 
 
+ 本帖最后由 Fami水 于 2021-1-12 16:57 编辑 
 
-不知道是想起来了还是被提醒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，晚酌改了， 看了下应该是okam的求生
-
-
-
+不知道是想起来了还是被提醒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，晚酌改了，草 居然是8人对战 FAMS VS OK狮白雪花
 
 
-                                   
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10923#       发表于 2021-1-12 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么感觉两边55开
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10924#       发表于 2021-1-13 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">昨天说好的晚酌还有无啊
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10925#       发表于 2021-1-13 21:13
+
+
+
+
+任务吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10926#       发表于 2021-1-13 22:07
+
+
+
+
+真去占卜了啊草
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10927#       发表于 2021-1-13 22:20
+
+
+
+
+神秘zqsg
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10928#       发表于 2021-1-13 22:29
+
+
+
+
+这占卜tm的是坏女人自己编的搁着pua呢吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10929#       发表于 2021-1-13 22:45
+
+
+
+ 本帖最后由 天悬星河 于 2021-1-13 22:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">apex追星
+
+
+交往史回顾还行
+
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10930#       发表于 2021-1-13 22:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">突然好大声 把我吼醒了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10931#       发表于 2021-1-13 23:16
+
+
+
+
+你是自由的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10932#       发表于 2021-1-13 23:55
+
+
+
+
+白姨怎么昨天联动完就失踪了啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 10933#       发表于 2021-1-14 10:33
+
+
+
+
+这起床音我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10934#       发表于 2021-1-14 19:14
+
+
+
+
+刚看到她早上发的，挺好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10935#       发表于 2021-1-14 20:22
+
+
+
+
+身边的谁给她录的呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10936#       发表于 2021-1-14 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">是吉尔录的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10937#       发表于 2021-1-15 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那啥，绫总还记得有apex大赛这件事吗
+
+一点不练临时抱佛脚然后被暴打，回来之后又哭唧唧苦呀西，这到底是为啥参赛。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10938#       发表于 2021-1-15 21:24
+
+
+
+
+好熟悉的一幕<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 10939#       发表于 2021-1-15 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">紫宝也没练
+
+两个人一起抱断黄泉腿
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10940#       发表于 2021-1-15 21:49
+
+
+
+
+也許這就是輪迴吧()
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10941#       发表于 2021-1-15 22:20
+
+
+
+
+绫总这次比上次还懒
+
+
+冷知识，上次比赛也就差不多半年前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10942#       发表于 2021-1-15 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">肯定是黄泉惯着绫总，才会让她这样肆无忌惮
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10943#       发表于 2021-1-15 22:53
+
+
+
+
+名字确定好了，魔幽鬼，傻紫起的名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alexmax1  
+##### 10944#       发表于 2021-1-15 23:08
+
+
+
+
+真是听上去就很强的队伍呢
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10945#       发表于 2021-1-15 23:14
+
+
+
+ 本帖最后由 一仙 于 2021-1-15 23:20 编辑 
+
+[https://twitter.com/GOD_YOMI](https://twitter.com/GOD_YOMI)
+
+ゾルディック・よみ
+
+@GOD_YOMI
+
+よみ百鬼シオンちーむはカスタム初日参加できずです…
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
+
+奶一口私下一起训练了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10946#       发表于 2021-1-15 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">炎上！战 犯！
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10947#       发表于 2021-1-15 23:28
+
+
+
+ 本帖最后由 一仙 于 2021-1-15 23:32 编辑 
+
+草 我没有记日期 原来是今天开练习赛阿<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+绫总你在赣神魔
+
+是第一轮自定义，就是黄泉说不参加的那轮
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10948#       发表于 2021-1-15 23:29
+
+
+
+ 本帖最后由 Fami水 于 2021-1-15 23:31 编辑 
+
+开打了么 没看到有啊 还是错过了应该是开始练习赛了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10949#       发表于 2021-1-15 23:29
+
+
+
+
+你永远可以相信绫总……真的在偷懒
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10950#       发表于 2021-1-16 09:13
+
+
+
+
+估计是去年9月的怪文書：
+
+沉默了這麼久有些事情還是該來澄清一下比較好。
+消失的這一個月裡，我跟百鬼あやめ訂婚了。
+當初為了怕消息走漏惹得百鬼眾不開心，我們決定先去度蜜月一個月再回來向各位報告。
+在此重申一次，我們確實訂婚了。
+起初我們雙方是在幽魂界認識的，當時相談甚歡，在一陣酒酣耳熱之際，我向她提議之後要不要一同出遊。
+她答應了。
+我們兩人就這樣規劃了兩天一夜的露營小旅行，
+藉著旅途，雙方更加確定了彼此之間的關係。
+在露營當夜入寢前，我終於鼓起勇氣向她告白，
+她答應了。
+直到交往中我才得知她的工作是Vtuber，當時我予以尊重，
+為了顧及粉絲的情感，這段戀情始終是不得公開的秘密。
+隱藏了這麼久對彼此之間都不是好事，
+藏得了一時藏不了一世。
+現在選擇公開並不是奢望能得到大家的諒解，
+如果可以的話給予祝福當然是對我們最好的回應。
+說了這麼多只是希望大家能夠尊重我們，
+百鬼あやめ依舊會照常直播，
+唯一改變的是她身分證的配偶欄多了一位男性而已。
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10951#       发表于 2021-1-16 13:06
+
+
+
+
+可以，這很PTT<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
