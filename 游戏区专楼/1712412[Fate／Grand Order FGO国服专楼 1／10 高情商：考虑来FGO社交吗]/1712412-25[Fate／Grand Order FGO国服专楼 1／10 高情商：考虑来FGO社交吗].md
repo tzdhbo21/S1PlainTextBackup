@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-12 13:26** 
+> ## **本文件最后更新于2021-01-16 11:26** 
 
 
 
@@ -9070,4 +9070,541 @@ FGO早期主线1.0第三章黑伊阿宋黑的更狠，最后还是落地并给�
 
 
 
-                                
+
+
+-----
+
+####  khxooo  
+##### 36512#       发表于 2021-1-12 22:04
+
+
+
+
+闲得无聊又用政哥哥打了次高难，25回合，感觉没自己想象中的慢。当然和狂那/金皮卡3T没得比就是了。
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36513#       发表于 2021-1-13 12:13
+
+
+
+
+今天出门在等车，打开FGO突然感觉有啥事情要发生，看看卡池，好像没啥我要抽的啊，但是感觉又很强烈，嗯，随便扔几发吧，BB就你了，能补到2宝也……蛮……好……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+心情不错，反正商店想搬的搬了，女汤打地铺刷贝壳吧，明年的泳装也不错，家里贝壳库存也告急了，5个苹果下去，你妹的不是说贝壳出率很高嘛，不是说一把一个的嘛，5管体力下去，啥都没有啊，我的贝壳呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36514#       发表于 2021-1-13 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50020943&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-1-13 12:13</a>
+今天出门在等车，打开FGO突然感觉有啥事情要发生，看看卡池，好像没啥我要抽的啊，但是感觉又很强烈，嗯， ...</blockquote>
+真的是欧，羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36515#       发表于 2021-1-13 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50020966&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-1-13 12:17</a>
+
+真的是欧，羡慕了</blockquote>
+不知道为啥，今天感觉强烈，难得难得
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36516#       发表于 2021-1-13 15:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也是突然就是想再抽一个BB变二宝 正好只剩30石就抽了一发十一连 补宝成功
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36517#       发表于 2021-1-13 17:19
+
+
+
+
+昨天晚上单抽出了bb水
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36518#       发表于 2021-1-13 17:54
+
+
+
+
+我已经不会再信狗托了，司马懿之前绝对一发都不抽
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 36519#       发表于 2021-1-13 18:34
+
+
+
+
+水BB 一宝够用吗？
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36520#       发表于 2021-1-13 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50024970&amp;ptid=1712412" target="_blank">Blackson 发表于 2021-1-13 18:34</a>
+
+水BB 一宝够用吗？</blockquote>
+周回宝具打手不够，1宝可以考虑以后做暴击打手，等梵高。
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 36521#       发表于 2021-1-13 20:16
+
+
+
+
+终于刷够33个金蛋了，想吐<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36522#       发表于 2021-1-14 00:13
+
+
+
+
+终于忍住水B这个最大的难关了，剩下就是等恐龙了。
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36523#       发表于 2021-1-14 01:19
+
+
+
+
+十次单抽，杀生院宝具+1
+
+
+
+
+
+
+
+-----
+
+####  lightingstar  
+##### 36524#       发表于 2021-1-14 12:13
+
+
+
+
+抽卡的预感还是很神奇的，前几天有个预感，一发十连抽到了师匠
+师匠我感觉是最让我动心的卡面了，可惜人物塑造的一般，现在我对她的印象全靠同人和小黄文脑补了
+而且现在终于有了五星枪单体了，向着各职介光炮单体收集的终极目标又前进了一步
+果然无氪爽，一直无氪一直爽
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36525#       发表于 2021-1-14 12:23
+
+
+
+
+高难还是令咒充了一发才解决，毕竟找不到嘲讽礼装CBA
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36526#       发表于 2021-1-14 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50031603&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2021-1-14 12:23</a>
+
+高难还是令咒充了一发才解决，毕竟找不到嘲讽礼装CBA</blockquote>
+你应该论坛吼一下，我帮你换个看板娘CBA
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 36527#       发表于 2021-1-14 12:42
+
+
+
+
+我擦，我还以为高难很难，今天一枪头给打过了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36528#       发表于 2021-1-14 13:13
+
+
+
+
+倒是第一个高难，去年打过只记得三只猴子很难打
+
+结果都是琐事
+
+倒是后面的小麻雀差点翻车，本以为宝具会帮忙送拐下去，结果被送下去的都是打手
+
+最后的20W血是靠学妹和俩拐打暴击打掉的
+
+
+
+
+
+
+
+-----
+
+####  星尘的记忆  
+##### 36529#       发表于 2021-1-14 14:23
+
+
+
+
+160个呼符才抽到杀生院，再也不看到坛友海豹去抽卡了，都是托 (
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36530#       发表于 2021-1-14 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50032717&amp;ptid=1712412" target="_blank">星尘的记忆 发表于 2021-1-14 14:23</a>
+
+160个呼符才抽到杀生院，再也不看到坛友海豹去抽卡了，都是托 (
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36531#       发表于 2021-1-14 16:02
+
+
+
+
+这个元旦我200多石，包括福袋，一共出了5个五星<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+天草，师匠，玉玉，杀生院，水bb
+
+而且还都是很想要的那种
+
+确实有点豹跳
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36532#       发表于 2021-1-14 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50033639&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2021-1-14 16:02</a>
+这个元旦我200多石，包括福袋，一共出了5个五星
+
+天草，师匠，玉玉，杀生院，水bb
+
+而且还都是很想要 ...</blockquote>
+欧，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36533#       发表于 2021-1-14 16:48
+
+
+
+
+对了如果还有在温泉打地铺刷贝壳的，阎魔亭这次全程没有掉狗粮的，不要忘了做周常的狗粮任务
+
+我就是之前刷high了，突然想起来这事被迫回头打了几次狗粮本再回去继续刷贝壳
+
+
+
+
+
+
+
+-----
+
+####  萌二  
+##### 36534#       发表于 2021-1-14 19:54
+
+
+
+
+累计登录1441天 终于把宝石给满破了
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36535#       发表于 2021-1-14 20:12
+
+
+
+
+宝石只有一张，满破在梦里
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36536#       发表于 2021-1-15 10:02
+
+
+
+
+凌晨11次单抽，彩圈new拉二，最后new了迦尔纳
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36537#       发表于 2021-1-15 11:22
+
+
+
+
+只有我的预感是一次都没灵验过吗，不过去年氪了8单左右把想抽的都抽到了也没啥好抱怨的了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36538#       发表于 2021-1-15 11:23
+
+
+
+
+终于满级了.....
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36539#       发表于 2021-1-15 17:18
+
+
+
+
+又是万恶的爬塔<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36540#       发表于 2021-1-16 01:14
+
+
+
+
+其实爬塔也蛮好,打完没人用了就可以下线了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36541#       发表于 2021-1-16 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">主要是老需要换阵容就很烦人
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36542#       发表于 2021-1-16 19:07
+
+
+
+
+韩服炎上太厉害了，可惜国内做不到这个程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
