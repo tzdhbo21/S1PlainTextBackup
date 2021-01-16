@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-16 10:16** 
+> ## **本文件最后更新于2021-01-16 15:59** 
 
 
 
@@ -6967,7 +6967,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 
 
 另外一骑当千里这段也挺色气的
-<img src="https://imgchr.com/i/rDZ7hn" id="aimg_Uz9fu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/rDZ7hn" id="aimg_ooORj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21781,7 +21781,7 @@ syl，没记错
 
 
 
-<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_or0zA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_WlABu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_BSnY3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_LT9fh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ErHS1PBU0AI3D00?format=jpg&amp;name=medium" id="aimg_Ia5Ag" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS11ZVcAEv568?format=jpg&amp;name=medium" id="aimg_P66H8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS2dqVkAAwP95?format=jpg&amp;name=medium" id="aimg_GO6wl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/ErHS3ELVEAIYEzn?format=jpg&amp;name=medium" id="aimg_eFRv6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -25524,7 +25524,24 @@ syl，
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然看到那个新闻了（
+ 本帖最后由 路人辰 于 2021-1-16 23:51 编辑 
+
+20210117东京0点
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/235149rzq0tolml9t9l9t9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A6DC4583-2F07-4B30-9761-4390340D0855.jpeg</strong> (106.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 23:51 上传
+
+
+
+
+
 
 
 
@@ -25556,10 +25573,9 @@ syl，
 
 
 
- 本帖最后由 路人辰 于 2021-1-13 23:32 编辑 
+ 本帖最后由 路人辰 于 2021-1-16 23:53 编辑 
 
-说的居然是toire而不是oshiko…
-<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">果然是因为游戏没下线心乱了
+1
 
 
 
@@ -26610,6 +26626,363 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7479#       发表于 2021-1-16 18:50
+
+
+
+
+看了努努也不很快乐
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7480#       发表于 2021-1-16 19:33
+
+
+
+
+八点还播，今天是铁人咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7481#       发表于 2021-1-16 19:53
+
+
+
+
+太勤奋了，吓到了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7482#       发表于 2021-1-16 19:55
+
+
+
+
+小麻最近感觉好开心 甚至勤奋起来了 是有什么大好事了？相亲成功了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7483#       发表于 2021-1-16 20:17
+
+
+
+
+妈耶今天真的好可爱啊好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7484#       发表于 2021-1-16 20:18
+
+
+
+
+可可爱爱，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7485#       发表于 2021-1-16 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">似乎是nino的歌（?
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7486#       发表于 2021-1-16 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7487#       发表于 2021-1-16 20:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7488#       发表于 2021-1-16 20:23
+
+
+
+
+破案了,是二宫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7489#       发表于 2021-1-16 20:33
+
+
+
+
+一天四动真有你的……又看不来了了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7490#       发表于 2021-1-16 20:57
+
+
+
+
+她唱的虹也太顶了，这是给那个她的歌么？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7491#       发表于 2021-1-16 21:08
+
+
+
+
+可爱耶
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7492#       发表于 2021-1-16 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7493#       发表于 2021-1-16 22:02
+
+
+
+
+好大声的さよなら，我的咩宝要不见了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+               
+
+困困咩，想搂着睡<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7494#       发表于 2021-1-16 22:06
+
+
+
+
+久违的盒限，上次的盒限就好像一百年前一样
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7495#       发表于 2021-1-16 22:58
+
+
+
+
+tc又播了，今天真实敬业先锋
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7496#       发表于 2021-1-16 22:58
+
+
+
+
+tc动了 一天五动 怕不是要摸一周了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7497#       发表于 2021-1-16 22:59
+
+
+
+
+算上盒限今天六播，咩咩，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7498#       发表于 2021-1-16 23:10
+
+
+
+
+小麻怎么今天播那么多 是不是受啥刺激了 不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7499#       发表于 2021-1-16 23:10
+
+
+
+ 本帖最后由 路人庚 于 2021-1-16 23:12 编辑 
+
+这个点还要干活可还行，看到line后才意识到还有这个事，本来都准备睡了，去电脑前面了（特别指出不是玩游戏
+
+
+是神乐组开会吗（
+
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7500#       发表于 2021-1-16 23:18
+
+
+
+
+以前说过一周一次会，还真有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
