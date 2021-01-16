@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-16 05:14** 
+> ## **本文件最后更新于2021-01-16 14:11** 
 
 
 
@@ -19677,4 +19677,625 @@ https://twitter.com/rariemonn765/status/1350128441253773313?s=19
 
 
 
-               
+
+
+-----
+
+####  noHentai  
+##### 29523#       发表于 2021-1-16 14:45
+
+
+
+ 本帖最后由 noHentai 于 2021-1-16 14:57 编辑 
+
+[https://www.kadokawa.co.jp/product/322003000622/](https://www.kadokawa.co.jp/product/322003000622/)<blockquote><img src="https://p.sda1.dev/0/e7442dcc74e3bb6a5e1a3789449f93df/14-55-21-021.jpg" referrerpolicy="no-referrer">
+月ノさんのノート
+
+著者 月ノ美兎
+定価： 1,430円（本体1,300円＋税）
+発売日：2021年03月01日
+判型：Ａ５判
+商品形態：単行本
+ページ数：112
+ISBN：9784040647777
+
+内容紹介
+「にじさんじ」月ノ美兎“衝撃の”初エッセイ集！
+
+高校の授業や日々のメモなどで使う「なんでもノート」を教室で拾った。
+誘惑に耐え切れず開いてみると、授業の板書の合間に書き込まれた日記ともつかない文章の数々を見つけた。
+段ボールで運ばれるバーチャルライバー？　山でカンヅメにされる文豪女子高生？
+ちょっと知りたいあの子の心のうち…
+
+全編書き下ろし！　バーチャルライバーグループ「にじさんじ」を牽引し続けてきた月ノ美兎がつづる衝撃の初エッセイ集。 
+
+著者について
+
+●月ノ美兎:高校2年生。性格はツンデレだが根は真面目な学級委員。本人は頑張っているが少し空回り気味で、よく発言した後で言いすぎたかもと落ち込んだりする。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29524#       发表于 2021-1-16 17:11
+
+
+
+
+
+【棒棒糖コラボ告知水果蛋糕】
+
+
+CakeBashというパーティーゲームで遊ぶよ～
+
+殴り合いに勝って美味しいお菓子になるぞ！二头肌
+
+
+【メンバー】
+
+宝鐘マリン/紫咲シオン
+
+リゼ・ヘルエスタ/名取さな
+
+
+【日時】1/20(水)21時～
+
+
+【場所】さなちゃんねる
+
+
+【配信タグ】#おいしいわたしたち
+
+
+还以为和茄子的联动只是电台  没想到是这个 人员也还挺迷的。。。皇女和傻紫
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29525#       发表于 2021-1-16 17:46
+
+
+
+
+所以我说了，葵皇休了虹杏联动一样搞嘛。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29526#       发表于 2021-1-16 17:48
+
+
+
+
+搞，都可以搞<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29527#       发表于 2021-1-16 18:12
+
+
+
+
+要是能附赠个月之朗读版下载码就好了……
+省一楼，郡道和女装多井一起apex，之前以为是玩笑话的要求竟然会落地，这些人怎么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 29528#       发表于 2021-1-16 18:17
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-16 18:12
+要是能附赠个月之朗读版下载码就好了……
+
+省一楼，郡道和女装多井一起apex，之前以为是玩笑话的要求竟然会 ...</blockquote>
+白鸟pro能不能介绍他女朋友给郡道啊
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29529#       发表于 2021-1-16 18:22
+
+
+
+
+←你推的vtb必分身：
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmppj0yq8aj20oy0dztm5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 29530#       发表于 2021-1-16 18:37
+
+
+
+
+船长我的神 
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29531#       发表于 2021-1-16 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 两个月回来谁还认识你阿，不如直接消逝算了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29532#       发表于 2021-1-16 19:01
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/190109wzfmgjrmfdx7w8m1.png" referrerpolicy="no-referrer">
+
+
+<strong>446.png</strong> (79.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 19:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 29533#       发表于 2021-1-16 19:01
+
+
+
+ 本帖最后由 biye 于 2021-1-16 19:07 编辑 
+
+446这表情好像抓不到    好能摇...
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 29534#       发表于 2021-1-16 19:05
+
+
+
+
+446这3d质量感觉比尾宝还好一点啊，不知道雪花的能做成什么样
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29535#       发表于 2021-1-16 19:05
+
+
+
+
+狮子的3d挺可爱的，耳朵也能变化。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29536#       发表于 2021-1-16 19:25
+
+
+
+
+3d道具很多嘛
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29537#       发表于 2021-1-16 19:27
+
+
+
+
+别的不说，这场景就比大头的有意思<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 29538#       发表于 2021-1-16 19:35
+
+
+
+
+这整活就比大头好得多，但是同接还是破不了10w<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 29539#       发表于 2021-1-16 19:53
+
+
+
+
+手雷上的耳朵好可爱
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29540#       发表于 2021-1-16 19:56
+
+
+
+
+怎么一个小时都撑不住的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 29541#       发表于 2021-1-16 20:02
+
+
+
+
+以前3D披露都是各种联动  疫情这情况可能不止演播室 公司都呆不了几个人
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29542#       发表于 2021-1-16 20:05
+
+
+
+ 本帖最后由 katern 于 2021-1-16 20:33 编辑 
+
+【#はちたや生誕祭​】　重大発表！！！！　【HACHI】
+[https://www.youtube.com/watch?v=AHbh32lyvmA](https://www.youtube.com/watch?v=AHbh32lyvmA)
+
+
+有3d房间了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/16/200710b49mmfh9fzlewx4w.png" referrerpolicy="no-referrer">
+
+
+<strong>www.youtube.com_watch_v=AHbh32lyvmA.png</strong> (89.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 20:07 上传
+
+
+
+
+
+
+
+
+连续三个月新曲发布<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 29543#       发表于 2021-1-16 20:07
+
+
+
+
+木口的3D发布好像只有mrr叫了阿希，其他人都是连麦。
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 29544#       发表于 2021-1-16 20:08
+
+
+
+
+木口的3D麦应该都是现场的 基本没延迟
+
+外社连麦延迟就很明显
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29545#       发表于 2021-1-16 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50055456&amp;ptid=1969498" target="_blank">某穆克拉 发表于 2021-1-16 20:07</a>
+
+木口的3D发布好像只有mrr叫了阿希，其他人都是连麦。</blockquote>
+三期很多是在现场的
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 29546#       发表于 2021-1-16 20:24
+
+
+
+ 本帖最后由 peh 于 2021-1-16 20:27 编辑 
+
+hachi三ヶ月連続新曲リリース4月还有公演<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29547#       发表于 2021-1-16 21:05
+
+
+
+ 本帖最后由 Hemis 于 2021-1-16 21:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">月灵nico生放 
+
+可能会迟一会开始
+
+已经开了，这种提前半小时发推的是不是都可以算突击
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29548#       发表于 2021-1-16 21:19
+
+
+
+ 本帖最后由 caupollen 于 2021-1-16 21:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50056043&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-1-16 21:05</a>
+
+月灵nico生放 
+
+可能会迟一会开始
+
+已经开了，这种提前半小时发推的是不是都可以算突击 ...</blockquote>
+终于唱歌了唱歌了，这次真值得了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29549#       发表于 2021-1-16 21:22
+
+
+
+<blockquote>caupollen 发表于 2021-1-16 21:19
+终于唱歌了唱歌了还是弹唱，这次真值得了</blockquote>
+我服了，聊到垃圾投放那里我掉了，回来断断续续只听完了后半
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29550#       发表于 2021-1-16 21:40
+
+
+
+
+怎么问起月灵黄油歌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 29551#       发表于 2021-1-16 21:45
+
+
+
+
+草了，在外面，又错过了
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29552#       发表于 2021-1-16 21:56
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/215546gm6p027ei0pzs0z0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210116215456.png</strong> (4.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 21:55 上传
+
+
+
+
+
+
+画伯本期大作
+
+
+
+
+
+
+
+-----
+
+####  天子控  
+##### 29553#       发表于 2021-1-16 22:00
+
+
+
+
+这是个啥啊
+
+
+
+
+
+              
