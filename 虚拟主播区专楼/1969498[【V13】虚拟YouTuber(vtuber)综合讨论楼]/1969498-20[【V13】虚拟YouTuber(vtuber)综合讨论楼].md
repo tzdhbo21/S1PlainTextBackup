@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-17 10:12** 
+> ## **本文件最后更新于2021-01-17 14:13** 
 
 
 
@@ -20957,4 +20957,555 @@ b综夸张了
 
 
 
-             
+
+
+-----
+
+####  shanzihao  
+##### 29584#       发表于 2021-1-17 18:16
+
+
+
+
+桃皇说的是不是实话也厉害，你会和公司的人说这么私密的事？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29585#       发表于 2021-1-17 18:17
+
+
+
+
+口了2周年也不打算动一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 29586#       发表于 2021-1-17 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064632&amp;ptid=1969498" target="_blank">shanzihao 发表于 2021-1-17 18:16</a>
+
+桃皇说的是不是实话也厉害，你会和公司的人说这么私密的事？</blockquote>
+确实，太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29587#       发表于 2021-1-17 18:26
+
+
+
+[https://www.youtube.com/watch?v= ... 0%E5%B1%9E%E3%80%91](https://www.youtube.com/watch?v=H1kAXtZUFe8&amp;ab_channel=%E6%A8%8B%E5%8F%A3%E6%A5%93%E3%80%90%E3%81%AB%E3%81%98%E3%81%95%E3%82%93%E3%81%98%E6%89%80%E5%B1%9E%E3%80%91)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29588#       发表于 2021-1-17 18:42
+
+
+
+
+20号晚上郡道短发新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+居然还把这套改成默认服装了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29589#       发表于 2021-1-17 18:45
+
+
+
+
+郡道这是默认形象不做老师了？？
+想被烫<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29590#       发表于 2021-1-17 18:59
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gmqw7htftkj20uh0j7n1f.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/j4NTGSHroT8](https://youtu.be/j4NTGSHroT8)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29591#       发表于 2021-1-17 19:08
+
+
+
+
+郡道要做帅气短发坏女人了！？好耶！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29592#       发表于 2021-1-17 19:14
+
+
+
+
+没别的意思，单纯好奇这个封面是谁做的。
+<img src="https://p.sda1.dev/0/7be5b67909c279acc06fbe7b973443ae/IMG_CMP_247541153.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29593#       发表于 2021-1-17 19:38
+
+
+
+ 本帖最后由 FCCHua 于 2021-1-17 19:45 编辑 
+
+老师这是不做老师了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 还挺喜欢初始皮的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29594#       发表于 2021-1-17 19:43
+
+
+
+
+短发抽烟皮夹克好女孩郡道
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29595#       发表于 2021-1-17 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 口了气不气？气不气？让你80金鱼妹，最后还是被1换1了，丢人
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29596#       发表于 2021-1-17 19:46
+
+
+
+
+短发坏女人，是我的性癖<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29597#       发表于 2021-1-17 20:02
+
+
+
+
+北京时间9点月灵魂SR
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29598#       发表于 2021-1-17 20:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/17/200334hk529idhhpkj5jh5.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (16.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-17 20:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 29599#       发表于 2021-1-17 20:29
+
+
+
+
+  可恶...短发有活力的女性...听着有点好...不服气啊！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29600#       发表于 2021-1-17 20:29
+
+
+
+
+律可总算银盾了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29601#       发表于 2021-1-17 20:35
+
+
+
+
+封面就坏女人拉满感<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 29602#       发表于 2021-1-17 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50065646&amp;ptid=1969498" target="_blank">free 发表于 2021-1-17 20:03</a></blockquote>
+最近aki怎么和圆脸玩起来了？
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 29603#       发表于 2021-1-17 20:53
+
+
+
+[https://www.youtube.com/watch?v=NeN-7IM-SPQ](https://www.youtube.com/watch?v=NeN-7IM-SPQ)
+
+Vsinger RuA首播唱歌了
+
+<img src="https://img.saraba1st.com/forum/202101/17/205213nvvqvxtwxz4wyevn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210117205202.png</strong> (75.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-17 20:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 29604#       发表于 2021-1-17 21:05
+
+
+
+
+线下见面会活动的原因吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29605#       发表于 2021-1-17 21:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/17/211844bm1l9qlqo9m1jhiy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Er7kpcqUYAEUkru.jpg</strong> (131.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-17 21:18 上传
+
+
+
+
+
+
+
+喜欢你[https://pbs.twimg.com/media/Er7k ... pg&amp;name=900x900](https://pbs.twimg.com/media/Er7kpcqUYAEUkru?format=jpg&amp;name=900x900)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29606#       发表于 2021-1-17 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50066054&amp;ptid=1969498" target="_blank">恒温死神 发表于 2021-1-17 20:46</a>
+
+最近aki怎么和圆脸玩起来了？</blockquote>
+俩人一起线下有工商吧
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 29607#       发表于 2021-1-17 21:27
+
+
+
+
+理智分析为什么v综越来越不如b综：
+
+因为v综一直搞大姨桶暴政：斗争过于残酷，每个团体都追求一统v综，彻底排除异己。先打跑虹人，再打跑杏仁，天狗、crew也被打跑了大部分。虽然经历过好几次改朝换代，但每朝每代统治团体都热爱扣帽子、查成分，用暴力钳制思想，难免万马齐喑。
+
+反观b综一直奉行封建自由：虽然各种成分和v综一样日常打成一团，但烈度没有上升到人身迫害，不断斗争的同时不断吸纳新势力。弥人、鸟信、版信，包括最新出现的a-soul粉丝，各个小团体都能抱团自治，圈地自萌，维持在b综的存在和交流，所以越来越繁荣。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+真·理智分析：vtuber是什么叼东西，狗都不看。
+
+vtuber说来不就那些套路，vtuber新鲜感过去了自然只好去看管人观众，讨论管人观众多于讨论管人。而管人观众更是臭鱼烂虾，新鲜感过去得更快，狗都不车。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29608#       发表于 2021-1-17 21:35
+
+
+
+
+v综越来越不如b综的唯一原因就是日v的瓜不够质
+
+你要是能让哪个有点人气的男性日v对着女性日v的背打手冲，还是个ed，那v综也能发疯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29609#       发表于 2021-1-17 21:36
+
+
+
+
+虽然郡道这回新衣服，换画师+自己拖了快半年+形象改变+不要初设+介绍语是失恋+背景是口了最爱的海洋馆，可以各种发散，
+但我心中真的只剩短发烟头了，好爱，看傻了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29610#       发表于 2021-1-17 21:49
+
+
+
+
+b综不斗争的唯一原因就是b综本质维阿综，维阿大家庭里就算有群体内的人不想要的人也不过是家丑而已。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29611#       发表于 2021-1-17 21:53
+
+
+
+
+难道不是维阿实在拉了没边了以至于没人能拉得下脸当铁血维阿人赶其他人走么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 29612#       发表于 2021-1-17 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50066303&amp;ptid=1969498" target="_blank">free 发表于 2021-01-17 21:21:09</a>
+俩人一起线下有工商吧</blockquote>就是那个holo match嘛，怪怪的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29613#       发表于 2021-1-17 22:12
+
+
+
+[https://givemegohan.xyz/2021/01/ ... %e3%81%9f%e3%81%ae/](https://givemegohan.xyz/2021/01/17/vtuber%e3%81%ae%e3%82%b3%e3%83%a9%e3%83%9c%e9%96%a2%e4%bf%82%e3%81%ae%e3%83%8d%e3%83%83%e3%83%88%e3%83%af%e3%83%bc%e3%82%af%e3%82%b0%e3%83%a9%e3%83%95%e3%82%92%e4%bd%9c%e3%81%a3%e3%81%9f%e3%81%ae/)
+
+原图实在太大了劳烦各位点进去。
+
+是按联动概要栏写的对方url划分的关系。
+
+这作者也不知道是故意的还是怎么，彩虹明显和其他人有个鸿沟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            
