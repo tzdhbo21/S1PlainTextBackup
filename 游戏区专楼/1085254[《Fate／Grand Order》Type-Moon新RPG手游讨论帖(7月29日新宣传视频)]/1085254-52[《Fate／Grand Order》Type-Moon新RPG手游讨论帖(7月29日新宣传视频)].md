@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 07:07** 
+> ## **本文件最后更新于2021-01-17 10:26** 
 
 
 
@@ -22322,4 +22322,586 @@ YLS敢不敢来个仇凛宝具本背刺一下村正啊</blockquote>
 
 
 
-        
+
+
+-----
+
+####  khxooo  
+##### 77734#       发表于 2021-1-10 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49991430&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-1-10 13:41</a>
+留了个幸运A+的忘记做了，因为想不起来谁幸运这么高</blockquote>
+乔老师就是幸运A，活动刚好可以完成阿<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77735#       发表于 2021-1-10 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49992939&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-10 17:36</a>
+
+乔老师就是幸运A，活动刚好可以完成阿</blockquote>
+还没打到这么后面，一提幸运A+我第一反应是小太阳，然后去看了下发现不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 77736#       发表于 2021-1-12 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49990464&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-1-10 11:30</a>
+我怎么记得上次星战2最后是可以带自己人的，这次变单挑了？
+
+—— 来自 Sony XQ-AT72, Android 10上的 S1Ne ...</blockquote>
+本来就是单挑.....
+
+
+
+
+
+
+
+-----
+
+####  quanlix  
+##### 77737#       发表于 2021-1-12 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49990464&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-1-10 11:30</a>
+
+我怎么记得上次星战2最后是可以带自己人的，这次变单挑了？
+
+
+—— 来自 Sony XQ-AT72, Android 10上的 S1Ne ...</blockquote>
+没记错，只是你上次肝的太快了，最开始是能带自己人的，活动开一周后给修成单挑的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不垃圾屌丝| + 1|谢谢，已经知道了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77738#       发表于 2021-1-13 18:13
+
+
+
+
+草是复刻X毛不是BX，我还期待复刻抽的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77739#       发表于 2021-1-13 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最后的五呼符依然没出仇凛 只能继续用1宝了
+
+
+
+
+
+
+
+-----
+
+####  クー子  
+##### 77740#       发表于 2021-1-13 22:17
+
+
+
+
+签到石啥都没出，靠单抽补了二宝仇凛<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 77741#       发表于 2021-1-14 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50024752&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-13 18:13</a>
+
+草是复刻X毛不是BX，我还期待复刻抽的</blockquote>
+bx估计情人节了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77742#       发表于 2021-1-14 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50028132&amp;ptid=1085254" target="_blank">alaya 发表于 2021-1-14 00:24</a>
+
+bx估计情人节了</blockquote>
+机会有点小吧，毕竟要骗氪，肯定是全程UP新英灵的。
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 77743#       发表于 2021-1-14 00:32
+
+
+
+ 本帖最后由 alaya 于 2021-1-14 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50028169&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-14 00:29</a>
+
+机会有点小吧，毕竟要骗氪，肯定是全程UP新英灵的。</blockquote>
+情人节有个和新年差不多的轮替池，不过今年女帝都塞到新年了
+
+哦是双up啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77744#       发表于 2021-1-14 10:50
+
+
+
+
+醒醒，情人节除了本年和上年的情人节从者从来不up别的限定从者的，其他up的都是常驻+故事卡池限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77745#       发表于 2021-1-14 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">甚至上上年情人节没复刻，塞到了DL去了
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 77746#       发表于 2021-1-14 19:47
+
+
+
+
+单抽了个仇凛，再加上福袋的武藏....可是都是一宝啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77747#       发表于 2021-1-15 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这微妙的日期生放我觉得2.6还是有点难。。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77748#       发表于 2021-1-15 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50047013&amp;ptid=1085254" target="_blank">areklose 发表于 2021-1-15 20:59</a>
+
+这微妙的日期生放我觉得2.6还是有点难。。</blockquote>
+怎么可能是2.6，九成是爬塔，然后情人节啊。惯例不是白情后主线的吗。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77749#       发表于 2021-1-15 21:42
+
+
+
+ 本帖最后由 areklose 于 2021-1-15 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50047321&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-15 21:37</a>
+
+怎么可能是2.6，九成是爬塔，然后情人节啊。惯例不是白情后主线的吗。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">爬塔他配出现在生放吗。爬塔真是最讨厌的活动了，活动恶心，没有四星送，也没有新五星
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77750#       发表于 2021-1-15 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50047363&amp;ptid=1085254" target="_blank">areklose 发表于 2021-1-15 21:42</a>
+
+爬塔他配出现在生放吗。爬塔真是最讨厌的活动了，活动恶心，没有四星送，也没有新五星 ...</blockquote>
+记得之前爬塔也是有生放送的？而且还有预告情人节的作用。
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77751#       发表于 2021-1-16 03:48
+
+
+
+
+这60+MB是新活动吗？
+
+看起来似乎有点小
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77752#       发表于 2021-1-17 15:54
+
+
+
+
+阿叶抽村正大爆死wwwwwwww
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77753#       发表于 2021-1-17 16:18
+
+
+
+
+jk狐这一身打扮好奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77754#       发表于 2021-1-17 17:17
+
+
+
+
+大义经要来了？
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77755#       发表于 2021-1-17 17:17
+
+
+
+ 本帖最后由 xiongxingyu 于 2021-1-17 17:19 编辑 
+
+牛肉丸的老师？鞍马天狗？是鬼一法眼啊，不过是送的4星倒是没想到，而且鸡儿又没保住<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77756#       发表于 2021-1-17 17:20
+
+
+
+
+2021年上来就送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77757#       发表于 2021-1-17 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以，上年送的4星太少
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77758#       发表于 2021-1-17 17:22
+
+
+
+
+5星是仇牛肉丸，这次活动是老师来教育中二病发作的徒弟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77759#       发表于 2021-1-17 17:22
+
+
+
+
+不出意外的5星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77760#       发表于 2021-1-17 17:23
+
+
+
+
+毫无意外，又有戏看了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77761#       发表于 2021-1-17 17:24
+
+
+
+
+不过这回有送4星，又有特攻从者，应该不是爬塔了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 77762#       发表于 2021-1-17 17:29
+
+
+
+
+隔壁要开始大战了23333
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 77763#       发表于 2021-1-17 17:30
+
+
+
+
+问卷调查给四个了
+
+
+
+
+
+
+
+-----
+
+####  10925  
+##### 77764#       发表于 2021-1-17 17:46
+
+
+
+
+隔壁为了防止出现新战场，所有有关的讨论贴全都隐藏了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+应该是不给战了
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77765#       发表于 2021-1-17 17:48
+
+
+
+
+每年定番外的新活动四星，不容易<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 77766#       发表于 2021-1-17 18:06
+
+
+
+
+全世界所有神话和传说都是缝合怪，这么受不了缝合怪建议删游戏嗷
+
+
+
+
+
+       

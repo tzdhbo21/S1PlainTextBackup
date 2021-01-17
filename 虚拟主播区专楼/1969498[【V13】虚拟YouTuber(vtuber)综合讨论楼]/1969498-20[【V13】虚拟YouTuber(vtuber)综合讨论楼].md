@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-16 14:11** 
+> ## **本文件最后更新于2021-01-17 10:12** 
 
 
 
@@ -20298,4 +20298,663 @@ hachi三ヶ月連続新曲リリース4月还有公演<img src="https://static.s
 
 
 
-              
+
+
+-----
+
+####  caupollen  
+##### 29554#       发表于 2021-1-16 23:10
+
+
+
+ 本帖最后由 caupollen 于 2021-1-16 23:27 编辑 
+
+上色版本
+
+
+
+
+
+
+)$M{0OQK6R4`R}]8UG[A6T1.png
+(22.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-16 23:10 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/231010r8n6naa844m4x8oq.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+_O{X2XTW3IG(]V1VQ@I6_8D.png
+(28.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-16 23:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/232724ei4bh2hdhh4h2qu5.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 29555#       发表于 2021-1-16 23:15
+
+
+
+
+那个爆火的仓鼠玩具吧。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29556#       发表于 2021-1-16 23:16
+
+
+
+
+虹杏本社联动都太菜了，真虹杏大联动还得看我西恩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  †バンシー†  
+##### 29557#       发表于 2021-1-16 23:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/232343vnyffonossy67fj2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>桃01.jpg</strong> (8.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 23:23 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/232400ja9eixsyndfisyae.jpg" referrerpolicy="no-referrer">
+
+
+<strong>桃02.jpg</strong> (15.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 23:24 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/232410te6guucuucn3xggy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>桃03.jpg</strong> (25.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 23:24 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/16/232422xpnt5o11gqfmitnu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>桃04.jpg</strong> (4.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-16 23:24 上传
+
+
+
+
+
+
+ユニコン死すべし！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29558#       发表于 2021-1-16 23:33
+
+
+
+
+舞元这雀魂抽卡也太惨了
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 29559#       发表于 2021-1-16 23:44
+
+
+
+
+卧槽 原来qq聊天可以聊的这么开的吗？学到了 
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29560#       发表于 2021-1-16 23:53
+
+
+
+
+edo今天唱了11个小时，还是没到1.5w<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29561#       发表于 2021-1-17 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50057387&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-16 23:10</a>
+
+上色版本</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/17/000248bxhtlyuxxhglomix.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210117000238.png</strong> (19.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-17 00:02 上传
+
+
+
+
+
+
+实物对比，我去隔壁吃瓜了
+
+
+
+
+
+
+
+-----
+
+####  darkpiece365  
+##### 29562#       发表于 2021-1-17 00:07
+
+
+
+
+最乐的是这句“影响holo的品牌形象”
+
+没影响没影响，完美符合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 29563#       发表于 2021-1-17 00:23
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-1-17 00:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50057828&amp;ptid=1969498" target="_blank">katern 发表于 2021-1-16 23:53</a>
+edo今天唱了11个小时，还是没到1.5w</blockquote>
+我看她现在也才1.42万啊，是打算从1.4直接耐久到1.5？野心倒挺大
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29564#       发表于 2021-1-17 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50058138&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-1-17 00:23</a>
+
+我看她现在也才1.42万啊，是打算从1.4直接耐久到1.5？野心倒挺大</blockquote>
+是从1.3开始的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 29565#       发表于 2021-1-17 00:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这天竺鼠车能火起来真的很怪，感觉甚至不如大号油库里可爱（）
+<img src="https://p.sda1.dev/0/7b186e24175fdbd17aadc63ef700c5b9/IMG_CMP_87462640.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29566#       发表于 2021-1-17 01:26
+
+
+
+
+郡道在玩这个新感觉音游狂鼠之死，音乐不错，郡道水平也偶尔在线，难得想买郡道在玩的游戏，等她玩完我也开玩好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。
+同样是日本一，同样是沟上做的，一个夜回一个狂鼠，也是一种贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29567#       发表于 2021-1-17 02:23
+
+
+
+
+郡道卡关卡到下播，太tm有效果咯！
+完美的二周年开始！
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 29568#       发表于 2021-1-17 13:40
+
+
+
+
+给V综挽尊
+
+<img src="https://img.saraba1st.com/forum/202101/17/133912cee80bnhfocfcftt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>15469e5975f3231c.jpg</strong> (107.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-17 13:39 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29569#       发表于 2021-1-17 13:50
+
+
+
+
+哈弟的最协练习赛要明天才有，正好冲分了，要不然时间撞一起都没时间玩apex<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29570#       发表于 2021-1-17 14:29
+
+
+
+
+vshojo一个亿的登录者是怎么算的
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 29571#       发表于 2021-1-17 14:47
+
+
+
+ 本帖最后由 獅白ぼたん 于 2021-1-17 14:48 编辑 
+<blockquote>asdhai 发表于 2021-1-17 14:29
+vshojo一个亿的登录者是怎么算的</blockquote>
+狐cares，反正不影响油管生态Vshojo订阅和播放数一样，可能是复制手滑了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29572#       发表于 2021-1-17 14:47
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gmqowu5z5yj20vx064adw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29573#       发表于 2021-1-17 15:26
+
+
+
+
+郡道昨天玩儿风花雪月，过文本快得跟skip一样还以为她已经玩过了是故意的，结果是她正常阅读速度，
+
+现在看一秒暂停十秒读文本，救救非日语使用者
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 29574#       发表于 2021-1-17 16:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近可玩的东西太多了都没怎么看VTB，怎么V综都沦落到一天才一页了。。。。。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29575#       发表于 2021-1-17 16:46
+
+
+
+
+瓜没国v甜，赚的钱没小红多，歌力不如月灵，跳舞不如嘉然。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不会还有人看虹杏吧
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 29576#       发表于 2021-1-17 16:58
+
+
+
+
+个人的确自杏那事后基本看v频率大减半退坑了，每天也就例行公事上来看看。
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 29577#       发表于 2021-1-17 17:02
+
+
+
+
+龙妈b限怎么这么冷清
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29578#       发表于 2021-1-17 17:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桃皇的事情算是盖棺定论，虽然还有人觉得是俩边串通，但是也没什么硬性证据。反正结论就是，桃皇：“我们holo”。cn运营拉垮的又一铁证。
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 29579#       发表于 2021-1-17 17:58
+
+
+
+ 本帖最后由 保罗赫伯特 于 2021-1-17 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50057549&amp;ptid=1969498" target="_blank">†バンシー† 发表于 2021-1-16 23:26</a>
+
+ユニコン死すべし！</blockquote>
+桃皇的解释：“我是和运营说过这些话，但我是因为运营不让我和男v（aza）联动，生气胡说的”。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你说这两人感情不深我都不信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29580#       发表于 2021-1-17 18:00
+
+
+
+
+根据我B综云来的aza不是路人长相的地精吗？桃皇要玩也是去玩他CP对象划算啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 29581#       发表于 2021-1-17 18:02
+
+
+
+ 本帖最后由 保罗赫伯特 于 2021-1-17 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064308&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-1-17 17:40</a>
+
+桃皇的事情算是盖棺定论，虽然还有人觉得是俩边串通，但是也没什么硬性证据。反正结论就是，桃皇： ...</blockquote>
+我个人觉得，至少她和aza是真的”关系不错“，还有美国男友的部分她干脆就不解释了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这些料能爆出来，也说明holocn以前内部是真的矛盾重重，现在机会成熟了都放出来了
+
+syl 我真的觉得桃皇的辩驳很无力，怎么会有人智障到和运营乱说自己和敌台男v出轨开房的，完全脱离了人类的正常认知
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 29582#       发表于 2021-1-17 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064490&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-17 18:00</a>
+
+根据我B综云来的aza不是路人长相的地精吗？桃皇要玩也是去玩他CP对象划算啊 ...</blockquote>
+b综夸张了
+
+是个有肌肉的小帅哥，就是矮了点前世就有很多粉丝服务了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 29583#       发表于 2021-1-17 18:07
+
+
+
+
+所以说美籍男友那段还有大可能是真的？
+
+
+
+
+
+             
