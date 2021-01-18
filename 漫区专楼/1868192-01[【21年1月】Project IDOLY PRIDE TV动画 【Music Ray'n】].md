@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-11 12:17** 
+> ## **本文件最后更新于2021-01-18 12:24** 
 
 
 
@@ -9,9 +9,9 @@
 
 
 
- 本帖最后由 shadowof 于 2020-10-2 15:30 编辑 
+ 本帖最后由 shadowof 于 2021-1-12 11:39 编辑 
 
-动画档期已定21年1月
+
 <img src="https://i.imgur.com/fJ4uoHP.jpg" referrerpolicy="no-referrer">
 
 sphere的组合 LizNoir（リズノワール）
@@ -223,7 +223,7 @@ Aile to Yell / TRINITYAiLE
 
 
 比较好奇的是推上这个人物好像不在10人内？
-<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_gAdm0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_UG11K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1776,4 +1776,504 @@ CG制作：ラークスエンタテインメント
 
 
 
-                                              
+
+
+-----
+
+####  lyz1196  
+##### 93#       发表于 2021-1-11 21:01
+
+
+
+
+开夫妻店不挺好的吗？没必要搞这么苦情吧？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黄字  
+##### 94#       发表于 2021-1-11 21:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50004759&amp;ptid=1868192" target="_blank">lyz1196 发表于 2021-1-11 21:01</a>
+
+开夫妻店不挺好的吗？没必要搞这么苦情吧？</blockquote>
+这个企划就是卖用力的，他企划的官网可太用力了。
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 95#       发表于 2021-1-11 21:05
+
+
+
+
+女主太惨了出道到挂掉只有一套打歌服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 96#       发表于 2021-1-11 21:22
+
+
+
+
+要做的内容也太多，10个偶像+sphere trysail+人鬼情未了，还要有个好像是麻奈的妹肯定要用更多篇幅去写，但只剩下11集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lawliet.L  
+##### 97#       发表于 2021-1-11 21:29
+
+
+
+
+花田如果是系构，那应该会有很多坑不填，不过他只是原作之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 98#       发表于 2021-1-11 21:41
+
+
+
+<blockquote>moooooonlight 发表于 2021-1-11 21:22
+要做的内容也太多，10个偶像+sphere trysail+人鬼情未了，还要有个好像是麻奈的妹肯定要用更多篇幅去写，但 ...</blockquote>
+有手游的，估计tv故事就是围绕那10个人，其他组合故事用游戏补完
+
+
+
+
+
+
+
+-----
+
+####  stuka1942  
+##### 99#       发表于 2021-1-11 22:10
+
+
+
+ 本帖最后由 stuka1942 于 2021-1-11 22:13 编辑 
+
+这第一集有点意思，先发个便当，没想到还有幽灵这一出
+
+一开始还想男主是不是神经了，结果真是幽灵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 100#       发表于 2021-1-11 22:31
+
+
+
+
+《制作人竟是赛博精神病？！》
+
+
+
+
+
+
+
+-----
+
+####  07579394  
+##### 101#       发表于 2021-1-11 22:44
+
+
+
+
+和也待遇
+
+
+
+
+
+
+
+-----
+
+####  茴香蚪的马甲  
+##### 102#       发表于 2021-1-11 22:47
+
+
+
+ 本帖最后由 茴香蚪的马甲 于 2021-1-11 22:49 编辑 
+
+水澄佳希、安达薰、花田十辉这三个人是整个企划的原案，而不单单是动画版的原案，所以就别指望花田在动画版里能有多高的参与度了，纯挂名都有可能。。
+
+
+
+
+
+
+
+-----
+
+####  ReginaldMorgan  
+##### 103#       发表于 2021-1-11 23:08
+
+
+
+
+快进到《理性讨论本家和灰姑娘算不算高桥龙也代表作》<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+老实说，给 P 钦定一个背后灵女朋友，就算男主画的帅一点都可以直接避免私联话题……吧？（开始不安）
+
+
+以及女主死都死了肯定算偶像毕业了，毕业的偶像当然可以谈恋爱，安逸安逸
+
+
+
+
+
+
+
+-----
+
+####  nejiang  
+##### 104#       发表于 2021-1-12 00:04
+
+
+
+
+10个人里不是3代团的那5个新人是哪些事务所的？是不是3代团落选的？
+
+
+
+
+
+
+
+-----
+
+####  茴香蚪的马甲  
+##### 105#       发表于 2021-1-12 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006428&amp;ptid=1868192" target="_blank">nejiang 发表于 2021-1-12 00:04</a>
+
+10个人里不是3代团的那5个新人是哪些事务所的？是不是3代团落选的？</blockquote>
+别的不说，高尾奏音都已经有好几个动画主役了吧。其他的几个的确都是真·新人，事务所分布不一。
+
+
+
+
+
+
+
+-----
+
+####  songchen_bruce  
+##### 106#       发表于 2021-1-12 08:16
+
+
+
+
+所以，这个制作人到底是不是精神分裂出现幻觉？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+如果剧本完全由花田来掌控，没准真会这么干。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  叛逆之双子星  
+##### 107#       发表于 2021-1-12 08:29
+
+
+
+
+会整活，有意思啊
+
+
+
+
+
+
+
+-----
+
+####  OBW  
+##### 108#       发表于 2021-1-12 10:30
+
+
+
+
+这片走势有点像姐姐死了妹妹继承姐姐遗志这类型的。
+
+
+
+
+
+
+
+-----
+
+####  nejiang  
+##### 109#       发表于 2021-1-12 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006870&amp;ptid=1868192" target="_blank">茴香蚪的马甲 发表于 2021-01-12 01:53:20</a>
+别的不说，高尾奏音都已经有好几个动画主役了吧。其他的几个的确都是真·新人，事务所分布不一。 ...</blockquote>这个操作就很奇怪，音雨投入这么多资源不专心捧自家第3代，还一下加那么多别家新人组10人团，可能是觉得5人团撑不起一部偶像动画
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qiqqwr  
+##### 110#       发表于 2021-1-12 13:12
+
+
+
+
+感觉拍得好水啊，讲了一整集回忆；演出也缺乏想法，明明片尾的live还挺不错的，正片讲麻奈过关斩将的时候竟然一个live都没有，全靠ppt。最后弄了个背后灵看起来新奇，但能不能用好就是另一回事儿了
+
+
+
+
+
+
+
+-----
+
+####  hijack997  
+##### 111#       发表于 2021-1-12 13:41
+
+
+
+
+重心是10人团吧。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 112#       发表于 2021-1-17 22:32
+
+
+
+
+男主究极直男<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+橘发女主是不是心脏病还是什么问题啊，有点怕<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 113#       发表于 2021-1-17 23:46
+
+
+
+
+官方人物关系图里麻奈对樱的箭头有颗红心，这集又樱又疑似病弱的设定，不会是心脏移植吧？
+
+
+
+
+
+
+
+-----
+
+####  jacklibran  
+##### 114#       发表于 2021-1-18 01:27
+
+
+
+
+比想象中好看
+
+感觉最后不拉跨的话可以做出合格的泣系动画？
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 115#       发表于 2021-1-18 02:04
+
+
+
+
+第二集还不错，感觉可以追下去。
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 116#       发表于 2021-1-18 02:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50006428&amp;ptid=1868192" target="_blank">nejiang 发表于 2021-1-12 00:04</a>
+
+10个人里不是3代团的那5个新人是哪些事务所的？是不是3代团落选的？</blockquote>
+肯定不是,其余5人不同事务所的
+
+
+音雨三期早几年前就启动了
+
+
+
+
+
+
+
+-----
+
+####  银盾长枪兵  
+##### 117#       发表于 2021-1-18 03:59
+
+
+
+
+这片可以改个名叫成神之日
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zhouaa  
+##### 118#       发表于 2021-1-18 19:46
+
+
+
+
+这片能不能得到我的好评就看最后麻奈会不会还愿消失了，要搞花活就负责到底啊，有种全员开萝卜上宇宙啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 119#       发表于 2021-1-18 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50075294&amp;ptid=1868192" target="_blank">zhouaa 发表于 2021-1-18 19:46</a>
+
+这片能不能得到我的好评就看最后麻奈会不会还愿消失了，要搞花活就负责到底啊，有种全员开萝卜上宇宙啊[f:0 ...</blockquote>
+第一集开头男主都望天了 那肯定没了啊
+
+
+
+
+
+
+
+-----
+
+####  zhouaa  
+##### 120#       发表于 2021-1-18 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50075442&amp;ptid=1868192" target="_blank">支仓爱理 发表于 2021-1-18 19:59</a>
+
+第一集开头男主都望天了 那肯定没了啊</blockquote>
+她愿望不是拿到冠军吗，一开始还没比呢，就没可能飘天上<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 121#       发表于 2021-1-18 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50075465&amp;ptid=1868192" target="_blank">zhouaa 发表于 2021-1-18 20:02</a>
+
+她愿望不是拿到冠军吗，一开始还没比呢，就没可能飘天上</blockquote>
+第一集那个应该是决赛的舞台 对应她没踏上的那个决赛 至于结果都不重要了 
+
+
+
+
+
+                                             
