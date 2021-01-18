@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-18 09:15** 
+> ## **本文件最后更新于2021-01-18 14:15** 
 
 
 
@@ -22076,4 +22076,637 @@ VTuber大集合AmongUs!!
 
 
 
-           
+
+
+-----
+
+####  IDIDIDID  
+##### 29644#       发表于 2021-1-18 17:42
+
+
+
+
+问题就在于“数字没用”这话必须得是有数字的人出来说才有信服力，连纯酱说“我这点订阅就够了”这句话的底气都是因为他同接好看啊。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 29645#       发表于 2021-1-18 17:50
+
+
+
+
+等ccll被赶出几个？但已经有ccll楼了，主要还是q综的问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29646#       发表于 2021-1-18 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50073032&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-1-18 16:01</a>
+
+https://twitter.com/natsuiromatsuri/status/1351076861854547974</blockquote>
+是小白叫的人吗，还有hh
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29647#       发表于 2021-1-18 18:28
+
+
+
+<img src="https://i.ytimg.com/vi/kdhrNPliCII/maxresdefault.jpg" referrerpolicy="no-referrer">
+
+草，bora封面鬼才
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 29648#       发表于 2021-1-18 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50073032&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-1-18 16:01</a>
+https://twitter.com/natsuiromatsuri/status/1351076861854547974</blockquote>
+看起来有看头，但愿我记得去看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Abyssmarionette  
+##### 29649#       发表于 2021-1-18 18:48
+
+
+
+<blockquote>OldGlory 发表于 2021-1-18 17:52
+是小白叫的人吗，还有hh</blockquote>
+HH和小白都发推说是夏色祭叫的人
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29650#       发表于 2021-1-18 19:18
+
+
+
+
+不忘初心夏色祭，建设V圈加帕里<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 29651#       发表于 2021-1-18 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">放了几天没看，v综也就多了几页，确实是凉了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29652#       发表于 2021-1-18 19:35
+
+
+
+
+郡道真的集喜感与不快于一身，
+出道后不久去旅游，说是去意大利结果背景出现了日本废物处理车的声音，但当时也就那样过去了，前段时间炎上就被翻旧料剪出来喷，最近不知为何好多人又拿出来喷，于是郡道直接把当时拍的图用dropbox共享了（确实去了意大利和日本某城市，但当时害怕被特就把两个的顺序换了，顺便一说，现在的防被特的方法是没有任何通知直接消失一星期），
+好不快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29653#       发表于 2021-1-18 19:36
+
+
+
+
+木口进入量产金盾时代了。
+
+
+
+
+
+
+
+-----
+
+####  Rebellionx5  
+##### 29654#       发表于 2021-1-18 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不少都是上次MR.VIRTUALIZER的出演者
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 29655#       发表于 2021-1-18 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那打完能不能合唱MR.V（
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29656#       发表于 2021-1-18 19:43
+
+
+
+
+为了防被特谎报行程挺正常吧，叶师也说自己推特会打乱发
+
+我好想快点看到真的变成坏女人的郡道<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29657#       发表于 2021-1-18 19:52
+
+
+
+
+卵用这好活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 29658#       发表于 2021-1-18 20:11
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-18 20:40 编辑 
+
+魔幽鬼对话不会冷场啊，感觉都蛮熟了，我宣布这就是新卍组了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+魔幽鬼解散！现在是PKA了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29659#       发表于 2021-1-18 20:32
+
+
+
+
+卵用这个24分钟点踩才过千，holoan废物啊。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 29660#       发表于 2021-1-18 20:33
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-18 19:35
+郡道真的集喜感与不快于一身，
+
+出道后不久去旅游，说是去意大利结果背景出现了日本废物处理车的声音，但当 ...</blockquote>
+这次其实蛮奇怪的。这也两年前openrec的直播了，然后被人剪下来也是几个礼拜之前的事了，剪辑出来后一直有零星推特转发，但今天早上突然一批人疯狂转发和在她推下面直接跳脸，感觉是一次有组织的行为，而不是往常anti起哄。
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 29661#       发表于 2021-1-18 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29662#       发表于 2021-1-18 20:37
+
+
+
+我来论述下，为啥说bzml的金盾是含金量最高的
+
+
+1.出道时间选择得好，避免被油管炮打，能够持续上分。
+2.看出en盘潜力，高调en进出盘，红迪谁人不识钓鲨鱼
+3.从不吸箱内血，积极联动2434，帮助箱内大家庭引流虹人
+4.金盾回500wsc，前无古人。
+5.质 杂谈 东方 歌回 工商 mc 1v1 solo，无质不船，船皇的质是刻入骨髓的
+6.人品魅力无敌，有多个vtber想跟船皇联动，船皇从来不偏向哪个，帮这些cp都引到了流，大公无私
+7.杂谈力无敌，这个相信大家都知道
+8.最重要的一点，其它人都或多或少偏科，只有船皇全面发展，毫无短板
+试问这样一个金盾，难道不是含金量最高的吗？
+
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29663#       发表于 2021-1-18 20:40
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-1-18 20:42 编辑 
+
+乾殿、歌衣、夕刻拿下冠军
+
+目前为止的7局总计有6队拿过冠军，现在这百花齐放的趋势挺意外的。接下去感觉有的看了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29664#       发表于 2021-1-18 20:43
+
+
+
+
+然而丽姐队又是高人头高名次，yyds<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29665#       发表于 2021-1-18 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卵用这活我觉得挺好的啊，以前杏蹭虹，现在无非就是虹蹭回来罢了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29666#       发表于 2021-1-18 20:56
+
+
+
+
+好奇去看了一下卵用，这也1K👎杏人玻璃心🙅‍
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29667#       发表于 2021-1-18 21:06
+
+
+
+
+夜见、大福、社拿下第一，这真的是说不准了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 29668#       发表于 2021-1-18 21:07
+
+
+
+
+看大福视角笑死了
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 29669#       发表于 2021-1-18 21:07
+
+
+
+
+这1千里杏仁能不能占一半都是个问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29670#       发表于 2021-1-18 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以鲨鱼啥时候才能有3d，超老爱前能有吗？
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29671#       发表于 2021-1-18 21:36
+
+
+
+ 本帖最后由 十四洲 于 2021-1-18 21:43 编辑 
+
+杏星又鸡了
+
+叶师这把真的尽力了，一人当渔夫，复活了队友，可惜了
+
+syl，我还是奶丽姐那队，击杀数太稳了，经常10多个头，而且基本都能决赛圈
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29672#       发表于 2021-1-18 21:37
+
+
+
+
+这届最协千那队，丽姐那队，杏星那队稳前三了吧，就算拿不到好名次这三队的kill数也非常高，很难爆冷
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29673#       发表于 2021-1-18 21:37
+
+
+
+
+还是木口星牛逼
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29674#       发表于 2021-1-18 21:42
+
+
+
+
+噗这队人头应该会一般，他们落地周围都没人，经常逛大半局
+
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 29675#       发表于 2021-1-18 21:52
+
+
+
+
+啥叫又，练习赛第一次吃鸡，海带头一人养全队的甲，还带着一个看似白金守门员实质黄金的阿兰，要不是今天位置好，不用队友跟着跑，估计也就第一天总分第七这样
+
+阿兰练习赛之前就会限讲压力挺大的，第一天气氛巨紧张，还好海带头这两天改练debu练得还不错
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29676#       发表于 2021-1-18 21:56
+
+
+
+
+目前最稳定的就是丽姐她们，毕竟这次最协像拳击部这种鱼腩挺多的，愿意去做出killmove的队伍击杀分肯定会高
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29677#       发表于 2021-1-18 22:03
+
+
+
+
+阿叶恶灵开的门我要笑死了，每次都是意想不到的门
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29678#       发表于 2021-1-18 22:06
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-1-18 22:10 编辑 
+
+叶上一把想要拉直布那个门把我看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，刚说拳击部鱼腩结果就第一了，虽然长尾不在（
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29679#       发表于 2021-1-18 22:10
+
+
+
+
+下一首管人神曲
+
+[https://www.youtube.com/watch?v=vcGbefQBvJ4](https://www.youtube.com/watch?v=vcGbefQBvJ4)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29680#       发表于 2021-1-18 22:12
+
+
+
+
+跟上次杏吃鸡那一队记混了，顺手打错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+丽姐那队真的稳得不能再稳了，我不信能奶死
+
+
+
+
+
+          

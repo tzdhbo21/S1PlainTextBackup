@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-13 13:12** 
+> ## **本文件最后更新于2021-01-18 14:12** 
 
 
 
@@ -7298,4 +7298,530 @@ candy-go-round试听，杂鱼打包组合，这就是下个live的曲目了吗
 
 
 
-                                    
+
+
+-----
+
+####  JoelBirch  
+##### 4895#       发表于 2021-1-13 21:20
+
+
+
+
+恭喜阿夸油管金盾🎉
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4896#       发表于 2021-1-13 21:46
+
+
+
+
+竟然单窗236万円，第一次突破200万吧
+
+要知道本来过100万的也就一掌之数<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+第一次窥见皇级的风景啊，也不知有没有下次了
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 4897#       发表于 2021-1-13 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没了没了，过年偶尔吃顿饺子还指望天天有饺子吃不成
+
+
+
+
+
+
+
+-----
+
+####  zpy393  
+##### 4898#       发表于 2021-1-13 22:21
+
+
+
+
+入坑的时候油管炮猛烈，一天能涨50+都挺开心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当时别说一百万了，就是五十万感觉都是做白日梦，而且觉得自己最多看半年就腻了，结果一晃两年过去了真的像做梦一样
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4899#       发表于 2021-1-13 22:36
+
+
+
+
+养老了养老了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mumulyn  
+##### 4900#       发表于 2021-1-13 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">确实蛮唏嘘的，两年多前还是被她那种和小秦极为相似的孤高气息所吸引
+
+现在都成大主播了，也都变圆滑了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4901#       发表于 2021-1-13 22:53
+
+
+
+
+翻了下存档，最早的居然还是和a酱马车<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这都是回忆啊）
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 4902#       发表于 2021-1-13 23:39
+
+
+
+ 本帖最后由 JoelBirch 于 2021-1-14 00:01 编辑 
+
+归根结底，我也是被那种气质吸引的
+
+虽说第一个切片确实是被萌音萌到，但不管是魂血狼，还是战神，抑或是我的世界里的奇观建筑，都由衷地让人感觉到浪漫……
+
+小秦表达那种感觉往往会说些怪话……夸则是完全组织不好语言，但真的能让人体会到那种深刻的感动；和耐久达成某某目标不同，和竞技之魂的燃烧也不同，不靠语言堆砌也不靠氛围烘托，是那种不经意间流露出的，一瞬而逝却又击中心灵的领会
+
+这是种非凡的天赋，这个世界上能让人轻松大笑轻松流泪的主流主播有很多，但看了这么久这么多直播，对我来说，能从中获得这种珍稀情感体验的，唯二而已
+
+尽管世事艰难，但仍希望夸/Rinco能在今后的人生里，无论是VTB生涯还是现实生活，不要浪费这份上天的馈赠，自觉并活用这份天赋，感动更多人吧
+
+一不小心的真情实感，没啥资格其实，止增笑耳
+
+syl，回看发现写得好抽象，其实想说的就是那种电次和玛奇玛看电影那一整个片段的感觉，为共同体验的第三个事物感动，也为有她而感动，也为她本身的存在而感动，大概这样
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守| + 1|好评加鹅|
+| 乌鸦绅士| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 4903#       发表于 2021-1-14 00:44
+
+
+
+
+恭喜夸宝金盾，没能陪着一起金盾<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4904#       发表于 2021-1-14 05:18
+
+
+
+[https://nyaa.si/view/1326885](https://nyaa.si/view/1326885)
+
+拼盘原创曲的无损
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 4905#       发表于 2021-1-14 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50026123&amp;ptid=1947500" target="_blank">kata魂 发表于 2021-1-13 20:43</a>
+
+这么一看，5月到8月真是浪费了好一段日子啊</blockquote>
+这中间发生了什么？
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4906#       发表于 2021-1-14 10:29
+
+
+
+
+5月到8月不就是闭关练歌练舞吗，要是当时不搞sololive大概能早一个月金盾？
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4907#       发表于 2021-1-14 10:32
+
+
+
+
+别说，若是福报，肯定能年内金盾，但你这sololive办不办的起来还是个问题，说不定现在还在排队呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">圆了live梦也是一条世界线
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4908#       发表于 2021-1-14 14:20
+
+
+
+
+今天补到了这个[https://www.bilibili.com/video/B ... mmend_more_video.14](https://www.bilibili.com/video/BV1A7411w7T1/?spm_id_from=333.788.recommend_more_video.14)，难得的软夸<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  濡鸦之羽_  
+##### 4909#       发表于 2021-1-14 14:45
+
+
+
+
+恭喜阿夸金盾<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+今天在推荐看到了原来没看的熟肉，点开一看一个小时就过去了，快乐竟是如此简单
+[【紧急验证】阴角正是因为太会察言观色了才叫阴角一说](https://www.bilibili.com/video/BV1AE41187cW)
+
+
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4910#       发表于 2021-1-14 17:33
+
+
+
+
+最近的点赞是10号的西西的推，是西西通宵直播练习apex后的推。不知道是不是想一起打apex的信号。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4911#       发表于 2021-1-14 21:54
+
+
+
+
+早上好<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4912#       发表于 2021-1-14 22:36
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-14 22:40 编辑 
+
+又睡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4913#       发表于 2021-1-15 21:27
+
+
+
+ 本帖最后由 面具13 于 2021-1-15 21:43 编辑 
+
+管玄武岩三角洲叫亚诺尔隆德可还行。
+
+原来还有人在名字后面标【Aqua Crew】的啊。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4914#       发表于 2021-1-15 21:48
+
+
+
+ 本帖最后由 Kanchiki 于 2021-1-15 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50047244&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-15 21:27</a>
+
+管玄武岩三角洲叫亚诺尔隆德可还行。
+
+原来还有人在名字后面标【Aqua Crew】的啊。 ...</blockquote>草
+
+头像 狐坦 ID：I Love Rushia 【Aqua Crew】
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4915#       发表于 2021-1-15 23:55
+
+
+
+
+忆苦思甜time
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4916#       发表于 2021-1-16 20:20
+
+
+
+
+这是什么呋哇呋哇女子会，不适合俺 ~≈=( ^)o(^)-逃げよう!
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4917#       发表于 2021-1-16 20:23
+
+
+
+ 本帖最后由 面具13 于 2021-1-16 20:49 编辑 
+
+不如去补中午的apex   
+
+ (^)o(^) =3 =3
+
+
+这段喷子的激情对射太精彩了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4918#       发表于 2021-1-16 20:26
+
+
+
+ 本帖最后由 Kanchiki 于 2021-1-16 20:33 编辑 
+
+仙台名物萩の月
+
+はい特定（？）SYL,不知道聊什么尬住了，只好问观众想听什么
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4919#       发表于 2021-1-17 22:14
+
+
+
+ 本帖最后由 离魂仙 于 2021-1-17 22:40 编辑 
+
+这孩子，平时音准挺好的，就是这倒数第二句“心に炎を灯して”为什么要↗↗扯着嗓子升调啊
+
+这里都收尾了要沉淀下情感的啊，我很喜欢的meaqua合唱版里mea这一句的处理，BV19K411G7qa
+
+算了，只是一点搬完砖回家只听到一首《炎》的郁郁之气<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+还宣传还宣传，噶哦papa那本画集里 你有几张图啊，啊？
+
+憋跟ayaka那个小婊砸手牵手了知道不，她脏<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4920#       发表于 2021-1-17 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">可是嘎哦叭叭的あやか本很色啊
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4921#       发表于 2021-1-18 21:28
+
+
+
+ 本帖最后由 离魂仙 于 2021-1-18 21:45 编辑 
+
+这不比《周日歌回》燃 欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会费值回来了点
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4922#       发表于 2021-1-18 21:51
+
+
+
+
+今天有哪首是没萌混过关的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   

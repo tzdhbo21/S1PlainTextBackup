@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-17 10:12** 
+> ## **本文件最后更新于2021-01-18 14:15** 
 
 
 
@@ -551,4 +551,508 @@ tmd,线下民怎么了,就不能想看这两人线下吗<img src="https://static
 
 
 
-                                                
+
+
+-----
+
+####  Dualist彩  
+##### 7533#       发表于 2021-1-17 18:23
+
+
+
+
+小麻不要中了狗蛋的奸计啊，啊啊啊啊啊，不安，要把她锁起来折磨到没有独自出门的能力
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7534#       发表于 2021-1-17 22:46
+
+
+
+
+u1转生@RuAo0x，企业势，是给你麻出cd的那个公司
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7535#       发表于 2021-1-17 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50066847&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-1-17 22:46</a>
+
+u1转生@RuAo0x，企业势，是给你麻出cd的那个公司</blockquote>
+是那个Rua吗 初配信下面看到了有趣的评论 中国dd到处都是<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+かわいい声ですね！☺️
+
+ちなみにruaは中国ですこく有名なネットnetaです！！！
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7536#       发表于 2021-1-17 22:57
+
+
+
+
+哎，现在肯定都去企业啦
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7537#       发表于 2021-1-17 23:14
+
+
+
+
+等等，哪来的CD？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 7538#       发表于 2021-1-17 23:37
+
+
+
+
+这推号还是去年9月就建好了，找魂找了这么久么，看了下关注，就关注了四个v，其中一个就是麻，太明显了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 7539#       发表于 2021-1-17 23:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">夜宵没能出道的原因找到了（）
+
+再见了夜宵，你好啊露阿
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7540#       发表于 2021-1-17 23:49
+
+
+
+
+有无u18r图？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">给点给点
+好像很久以前楼里讨论时说挺漂亮的，不过一直没看过bs其他人的考古遗迹
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7541#       发表于 2021-1-17 23:51
+
+
+
+
+没必要讨论吧 喜欢看的就看 想支持的就去支持<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7542#       发表于 2021-1-17 23:56
+
+
+
+
+u18r之前和你麻关系就挺好吧,也没必要打扰人家了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7543#       发表于 2021-1-18 00:03
+
+
+
+
+小蓝终究还是钻进了虚拟人界这个坑（不知道那位小蓝gachi会怎么想
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7544#       发表于 2021-1-18 00:03
+
+
+
+ 本帖最后由 时雨rain 于 2021-1-18 00:08 编辑 
+
+新人是黄毛，球球，tc主是什么cylx，出来再就业不挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7545#       发表于 2021-1-18 00:17
+
+
+
+
+V就是一箩筐什么都能往里装。没必要抵触和推崇就是了。
+
+不过当初如果“一起出道的未曾设想的未来”还是挺有意思的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+等你mea姐又来一个”重大发表“好吧（bushi<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nichtig  
+##### 7546#       发表于 2021-1-18 00:46
+
+
+
+
+对她来说也是没办法的办法了。虽然我挺悲观的，但也不是不能往好的想就是了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 7547#       发表于 2021-1-18 01:15
+
+
+
+
+tc主出道当管人是什么很新鲜的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 7548#       发表于 2021-1-18 01:26
+
+
+
+
+上辈子姐妹相称，这辈子变成母女岂不是很没面子
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 7549#       发表于 2021-1-18 02:16
+
+
+
+
+放弃思考…
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7550#       发表于 2021-1-18 07:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7551#       发表于 2021-1-18 08:49
+
+
+
+
+TC播
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7552#       发表于 2021-1-18 08:49
+
+
+
+
+唐突tc<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，这嗓子怎么回事
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7553#       发表于 2021-1-18 08:54
+
+
+
+
+声音确实是刚起不是熬夜的感觉 真的健康生活了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7554#       发表于 2021-1-18 09:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7555#       发表于 2021-1-18 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50067861&amp;ptid=1973472" target="_blank">dsylolicon 发表于 2021-1-18 01:26</a>
+
+上辈子姐妹相称，这辈子变成母女岂不是很没面子</blockquote>
+nana生的，照样比你麻低一辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7556#       发表于 2021-1-18 10:00
+
+
+
+
+草，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7557#       发表于 2021-1-18 10:52
+
+
+
+
+我还挺喜欢她刚起床哑哑的嗓音的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7558#       发表于 2021-1-18 22:03
+
+
+
+
+阿咩在狂点naizi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7559#       发表于 2021-1-18 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50076630&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-1-18 22:03</a>
+阿咩在狂点naizi</blockquote>
+不是平板吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7560#       发表于 2021-1-18 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50076656&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-1-18 22:05</a>
+
+不是平板吗</blockquote>
+平板就是naizi，naizi就是平板！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，你咩姐真欧啊
+
+
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7561#       发表于 2021-1-18 22:13
+
+
+
+
+好歪啊2333
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7562#       发表于 2021-1-18 22:14
+
+
+
+
+双黄，吓死狗蛋了
+
+
+
+
+
+                                               
