@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-18 14:15** 
+> ## **本文件最后更新于2021-01-18 16:00** 
 
 
 
@@ -1055,4 +1055,500 @@ syl，你咩姐真欧啊
 
 
 
-                                               
+
+
+-----
+
+####  路人庚  
+##### 7563#       发表于 2021-1-18 22:16
+
+
+
+
+感觉这次该你咩姐井了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7564#       发表于 2021-1-18 22:17
+
+
+
+
+看来要井了
+
+syl，谁想出的双抽，跳脸艺最好的节目
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7565#       发表于 2021-1-18 22:25
+
+
+
+
+2连保底，看来第一个10连把运气都用完力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7566#       发表于 2021-1-18 22:27
+
+
+
+ 本帖最后由 掉头学姐 于 2021-1-18 22:37 编辑 
+
+犬山的笑声真爽朗啊
+
+还是悲鸣的狗蛋好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7567#       发表于 2021-1-18 22:37
+
+
+
+ 本帖最后由 路人庚 于 2021-1-18 22:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">川剧变脸，终于出了另一个
+
+
+syl，复制人可还行
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7568#       发表于 2021-1-18 22:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">流向转了一万个弯
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7569#       发表于 2021-1-18 22:51
+
+
+
+
+卧槽10连3虹
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7570#       发表于 2021-1-18 22:52
+
+
+
+
+我艹
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7571#       发表于 2021-1-18 22:53
+
+
+
+
+全歪还行真毒啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7572#       发表于 2021-1-18 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然鹅还是没有抽到yui
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7573#       发表于 2021-1-18 22:53
+
+
+
+
+这个歪的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7574#       发表于 2021-1-18 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩歪了一万个虹草
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7575#       发表于 2021-1-18 22:56
+
+
+
+
+怎么感觉比fgo还毒
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7576#       发表于 2021-1-18 22:58
+
+
+
+
+天井的友情
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7577#       发表于 2021-1-18 22:59
+
+
+
+
+为啥日本手游被国内手游血洗呢，技术落后，加抽卡坑人啊
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7578#       发表于 2021-1-18 22:59
+
+
+
+
+旧池复刻没fes是这样的，正常现象。
+
+节目效果挺好
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7579#       发表于 2021-1-18 23:00
+
+
+
+
+就跑了 不是说有惩罚游戏吗
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7580#       发表于 2021-1-18 23:00
+
+
+
+
+节目效果拉满
+
+然而估计下播小麻要心疼钱包了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7581#       发表于 2021-1-18 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50077212&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2021-1-18 23:00</a>
+就跑了 不是说有惩罚游戏吗</blockquote>
+平手了啊
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7582#       发表于 2021-1-18 23:01
+
+
+
+
+全是免费石头，抽完了7500付费石头没用过呢
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7583#       发表于 2021-1-18 23:02
+
+
+
+
+小麻还是挺欧德，那么多虹，苔苔是真非
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7584#       发表于 2021-1-18 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50077223&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-1-18 23:00</a>
+
+平手了啊</blockquote>
+平手不是全输？ 都井了一个 应该两个都惩罚游戏<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7585#       发表于 2021-1-18 23:03
+
+
+
+
+最有效果还是mea抽3彩那一幕，犬山瞬间变脸开始连发baka
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7586#       发表于 2021-1-18 23:04
+
+
+
+
+井是啥意思?
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7587#       发表于 2021-1-18 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50077256&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-1-18 23:04</a>
+
+井是啥意思?
+
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7588#       发表于 2021-1-18 23:07
+
+
+
+
+以后她们是就吃井之交了
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7589#       发表于 2021-1-18 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50077256&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-1-18 23:04</a>
+井是啥意思?
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+没抽到直到吃低保 不过pcr井不是太懂 还需楼友科普
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 7590#       发表于 2021-1-18 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50077256&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-01-18 23:04:38</a>
+井是啥意思?
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的  v2.4.3</blockquote>我来当一次老实人，一般的抽卡手游300抽抽不出当期up角色可以保底换一个出来，300抽就是一井
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 7591#       发表于 2021-1-18 23:13
+
+
+
+
+今天我春田也吃井了，看了这期联动，就很开心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
