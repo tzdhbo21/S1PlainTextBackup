@@ -46,6 +46,6 @@ https://github.com/TomoeMami/S1PlainTextArchive
     - Gitee不会帮你缓存图片，会和本地markdown客户端一样直连图片源。
 - `sactive.py` 运行之后会把`RefreshingData.json`里的帖子一一比对，距离上次回帖1个月以内的帖子会设置为`"active": true`。
 - `sclean.py` 运行之后会把`RefreshingData.json`里的`"active": false`帖子全部删除，仅留`"active": true`帖子。
-- 如需要本地图文备份，请采用这个备份工具：[[https://github.com/shuangluoxss/Stage1st-downloader][S1Downloader]]
+- 如需要本地图文备份，请采用这个备份工具：[S1Downloader](https://github.com/shuangluoxss/Stage1st-downloader)
 - 代码写得很烂，还请多多包涵！如果有需要我保存的专楼，可以给我提issue或者在S1私信我。
 - 三号四号疫情专楼的备份来自于https://gitlab.com/memory-s1/virus 
