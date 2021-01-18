@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-17 14:13** 
+> ## **本文件最后更新于2021-01-18 09:15** 
 
 
 
@@ -21224,8 +21224,9 @@ b综夸张了
 
 
 
+ 本帖最后由 hulaoda007 于 2021-1-17 22:30 编辑 
 
-  可恶...短发有活力的女性...听着有点好...不服气啊！
+  可恶...短发有活力的女性...听着有点好...不服气啊！  啊，不过看起来不是活力系而是大姐大。那算了那算了。
 
 
 
@@ -21508,4 +21509,571 @@ b综不斗争的唯一原因就是b综本质维阿综，维阿大家庭里就算
 
 
 
-            
+
+
+-----
+
+####  fghc_h  
+##### 29614#       发表于 2021-1-17 22:24
+
+
+
+
+杏CN瓜是真滴多 ，尸体都背了多少锅了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 29615#       发表于 2021-1-17 22:42
+
+
+
+
+V综是从漫区分离出来的具有丰富的历史（？），B综是在V区诞生的。根基就不同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 29616#       发表于 2021-1-17 23:09
+
+
+
+
+本来v综后期流量就基本大部分是国v了，在分区之前还吵了不止一次b综滚出v综，现在阿b发展越来越好，国v看的人多了日v就聊得少了那不是很正常的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29617#       发表于 2021-1-17 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">国v越来越好还行，鲸落8000舰吃下去的是国v还是日v？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 29618#       发表于 2021-1-17 23:17
+
+
+
+ 本帖最后由 JoelBirch 于 2021-1-17 23:25 编辑 
+
+免费哥还是快，我还在听歌犹豫该不该整过来的时候就已经行动起来呖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+强中强，天籁了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[https://b23.tv/pRPOwe](https://b23.tv/pRPOwe)
+
+syl，最近其实正在重看EVA，我太爱月灵姐姐了
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 29619#       发表于 2021-1-17 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50067016&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-1-17 23:13</a>
+国v越来越好还行，鲸落8000舰吃下去的是国v还是日v？</blockquote>
+你和我辩这个没意义的呀兄弟，去掉日v头牌红团和国v头牌狼羊，从之前的bls来看已经没有太大差距了，现在光看气人值和营收也没有鲸落以前那种日v碾压的态势了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29620#       发表于 2021-1-17 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50067043&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-1-17 23:17</a>
+
+免费哥还是快，我还在听歌犹豫该不该整过来的时候就已经行动起来呖
+
+强中强，天籁了属于是</blockquote>
+刚刚月灵推重新发的那个吧，
+
+还是好想月灵传点新歌
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 29621#       发表于 2021-1-17 23:29
+
+
+
+
+深夜删档歌回，饶了我吧。
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 29622#       发表于 2021-1-17 23:31
+
+
+
+
+ベルの過去書き込みから判明した当時のベルの情報
+
+
+・童貞
+
+・いちごちゃん大好き
+
+・スレ立て意識が高い
+
+・ライバーの悪口はほとんどなし
+
+・でろーんセックスを擁護
+
+・お静のカウントダウンで抜いたことがある
+
+
+抄本家作业罢了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29623#       发表于 2021-1-17 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50067093&amp;ptid=1969498" target="_blank">水原薰 发表于 2021-1-17 23:24</a>
+
+你和我辩这个没意义的呀兄弟，去掉日v头牌红团和国v头牌狼羊，从之前的bls来看已经没有太大差距了，现在 ...</blockquote>
+气人值算法一直在改。。看这个没意义
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 29624#       发表于 2021-1-17 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50067119&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-17 23:27</a>
+刚刚月灵推重新发的那个吧，
+
+还是好想月灵传点新歌</blockquote>
+我今天已经在幻想是不是在准备拜年祭了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+毕竟上次明明在问发音来着<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 29625#       发表于 2021-1-17 23:49
+
+
+
+
+有月灵的新皮消息吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 29626#       发表于 2021-1-18 07:16
+
+
+
+
+不怪V综没流量，国V的VTL比楼友编的三国志好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29627#       发表于 2021-1-18 09:14
+
+
+
+
+其实最有争论点的大概是现在第三到底是谁，不过这个问题有争论没人愿意battle，点的新人同接有四位数，774刚经历大波3d攻势，甚至苔箱二期同接都几千
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29628#       发表于 2021-1-18 11:05
+
+
+
+
+那咋办嘛。既没有虹男的脑瘫前虹女女友爆料虹男对着女同事背影撸，也没有杏女自爆和虹男血战，V综好不了了。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29629#       发表于 2021-1-18 11:07
+
+
+
+[https://twitter.com/nijisanji_app/status/1351001437283770375](https://twitter.com/nijisanji_app/status/1351001437283770375) <blockquote>【 #にじさんじアーカイブス 本誌の中身チラ見せ！】
+
+
+NIJISANJI VirtuaRealライバー「星弥（ホシミ）」と「花留（カル）」のプロフィールページを一部公開！
+
+プロフィールやファンへのメッセージも収録!
+
+
+▼アーカイブスの予約/販売情報はこちら
+[https://ichikara.co.jp/news/11667/](https://ichikara.co.jp/news/11667/)</blockquote><img src="https://i.loli.net/2021/01/18/hcL9eX3MQYobSkw.png" referrerpolicy="no-referrer">
+
+原来还有VR的个人资料页
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 29630#       发表于 2021-1-18 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50066824&amp;ptid=1969498" target="_blank">thisisaspider 发表于 2021-1-17 22:42</a>
+
+V综是从漫区分离出来的具有丰富的历史（？），B综是在V区诞生的。根基就不同 ...</blockquote>
+b综也是诞生于漫区的，准确的说是诞生于v综的，当时v综打了一架，最后以拉窗帘为契机，弥人（维阿信）脱离v综建立了b综
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 29631#       发表于 2021-1-18 12:29
+
+
+
+
+"恭喜漫区又少一行"
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 29632#       发表于 2021-1-18 12:39
+
+
+
+<blockquote>黑漆漆的漆漆 发表于 2021-1-18 11:40
+b综也是诞生于漫区的，准确的说是诞生于v综的，当时v综打了一架，最后以拉窗帘为契机，弥人（维阿信）脱 ...</blockquote>
+感谢 看来是我记忆偏差了
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 29633#       发表于 2021-1-18 13:03
+
+
+
+
+https://youtu.be/U6Coddwt_0s
+AZKi和马库罗斯F的歌同步率好高
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  水原薰  
+##### 29634#       发表于 2021-1-18 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50070405&amp;ptid=1969498" target="_blank">黑漆漆的漆漆 发表于 2021-1-18 11:40</a>
+b综也是诞生于漫区的，准确的说是诞生于v综的，当时v综打了一架，最后以拉窗帘为契机，弥人（维阿信）脱 ...</blockquote>
+说起来当时分裂我也算是半个vr推，结果单开b综以后日v国v都渐渐退坑只剩hh了，然后某天得知了holo退出cn为了吃瓜又高强度刷了一堆论坛以后又会偶尔看看v了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 29635#       发表于 2021-1-18 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50066336&amp;ptid=1969498" target="_blank">敖轩 发表于 2021-1-17 21:27</a>
+
+理智分析为什么v综越来越不如b综：
+
+因为v综一直搞大姨桶暴政：斗争过于残酷，每个团体都追求一统v综，彻底 ...</blockquote>
+  管人观众这种车轱辘话起来比V还要无聊的东西那还不如管人呢。总体趋同性比管人还严重。B综人多的时候还是花边新闻和各种内幕被爆出来才有的热度。以及看日V的话看5ch都比看这里好。还不如看colo老哥的楼呢。
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 29636#       发表于 2021-1-18 14:58
+
+
+
+
+鲨皇200w了
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 29637#       发表于 2021-1-18 15:38
+
+
+
+
+真就冷清了不少啊，不如说果然这才是“新常态”？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29638#       发表于 2021-1-18 15:52
+
+
+
+
+主要还是新人的问题吧，现在泥潭估计已经完全吸收不到新人了，老害大量退坑，新时代人不愿意来这边，自然就逐渐没人说话了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29639#       发表于 2021-1-18 16:01
+
+
+
+ 本帖最后由 NBXX 于 2021-1-18 16:02 编辑 
+
+[https://twitter.com/natsuiromatsuri/status/1351076861854547974](https://twitter.com/natsuiromatsuri/status/1351076861854547974) <blockquote>1月20日20:00～
+
+VTuber大集合AmongUs!!
+
+
+【参加メンバー】
+
+夏色まつり
+
+白上フブキ
+
+潤羽るしあ
+
+樋口楓
+
+椎名唯華
+
+電脳少女シロ
+
+もこ田めめめ
+
+田中ヒメ
+
+鈴木ヒナ</blockquote>
+<img src="https://i.loli.net/2021/01/18/nj8IW63i71cqAus.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 29640#       发表于 2021-1-18 16:35
+
+
+
+
+老害去了几个b综
+不过最近确实yhm看的少了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 29641#       发表于 2021-1-18 16:37
+
+
+
+ 本帖最后由 Vneet 于 2021-1-18 16:38 编辑 
+
+鲨皇这就200w了，看来可以比老爱（288w）先一步300w。
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 29642#       发表于 2021-1-18 16:49
+
+
+
+
+鲨皇目前增速甚至涨回来了，比老爱更早到300w应该没什么问题，不过这么高的订阅感觉也没有给鲨皇带来更多的好处<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29643#       发表于 2021-1-18 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50073662&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2021-1-18 16:49</a>
+
+鲨皇目前增速甚至涨回来了，比老爱更早到300w应该没什么问题，不过这么高的订阅感觉也没有给鲨皇带来更多的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这话也不限鲨皇啊  
+
+
+
+
+
+           
