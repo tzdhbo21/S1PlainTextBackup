@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-18 14:15** 
+> ## **本文件最后更新于2021-01-19 08:13** 
 
 
 
@@ -22709,4 +22709,374 @@ syl，刚说拳击部鱼腩结果就第一了，虽然长尾不在（
 
 
 
-          
+
+
+-----
+
+####  CAserlumos  
+##### 29681#       发表于 2021-1-18 22:22
+
+
+
+
+丽姐队硬实力又强又敢去打架，她不冠军谁冠军<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29682#       发表于 2021-1-18 22:27
+
+
+
+
+馬犬Channel   近状報告 VS アペ VS ダークライ
+[https://www.youtube.com/watch?v=4E1tf1S8c3M](https://www.youtube.com/watch?v=4E1tf1S8c3M)
+
+
+马犬这声音越听越像藤原叔<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29683#       发表于 2021-1-18 22:31
+
+
+
+
+最协有意思起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 29684#       发表于 2021-1-18 22:32
+
+
+
+
+噗噗不主动哭一场肯定拿不了第一的<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29685#       发表于 2021-1-18 22:40
+
+
+
+
+ib这也太逗了，吃鸡的前几秒掉下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29686#       发表于 2021-1-18 22:48
+
+
+
+
+DeepKiss部，虽然你们是认真在打，但是操作起来也太娱乐了吧，这局我笑死了
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29687#       发表于 2021-1-18 23:15
+
+
+
+
+夜神月拿到第二也太好了，的确是有在慢慢进步<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29688#       发表于 2021-1-18 23:41
+
+
+
+ 本帖最后由 空集 于 2021-1-18 23:47 编辑 
+
+看郡道玩这个雀魂新活动才发现这个模式好神奇 起手要给别人的对手自己三张牌还行
+甚至一个和了其他人还要继续打
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29689#       发表于 2021-1-18 23:50
+
+
+
+<blockquote>空集 发表于 2021-1-18 23:41
+看郡道玩这个雀魂新活动才发现这个模式好神奇 起手要给别人的对手自己三张牌还行
+
+甚至一个和了其他人还要继 ...</blockquote>
+其实就是川麻的血战，这模式就是对日，能关到一家是一家，尽量把牌做大就是了，就算点了两家最后能关到最后一个人也能赚回来
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29690#       发表于 2021-1-18 23:54
+
+
+
+
+原来“裸春市建设中”是众筹做手游，还挺快的，一天筹满1500万了，不知道做出来是个啥游戏
+[https://camp-fire.jp/projects/view/368592](https://camp-fire.jp/projects/view/368592)
+
+みんなで共に創る「神椿市建設中。」
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29691#       发表于 2021-1-18 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50077644&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-18 23:50</a>
+其实就是川麻的血战，这模式就是对日，能关到一家是一家，尽量把牌做大就是了，就算点了两家最后能关到最 ...</blockquote>
+确实 我看了几局下最后都是有人飞了结束的 做大牌才是真的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29692#       发表于 2021-1-19 00:05
+
+
+
+
+神椿这点钱做不出啥复杂的游戏，估计就是一般的换皮音游吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 29693#       发表于 2021-1-19 00:13
+
+
+
+
+血战还不够high，就应该让管人试试血流。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29694#       发表于 2021-1-19 00:19
+
+
+
+
+喷了，小少爷你在做什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29695#       发表于 2021-1-19 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> #晴レ星！#晴レ星！#晴レ星！
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29696#       发表于 2021-1-19 01:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 免费得手了奶油妹能不能放过其他虹女阿
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29697#       发表于 2021-1-19 01:25
+
+
+
+
+安土桃原来也休了，最近休息的人有点多。
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 29698#       发表于 2021-1-19 04:54
+
+
+
+
+凌晨四点突击唱歌冲击120W  狐皇在杀gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 29699#       发表于 2021-1-19 08:35
+
+
+
+
+凌晨四点好啊，东南亚假白皮都睡了，只有欧美真白皮
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29700#       发表于 2021-1-19 11:44
+
+
+
+
+风铃天天 youtube账号被BAN
+[https://twitter.com/hourei_1010/status/1351373017549422593](https://twitter.com/hourei_1010/status/1351373017549422593)
+<img src="https://i.loli.net/2021/01/19/qx8OTPpbh5WcXCL.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29701#       发表于 2021-1-19 15:40
+
+
+
+
+郡道和白雪巴都短发，是否也是一种角色重复。
+省一楼，求求了，这两个什么时候搞一下吧，从出道盼到现在力<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29702#       发表于 2021-1-19 15:49
+
+
+
+
+搞一下是什么意思？是指郡道以破坏世界观为由叫白雪巴换发型吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
