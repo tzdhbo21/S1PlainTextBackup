@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-17 10:26** 
+> ## **本文件最后更新于2021-01-20 09:25** 
 
 
 
@@ -22904,4 +22904,550 @@ jk狐这一身打扮好奇怪啊<img src="https://static.saraba1st.com/image/smi
 
 
 
-       
+
+
+-----
+
+####  Jamaisvu  
+##### 77767#       发表于 2021-1-17 18:45
+
+
+
+
+复仇者的平景清，我感觉还挺正常的啊，本来就是个歪造的人物，配上复仇这个扭曲的职介很合适啊，难不成日本战神源义经，其真名实姓对应的最稀有形态，是个发疯的复仇鬼？“源义经”真落地的话怎么着也得是个风华正茂的五星RIDER或者五星SABER吧，现在这个黑化怪人叫平景清我感觉没啥大问题。
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77768#       发表于 2021-1-17 18:48
+
+
+
+
+话说平静清好像是限定五星？嗯，平安京这一章估计不算正式章节（打完之后主页不显示，还要去CCC活动那个页面打free本），没有章节欧证也说的过去...
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 77769#       发表于 2021-1-17 18:49
+
+
+
+ 本帖最后由 v22325 于 2021-1-17 19:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064883&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-1-17 18:45</a>
+
+复仇者的平景清，我感觉还挺正常的啊，本来就是个歪造的人物，配上复仇这个扭曲的职介很合适啊，难不成日本 ...</blockquote>
+主要是比较失望吧 毕竟FGO牛若丸人气不错 好不容易出个高贵五星还只是披个皮
+
+特别是平景清之前平安京就剧情不行 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊吹要不是几个形态语音比较牛逼也不行
+
+还有之前四星泳装那个宝具和肚兜 
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">龙娘自从万圣节没了之后出场机会和少的不行 还有清姬 我马上绊15了 感觉都看开了 但你突然说出个五星结果里面是别人我也……
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别平景清 谁啊 牛若丸都陪了玩家这么久了 这人气能比么 特别是7章 而且这一出 正牌牛若丸再出新角还有希望么 
+
+我觉得要救除非这五星可以切换牛若丸 二破切牛若丸上线
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77770#       发表于 2021-1-17 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064883&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-1-17 18:45</a>
+复仇者的平景清，我感觉还挺正常的啊，本来就是个歪造的人物，配上复仇这个扭曲的职介很合适啊，难不成日本 ...</blockquote>
+隔壁不能接受啊，有个评论我当场笑了“其他游戏可以，FGO不行”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77771#       发表于 2021-1-17 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064917&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-1-17 18:48</a>
+话说平静清好像是限定五星？嗯，平安京这一章估计不算正式章节（打完之后主页不显示，还要去CCC活动那个页 ...</blockquote>
+应该是限定，介绍说着限定登场的。记得从熊莉亚开始5星好像就没有剧情限定了。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77772#       发表于 2021-1-17 19:06
+
+
+
+<blockquote>khxooo 发表于 2021-1-17 18:52
+应该是限定，介绍说着限定登场的。记得从熊莉亚开始5星好像就没有剧情限定了。 ...</blockquote>
+五星李书文
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77773#       发表于 2021-1-17 19:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这次送的呼符是有灵魂的 终于仇凛补宝成功了 这几天各种刷幕间和强化本的石头全都石沉大海 今天我是叶卫兵
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77774#       发表于 2021-1-17 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064927&amp;ptid=1085254" target="_blank">v22325 发表于 2021-1-17 18:49</a>
+
+主要是比较失望吧 毕竟FGO牛若丸人气不错 好不容易出个高贵五星还只是披个皮
+
+特别是平景清之前平安京就剧 ...</blockquote>
+我感觉源义经是板上钉钉要出的吧，毕竟日本文化里的大英雄，没道理不出，现在临时出个高星看看人气而已。搞不好这次活动就会放卫星
+
+（日本历史向游戏没有源义经就好像中国历史向游戏没有诸葛亮一样奇怪）
+
+
+牛肉丸其实第七章还是很圈粉的，动画也给面子，看在粉丝这么热情的份上，我也希望制作组能多出点源义经的衍生从者，现在有牛若丸和平静清了，剩下什么遮那王，九郎判官什么的，多出点也蛮好的（但是千万别扯到成吉思汗那里，我可受不了...）
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77775#       发表于 2021-1-17 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064935&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-17 18:50</a>
+
+隔壁不能接受啊，有个评论我当场笑了“其他游戏可以，FGO不行”</blockquote>
+我几乎不去NGA的FATE版，一帮国服玩家，看着日服的活动，然后大放厥词，等赶上进度自己经手时，又一副恍然大悟的样子...
+
+
+其实我玩这游戏就是图个脑洞整活，其他游戏可没有月世界这么混乱又有序的世界观...出什么人物不还是人家定嘛，又不是指定不出源义经了...
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77776#       发表于 2021-1-17 19:41
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-1-17 19:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064956&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-17 18:52</a>
+
+应该是限定，介绍说着限定登场的。记得从熊莉亚开始5星好像就没有剧情限定了。 ...</blockquote>
+熊丽雅是二章的吧...三章有虞美人和李书文，四章是马斯，五章是凯尼丝...还是有的哦
+
+（没注意说的是五星，不过确实有个老李，而且是过年时的活动出的，和小麻雀，和平静清这次活动差不多）
+
+
+不过限定五星逐渐减少是好事，反正很难抽...
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77777#       发表于 2021-1-17 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50065440&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-1-17 19:41</a>
+
+熊丽雅是二章的吧...三章有虞美人和李书文，四章是马斯，五章是凯尼丝...还是有的哦 ...</blockquote>
+我指的是5星，李书文是我忘记了，但是也差不多有1年多没有新的5星剧情限定加入了。
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77778#       发表于 2021-1-17 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50065467&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-17 19:44</a>
+
+我指的是5星，李书文是我忘记了，但是也差不多有1年多没有新的5星剧情限定加入了。 ...</blockquote>
+蘑菇：2.6上下章各一个剧情五星如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+其实剧情五星这玩意还是挺讨厌的，除非下次福袋加进去，少点是好事<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77779#       发表于 2021-1-17 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50065486&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-1-17 19:47</a>
+
+蘑菇：2.6上下章各一个剧情五星如何
+
+
+其实剧情五星这玩意还是挺讨厌的，除非下次福袋加进去，少点 ...</blockquote>
+的确，剧情限定这设定真的是不明所以，除了矿佬，谁去抽剧情池。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77780#       发表于 2021-1-17 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50065598&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-17 19:59</a>
+
+的确，剧情限定这设定真的是不明所以，除了矿佬，谁去抽剧情池。</blockquote>
+剧情限定4星和五星就算了。顶多当正常限定等UP呗。如果是讨厌的五星甚至可以不用看到歪。我觉得最难受是三星。。
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 77781#       发表于 2021-1-17 21:31
+
+
+
+
+至少还没出成吉思汗=源义经这个段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77782#       发表于 2021-1-17 21:42
+
+
+
+
+看到推上有人说才发现，问卷里“你最近有玩什么手游”的那堆选项里，没有他们自己做的那个樱战垃圾手游wwwwww
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 77783#       发表于 2021-1-17 23:37
+
+
+
+
+又是本子系的活动啊？实在腻歪，摸了
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 77784#       发表于 2021-1-18 00:27
+
+
+
+
+現在都是在活動時，可能順便為活動中的舊角色來強化任務
+
+不知道今次特攻角色有沒順便來強化
+
+
+不過這也好，不用等強化周才為舊角來強化
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 77785#       发表于 2021-1-18 11:48
+
+
+
+
+很有灵魂的石头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77786#       发表于 2021-1-19 02:36
+
+
+
+
+这次活动居然带小王子 大红毛和孔明 
+
+不是日本活动嘛
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 77787#       发表于 2021-1-19 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064956&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-01-17 18:52:07</a>
+应该是限定，介绍说着限定登场的。记得从熊莉亚开始5星好像就没有剧情限定了。 ...</blockquote>老李
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77788#       发表于 2021-1-19 17:19
+
+
+
+
+新三星礼装我第一眼以为是虫爷，惊了，然后仔细看了下右下角发现是弁庆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 77789#       发表于 2021-1-19 18:07
+
+
+
+
+明天黑狗开宝具强化好不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 77790#       发表于 2021-1-20 08:49
+
+
+
+
+结果天狗是个绿宝具……
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77791#       发表于 2021-1-20 17:09
+
+
+
+
+看来牛肉丸终究没继承到奶光的伟大基因
+
+长大了还是贫的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 77792#       发表于 2021-1-20 17:12
+
+
+
+
+你游这策划脑子是不是有问题？
+
+
+现在都是蓝卡时代了才疯狂的出绿卡从者……他们难道不想赚钱吗？
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 77793#       发表于 2021-1-20 17:14
+
+
+
+
+隔壁稳定进入第一阶段：婊立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 77794#       发表于 2021-1-20 17:15
+
+
+
+
+这俩有非要把性别写成其他的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 77795#       发表于 2021-1-20 17:21
+
+
+
+
+还以为看在绿卡已经过气的面子上可以少砍一刀 结果还是弟弟的不行 狼都打不过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77796#       发表于 2021-1-20 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卡面我欣赏不来   总的来说初始卡面最能看。。
+
+
+
+
+
+      
