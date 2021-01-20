@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-19 08:13** 
+> ## **本文件最后更新于2021-01-20 13:19** 
 
 
 
@@ -23079,4 +23079,597 @@ DeepKiss部，虽然你们是认真在打，但是操作起来也太娱乐了吧
 
 
 
-         
+
+
+-----
+
+####  十四洲  
+##### 29703#       发表于 2021-1-19 16:18
+
+
+
+
+是说郡道插足crossick<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29704#       发表于 2021-1-19 16:39
+
+
+
+
+虽然但是我也挺想看她俩能联动的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29705#       发表于 2021-1-19 17:03
+
+
+
+ 本帖最后由 CAserlumos 于 2021-1-19 17:05 编辑 
+
+阿喵喵可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/19/170339bccklomwdmr6xcbl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210119170328.png</strong> (39.57 KB, 下载次数: 2)
+
+下载附件
+
+2021-1-19 17:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 29706#       发表于 2021-1-19 19:05
+
+
+
+
+卯月コウ15万人記念雑談
+[https://www.youtube.com/watch?v=h_tiVAyGqlw](https://www.youtube.com/watch?v=h_tiVAyGqlw)
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29707#       发表于 2021-1-19 19:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/19/193304ptptwe34b1s41id3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsF2syZU0AMbLe5.jpg</strong> (54.92 KB, 下载次数: 1)
+
+下载附件
+
+2021-1-19 19:33 上传
+
+
+
+
+
+[twitter](https://twitter.com/Patra_HNST/status/1351492199465115651?s=20)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29708#       发表于 2021-1-19 20:59
+
+
+
+
+是谁把0便乘谜语人的，是misumi嘛？
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29709#       发表于 2021-1-19 22:40
+
+
+
+
+DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29710#       发表于 2021-1-19 23:04
+
+
+
+
+我去，这把居然吃鸡了，看来我得多奶奶
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29711#       发表于 2021-1-19 23:08
+
+
+
+
+信长急了没听指挥率先下去还以为没了，结果是他自己站到最后拿了第一
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29712#       发表于 2021-1-19 23:09
+
+
+
+
+千最后飞出去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29713#       发表于 2021-1-19 23:15
+
+
+
+
+三天训练赛拿了两鸡，已经满足了，今天确实开始转变风格开始前压killmove了，虽然吃的是hero和elu两个白给队，今天职业哥挺多的其实还比前两天难打
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 29714#       发表于 2021-1-19 23:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/19/232054njvn87wzmmme3mjn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210119232034.png</strong> (52.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-19 23:20 上传
+
+
+
+
+
+日本人的数学
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29715#       发表于 2021-1-19 23:33
+
+
+
+
+现在20队有一半的队伍都拿过冠军，能阻止apw和big star的kill move的话那谁夺冠还真不好说了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 29716#       发表于 2021-1-19 23:42
+
+
+
+
+”オーバーキルは人生の基本”
+
+                           —— こんるる
+
+
+
+
+
+
+
+-----
+
+####  kamen  
+##### 29717#       发表于 2021-1-20 04:55
+
+
+
+ 本帖最后由 kamen 于 2021-1-20 05:19 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29718#       发表于 2021-1-20 12:39
+
+
+
+
+东京巨蛋要拆了，管人们的终极梦想要重新考虑了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29719#       发表于 2021-1-20 13:18
+
+
+
+
+夏色祭你到底有几个好哥哥
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/131849dk0vvksslsk7lkf0.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (60.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 13:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29720#       发表于 2021-1-20 14:26
+
+
+
+
+好哥哥多多益善
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29721#       发表于 2021-1-20 14:44
+
+
+
+
+阿社好妹妹多了去了，谁要理你佐藤希啊。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29722#       发表于 2021-1-20 16:08
+
+
+
+
+好哥哥多来点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29723#       发表于 2021-1-20 18:49
+
+
+
+
+gkd
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_yvX1m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 29724#       发表于 2021-1-20 19:05
+
+
+
+ 本帖最后由 LilMemo 于 2021-1-20 19:06 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/190529ze3kod25xka0z2ao.png" referrerpolicy="no-referrer">
+
+
+<strong>ML)W4AX)[YGX1KDK3BOY4.png</strong> (77.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 19:05 上传
+
+
+
+
+
+
+想要的直接一发10连出完了，这就是傻人有傻福吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29725#       发表于 2021-1-20 19:29
+
+
+
+
+hh点箱虹杏四家一起联动……多好阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+这群人还感觉挺熟嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29726#       发表于 2021-1-20 20:36
+
+
+
+
+木口这三位看起来反而是润润表现最好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29727#       发表于 2021-1-20 21:02
+
+
+
+
+郡道新衣服开了，感觉最近V圈还不错，晚上一万个想看的各种活动。希望不要和之前那样每次我觉得好起来了就发生坏事。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29728#       发表于 2021-1-20 21:05
+
+
+
+
+不知为何，郡道新衣服直播的整体氛围有些许凝重<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29729#       发表于 2021-1-20 21:10
+
+
+
+
+你虹搞初配信同时直播最尴尬的几个人之一要搞初配信同时试听了，害怕，不敢看，
+郡道到底要怎样，借此斩断魂结斩断锁链斩断一切的牵连吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">。
+省一楼，梦皇给我动！！！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29730#       发表于 2021-1-20 21:13
+
+
+
+[https://twitter.com/4VLiveAgency](https://twitter.com/4VLiveAgency) 好名字
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/211336prbrklxt7zbltdkd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>xebt47k4sac61.jpg</strong> (143.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 21:13 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29731#       发表于 2021-1-20 21:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/211431qjvv4zyo33zxv3v3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsLT18zVoAEWNOH.jpg</strong> (59.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 21:14 上传
+
+
+
+
+
+[twitter](https://twitter.com/kuroboshi/status/1351875763989975043?s=20)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29732#       发表于 2021-1-20 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50096250&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-20 21:10</a>
+
+你虹搞初配信同时直播最尴尬的几个人之一要搞初配信同时试听了，害怕，不敢看，
+
+郡道到底要怎样，借此斩断 ...</blockquote>
+氛围非常emo啊  
+
+然后一段过场： 美人你谁啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
