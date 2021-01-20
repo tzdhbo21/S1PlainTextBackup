@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-16 05:11** 
+> ## **本文件最后更新于2021-01-20 17:40** 
 
 
 
@@ -8360,4 +8360,564 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 
 
 
-                                  
+
+
+-----
+
+####  soraku  
+##### 10952#       发表于 2021-1-16 17:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10953#       发表于 2021-1-16 17:18
+
+
+
+
+不错，多来几个。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10954#       发表于 2021-1-16 17:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种类似的文章我好像在推上看过好几次。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10955#       发表于 2021-1-16 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黄泉这是怕卡么  怎么直接放了个gif上来
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10956#       发表于 2021-1-16 21:20
+
+
+
+
+吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10957#       发表于 2021-1-18 03:21
+
+
+
+
+我感覺黃泉的槍還挺穩的，大概有可以抬著綾總走
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 10958#       发表于 2021-1-18 10:25
+
+
+
+
+坏女人一大早就在pua百鬼组<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+铁gachi日南<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/18/102236o9fasx4sg4n9alsn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>釣余.jpg</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-18 10:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10959#       发表于 2021-1-18 11:58
+
+
+
+
+娜娜你说话呀娜娜
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10960#       发表于 2021-1-18 12:17
+
+
+
+
+恭喜娜娜脱敏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10961#       发表于 2021-1-18 13:05
+
+
+
+
+娜娜有尊妈了，绫总过气了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10962#       发表于 2021-1-18 20:01
+
+
+
+
+今天绫总好像又在黄泉那边播
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10963#       发表于 2021-1-18 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">坏女人又偷偷播
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10964#       发表于 2021-1-19 20:31
+
+
+
+ 本帖最后由 一仙 于 2021-1-19 20:32 编辑 
+
+黄泉还在Among us
+
+
+今天不练了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10965#       发表于 2021-1-19 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摸了摸了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10966#       发表于 2021-1-19 21:48
+
+
+
+
+绫总摸鱼病毒隔着网线人传人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10967#       发表于 2021-1-20 10:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了她们的练习，我感觉比赛也只能去郊游了，还不如继续摸摸鱼舒服。
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10968#       发表于 2021-1-20 13:53
+
+
+
+
+比賽就中遊位置上不去下不去，有些隊伍的短板短得可怕，綾總也能打得贏，有一些隊伍就槍硬得(綾總)怎麼打也打不過
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10969#       发表于 2021-1-20 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">也没觉得能有啥好名次，不要像上次那样全程尴尬就好了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10970#       发表于 2021-1-20 19:34
+
+
+
+
+象征性流点泪就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 10971#       发表于 2021-1-20 20:17
+
+
+
+
+黄泉今天播瓦罗兰去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10972#       发表于 2021-1-20 20:24
+
+
+
+
+摸，都可以摸
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10973#       发表于 2021-1-20 20:54
+
+
+
+
+要卖周边出来营业了吧<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10974#       发表于 2021-1-20 21:15
+
+
+
+
+今天一定播<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10975#       发表于 2021-1-20 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这个晚到底有多晚，不会被坏女人鸽了吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10976#       发表于 2021-1-20 22:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人呢
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 10977#       发表于 2021-1-20 22:53
+
+
+
+ 本帖最后由 一仙 于 2021-1-20 23:07 编辑 
+
+干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+来了来了 十一点半Apex个人练习
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10978#       发表于 2021-1-20 23:56
+
+
+
+
+自己都说好困竟然没鸽，敬业啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10979#       发表于 2021-1-21 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">差点独狼吃鸡还行
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10980#       发表于 2021-1-21 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点一打三成功，应该一开始别跑追着打的。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10981#       发表于 2021-1-21 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又成独狼了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10982#       发表于 2021-1-21 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队友被气跑了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 10983#       发表于 2021-1-21 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">这哈欠 我好了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10984#       发表于 2021-1-21 00:58
+
+
+
+
+一万同接都没有<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10985#       发表于 2021-1-21 01:14
+
+
+
+
+被毒死了?
+
+
+
+
+
+                                 
