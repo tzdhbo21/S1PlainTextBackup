@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-19 15:03** 
+> ## **本文件最后更新于2021-01-20 15:03** 
 
 
 
@@ -1934,10 +1934,11 @@ syl，复制人可还行
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 路人庚| + 1|好评加鹅|
 | 春澄春奈| + 1|好评加鹅|
 | LIPP| + 1|好评加鹅|
 
@@ -2059,4 +2060,557 @@ syl，复制人可还行
 
 
 
-                                             
+
+
+-----
+
+####  Dualist彩  
+##### 7622#       发表于 2021-1-19 23:11
+
+
+
+
+今天咩宝好可爱啊，是家里藏了男人么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7623#       发表于 2021-1-19 23:13
+
+
+
+
+藏了个我
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7624#       发表于 2021-1-19 23:18
+
+
+
+
+今天的咩咩摇摇晃晃的，可爱
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7625#       发表于 2021-1-19 23:20
+
+
+
+
+边唱边上下晃 像小学生唱一样 loli麻<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7626#       发表于 2021-1-20 00:07
+
+
+
+
+管上快25w订阅了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7627#       发表于 2021-1-20 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7628#       发表于 2021-1-20 00:27
+
+
+
+
+被小麻的幸福理论击沉力<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 7629#       发表于 2021-1-20 00:46
+
+
+
+ 本帖最后由 Cortana 于 2021-1-20 00:50 编辑 
+
+卧槽，黄🐰子、爱丽丝油管都没你麻高。
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7630#       发表于 2021-1-20 08:16
+
+
+
+
+怎么说都是25万订阅的原生纯血大前辈个人势大物了，不要被tc妹的心态给迷惑了呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7631#       发表于 2021-1-20 08:17
+
+
+
+
+才24.7呢，不知道春节前能不能到25<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7632#       发表于 2021-1-20 08:17
+
+
+
+
+按地位来说 她tc应该比404更大物吧 多播tc没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7633#       发表于 2021-1-20 08:19
+
+
+
+
+都要25w了 20w的吼啦game就这么没了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7634#       发表于 2021-1-20 09:17
+
+
+
+
+我现在甚至怀疑除了钱钱以外她现在还看不看自己的数据<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7635#       发表于 2021-1-20 09:25
+
+
+
+
+一般v: 又可以办纪念回收钱了 好耶
+
+小麻:   怎么又要纪念回了 好烦啊 赶紧混掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7636#       发表于 2021-1-20 09:28
+
+
+
+
+之前我就讨论过这懒狗大概25w也混过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，真要有估计也是25w歌回水一水罢了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 7637#       发表于 2021-1-20 10:43
+
+
+
+
+名取都也就23万
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7638#       发表于 2021-1-20 10:44
+
+
+
+
+恐怖游戏还是拉个人联动吧，她自己来效果差对她自身健康也不好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7639#       发表于 2021-1-20 11:21
+
+
+
+
+和我一起吧，害怕了就钻我怀里<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 7640#       发表于 2021-1-20 15:50
+
+
+
+
+摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 7641#       发表于 2021-1-20 16:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就无欲无求了呗，集金回都多久没开了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7642#       发表于 2021-1-20 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一定是有男朋友了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7643#       发表于 2021-1-20 16:53
+
+
+
+
+说不定是和前男友复合了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7644#       发表于 2021-1-20 17:05
+
+
+
+
+要抚养小小麻了 没时间直播了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7645#       发表于 2021-1-20 17:54
+
+
+
+
+前男友有三个牛郎，是不是应该出来开集金回了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7646#       发表于 2021-1-20 17:59
+
+
+
+
+不行啊，不要牛郎不要家暴男不要轻浮男不要劈腿男啊赶紧来个好男人救救小麻<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7647#       发表于 2021-1-20 18:58
+
+
+
+
+楼友们快去牛郎出道吧时间不多了。万一小麻真去实践至少是个好男人。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7648#       发表于 2021-1-20 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50095046&amp;ptid=1973472" target="_blank">专业划水人员 发表于 2021-1-20 18:58</a>
+
+楼友们快去牛郎出道吧时间不多了。万一小麻真去实践至少是个好男人。 ...</blockquote>
+真觉得楼友是好男人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7649#       发表于 2021-1-20 19:34
+
+
+
+
+好蓝人正是在下
+
+一定把小麻养的白白胖胖的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7650#       发表于 2021-1-20 19:59
+
+
+
+
+一票三吃，鬼才策划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7651#       发表于 2021-1-20 22:17
+
+
+
+
+说不定之后还有同步视听的录播呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一票四吃
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7652#       发表于 2021-1-20 22:36
+
+
+
+
+fw阿b，再开一场线下不比这赚钱？我还是会心甘情愿去的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7653#       发表于 2021-1-20 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7654#       发表于 2021-1-20 22:42
+
+
+
+
+小麻是在n站同步试听吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7655#       发表于 2021-1-20 22:43
+
+
+
+
+应该是双推流，nico那边是后加的
+
+
+
+
+
+                                            
