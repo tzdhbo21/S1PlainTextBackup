@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-20 13:19** 
+> ## **本文件最后更新于2021-01-21 11:19** 
 
 
 
@@ -23127,7 +23127,7 @@ DeepKiss部，虽然你们是认真在打，但是操作起来也太娱乐了吧
 <img src="https://img.saraba1st.com/forum/202101/19/170339bccklomwdmr6xcbl.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ图片20210119170328.png</strong> (39.57 KB, 下载次数: 2)
+<strong>QQ图片20210119170328.png</strong> (39.57 KB, 下载次数: 3)
 
 下载附件
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_yvX1m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_ES13S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -23672,4 +23672,622 @@ hh点箱虹杏四家一起联动……多好阿<img src="https://static.saraba1s
 
 
 
-        
+
+
+-----
+
+####  rzrbtk  
+##### 29733#       发表于 2021-1-20 21:19
+
+
+
+
+真是引退也不奇怪的氛围，
+但是新衣服真的巨适合她，我爆了，
+新的一年希望郡道能平安无事做自己想做的事吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29734#       发表于 2021-1-20 21:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/212101mf395q9ttfqd55tb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210120211958.png</strong> (241.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 21:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29735#       发表于 2021-1-20 21:21
+
+
+
+
+好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29736#       发表于 2021-1-20 21:24
+
+
+
+
+很现实，很时尚，很新时代女性
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29737#       发表于 2021-1-20 21:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/212616xb7ukuw31swbubou.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210120212556.png</strong> (121.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 21:26 上传
+
+
+
+
+
+差分
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29738#       发表于 2021-1-20 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50096275&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-20 21:13</a>
+[https://twitter.com/4VLiveAgency](https://twitter.com/4VLiveAgency) 好名字</blockquote>
+点进去刷新了一下号没了
+<img src="https://s3.ax1x.com/2021/01/20/sfKfd1.png" referrerpolicy="no-referrer">
+
+
+——————————————————
+
+唔 恢复了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29739#       发表于 2021-1-20 21:29
+
+
+
+
+抽烟coolgirl是郡道老师？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29740#       发表于 2021-1-20 21:30
+
+
+
+[https://twitter.com/inugamikorone/status/1351884391790772224](https://twitter.com/inugamikorone/status/1351884391790772224)
+
+戌神ころね
+
+@inugamikorone <blockquote>【お知らせ】
+
+
+運営さんとの緊急会議の為、配信中止になりました。
+
+リスナーさんが心配するような内容ではないので安心してね！！でも、急な予定変更本当にすみません
+
+
+終わったらきちんとツイートします！</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 29741#       发表于 2021-1-20 21:31
+
+
+
+[https://www.nicovideo.jp/watch/sm38148732](https://www.nicovideo.jp/watch/sm38148732)
+
+データで見るにじ・ホロ軌跡【登録者TOP5ライバー月別コメント人数推移(2018 3～2020 11)】
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29742#       发表于 2021-1-20 21:36
+
+
+
+
+DeepKiss部一夜回到解放前，又是熟悉的拉垮的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 29743#       发表于 2021-1-20 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50085365&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-1-19 19:05</a>
+
+卯月コウ15万人記念雑談
+
+https://www.youtube.com/watch?v=h_tiVAyGqlw</blockquote>
+  我还想说阿光最近居然蛮积极的，搞完鲨鱼和联动居然还搞一次15纪念。
+
+  结果是你啊。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29744#       发表于 2021-1-20 21:41
+
+
+
+ 本帖最后由 空集 于 2021-1-20 21:44 编辑 
+
+郡道一转绿幕ASMR读SC，太养了  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29745#       发表于 2021-1-20 21:51
+
+
+
+
+emo完了，说说对这件衣服的感想：
+想做郡道小姐的狗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kangkangsama| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29746#       发表于 2021-1-20 22:31
+
+
+
+
+宫皇你好闲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/20/223046b1g6qob4e6aqq7uf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>43823215abbb6a519908123015efc6fd.jpg</strong> (82.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-20 22:30 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  필수  
+##### 29747#       发表于 2021-1-20 22:53
+
+
+
+
+叶打枪和梦游一样
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29748#       发表于 2021-1-20 23:09
+
+
+
+
+noah冠军了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29749#       发表于 2021-1-20 23:10
+
+
+
+
+胡桃真大腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29750#       发表于 2021-1-20 23:14
+
+
+
+
+胡桃姐辛苦了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29751#       发表于 2021-1-21 01:01
+
+
+
+
+Activ8の2020年8月期(第4期)の決算は、最終損失が5億1100万円だったもようだ。前の期(2019年8月期)の実績は、最終損失が6億7500万円だった。
+
+バーチャルタレント「Kizuna AI」のマネジメント・プロデュースを行うKizuna AIの2020年8月期の決算は、最終利益が993万9000円だったことがわかった。
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 29752#       发表于 2021-1-21 01:08
+
+
+
+
+a8都干啥去了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 29753#       发表于 2021-1-21 01:24
+
+
+
+
+参考
+
+UUUM 2021年5月期第2四半期決算
+
+売上高：111億600万円（前年同期比+1.7%）
+営業利益：2億9300万円（同-62.0%）
+経常利益：3億200万円（同-60.7%）
+純利益：1億8400万円（同-59.9%）
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 29754#       发表于 2021-1-21 13:36
+
+
+
+
+2000不来点评下阿花的新书？？？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29755#       发表于 2021-1-21 16:55
+
+
+
+
+鹿乃箱撑不住了吗
+<img src="https://p.sda1.dev/1/5142f36fcbffdf418a9c8602b77919b6/IMG_CMP_12804922.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29756#       发表于 2021-1-21 17:46
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/21/174543svxsxk8zxmss468s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsPwS-JUwAIN4Mz.jpg</strong> (63.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-21 17:45 上传
+
+
+
+
+
+[twitter](https://twitter.com/issikiiiiiii/status/1352188635420901376?s=20)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kangkangsama| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29757#       发表于 2021-1-21 17:53
+
+
+
+
+阿床最近歌回不但变多了还疯狂认知英语评论，KPI压力好大。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29758#       发表于 2021-1-21 18:02
+
+
+
+
+大点好<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 29759#       发表于 2021-1-21 18:07
+
+
+
+
+至少学英语比学中文简单多了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 29760#       发表于 2021-1-21 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50096250&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-20 21:10</a>
+
+你虹搞初配信同时直播最尴尬的几个人之一要搞初配信同时试听了，害怕，不敢看，
+
+郡道到底要怎样，借此斩断 ...</blockquote>
+“前の人の配信は終わって”
+
+エモい！
+
+我兴奋了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29761#       发表于 2021-1-21 18:16
+
+
+
+
+草，考拉b限了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+https://live.bilibili.com/21501731?share_source=copy_link
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 29762#       发表于 2021-1-21 19:06
+
+
+
+ 本帖最后由 hulaoda007 于 2021-1-21 19:10 编辑 
+
+  不过还是算了...
+
+
+
+
+
+       
