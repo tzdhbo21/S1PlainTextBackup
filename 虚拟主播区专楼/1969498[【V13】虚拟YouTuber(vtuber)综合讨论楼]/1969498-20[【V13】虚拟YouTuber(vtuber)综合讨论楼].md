@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-21 11:19** 
+> ## **本文件最后更新于2021-01-22 05:21** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_ES13S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_CRCIl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24290,4 +24290,555 @@ https://live.bilibili.com/21501731?share_source=copy_link
 
 
 
-       
+
+
+-----
+
+####  icecry  
+##### 29763#       发表于 2021-1-21 19:38
+
+
+
+
+苏姐马上毕业了还在给底边v做宣传..
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29764#       发表于 2021-1-21 20:12
+
+
+
+
+【APEX】APEX公式プロリーグの解説者を務めるVtuber「渋谷ハル」さんが、野良試合にて競技シーンプレイヤーに死体撃ちされる
+
+↓
+
+「(解説者として)死体撃ちした奴の名前は覚えとく」「競技シーンにいる俺に死体撃ちしてきた選手2名は、解説で触れないようにしてる」と発言
+
+↓
+
+死体撃ちした人、即謝罪
+
+
+哈弟。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29765#       发表于 2021-1-21 20:14
+
+
+
+
+美夜子看来还是顶住了压力继续玩恶灵担任队内指挥，昨天队内气氛僵的还以为会哭出来，心态转变过来挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29766#       发表于 2021-1-21 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105574&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-21 20:12</a>
+ 【APEX】APEX公式プロリーグの解説者を務めるVtuber「渋谷ハル」さんが、野良試合にて競技シーンプレイヤー ...</blockquote>
+那是哪两位对盒子开枪了啊（
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29767#       发表于 2021-1-21 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105620&amp;ptid=1969498" target="_blank">烯丝短尾猫 发表于 2021-1-21 20:19</a>
+
+那是哪两位对盒子开枪了啊（</blockquote>
+[https://twitter.com/takigare3/status/1352156035130093568](https://twitter.com/takigare3/status/1352156035130093568)
+
+
+不认识
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29768#       发表于 2021-1-21 20:41
+
+
+
+[https://www.youtube.com/watch?v= ... D%E3%82%8B%E3%81%A3](https://www.youtube.com/watch?v=u3e6lA8LLLQ&amp;ab_channel=%E3%81%AE%E3%82%93%E3%81%A1%E3%82%83%E3%82%93%E3%81%AD%E3%82%8B%E3%81%A3)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29769#       发表于 2021-1-21 21:10
+
+
+
+
+夜神月今天打的还挺好的，美夜子上把杀了四个
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29770#       发表于 2021-1-21 21:34
+
+
+
+
+“死体撃ち”还上了推特趋势（
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29771#       发表于 2021-1-21 21:40
+
+
+
+
+big这两天没有最开始那么无敌了啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+前两天感觉每把决赛圈都有它
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29772#       发表于 2021-1-21 21:50
+
+
+
+
+高强度的练习赛把其他队伍的协同能力都拉上来了吧
+
+像昨天乾殿和小狮子的队伍都各自拿下2局冠军，big star自己对bora的队伍也被正面干碎。现在kill move的风险越来越高了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29773#       发表于 2021-1-21 22:04
+
+
+
+
+fps鞭尸确实败人品<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+趋势点进去一个**的東京自殺防止センター<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 29774#       发表于 2021-1-21 22:11
+
+
+
+
+猫头鹰的乐子没人讨论吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29775#       发表于 2021-1-21 22:14
+
+
+
+<blockquote>asion617 发表于 2021-1-21 22:11
+猫头鹰的乐子没人讨论吗</blockquote>
+都在巧克拉拉楼讨论光了
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29776#       发表于 2021-1-21 22:17
+
+
+
+
+普通乐子救不了v综了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29777#       发表于 2021-1-21 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50106672&amp;ptid=1969498" target="_blank">asion617 发表于 2021-1-21 22:11</a>
+
+猫头鹰的乐子没人讨论吗</blockquote>
+口气这么狂，那不是只能立正挨打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29778#       发表于 2021-1-21 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好玩的，我给贝伦点了个关注
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 29779#       发表于 2021-1-21 23:55
+
+
+
+
+差不多一月一刷的萌妹画师管人昆布わかめ
+
+周六下午五点直播
+[https://www.youtube.com/watch?v=CKQf9Bb1kms](https://www.youtube.com/watch?v=CKQf9Bb1kms)
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 29780#       发表于 2021-1-22 00:44
+
+
+
+
+昆布老师好，黑皮最高<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 29781#       发表于 2021-1-22 08:27
+
+
+
+ 本帖最后由 耻照 于 2021-1-22 11:06 编辑 
+
+😅批站这都运营多少年了别说日文界面连个英文版都整不出来，🌸妹愿意去哪边日漫痴心里还没点批数吗？
+
+
+不会真以为别人是为了和你们互动才捏着鼻子吃💩吧
+
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 29782#       发表于 2021-1-22 08:55
+
+
+
+
+最爆笑的还是lga还对之前没发成正义春怀恨在心，这次不是求说法，这是要人退网嘛，美其名曰站起来了，一天到晚想着拐油管底边过来站没站起来没点b数啊^O^
+
+
+
+
+
+
+
+-----
+
+####  11512  
+##### 29783#       发表于 2021-1-22 11:00
+
+
+
+[https://twitter.com/takotan_1225/status/1351862901984804864](https://twitter.com/takotan_1225/status/1351862901984804864)
+
+563在推上也吐槽自己了
+
+不过看她点赞内容 好像エゴサーチ会直接搜ころさん而不是tag 
+
+
+
+
+
+
+
+-----
+
+####  nocode  
+##### 29784#       发表于 2021-1-22 11:16
+
+
+
+
+发错楼了，编辑
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 29785#       发表于 2021-1-22 11:18
+
+
+
+
+mmr懂啊，所以mmr决定遵从贝伦的决定，让她离开b站<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29786#       发表于 2021-1-22 11:25
+
+
+
+<blockquote>耻照 发表于 2021-1-22 08:27
+😅批站这都运营多少年了别说日文界面连个英文版都整不出来，🌸妹愿意去哪边日漫痴心里还没点批数吗？
+
+
+不会 ...</blockquote>
+我始终认为国内v圈这么乱，逼站不干人事逃不出关系，yhm很多对接工作都要人自己摸索，国v这边也是乱象横生
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 29787#       发表于 2021-1-22 11:53
+
+
+
+
+油土鳖对接的好咯
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 29788#       发表于 2021-1-22 11:56
+
+
+
+ 本帖最后由 耻照 于 2021-1-22 12:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">油管需要注册前政审和网页翻译找半天开播键然后发现必须手持identity拍照吗
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29789#       发表于 2021-1-22 12:05
+
+
+
+
+但是这改变不了霹雳霹雳是更优质平台的事实，具著名冲蝗领袖LGG3的计算，油管到手收入是0.12-0.18而霹雳霹雳到手收入是4成，高下立判，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 29790#       发表于 2021-1-22 12:10
+
+
+
+ 本帖最后由 耻照 于 2021-1-22 12:21 编辑 
+
+尼哥眼里的尼哥：势必把所有妄想两个都要的大佐冲到两个都没法要
+
+真正的尼哥：冲蝗冲出好几个金盾了还拒绝转火，杏瘾犯了就写个谢绝招魂开楼高强度批判
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29791#       发表于 2021-1-22 12:29
+
+
+
+<blockquote>https://panora.tokyo/archives/18361</blockquote><blockquote>XRエンターテインメント、日本テレビ放送網、BS日本は22日、昨年7月に開催したバーチャルユニットフェス「VILLS」の第2弾をオンラインイベントとして3月21日に実施すると発表した。チケットは、1月29日18時よりSPWNにて販売する。価格は第一部が4500円、第二部が5500円、通しチケットが9800円、グッズやエンドロールへの名前と一言メッセージ掲載などが含まれるプレミアムチケットが2万5000円（すべて税込）。</blockquote><blockquote>・第一部 バラエティステージ：ミライアカリ、大蔦エル、電脳少女シロ＆アイドル部：電脳少女シロ、カルロ・ピノ、神楽すず、ホロライブSPユニット（仮）：星街すいせい、夏色まつり、にじさんじSPユニット（仮）：椎名唯華、魔界ノりりむ、あにまーれ：因幡はねる、宗谷いちか、白宮みみ、柚原いづみ
+
+・第二部 音楽ステージ：電脳少女シロ＆アイドル部：電脳少女シロ、カルロ・ピノ、神楽すず、miComet（星街すいせい、さくらみこ）、にじさんじSPユニット（仮、椎名唯華、魔界ノりりむ）、あにまーれ（因幡はねる、宗谷いちか、風見くく、羽柴なつみ）
+
+REALITY＆ミクチャSPユニット（メンバー未定）
+
+・主催：VILLS実行委員会（XRエンターテインメント有限責任事業組合、日本テレビ放送網株式会社、株式会社BS日本）
+
+・協賛：REALITY株式会社、株式会社Donuts
+
+
+<img src="https://img.saraba1st.com/forum/202101/22/123001pziu0t6zkqtswk3w.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (128.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-22 12:30 上传
+
+
+
+
+</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29792#       发表于 2021-1-22 13:21
+
+
+
+
+天翔院ひいな确诊新冠
+<img src="https://i.loli.net/2021/01/22/icMp5s9RUEy8hZD.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+      
