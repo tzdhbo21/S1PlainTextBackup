@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-22 13:19** 
+> ## **本文件最后更新于2021-01-22 15:04** 
 
 
 
@@ -3677,4 +3677,505 @@ syl，mea带你看野男人（）
 
 
 
-                                          
+
+
+-----
+
+####  Joffre✔  
+##### 7720#       发表于 2021-1-22 21:21
+
+
+
+
+不是吧 霓虹天狗这么恐怖的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7721#       发表于 2021-1-22 21:22
+
+
+
+
+弹吉他就好帅，太好骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7722#       发表于 2021-1-22 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7723#       发表于 2021-1-22 21:23
+
+
+
+
+你咩的吉他呢（
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7724#       发表于 2021-1-22 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">直播找男人
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 7725#       发表于 2021-1-22 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7726#       发表于 2021-1-22 21:24
+
+
+
+
+这就去学吉他 正好杂物间里有老吉他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7727#       发表于 2021-1-22 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">听野男人的时候声音这么甜
+
+幻灭了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7728#       发表于 2021-1-22 21:26
+
+
+
+
+这就是那种听live会跟着唱的烦人粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7729#       发表于 2021-1-22 21:27
+
+
+
+
+阿咩把听她歌回时候的我给演了出来，让我感受到了相当大程度的共感性羞耻
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7730#       发表于 2021-1-22 21:28
+
+
+
+
+草，打了两把游戏才发现开TC了，怎么没给我推送开播推
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7731#       发表于 2021-1-22 21:35
+
+
+
+
+你醒啦
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7732#       发表于 2021-1-22 21:48
+
+
+
+
+-好帅啊好帅啊~
+
+-哈？！这男人搞asmr？！再见！
+
+-男人搞asmr就是演av啊，一想到他对一堆女人搞这种就恶心！恶心啊！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7733#       发表于 2021-1-22 21:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有时候都搞不清她是不是故意巨魔的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7734#       发表于 2021-1-22 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我总觉得也许她确实是记性不怎么好的亚子（）
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7735#       发表于 2021-1-22 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7736#       发表于 2021-1-22 22:00
+
+
+
+
+我也会弹吉他 小麻能看我吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|快去tc出道|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7737#       发表于 2021-1-22 22:01
+
+
+
+
+「あたしの男」<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7738#       发表于 2021-1-22 22:08
+
+
+
+<blockquote>路人庚 发表于 2021-1-22 21:48
+-好帅啊好帅啊~
+
+-哈？！这男人搞asmr？！再见！
+
+-男人搞asmr就是演av啊，一想到他对一堆女人搞这种就恶心！ ...</blockquote>
+什么独角兽
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7739#       发表于 2021-1-22 22:09
+
+
+
+
+又在巨魔又在巨魔
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7740#       发表于 2021-1-22 22:11
+
+
+
+ 本帖最后由 路人庚 于 2021-1-22 22:13 编辑 
+
+-果然只有男人才能治愈我啊
+
+-诶不行，我要是看太多男人了我的gachi就会跑没了
+
+-嗯，其实我完全不喜欢男人，我是萌萌piu的美少女爱豆
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7741#       发表于 2021-1-22 22:14
+
+
+
+
+居然还在播，好耶
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 7742#       发表于 2021-1-22 22:15
+
+
+
+
+巨魔功底越来越深厚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7743#       发表于 2021-1-22 22:16
+
+
+
+
+我已经噶吃野男人了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7744#       发表于 2021-1-22 22:22
+
+
+
+
+什么记忆不好啊 
+
+mea的中之人有很多个不是总所周知的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+正如麻也有很多个，平板麻，14麻，巨乳麻，天空树麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7745#       发表于 2021-1-22 22:24
+
+
+
+
+这个シャルル的确不错
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7746#       发表于 2021-1-22 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">主播能不能要在我听男人唱歌的时候乱叫
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7747#       发表于 2021-1-22 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">噗，我在特定野男人直播间的时候看到了旁边正在播的梅丽桑（世界也许很小但间隔也许很大
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7748#       发表于 2021-1-22 22:41
+
+
+
+ 本帖最后由 专业划水人员 于 2021-1-22 22:43 编辑 
+
+手机tc不能剪辑太可惜了，好想按住她看完这次录播啊
+
+
+
+
+
+                                         
