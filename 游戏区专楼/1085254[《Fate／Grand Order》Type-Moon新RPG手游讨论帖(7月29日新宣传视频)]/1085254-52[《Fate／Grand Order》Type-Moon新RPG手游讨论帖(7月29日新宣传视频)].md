@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-20 09:25** 
+> ## **本文件最后更新于2021-01-22 02:23** 
 
 
 
@@ -23450,4 +23450,498 @@ jk狐这一身打扮好奇怪啊<img src="https://static.saraba1st.com/image/smi
 
 
 
-      
+
+
+-----
+
+####  黑上シグマ  
+##### 77797#       发表于 2021-1-20 17:38
+
+
+
+
+还债了，3单最后个11连才出，还先给我来了只狗子刺激一下……
+各种的1秒11连，五星活动礼装就3张你敢信
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77798#       发表于 2021-1-20 18:00
+
+
+
+
+抽了600多石头才出，中间1个五星也没歪，心累<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katun  
+##### 77799#       发表于 2021-1-20 18:32
+
+
+
+
+我看到"佳い"了，看来又是樱井女士写的了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gulant  
+##### 77800#       发表于 2021-1-20 18:36
+
+
+
+
+不错，一发十连出大牛丸+猫塔<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 77801#       发表于 2021-1-20 18:53
+
+
+
+ 本帖最后由 UNISONIA 于 2021-1-20 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50094023&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-1-20 17:09</a>
+
+看来牛肉丸终究没继承到奶光的伟大基因
+
+长大了还是贫的</blockquote>
+义经是村上源氏那支的，赖光子孙后面是演化成了摄津源氏，这两支的区别还是蛮大的
+
+
+你狗不知道为什么附会了薄绿和童子切，但是地球义经是不会认地球赖光是自己的先祖的……
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77802#       发表于 2021-1-20 19:08
+
+
+
+
+加成从者好像有小灰，那么变大估计是白枪了，毕竟拿着圣枪。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 77803#       发表于 2021-1-20 19:30
+
+
+
+
+这卡面是不行啊，但凡用上了255那个战损立绘也不至于这样，果然不该对这画师的牛肉丸有不切实际的幻想
+
+
+
+
+
+
+
+-----
+
+####  yzj134100  
+##### 77804#       发表于 2021-1-20 19:40
+
+
+
+
+三图一副为了露而露的样子  还不如一二严实来得好看
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77805#       发表于 2021-1-20 20:35
+
+
+
+
+草，鬼一竟然和梅林有联系？
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77806#       发表于 2021-1-20 21:26
+
+
+
+
+怎么又是这种阴间增援活动。。好烦<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 77807#       发表于 2021-1-20 21:28
+
+
+
+
+
+
+
+
+
+ばん！@bansanv3
+
+
+
+
+
+
+
+
+
+
+
+
+
+EsLG-06U0AAykRo.jpg
+(125.59 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2021-1-20 21:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/20/212707nrz1cm6h6zac1j8d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77808#       发表于 2021-1-21 01:18
+
+
+
+
+绿卡 溜了
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 77809#       发表于 2021-1-21 05:34
+
+
+
+ 本帖最后由 exiaexa 于 2021-1-21 05:37 编辑 
+
+我想了一下，平景清三破毁就毁在那个胸托上了，把整个胸型都整得难看的要死
+
+你整个跟手甲/足甲同设计的开盖即饮不是香疯了
+
+四破整体设计还凑活，但是这个胸托和胸型还是有毒，等同人救吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 77810#       发表于 2021-1-21 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50098623&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-1-21 05:34</a>
+我想了一下，平景清三破毁就毁在那个胸托上了，把整个胸型都整得难看的要死
+
+你整个跟手甲/足甲同设计的开盖 ...</blockquote>
+我觉得问题明显在脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77811#       发表于 2021-1-21 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50099588&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-1-21 09:39</a>
+
+我觉得问题明显在脸吧</blockquote>
+脸单看还行啊
+
+
+但是配上脖子下面的部分..就..全 完 了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 77812#       发表于 2021-1-21 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50099588&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-1-21 09:39</a>
+我觉得问题明显在脸吧</blockquote>
+主要是型月**病——设计还行画工拉胯，这脸虽然画不行但是眼影啥的设计还凑活
+
+但是这个胸托真的是设计灾难
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77813#       发表于 2021-1-21 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50101054&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-1-21 12:02</a>
+
+主要是型月**病——设计还行画工拉胯，这脸虽然画不行但是眼影啥的设计还凑活
+
+
+但是这个胸托真的是设计灾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下半身那情趣内衣就不是灾难设计了吗
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 77814#       发表于 2021-1-21 17:18
+
+
+
+
+草 咕哒这特别电锯人
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77815#       发表于 2021-1-21 18:31
+
+
+
+
+今年有机会又有万圣节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 77816#       发表于 2021-1-21 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50101859&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-21 13:26</a>
+
+下半身那情趣内衣就不是灾难设计了吗</blockquote>
+会穿情趣内衣不就是牛若丸的证明吗
+
+穿这么严实的人肯定不是源义经.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77817#       发表于 2021-1-21 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50104934&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-1-21 18:50</a>
+
+会穿情趣内衣不就是牛若丸的证明吗
+
+穿这么严实的人肯定不是源义经.JPG
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是这一行头好无美感啊 
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 77818#       发表于 2021-1-21 21:23
+
+
+
+
+虽然但是，和2.55过场那个战损立绘比，平景清这个3破造型确实很丑啊
+
+而且鬼一现在已经是杀阶连发最强的光炮了吧？毕竟杀阶在你游吃瘪严重。我还幻想着什么时候艳后来个技能本能变3T的绿卡宝具呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 77819#       发表于 2021-1-22 03:25
+
+
+
+
+50天领个石 稍微卡了一下  金光 仇背 狼王 
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 77820#       发表于 2021-1-22 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105375&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-21 19:51</a>
+可是这一行头好无美感啊</blockquote>
+就比基尼铠甲啊，设计上来说那条裤子没啥问题，去hs1或者2捏一个试试不就行了
+
+重点是，这画师画啥都没有美感啊，特别是马甲线和胸型简直灾难，你换成本子画师这种比基尼铠甲马甲线不得舔爆
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77821#       发表于 2021-1-22 09:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以今年是不是有五星龙娘万圣节
+
+
+
+
+
+     
