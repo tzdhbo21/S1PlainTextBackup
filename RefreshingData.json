@@ -101,7 +101,7 @@
     "title": "[病栋一周年]",
     "lastedit": 1608775240,
     "category": "游戏区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1485855",
@@ -357,7 +357,7 @@
     "title": "[20.10『熊熊勇闯异世界／くまクマ熊ベアー』【2期决定】]",
     "lastedit": 1608775382,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1963106",
@@ -705,9 +705,9 @@
   },
   {
     "id": "1932003",
-    "totalpage": 149,
+    "totalpage": 150,
     "title": "[赛博朋克2077 讨论专楼]",
-    "lastedit": 1611003940,
+    "lastedit": 1611367741,
     "category": "游戏区专楼",
     "active": true
   },
@@ -1825,9 +1825,9 @@
   },
   {
     "id": "1978671",
-    "totalpage": 804,
+    "totalpage": 805,
     "title": "[【B22】VUP综合讨论楼]",
-    "lastedit": 1611337375,
+    "lastedit": 1611367797,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2141,7 +2141,7 @@
     "title": "[35岁企业白领有啥再就业方案么]",
     "lastedit": 1608769092,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1978905",
@@ -3497,9 +3497,9 @@
   },
   {
     "id": "1959892",
-    "totalpage": 640,
+    "totalpage": 641,
     "title": "[原神（多平台）攻略讨论专楼，更新群号（禁止新开讨论）]",
-    "lastedit": 1611328650,
+    "lastedit": 1611368257,
     "category": "游戏区专楼",
     "active": true
   },
@@ -3561,9 +3561,9 @@
   },
   {
     "id": "1936922",
-    "totalpage": 33,
+    "totalpage": 34,
     "title": "[《战双帕弥什》尼尔联动开启，恭喜制作人追星成功]",
-    "lastedit": 1610612834,
+    "lastedit": 1611368340,
     "category": "游戏区专楼",
     "active": true
   },
@@ -5961,9 +5961,9 @@
   },
   {
     "id": "1867035",
-    "totalpage": 13,
+    "totalpage": 14,
     "title": "[回复术士的重启人生 TV动画化 2021年放送预定]",
-    "lastedit": 1611320381,
+    "lastedit": 1611368971,
     "category": "漫区专楼",
     "active": true
   },
@@ -5977,9 +5977,9 @@
   },
   {
     "id": "1984015",
-    "totalpage": 70,
+    "totalpage": 72,
     "title": "[“可惜草莓太贵了”]",
-    "lastedit": 1611353774,
+    "lastedit": 1611369022,
     "category": "外野",
     "active": true
   },
