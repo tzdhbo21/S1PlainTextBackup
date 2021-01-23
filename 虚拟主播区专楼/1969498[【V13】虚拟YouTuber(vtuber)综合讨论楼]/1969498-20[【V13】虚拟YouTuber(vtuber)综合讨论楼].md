@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-23 12:07** 
+> ## **本文件最后更新于2021-01-23 13:20** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_Wm20S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_h81P8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26372,4 +26372,543 @@ A8还是瘦死的骆驼比马大
 
 
 
-    
+
+
+-----
+
+####  OldGlory  
+##### 29873#       发表于 2021-1-23 20:09
+
+
+
+
+a8还是强
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29874#       发表于 2021-1-23 20:10
+
+
+
+
+要来了，阿望宣言
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29875#       发表于 2021-1-23 20:12
+
+
+
+ 本帖最后由 katern 于 2021-1-23 20:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+中田好像还没出场啊
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 29876#       发表于 2021-1-23 20:16
+
+
+
+
+emoi<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 29877#       发表于 2021-1-23 20:18
+
+
+
+
+梦回18年<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29878#       发表于 2021-1-23 20:19
+
+
+
+
+你可别再加速了
+
+
+
+
+
+
+
+-----
+
+####  我再拉我  
+##### 29879#       发表于 2021-1-23 20:20
+
+
+
+
+这个T-shirt看着挺不错的
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29880#       发表于 2021-1-23 20:20
+
+
+
+ 本帖最后由 喜闻乐见 于 2021-1-23 20:24 编辑 
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxw961qyvj20qp0gj7bh.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxw9sdochj20rb0fpwom.jpg" referrerpolicy="no-referrer">
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxw9yzzqfj20t70ek48y.jpg" referrerpolicy="no-referrer">
+
+
+
+太爽了这个，相当于AIAIAI的MV内容直播演出
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29881#       发表于 2021-1-23 20:23
+
+
+
+
+UTA是啥？不懂
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29882#       发表于 2021-1-23 20:24
+
+
+
+
+爱酱好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadpeople  
+##### 29883#       发表于 2021-1-23 20:25
+
+
+
+
+草，中田的DJ台有必要做那么大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29884#       发表于 2021-1-23 20:26
+
+
+
+
+好想有钱，好想自推运营有钱，好想自推运营有钱又有品
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29885#       发表于 2021-1-23 20:26
+
+
+
+
+美国巡演……emmmmmmm
+
+现在的美国……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29886#       发表于 2021-1-23 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125539&amp;ptid=1969498" target="_blank">xnlyt 发表于 2021-1-23 20:23</a>
+
+UTA是啥？不懂</blockquote>
+美国的UTA我只知道United Talent Agency，不过感觉不怎么可能，有点大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29887#       发表于 2021-1-23 20:30
+
+
+
+
+UTA创建于1991年，是好莱坞五大经纪公司中的后起之秀，由鲍尔·班尼戴克和领先艺术家（Bauer Benedek and Leading Artists agencies）两家中型经纪公司合并而成。创建之初，UTA只有26个经纪人，客户亦仅限于电影明星、电影导演和电视界的精英。而在18年后，不仅经纪人总数已经膨胀至约100人，而且业务已扩展到娱乐业的所有领域，包括职业体育、音乐、视频游戏。很多好莱坞一线明星都是UTA的客户，其中包括约翰尼·德普、哈里森·福特、米莉·赛鲁斯、科恩兄弟、Jessica。
+
+
+
+
+
+
+
+-----
+
+####  deadpeople  
+##### 29888#       发表于 2021-1-23 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125598&amp;ptid=1969498" target="_blank">katern 发表于 2021-1-23 20:29</a>
+
+美国的UTA我只知道United Talent Agency，不过感觉不怎么可能，有点大</blockquote>
+就是这家
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29889#       发表于 2021-1-23 20:32
+
+
+
+
+看得挺爽<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29890#       发表于 2021-1-23 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125628&amp;ptid=1969498" target="_blank">deadpeople 发表于 2021-1-23 20:31</a>
+
+就是这家</blockquote>
+原来是真的，牌面
+
+
+<img src="https://img.saraba1st.com/forum/202101/23/203531ua3ck56c48omp6f8.png" referrerpolicy="no-referrer">
+
+
+<strong>twitter.com_unitedtalent.png</strong> (102.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-23 20:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 29891#       发表于 2021-1-23 20:35
+
+
+
+
+重要通知！！
+
+Kizuna AI 与全球娱乐代理公司'UTA'建立合作伙伴关系。
+
+也将举行面向北美的线上演唱会。
+
+
+3月开始Virtual北美巡演
+
+
+2021年春 预定发行和Alaina Castillo联动歌曲
+
+
+今年Kizuna AI作为艺人会进一步扩展全球活动范围✨
+
+也请大家今后多多支持！
+
+
+
+转个NGA的归纳
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29892#       发表于 2021-1-23 20:37
+
+
+
+ 本帖最后由 喜闻乐见 于 2021-1-23 20:38 编辑 
+
+等会9点接着b限，<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxwst7k3tj20gh0aejs0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29893#       发表于 2021-1-23 20:38
+
+
+
+
+这个可牛逼了，好！！！
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 29894#       发表于 2021-1-23 20:39
+
+
+
+
+只能说一句：你大爷永远是你大爷。
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29895#       发表于 2021-1-23 20:40
+
+
+
+
+U-NEXT也有，是直播还是一样的播片啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29896#       发表于 2021-1-23 20:42
+
+
+
+
+老爱9点还有个B限后夜祭
+[https://live.bilibili.com/1485080](https://live.bilibili.com/1485080)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29897#       发表于 2021-1-23 20:43
+
+
+
+
+今天有新的无料vs6000动图吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29898#       发表于 2021-1-23 20:43
+
+
+
+
+只能说当年takeshi真是积德，谢天谢地
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 29899#       发表于 2021-1-23 21:08
+
+
+
+
+始皇帝歌舞水平可以啊，练了挺长时间吧？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29900#       发表于 2021-1-23 21:15
+
+
+
+
+年轻女声优是这样的，也练了好几个月了
+
+这时候又该点名批评某些不人气声优<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 29901#       发表于 2021-1-23 21:17
+
+
+
+
+草 指着屏幕说想要可还行<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29902#       发表于 2021-1-23 21:17
+
+
+
+
+指着屏幕这段完全可以做成表情包了
+
+
+
+
+
+   

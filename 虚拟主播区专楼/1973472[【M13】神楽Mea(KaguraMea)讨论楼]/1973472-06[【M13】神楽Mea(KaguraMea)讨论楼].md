@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-22 15:04** 
+> ## **本文件最后更新于2021-01-23 13:21** 
 
 
 
@@ -3486,8 +3486,23 @@ tc开了b直播间的加密就解除了 小麻应该是有去测试的
 
 
 
+ 本帖最后由 路人辰 于 2021-1-23 01:26 编辑 
 
-颤音颤的我饿了
+20210123东京1点
+
+<img src="https://img.saraba1st.com/forum/202101/23/012653s9oho8639uz89338.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2C7AD4EF-62F0-411D-8B61-E303F1FD4F11.jpeg</strong> (136.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-23 01:26 上传
+
+
+
+
+
 
 
 
@@ -4178,4 +4193,452 @@ mea的中之人有很多个不是总所周知的吗<img src="https://static.sara
 
 
 
-                                         
+
+
+-----
+
+####  路人庚  
+##### 7749#       发表于 2021-1-22 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点说漏嘴（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7750#       发表于 2021-1-22 23:23
+
+
+
+
+看不了，说了什么<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7751#       发表于 2021-1-22 23:29
+
+
+
+
+刚刚是聊装饰用吉他以及相关的话题（并没有什么劲爆内容<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7752#       发表于 2021-1-22 23:42
+
+
+
+
+阿咩溜了，今天播的可真久
+
+
+syl，顺便留一下阿咩指定去看还要写感想的野男人的链接
+
+音御 光歌
+[https://twitter.com/otookouga](https://twitter.com/otookouga)
+[https://twitcasting.tv/otookouga/](https://twitcasting.tv/otookouga/)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7753#       发表于 2021-1-22 23:45
+
+
+
+
+小心人家女粉爆破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7754#       发表于 2021-1-22 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这哥们去年11月出道，油管才91个订阅，这应该是不需要担心女粉来冲的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7755#       发表于 2021-1-22 23:55
+
+
+
+
+直播了这么长时间么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+中间看到开播了，吃了顿饭就忘了
+
+果然tc才是吊人永远的家啊
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7756#       发表于 2021-1-23 13:32
+
+
+
+
+油管是工作，推特是生活，tc是信仰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7757#       发表于 2021-1-23 16:04
+
+
+
+
+想rua咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7758#       发表于 2021-1-23 16:21
+
+
+
+
+盲猜今晚10点歌回
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7759#       发表于 2021-1-23 16:42
+
+
+
+
+盲猜今晚不播 顶多tc
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7760#       发表于 2021-1-23 18:38
+
+
+
+
+rua咩（察觉）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7761#       发表于 2021-1-23 19:28
+
+
+
+
+咩咩是真适合聊天，能聊5个小时，我30分钟就不行了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7762#       发表于 2021-1-23 19:45
+
+
+
+
+要是我像小麻那么会说话该多好 就不至于母胎单身二十多年了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7763#       发表于 2021-1-23 19:58
+
+
+
+
+典型的特别会（一个人）聊天，只需要回应“恩”“哦”“好”就能不停地唠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7764#       发表于 2021-1-23 20:20
+
+
+
+
+确实，还能得到倾听者称号
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 7765#       发表于 2021-1-23 20:47
+
+
+
+
+TC播
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7766#       发表于 2021-1-23 20:47
+
+
+
+
+这不，又在tc开始唠了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7767#       发表于 2021-1-23 20:48
+
+
+
+
+好想看实时画面啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7768#       发表于 2021-1-23 20:58
+
+
+
+
+《让拉面变美味的吃法》
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7769#       发表于 2021-1-23 20:58
+
+
+
+
+可爱可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7770#       发表于 2021-1-23 21:00
+
+
+
+
+难受又看不了了……
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7771#       发表于 2021-1-23 21:02
+
+
+
+
+18年的直播 有这虽然模糊但能动的画面
+
+20年的直播 只有一张图
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7772#       发表于 2021-1-23 21:07
+
+
+
+
+自己玩的好开心
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7773#       发表于 2021-1-23 21:08
+
+
+
+
+居然不是nagisa了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7774#       发表于 2021-1-23 21:09
+
+
+
+
+miyuki溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7775#       发表于 2021-1-23 21:09
+
+
+
+
+吃完就跑
+
+
+
+
+
+                                        

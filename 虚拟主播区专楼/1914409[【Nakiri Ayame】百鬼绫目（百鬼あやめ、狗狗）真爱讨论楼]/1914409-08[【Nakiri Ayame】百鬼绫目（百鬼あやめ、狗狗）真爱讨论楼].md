@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-20 17:40** 
+> ## **本文件最后更新于2021-01-23 13:12** 
 
 
 
@@ -8920,4 +8920,451 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 
 
 
-                                 
+
+
+-----
+
+####  FCCHua  
+##### 10986#       发表于 2021-1-21 20:19
+
+
+
+
+熟悉的训练赛不见身影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10987#       发表于 2021-1-21 21:07
+
+
+
+
+她们来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 10988#       发表于 2021-1-21 23:08
+
+
+
+
+正赛又要垫底了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 10989#       发表于 2021-1-22 20:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在又在黄泉那边APEX，自己没开
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 10990#       发表于 2021-1-22 20:24
+
+
+
+
+被葛叶队干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10991#       发表于 2021-1-22 22:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就她们这表现，垫底预定，所以绫总为啥要参赛？又不练习。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10992#       发表于 2021-1-22 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">过两天就比赛了，还在讨论技能怎么用和人员位置分配之类的，真不知道她们是干嘛的。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10993#       发表于 2021-1-22 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草，只是练习赛而已，气氛都已尴尬得不行了，到正赛的时候可想而知，所以绫总上年干嘛要哭？
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 10994#       发表于 2021-1-22 23:23
+
+
+
+
+太冷了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">直播间全靠黄泉活跃气氛了，谢谢你<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 10995#       发表于 2021-1-23 00:21
+
+
+
+
+黄泉太难了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+不过看了这么多天，想倒一还真不是那么容易，大概四，五个队伍争吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10996#       发表于 2021-1-23 00:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平时直播不怎么见练习，练习赛5天失踪3天，比赛前几天还在讨论人员配置，打起架来就各散东西抱头鼠窜，这剧情我看过，坐等正赛被打哭。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 10997#       发表于 2021-1-23 00:48
+
+
+
+
+游戏心态是会随着版本变化的 本质娱乐游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+练了好久的枪一个接一个进去了我都懒得打排位
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 10998#       发表于 2021-1-23 02:37
+
+
+
+
+下播還在練，愛了愛了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 10999#       发表于 2021-1-23 03:08
+
+
+
+
+推特上晒私下二连吃鸡，看起来是真的不甘心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+自尊心好胜心都超强的百鬼大小姐这次能否捧起奖杯，又或者泪洒赛场，让我们拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11000#       发表于 2021-1-23 04:12
+
+
+
+
+還是能贏幾隊的，例如猩猩那隊的負累太大了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11001#       发表于 2021-1-23 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">看推特我以为是训练赛吃鸡了，结果是私下二连
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11002#       发表于 2021-1-23 13:29
+
+
+
+
+别逗了，临时抱佛脚，像极了期末考，流泪也好都是骗男人的套路罢了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11003#       发表于 2021-1-23 13:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以大小姐为什么要参加比赛，不参加不就可以更方便地去摸余了吗，还是说黄泉邀请的所以不好拒绝。
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11004#       发表于 2021-1-23 13:58
+
+
+
+
+公司的任务罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11005#       发表于 2021-1-23 14:19
+
+
+
+
+下次应该死也不会参加了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11006#       发表于 2021-1-23 14:33
+
+
+
+
+得加钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vindicator  
+##### 11007#       发表于 2021-1-23 14:36
+
+
+
+
+草 坐等眼药水沾湿绫总的枕巾<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11008#       发表于 2021-1-23 14:45
+
+
+
+
+微妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11009#       发表于 2021-1-23 19:24
+
+
+
+
+终于开台了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11010#       发表于 2021-1-23 20:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总这波剧本梦回去年，希望结局比去年那次好一点吧
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11011#       发表于 2021-1-23 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差距太大勒，哭唧唧
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 11012#       发表于 2021-1-23 20:57
+
+
+
+
+被towa和马自立那队0换3灭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11013#       发表于 2021-1-23 20:58
+
+
+
+
+光速
+
+
+
+
+
+                                
