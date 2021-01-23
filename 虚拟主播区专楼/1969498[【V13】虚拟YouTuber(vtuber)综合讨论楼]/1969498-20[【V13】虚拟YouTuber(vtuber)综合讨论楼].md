@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-23 05:16** 
+> ## **本文件最后更新于2021-01-23 12:07** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_Kw9W0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_Wm20S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -25502,4 +25502,874 @@ Kizuna AI 2nd Live “hello, world 2020”
 
 
 
-     
+
+
+-----
+
+####  rzrbtk  
+##### 29822#       发表于 2021-1-23 14:12
+
+
+
+
+路易斯将其余三人揍成猪头，其中郡道最惨。
+
+下播后哭着飞奔去玩apex罢！
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29823#       发表于 2021-1-23 14:38
+
+
+
+
+希望今天不要再出设备事故了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 29824#       发表于 2021-1-23 15:24
+
+
+
+
+一个想法
+阿夸直播像2011年的小秦
+446直播像2021年的阿缺
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29825#       发表于 2021-1-23 15:26
+
+
+
+
+翻译：没活儿了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29826#       发表于 2021-1-23 17:01
+
+
+
+[https://www.youtube.com/watch?v=1jIeKSe5kG0](https://www.youtube.com/watch?v=1jIeKSe5kG0)
+
+【 #チューバウト​ 】「TUBEOUT! Vol.4」冒頭無料生配信！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29827#       发表于 2021-1-23 18:10
+
+
+
+
+海苔男能买上亿日元的房子，当v确实赚钱。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29828#       发表于 2021-1-23 18:14
+
+
+
+
+1.小蜜蜂明天发歌
+
+2.垃圾短视频致富经连天皇都不能抗拒
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29829#       发表于 2021-1-23 18:35
+
+
+
+
+木口摇2000w了
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29830#       发表于 2021-1-23 18:43
+
+
+
+
+万众期待的hello，world 2020年演唱会它来啦！
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29831#       发表于 2021-1-23 18:58
+
+
+
+ 本帖最后由 喜闻乐见 于 2021-1-23 19:03 编辑 
+
+新增会员表情
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxtwvgo9bj20q005udh8.jpg" referrerpolicy="no-referrer">
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29832#       发表于 2021-1-23 19:03
+
+
+
+
+AIC 290万粉了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29833#       发表于 2021-1-23 19:04
+
+
+
+
+RETRO 80S DISCO风给爷看傻了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29834#       发表于 2021-1-23 19:04
+
+
+
+
+渲染好像有点微妙？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29835#       发表于 2021-1-23 19:11
+
+
+
+
+老爱这个裙子为什么比安全裤还短<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 29836#       发表于 2021-1-23 19:12
+
+
+
+
+会的他国语言内容越来越多了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29837#       发表于 2021-1-23 19:13
+
+
+
+ 本帖最后由 katern 于 2021-1-23 19:16 编辑 
+
+终于开了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+阿批好像连720都没有<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 29838#       发表于 2021-1-23 19:15
+
+
+
+ 本帖最后由 kk89897 于 2021-1-23 19:18 编辑 
+
+阿逼只有2M码率的720P太难顶了,还是上管子看吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 29839#       发表于 2021-1-23 19:16
+
+
+
+
+b站糊成锤子了 果断去油管看了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29840#       发表于 2021-1-23 19:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/23/191703wzgj37jekgcfd7dr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (65.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-23 19:17 上传
+
+
+
+
+
+我已经1080了，这动态码率……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 29841#       发表于 2021-1-23 19:24
+
+
+
+
+"如何评价坐拥290w粉丝主播的live配信同接不到2.9w"<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29842#       发表于 2021-1-23 19:25
+
+
+
+
+考拉也要休息了啊，点进去评论里都是 痛风？酒精中毒？尿路结石？肝硬化？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29843#       发表于 2021-1-23 19:26
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-23 19:27 编辑 
+
+现在这首还挺好听的，就是阿望真可以考虑别掐嗓子了
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 29844#       发表于 2021-1-23 19:32
+
+
+
+
+老爱会有换装演出吗 这个规格演出不秀一下V才能玩的表现亏了啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29845#       发表于 2021-1-23 19:33
+
+
+
+
+谱皇来了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29846#       发表于 2021-1-23 19:35
+
+
+
+
+果然是合唱曲，有特质就是好阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 29847#       发表于 2021-1-23 19:35
+
+
+
+<img src="https://i.loli.net/2021/01/23/pb3ItSzUlfLawDN.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29848#       发表于 2021-1-23 19:35
+
+
+
+
+谱皇这收音好怪啊，不在一个地方？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29849#       发表于 2021-1-23 19:35
+
+
+
+
+花谱刚开始好像忘了一下动作，有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29850#       发表于 2021-1-23 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125105&amp;ptid=1969498" target="_blank">εRemastered 发表于 2021-1-23 19:32</a>
+
+老爱会有换装演出吗 这个规格演出不秀一下V才能玩的表现亏了啊</blockquote>
+去年有超赛变金发，今年估计可能再来一发
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 29851#       发表于 2021-1-23 19:37
+
+
+
+
+谱皇来了,同接上3w了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29852#       发表于 2021-1-23 19:40
+
+
+
+
+这声线，到底谁是小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29853#       发表于 2021-1-23 19:40
+
+
+
+
+这对话温度差笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29854#       发表于 2021-1-23 19:44
+
+
+
+
+这场屏幕闪光特效和1st的dj时间都挺好，都来就最好了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29855#       发表于 2021-1-23 19:45
+
+
+
+
+草，这中文<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 29856#       发表于 2021-1-23 19:47
+
+
+
+ 本帖最后由 AKili 于 2021-1-23 19:48 编辑 
+
+AR！？特效炫啊
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 29857#       发表于 2021-1-23 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">真好，真好啊
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29858#       发表于 2021-1-23 19:47
+
+
+
+
+卧槽DJ也  太炫了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29859#       发表于 2021-1-23 19:48
+
+
+
+
+A8还是瘦死的骆驼比马大
+
+
+
+
+
+
+
+-----
+
+####  deadpeople  
+##### 29860#       发表于 2021-1-23 19:49
+
+
+
+
+这舞台演出效果是真的不错，teddyloid炒热气氛是行家<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29861#       发表于 2021-1-23 19:51
+
+
+
+
+始皇帝就是始皇帝啊
+
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 29862#       发表于 2021-1-23 19:52
+
+
+
+
+是我的错觉还是U-Next确实清楚那么一丁点 [https://public-viewing.unext.jp/?lc=LIV0000000195](https://public-viewing.unext.jp/?lc=LIV0000000195)
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 29863#       发表于 2021-1-23 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">牛逼，无敌，灵魂都燃起来了
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29864#       发表于 2021-1-23 19:54
+
+
+
+ 本帖最后由 喜闻乐见 于 2021-1-23 19:57 编辑 
+
+改编了，更燃了这首草，绝了 TeddyLoid牛逼
+
+这首是WW 是要变了！
+
+
+
+没有 金发难道要更炸的出场
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29865#       发表于 2021-1-23 19:55
+
+
+
+
+牛逼
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29866#       发表于 2021-1-23 19:59
+
+
+
+
+还剩三首吗？舍不得啊
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 29867#       发表于 2021-1-23 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a8这钱真没白亏，不过吸到的投资更是难以想象了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29868#       发表于 2021-1-23 20:02
+
+
+
+
+那大概八点半结束休息个半小时开始b站限定后半场了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29869#       发表于 2021-1-23 20:04
+
+
+
+
+来了，一秒超赛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29870#       发表于 2021-1-23 20:05
+
+
+
+
+这个金发配这个浅色背景emmmmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/23/200619feu20isa0i2aa01r.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (83.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-23 20:06 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  我再拉我  
+##### 29871#       发表于 2021-1-23 20:05
+
+
+
+
+超级赛亚爱，乐了，变身！
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29872#       发表于 2021-1-23 20:06
+
+
+
+
+金发来得好突然，最炫的头发，全场相对最安定的背景？
+
+
+
+
+
+    
