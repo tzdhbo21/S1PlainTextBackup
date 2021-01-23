@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-22 05:21** 
+> ## **本文件最后更新于2021-01-23 05:16** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_CRCIl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_Kw9W0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24841,4 +24841,665 @@ REALITY＆ミクチャSPユニット（メンバー未定）
 
 
 
-      
+
+
+-----
+
+####  古战场亡魂  
+##### 29793#       发表于 2021-1-22 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50111922&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-1-22 13:21</a>
+
+天翔院ひいな确诊新冠</blockquote>
+这是不是第一个确诊的管人？？？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29794#       发表于 2021-1-22 13:47
+
+
+
+[https://www.change.org/p/%E6%A0% ... 9-b22f-cd116fda265c](https://www.change.org/p/%E6%A0%AA%E5%BC%8F%E4%BC%9A%E7%A4%BEcam-%E3%82%BB%E3%83%95%E3%82%A3%E3%83%A9-%E3%82%B9%E3%82%A5%E5%BC%95%E9%80%80%E6%92%A4%E5%9B%9E%E3%81%AB%E5%A3%B0%E3%82%92%E4%B8%8A%E3%81%92%E3%82%88%E3%81%86?recruiter=1005360991&amp;utm_source=share_petition&amp;utm_medium=twitter&amp;utm_campaign=share_petition&amp;recruited_by_id=5440a390-dc1f-11e9-b22f-cd116fda265c)
+
+引退删除反对联名签名，现在有199人…… <blockquote>ちゃんのVtuber活動引退の撤回を目的に
+
+
+所属する会社「株式会社CAM」様にユーザーの声を届けようと思います
+
+
+スゥちゃんの発言から、今回の引退は本人の意志としては不本意なものだと思われます
+
+
+記憶が戻れば今のセフィラ・スゥの役目は終わるかもしれませんが
+
+
+別に別称として使い続けても構わないと思うのです
+
+
+ひとまず一人ひとりの力を集めて会社に伝えたいと思いますので
+
+
+ご協力お願いいたします
+
+
+また引退は止められなくても
+
+
+せめてセフィラ・スゥの軌跡だけは残してほしい
+
+
+You Tubeチャンネルは残してほしいとの声が多く聞こえます
+
+
+この件に関してもお相手様に取り組みお願いしたいと思います
+
+
+セフィラ・スゥのVtuber活動は２年間の中の彼女の膨大な時間を費やした
+
+
+知的財産だと思います、その知的財産を会社の都合で０にしてしまって良いのでしょうか？　
+
+
+会社には残してもメリットは感じられないかもしれませんが、彼女のもとに残せばそれは一大財産です
+
+
+彼女一人でそれは十分な管理ができこれからも彼女にとって大きな利益を生み出します　
+
+
+また５万人近い彼女のファンにとってもそれはだいじな作品です彼女に癒やされ共感しまた支えられたたくさんの人間が居ます。
+
+
+これを完全に無くすことを断固として阻止したいと私は考えます</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 29795#       发表于 2021-1-22 13:54
+
+
+
+[https://youtu.be/p10ddbRYqBw](https://youtu.be/p10ddbRYqBw) 不会是最后一个
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29796#       发表于 2021-1-22 14:54
+
+
+
+<blockquote>夏色まつり🏮ホロライブ1期生
+
+@natsuiromatsuri
+
+·
+
+40m
+
+このご時世オンラインレッスンってのが実はあるのですよ.......！！！
+<strong>もちろん気をつけながらオフラインってのもやってる</strong>けどね！！！</blockquote>
+
+
+没事，还有不怕死的
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 29797#       发表于 2021-1-22 14:58
+
+
+
+<blockquote>nowaki 发表于 2021-1-22 12:05
+但是这改变不了霹雳霹雳是更优质平台的事实，具著名冲蝗领袖LGG3的计算，油管到手收入是0.12-0.18而霹雳霹 ...</blockquote>
+圈真，丁真的真
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29798#       发表于 2021-1-22 16:16
+
+
+
+
+今天才发现郡道前几天apex录像是真删了，不是转会员only，是真的完全删掉了！
+
+人家歌势不安也就算了，郡郡这打枪也不安啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，虽然确实菜得很丢人啦
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 29799#       发表于 2021-1-22 16:59
+
+
+
+<blockquote>名無しのVTuberファンID: 9170e4
+
+元記事: 月ノ美兎 | VTuber(バーチャルYouTuber)
+
+同接がどんどん減ってる原因を委員長自身が気付いてないのだとしたら鈍感すぎると思う</blockquote>
+
+事业民囚人真可怕
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29800#       发表于 2021-1-22 17:56
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-22 16:16
+今天才发现郡道前几天apex录像是真删了，不是转会员only，是真的完全删掉了！
+
+人家歌势不安也就算了，郡郡 ...</blockquote>
+说出来你可能不相信，我看了练习赛到现在的统计，郡道的数据比星川还有花园快晴全队，夜神月全队还要好，按kd 和dmg 来算的话是和西西一个水平的
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29801#       发表于 2021-1-22 18:22
+
+
+
+
+黛灰宇宙人狼凸待，好
+
+昨天的无声观测整活也很有意思
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29802#       发表于 2021-1-22 18:54
+
+
+
+[https://www.family.co.jp/campaign/spot/2101_nijisanji_cp.html](https://www.family.co.jp/campaign/spot/2101_nijisanji_cp.html)
+<img src="https://p.sda1.dev/1/9b1b13ff8dd05d97dbe81f42ef154b5a/IMG_20210122_185254.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29803#       发表于 2021-1-22 19:06
+
+
+
+ 本帖最后由 NBXX 于 2021-1-22 19:09 编辑 
+
+都まんじゅうのみんなへ
+[https://www.youtube.com/watch?v=4vX9-33yogg](https://www.youtube.com/watch?v=4vX9-33yogg)
+
+
+感觉还是在这里发一下吧
+
+看看是成神还是拉胯
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29804#       发表于 2021-1-22 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50114879&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-1-22 17:56</a>
+说出来你可能不相信，我看了练习赛到现在的统计，郡道的数据比星川还有花园快晴全队，夜神月全队还要好， ...</blockquote>
+不可能吧，那个被杀就要尖叫六秒还转三个调的郡道<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，
+看来是男友代打，难怪删档
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 29805#       发表于 2021-1-22 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">露露真好
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 29806#       发表于 2021-1-22 20:11
+
+
+
+
+恶魔用教堂背景，死灵法师也用教堂背景，下次也给百鬼用用算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29807#       发表于 2021-1-22 20:23
+
+
+
+
+走姐删档ゲリラ歌 
+[https://youtu.be/FLIIJlfguiY](https://youtu.be/FLIIJlfguiY)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29808#       发表于 2021-1-22 20:36
+
+
+
+
+这个企划的节奏真的不大行
+
+
+什么样进来一句话不《聊》就开始答题，答完立马就走，这不是凸待十几二十个人的套路吗
+
+
+整点欢快一点的不好吗，难道就没有一个有mrr3d回那种水平？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29809#       发表于 2021-1-22 20:56
+
+
+
+
+我真的笑喷了，刚点进阿叶转播间专心看打枪，有个弹幕来一句华晨宇都有孩子了，你还不播原神？这也太拼了紧跟时事啊哈哈哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29810#       发表于 2021-1-22 21:22
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-1-22 21:25 编辑 
+
+不说刚才那个生日回
+
+
+且说修成电音的原创曲首发前，自己先不卑不亢唱一遍
+
+
+倒是让我张口结舌了
+
+
+清水夫人《堂堂》好吧
+
+
+ps：wink可爱死我了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29811#       发表于 2021-1-22 21:26
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-22 21:37 编辑 
+
+推上看到的这几天的数据，基本上郡道神成星川队触地即死嘛（[https://twitter.com/ugar4l2m/status/1352298457764020227/photo/1](https://twitter.com/ugar4l2m/status/1352298457764020227/photo/1)）
+
+<img src="https://img.saraba1st.com/forum/202101/22/212634js96654o5jx90evo.png" referrerpolicy="no-referrer">
+
+
+<strong>APEX.png</strong> (86.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-22 21:26 上传
+
+
+
+
+
+
+
+
+说完就进前十了，还行还行！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29812#       发表于 2021-1-22 21:42
+
+
+
+
+樋口楓｜ワンマンライブ「Kaede Higuchi Live 2021 "AIM"」公演時間変更のお知らせ
+
+
+新型コロナウイルス感染症拡大に伴う、政府の緊急事態宣言及び東京都の方針を受け、開場・開演時間を下記のように変更させていただきます。
+
+今後の政府や自治体等の発表を踏まえて公演実施の内容を急遽変更する場合がございますので、あらかじめご了承ください。
+
+
+----------------------------
+
+Kaede Higuchi Live 2021 "AIM"
+
+2021年2月19日(金)　東京・TACHIKAWA STAGE GARDEN
+
+18:00開場／19:00開演→　[変更後] 16:30開場／17:30開演
+
+----------------------------
+
+这次有长进了，提早了一个半小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 29813#       发表于 2021-1-22 21:50
+
+
+
+[https://auditionjp.maha5.com/](https://auditionjp.maha5.com/) <blockquote>レディース、アンド、
+
+
+ジェントルメン、アンド、オタク達！
+
+
+
+
+日本に新たなVTuber事務所が
+
+
+参戦してきたぞ。
+
+
+
+
+インドネシアに本拠を構える
+
+
+バーチャルYouTuber事務所、MAHA5（マハ・パンチャ）が
+
+
+日本に上陸。
+
+
+
+
+スキルと情熱を持って、
+
+
+VTuberにチャレンジしたい
+
+
+日本国内個人の方に
+
+
+第一期生の募集を始めました。
+
+
+貴方のご応募をお待ちしております！</blockquote>
+印尼的公司进军日本招收一期生……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29814#       发表于 2021-1-22 22:17
+
+
+
+
+这几年印尼的主播行业发展还挺快的，可能是神仙打架把市场涨大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29815#       发表于 2021-1-22 22:21
+
+
+
+
+印尼公司还写自己是印尼的也太实诚了，中资箱从来不写自己是中资的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 29816#       发表于 2021-1-22 22:33
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-1-22 22:40 编辑 
+
+药师寺：yagoo不用吾言，杏星逆自奔溃，真奴才也！——《杏书·载记第一·药师寺》
+
+<img src="https://ftp.bmp.ovh/imgs/2021/01/1808abf2d032f167.png" referrerpolicy="no-referrer">
+<img src="https://ftp.bmp.ovh/imgs/2021/01/a2cc93981b7c353f.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 29817#       发表于 2021-1-22 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50117765&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-22 22:21</a>
+
+印尼公司还写自己是印尼的也太实诚了，中资箱从来不写自己是中资的。 ...</blockquote>
+文化自信而已
+
+
+国内因为有gfw的原因基本是孤岛市场，不知道印尼的舆论环境如何，我对那的了解仅限于很久之前鉴赏的纪录片杀戮演绎
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29818#       发表于 2021-1-22 23:22
+
+
+
+
+星川队被bigstar融了之后跑去看月之，在玩ryona game，
+
+有点那个啊！虽然吃到mtlv糖还是不错的
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 29819#       发表于 2021-1-22 23:26
+
+
+
+
+葛叶被ib拿拳头打死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29820#       发表于 2021-1-23 11:54
+
+
+
+
+长尾景在郡道圭利路易斯监督下打牌，12点播，
+老哥很勇啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29821#       发表于 2021-1-23 12:52
+
+
+
+[https://www.youtube.com/watch?v=ZmICNmaQ8hw](https://www.youtube.com/watch?v=ZmICNmaQ8hw)
+
+Kizuna AI 2nd Live “hello, world 2020”
+
+今晚7点重开
+
+
+
+
+
+     
