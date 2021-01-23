@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-18 14:12** 
+> ## **本文件最后更新于2021-01-23 08:09** 
 
 
 
@@ -7817,11 +7817,535 @@ syl，回看发现写得好抽象，其实想说的就是那种电次和玛奇�
 
 
 
+ 本帖最后由 乌鸦绅士 于 2021-1-19 00:34 编辑 
 
-今天有哪首是没萌混过关的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+今天有哪首是没萌混过关的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坏起来了，模仿过后唱歌跑调更厉害了
+
+上面只是随便吐槽一下，后面那句也是开玩笑，没有认真<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">个人也非常喜欢会限练歌的，可能写的比较生硬容易让人误解，非常抱歉
+
+ syl,楼下的图应该算是无端联想
 
 
 
 
 
-                                   
+
+
+-----
+
+####  Kanchiki  
+##### 4923#       发表于 2021-1-18 23:34
+
+
+
+
+会限就是放松闲聊练歌（xjb唱）嘛 不也挺好的
+
+SYL，がおうパパ这也太直球了吧
+
+<img src="https://img.saraba1st.com/forum/202101/18/233306ihh050mzzmz5yy55.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ayakarinco.jpg</strong> (34.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-18 23:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 4924#       发表于 2021-1-19 22:19
+
+
+
+
+大丈夫ですか？今天玩得什么沙雕游戏
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4925#       发表于 2021-1-19 22:50
+
+
+
+
+太v了太v了，还画女儿色图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4926#       发表于 2021-1-19 22:53
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-19 23:28 编辑 
+
+今天是原本计划玩的游戏玩不了了，所以临时换的游戏。看了下发行时间，是去年夏天的游戏，而其他管人也早在去年就轮过一遍了，没想到现在拿出来玩<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+看到现在我觉得这游戏卖7刀都贵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">     
+
+顺便楼上的对比图个人认为单纯是巧合的可能性要大一些，最好不要认真。先不提画师不太可能会做这种比较敏感的事，图中的那个是夸父的原创角色，福利图和R18没少画的，论证起来就太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 4927#       发表于 2021-1-20 09:07
+
+
+
+
+yysy，这个原创角色出现的时间很微妙
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4928#       发表于 2021-1-20 10:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">反正卖女儿赚钱也是一环，不爽不要玩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">虽然是真顶
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4929#       发表于 2021-1-20 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">什么？这也能关联上吗
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4930#       发表于 2021-1-20 13:59
+
+
+
+
+是蛮像的诶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 4931#       发表于 2021-1-20 15:47
+
+
+
+
+右边的没见过，啥时候的啊<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  turezyy  
+##### 4932#       发表于 2021-1-20 16:44
+
+
+
+
+右边是凛子<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 4933#       发表于 2021-1-20 16:54
+
+
+
+
+这个角色出现的时间比aqua晚一点
+
+aqua是18年8月，这个角色是19年4月
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4934#       发表于 2021-1-20 17:51
+
+
+
+
+看战绩apex卡瓶颈了，有可能不好意思拿出来播。
+
+がお是不是看了老图有灵感，不好说，愿意信就信吧，反正也没啥。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 4935#       发表于 2021-1-20 23:59
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-21 04:48 编辑 
+
+夸父发布的新画集网上已经有了，除了旧图外也有几张新夸图，感兴趣的可以看看syl,看了下推特原来被观测到凌晨三点半登录了MC<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">有可能akukin建设的联动企划就在这几天了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 4936#       发表于 2021-1-21 10:14
+
+
+
+
+玩了个通宵不播，该发个小视频睡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4937#       发表于 2021-1-21 10:32
+
+
+
+ 本帖最后由 wwddrte 于 2021-1-21 21:53 编辑 
+
+这么晚才睡,今天会不会又要摸了啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+真的不播了啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4938#       发表于 2021-1-21 12:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨天独食一天打到了白金2
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4939#       发表于 2021-1-21 14:17
+
+
+
+ 本帖最后由 fangjun96 于 2021-1-21 14:37 编辑 
+
+宝可梦工商还行，和盐水双打，pm力行吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+syl  夸父又色夸了，图来，哦 是新本猫猫图，没事了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4940#       发表于 2021-1-22 08:32
+
+
+
+
+所以这人在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">也是pm训练家吗，两天了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4941#       发表于 2021-1-22 11:39
+
+
+
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4942#       发表于 2021-1-22 12:38
+
+
+
+
+定期的无理由摸鱼，都这么pua了四次了，第五次不会还有人在乎吧
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4943#       发表于 2021-1-22 12:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">摸吧摸吧，要是能摸出点新东西那还行，但是摸的出来吗
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 4944#       发表于 2021-1-22 12:51
+
+
+
+ 本帖最后由 星の守 于 2021-1-22 12:56 编辑 
+
+在乎又怎样，不在乎又怎样，最后还不是该怎样仍然怎样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4945#       发表于 2021-1-22 13:28
+
+
+
+ 本帖最后由 面具13 于 2021-1-22 13:40 编辑 
+
+顺便今天发了小视频了，大家可以散了。居然两动，えらい<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可能又改用户名了
+
+我可以预见夸宝回到5k同接以后回归初心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4946#       发表于 2021-1-22 13:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天傍晚APEX
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4947#       发表于 2021-1-22 17:04
+
+
+
+ 本帖最后由 面具13 于 2021-1-22 19:08 编辑 
+
+今天是说了英文就下播吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来不是。
+
+摸鱼期间应该是去看/学一些高分apex主播的操作。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4948#       发表于 2021-1-22 19:22
+
+
+
+
+说手上起了疹子，类似荨麻疹的那种，如果两三天不能自然好就要去看医生了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4949#       发表于 2021-1-23 15:29
+
+
+
+ 本帖最后由 面具13 于 2021-1-23 15:38 编辑 
+
+准备躺鸡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4950#       发表于 2021-1-23 15:40
+
+
+
+
+阿不是挂嘛，太强了吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 4951#       发表于 2021-1-23 15:40
+
+
+
+
+不看第一视角不能确定是开挂的还是打骷髅海单子的职业代练……
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 4952#       发表于 2021-1-23 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种事又不是没发生过，就算看了第一视角，以日本云玩家观众的脑回路，你敢锤是挂分分钟炎上你
+
+
+
+
+
+                                  
