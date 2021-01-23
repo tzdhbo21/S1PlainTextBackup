@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-23 13:20** 
+> ## **本文件最后更新于2021-01-23 17:39** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_h81P8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_a2KG8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26911,4 +26911,514 @@ U-NEXT也有，是直播还是一样的播片啊
 
 
 
-   
+
+
+-----
+
+####  喜闻乐见  
+##### 29903#       发表于 2021-1-23 21:29
+
+
+
+ 本帖最后由 喜闻乐见 于 2021-1-23 21:43 编辑 
+
+这题pass
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxy9t9uvej20lq0dfgzj.jpg" referrerpolicy="no-referrer">
+
+miniLive 开了
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxyntbjsoj20mq0d8k40.jpg" referrerpolicy="no-referrer">
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxyo6hi70j20nc0dpn99.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29904#       发表于 2021-1-23 21:44
+
+
+
+
+叔叔行不行啊，这都卡
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 29905#       发表于 2021-1-23 21:45
+
+
+
+
+啊这，b限也能卡吗
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29906#       发表于 2021-1-23 21:46
+
+
+
+
+bora 我的bora 终于冠军了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xnlyt  
+##### 29907#       发表于 2021-1-23 21:46
+
+
+
+
+艹，小陈在搞毛线啊
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 29908#       发表于 2021-1-23 21:46
+
+
+
+
+小陈还能不能干点事业了？
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 29909#       发表于 2021-1-23 21:47
+
+
+
+
+草，卡掉半首歌
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29910#       发表于 2021-1-23 21:48
+
+
+
+
+マリアンウ原班人马冠军，bora，yyds
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29911#       发表于 2021-1-23 21:50
+
+
+
+ 本帖最后由 caupollen 于 2021-1-23 21:52 编辑 
+
+这中文，背片假背得辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 29912#       发表于 2021-1-23 21:50
+
+
+
+
+草，君广东话上手，我最喜欢打架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 29913#       发表于 2021-1-23 21:53
+
+
+
+[https://twitter.com/TUBEOUT/status/1352929826571571202](https://twitter.com/TUBEOUT/status/1352929826571571202)
+
+
+心形感叹号重大告知心形感叹号
+
+
+TUBEOUT! 毎月開催決定闪片闪片･:*+.\(( °ω° ))/.:+闪片闪片
+
+
+そして…
+
+
+2021夏、TUBEOUT!Fes開催予定！！
+
+
+2021年の #チューバウト にご期待ください火火
+
+
+
+这个还要每月办一次？下个月是azki和律可，下下个月是marpirl和MZM
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 29914#       发表于 2021-1-23 22:01
+
+
+
+
+编舞
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxz6lvdngj20fy0oijyq.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxz6q9mz9j20gv0fjn5i.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gmxz6vfulvj20fw0ec10y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 29915#       发表于 2021-1-23 22:15
+
+
+
+<img src="https://p.sda1.dev/1/7366ce1128e2738ba4e019bf93e423db/IMG_CMP_218602704.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 29916#       发表于 2021-1-23 22:30
+
+
+
+
+水龙敬这b限笑死了……声音不错
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29917#       发表于 2021-1-23 22:46
+
+
+
+
+月灵这nico突击。。。
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 29918#       发表于 2021-1-23 22:46
+
+
+
+ 本帖最后由 Hemis 于 2021-1-23 22:47 编辑 
+
+风怒编辑
+
+任性大小姐发完推直接配信
+
+
+
+
+
+
+
+
+-----
+
+####  natmk  
+##### 29919#       发表于 2021-1-23 22:48
+
+
+
+
+水龙敬也太强了真正的钢之魂不比隔壁的义乌巫医牛逼多了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 29920#       发表于 2021-1-23 22:57
+
+
+
+ 本帖最后由 JoelBirch 于 2021-1-23 23:05 编辑 
+
+？这就来
+syl，草啊都34min了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+zsyl，这种突击完全跟不上啊啊啊啊，我都设置晚八点、九点提醒刷推了……<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 29921#       发表于 2021-1-23 23:04
+
+
+
+
+刚看就黑屏了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29922#       发表于 2021-1-23 23:06
+
+
+
+
+小千这队今晚发挥真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elliotky  
+##### 29923#       发表于 2021-1-23 23:09
+
+
+
+
+u限的这个吉他弹唱实在是太强了...
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 29924#       发表于 2021-1-23 23:17
+
+
+
+
+高颜值早稻田大学高材生、原公司白领、前视觉系乐队主唱、现任人气画师、VTuber，水龙敬真是NB......
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29925#       发表于 2021-1-23 23:18
+
+
+
+
+这个前夜祭太逗了，57人一起飞拳击场也太壮观了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29926#       发表于 2021-1-23 23:43
+
+
+
+
+草 老师这队打拳好tm强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29927#       发表于 2021-1-23 23:51
+
+
+
+
+第二，哭呀西
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29928#       发表于 2021-1-24 00:14
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-24 00:25 编辑 
+
+团灭之后的氛围好微妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+BIGSTAR太强力，决赛会怎么样呢
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 29929#       发表于 2021-1-24 00:27
+
+
+
+
+感觉NsN跟BIGSTAR竞争第一了，不过其他几队也有机会
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29930#       发表于 2021-1-24 00:40
+
+
+
+
+郡道经过此次比赛，打枪水平应该提升挺多了吧，大概再打半年也许能上钻了？
+
+省一楼，ema最近又是唱king又是APEX16杀4000DMG吃鸡，很适合做管人啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 29931#       发表于 2021-1-24 01:31
+
+
+
+
+建议ema小姐参加下次cr杯和最协
+
+
+
+
+
+  
