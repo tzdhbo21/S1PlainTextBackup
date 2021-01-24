@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 12:11** 
+> ## **本文件最后更新于2021-01-24 15:59** 
 
 
 
@@ -6247,4 +6247,840 @@ staff有男的不是很正常么，第一次3d我记得staff也没憋住笑录�
 
 
 
-                                     
+
+
+-----
+
+####  Mr.shelter  
+##### 7870#       发表于 2021-1-24 20:14
+
+
+
+
+太尬了太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7871#       发表于 2021-1-24 20:21
+
+
+
+
+来了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7872#       发表于 2021-1-24 20:22
+
+
+
+
+meamea全身变<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7873#       发表于 2021-1-24 20:23
+
+
+
+
+突然又拾起了animare蝴蝶担当的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 7874#       发表于 2021-1-24 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7875#       发表于 2021-1-24 20:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吐槽自己螃蟹是真的好玩
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7876#       发表于 2021-1-24 20:31
+
+
+
+
+这一段完全没有聊live啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7877#       发表于 2021-1-24 20:33
+
+
+
+
+kani！（咬牙切齿）
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7878#       发表于 2021-1-24 20:41
+
+
+
+
+belibelicute
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7879#       发表于 2021-1-24 20:42
+
+
+
+
+尿遁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7880#       发表于 2021-1-24 20:50
+
+
+
+
+前两遍都没发现，才发现刚刚那个蹲下+腰部向前+人往后靠的姿势还蛮色的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7881#       发表于 2021-1-24 20:57
+
+
+
+
+强欲的女人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7882#       发表于 2021-1-24 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想重回第一年还行，真重回18年了不知道多少人能顶得住
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7883#       发表于 2021-1-24 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7884#       发表于 2021-1-24 21:05
+
+
+
+
+我也最喜欢一骑当千这首
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7885#       发表于 2021-1-24 21:08
+
+
+
+
+懂了，咩姐喜欢喷射（特效）
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7886#       发表于 2021-1-24 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7887#       发表于 2021-1-24 21:14
+
+
+
+
+悲伤忧郁但能吃<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7888#       发表于 2021-1-24 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">memory真好啊
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7889#       发表于 2021-1-24 21:19
+
+
+
+
+真可爱阿<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7890#       发表于 2021-1-24 21:20
+
+
+
+
+这首真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7891#       发表于 2021-1-24 21:20
+
+
+
+
+她刚刚跟着唱那两句多可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，为什么平时歌回不唱原创曲嘛
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7892#       发表于 2021-1-24 21:22
+
+
+
+
+她迫真演技一直可以的
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7893#       发表于 2021-1-24 21:27
+
+
+
+
+今晚这告知是BD了吧 
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7894#       发表于 2021-1-24 21:29
+
+
+
+
+要么bd要么原创曲投稿咯
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7895#       发表于 2021-1-24 21:30
+
+
+
+
+真的真的辛苦了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7896#       发表于 2021-1-24 21:35
+
+
+
+
+肯定是bd发售吧，有今天的副轨音，还要赔给买线下票的粉丝，正好多生产一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7897#       发表于 2021-1-24 21:45
+
+
+
+
+晃腿还真没注意到，不愧是解说版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7898#       发表于 2021-1-24 21:46
+
+
+
+
+不愧是专业解说 腿疼腰疼能直接看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7899#       发表于 2021-1-24 21:55
+
+
+
+
+辛苦了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7900#       发表于 2021-1-24 22:03
+
+
+
+ 本帖最后由 离心 于 2021-1-24 22:05 编辑 
+
+好耶！新歌pv！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7901#       发表于 2021-1-24 22:04
+
+
+
+
+来了一首原创曲pv
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7902#       发表于 2021-1-24 22:05
+
+
+
+
+你还记得你是个女仆啊
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7903#       发表于 2021-1-24 22:06
+
+
+
+
+听着草莓果酱的ED 突然鼻子一酸 live真的结束了 真的辛苦了
+
+三次都能完整看完真的好开心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清风苍澜  
+##### 7904#       发表于 2021-1-24 22:07
+
+
+
+
+麻花辫，已经是太太了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7905#       发表于 2021-1-24 22:09
+
+
+
+
+仔细看了眼发型还蛮奇特的，上半截是双麻花，下半截是普通的双马尾
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7906#       发表于 2021-1-24 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">有录下来的好心人可以分享一份吗？
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7907#       发表于 2021-1-24 22:11
+
+
+
+
+麻花辫土麻
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7908#       发表于 2021-1-24 22:12
+
+
+
+
+4分钟后开盒限了啊，果然还是远程连线（所以前半小时的渣音质真就是那么安排的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+（我也蹲一个录播<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7909#       发表于 2021-1-24 22:18
+
+
+
+ 本帖最后由 路人庚 于 2021-1-24 22:20 编辑 
+
+[https://www.youtube.com/watch?v=WTeIRcXoeYg](https://www.youtube.com/watch?v=WTeIRcXoeYg)
+
+原创曲首播待机间
+
+<img src="https://img.saraba1st.com/forum/202101/24/222022vfb75o7a25odo11f.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (187.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 22:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7910#       发表于 2021-1-24 22:26
+
+
+
+
+好粉啊好粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7911#       发表于 2021-1-24 22:26
+
+
+
+
+新衣服感觉有股苔味
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7912#       发表于 2021-1-24 22:28
+
+
+
+
+你2d衣服呢？？？？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7913#       发表于 2021-1-24 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原创曲、翻唱曲pv的衣服设计了一大堆，日常使用的live2D依然是3年前的扎古
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7914#       发表于 2021-1-24 22:30
+
+
+
+
+在做了，在做了（在找画师中）
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 7915#       发表于 2021-1-24 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50134660&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-1-24 22:30</a>
+原创曲、翻唱曲pv的衣服设计了一大堆，日常使用的live2D依然是3年前的扎古 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">扎古开装甲外骨骼 
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7916#       发表于 2021-1-24 23:12
+
+
+
+
+求个今天的录播，tm日了狗了，开播我开席，下播我到家，完美错过。
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7917#       发表于 2021-1-24 23:17
+
+
+
+
+我已经吐槽过很多次了
+
+这吊人出道的时候不说s级驾驶员也是个a级,现在唱歌的时候经常动捕都没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+她对皮现在真的不太在意的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7918#       发表于 2021-1-24 23:19
+
+
+
+
+什粉什v呗 很多天狗不也不在意皮了
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7919#       发表于 2021-1-24 23:23
+
+
+
+
+20210124东京23点（1、2、3）
+
+<img src="https://img.saraba1st.com/forum/202101/24/232328ly1yyzc1i7h0iyc2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D3DF5031-7FA6-426C-8829-1C8F1D2F4188.jpeg</strong> (115.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 23:23 上传
+
+
+
+
+
+
+
+
+
+
+                                    
