@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 11:15** 
+> ## **本文件最后更新于2021-01-24 12:10** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_EC0TY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_cW997" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -28156,8 +28156,9 @@ OKS撞上西西队，郡道没了，神成星川没法合流，一局更比一�
 
 
 
+ 本帖最后由 stedckk 于 2021-1-24 19:32 编辑 
 
-tms上来就被nan收了
+tms上来就被nsn收了
 
 
 
@@ -28259,8 +28260,9 @@ OKS击杀了个big star好像。
 
 
 
+ 本帖最后由 stedckk 于 2021-1-24 19:32 编辑 
 
-nan吃了
+nsn吃了
 
 
 
@@ -28435,8 +28437,9 @@ oks：哇四位很讨厌啊（没奖品），不如待会什么都不做落地�
 
 
 
+ 本帖最后由 stedckk 于 2021-1-24 19:29 编辑 
 
-提前恭喜nan夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -28502,6 +28505,8 @@ oks：哇四位很讨厌啊（没奖品），不如待会什么都不做落地�
 
 
 
+ 本帖最后由 NBXX 于 2021-1-24 19:30 编辑 
+
 
 <img src="https://img.saraba1st.com/forum/202101/24/191511xx0sspb00jq9e0e9.png" referrerpolicy="no-referrer">
 
@@ -28516,6 +28521,261 @@ oks：哇四位很讨厌啊（没奖品），不如待会什么都不做落地�
 
 
 
+
+<img src="https://img.saraba1st.com/forum/202101/24/193016z92cqw0qiq29ezmw.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124202958.png</strong> (485.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 19:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29987#       发表于 2021-1-24 19:18
+
+
+
+
+kiss部吃鸡了！！！太不容易了，开局万酱紧张得连盾都扔不到车上整队直接白给，我还以为没希望了，真的没想到三个人到后面越打越好；；
+
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 29988#       发表于 2021-1-24 19:19
+
+
+
+
+"Astel is a Master player who occasionally brain swaps with a Bronze"我笑吐了
+
+昨天是排名最差的一天，结果打拳之后的两场一个第一一个第二，又觉得自己能行了
+
+跟教练通宵打了百杀到早上8点，也不知道还记不记得有带不动的队友是什么感觉
+
+前两局别人都在一开始收几个弱队人头就开始苟，RAG缩圈前一分钟在大平地跑得那叫一个开心啊
+
+你说你早点像最后一局这样先苟最后再刚，也不至于3局结束9分人头+2分排名
+
+快去给TMT道歉吧
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29989#       发表于 2021-1-24 19:21
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-1-24 19:29 编辑 
+
+NsN总分第一，冠军了
+
+分数这是算错吧，小狮子最后62+3击杀分+2排名分应该有67啊
+
+NsN也是有67分，应该是同分，不会是要搞两队都第一没输家的桥段吧（
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 29990#       发表于 2021-1-24 19:22
+
+
+
+
+结果啊祭16名拿了pc 还是赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29991#       发表于 2021-1-24 19:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">好像算错分了，尴尬
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29992#       发表于 2021-1-24 19:48
+
+
+
+
+两边都是冠军了，再多发三台主机
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 29993#       发表于 2021-1-24 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就并列第一啊
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29994#       发表于 2021-1-24 19:49
+
+
+
+
+都并列第一个，后面的排名为啥不往前提提，DeepKiss第四没奖品啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 29995#       发表于 2021-1-24 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我建议把TMS算成并列15 把16位的pc发给并列第一
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29996#       发表于 2021-1-24 19:50
+
+
+
+
+那大福也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 29997#       发表于 2021-1-24 19:52
+
+
+
+ 本帖最后由 adamtheo 于 2021-1-24 20:04 编辑 
+
+顺便一提TMS的第16也是错的，应该是KSN第16，真的麻了
+
+观众在哈弟窗发第16位算错的事情，扳手乱杀，这是不是最后一届最协了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29998#       发表于 2021-1-24 19:57
+
+
+
+
+是不是15.16也算错了...
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29999#       发表于 2021-1-24 19:58
+
+
+
+
+15,16算错那是血亏啊，16奖品很好啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 30000#       发表于 2021-1-24 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">差点奶死nsn，还好最后因祸得福
 
 
 

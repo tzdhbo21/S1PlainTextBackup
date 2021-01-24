@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 05:18** 
+> ## **本文件最后更新于2021-01-24 12:11** 
 
 
 
@@ -5136,4 +5136,1115 @@ miyuki溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 
 
-                                       
+
+
+-----
+
+####  路人辰  
+##### 7803#       发表于 2021-1-24 16:13
+
+
+
+
+20210124东京17点
+
+<img src="https://img.saraba1st.com/forum/202101/24/161331pwzmwi3z7ddl7pz1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>28370633-8FBD-4C0E-9719-0F73866299ED.jpeg</strong> (186.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 16:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7804#       发表于 2021-1-24 16:17
+
+
+
+
+来个录屏的吧，时间点太不巧了，又是饭局。
+
+
+
+
+
+
+
+-----
+
+####  Day_One  
+##### 7805#       发表于 2021-1-24 16:56
+
+
+
+
+同   有无录播   票据可查<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7806#       发表于 2021-1-24 17:40
+
+
+
+
+0群出没，发了nya<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7807#       发表于 2021-1-24 18:46
+
+
+
+
+加班，只能看一会儿，等一个录播
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7808#       发表于 2021-1-24 18:50
+
+
+
+
+看着回放等待画面还是有些胃疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7809#       发表于 2021-1-24 18:59
+
+
+
+
+要是能来个3d化直播同时试听就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 7810#       发表于 2021-1-24 19:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">有野男人的声音
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7811#       发表于 2021-1-24 19:02
+
+
+
+
+在野男人那里<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7812#       发表于 2021-1-24 19:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开场野男人还行
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7813#       发表于 2021-1-24 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">野男人，我好了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7814#       发表于 2021-1-24 19:05
+
+
+
+
+这麦也太拉胯了，梦回bs麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 7815#       发表于 2021-1-24 19:06
+
+
+
+ 本帖最后由 caupollen 于 2021-1-24 19:08 编辑 
+
+nico里的说话声音全损跟五毛钱麦一样我听麻了，相比live的声音清楚多了。B站也一样吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7816#       发表于 2021-1-24 19:06
+
+
+
+
+吵死了臭女人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7817#       发表于 2021-1-24 19:08
+
+
+
+
+说话声好大 不过音质很麻<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7818#       发表于 2021-1-24 19:08
+
+
+
+
+说话声音全损
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7819#       发表于 2021-1-24 19:09
+
+
+
+
+这声音听着梦回麻酱
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7820#       发表于 2021-1-24 19:10
+
+
+
+
+live的声音很小 对比来讲说话声音更麻了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7821#       发表于 2021-1-24 19:10
+
+
+
+
+b站也是一样的全损音质
+
+
+（话说之前还想着有一直买各种零食送着吃的应该会是女性staff，这下算是石锤你咩姐的staff是男性了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7822#       发表于 2021-1-24 19:11
+
+
+
+
+买零食的staff起码有个软软冰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+staff有男的不是很正常么，第一次3d我记得staff也没憋住笑录进去了
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7823#       发表于 2021-1-24 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7824#       发表于 2021-1-24 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7825#       发表于 2021-1-24 19:13
+
+
+
+
+开始了开始了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7826#       发表于 2021-1-24 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7827#       发表于 2021-1-24 19:14
+
+
+
+
+哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7828#       发表于 2021-1-24 19:14
+
+
+
+
+开始了开始了，小巨魔又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7829#       发表于 2021-1-24 19:15
+
+
+
+
+自己吐槽自己，而且还自己超时空让自己西奈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7830#       发表于 2021-1-24 19:15
+
+
+
+
+同传又阵亡了……
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 7831#       发表于 2021-1-24 19:15
+
+
+
+
+加了整整两个月班，重温一下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7832#       发表于 2021-1-24 19:16
+
+
+
+
+草，第一次来看演唱会的人（如果存在的话）
+
+真的能看的下去么，这个同步视听版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 7833#       发表于 2021-1-24 19:16
+
+
+
+
+这什么哈批音质
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7834#       发表于 2021-1-24 19:16
+
+
+
+
+话说音质这么烂难道是在阿b日本分部那边么（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7835#       发表于 2021-1-24 19:17
+
+
+
+
+耳朵疼<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7836#       发表于 2021-1-24 19:18
+
+
+
+
+应该是的，她自己估计也没有live的录像吧
+
+推流需要用阿B日本或者3d棚的电脑
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7837#       发表于 2021-1-24 19:19
+
+
+
+
+还有告知<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 7838#       发表于 2021-1-24 19:20
+
+
+
+ 本帖最后由 caupollen 于 2021-1-24 19:23 编辑 
+
+音质太差了，都听不清说啥。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了下b站比nico有延迟1分钟多（ 不是3
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7839#       发表于 2021-1-24 19:20
+
+
+
+
+这个同传一旦流畅起来估计就是台本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7840#       发表于 2021-1-24 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">800日元的音质
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7841#       发表于 2021-1-24 19:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她说自己那边录入的没问题，800元特有的低技术力
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 7842#       发表于 2021-1-24 19:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">通话音质
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7843#       发表于 2021-1-24 19:26
+
+
+
+
+这同传基本跟没有没太大差别，虽然也是预料之中
+
+
+（一会等播完了看盒限开始的时间来判断到底是不是在日本分部那边好了
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 7844#       发表于 2021-1-24 19:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我寻思把录像发给小麻让小麻自己整也不会这么烂吧。叔叔的拉夸水平又上了一个台阶
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7845#       发表于 2021-1-24 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费环节的音质就这样了，好音质请付费.png
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7846#       发表于 2021-1-24 19:28
+
+
+
+
+付费环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7847#       发表于 2021-1-24 19:28
+
+
+
+
+不愧是你.jpg
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 7848#       发表于 2021-1-24 19:29
+
+
+
+
+他妹的真是故意把音质调烂的，太搞了吧
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7849#       发表于 2021-1-24 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。。。真就免费音质
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7850#       发表于 2021-1-24 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？？真tm绝了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7851#       发表于 2021-1-24 19:31
+
+
+
+
+我傻了什么情况
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 7852#       发表于 2021-1-24 19:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙 我直接好家伙
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7853#       发表于 2021-1-24 19:31
+
+
+
+
+我仏了，付费内容音质真变好了还行<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">叔叔真有你的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7854#       发表于 2021-1-24 19:32
+
+
+
+
+这就是金钱的力量么
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7855#       发表于 2021-1-24 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无情的带货机器
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7856#       发表于 2021-1-24 19:32
+
+
+
+
+带货时间
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7857#       发表于 2021-1-24 19:34
+
+
+
+
+我愿意称之为绝活
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7858#       发表于 2021-1-24 19:35
+
+
+
+
+带货环节也许应该放在唱歌的时候更好一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不过算了，阿b不上心随便安排也就这样了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7859#       发表于 2021-1-24 19:36
+
+
+
+
+草，这staff
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7860#       发表于 2021-1-24 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这什么鬼才staff
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7861#       发表于 2021-1-24 19:37
+
+
+
+
+真不是故意的吗，我愿称之为..... <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7862#       发表于 2021-1-24 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个同步试听跟我想象的差别有点大，但是又在意料之中
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 7863#       发表于 2021-1-24 19:37
+
+
+
+
+太巨魔了，这staff
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7864#       发表于 2021-1-24 19:39
+
+
+
+
+同步试听（X）
+
+整活混时长带货（√）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7865#       发表于 2021-1-24 19:42
+
+
+
+
+《对动画本篇没什么兴趣的声优被请去参加录制副音轨时候聊的内容》
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫| + 1|贴切 不过这个声优对动画角色还是感兴趣的.|
+| Mr.shelter| + 1|草草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7866#       发表于 2021-1-24 19:47
+
+
+
+
+这个名场景看一次草一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7867#       发表于 2021-1-24 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧自从爱丽丝出场这人就开始好好看live了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7868#       发表于 2021-1-24 19:50
+
+
+
+ 本帖最后由 A2014720 于 2021-1-24 19:58 编辑 
+
+这个士大夫有点东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+大概懂了，越来越跟不上节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  闪刀姬  
+##### 7869#       发表于 2021-1-24 19:57
+
+
+
+
+咩咩，好兴奋呀
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                     
