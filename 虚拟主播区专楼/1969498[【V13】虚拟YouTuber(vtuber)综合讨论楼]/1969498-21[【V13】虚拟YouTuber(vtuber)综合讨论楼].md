@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 15:57** 
+> ## **本文件最后更新于2021-01-24 19:15** 
 
 
 
@@ -960,4 +960,397 @@ uge喝醉了 草<img src="https://static.saraba1st.com/image/smiley/face2017/068
 
 
 
-                                                
+
+
+-----
+
+####  Suzutsuki  
+##### 30046#       发表于 2021-1-25 00:06
+
+
+
+
+苏姐来虹就好了 但是如果能进杏最好
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30047#       发表于 2021-1-25 00:09
+
+
+
+
+木口六期赶不上，大概率去虹了吧。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30048#       发表于 2021-1-25 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cover正面临着第二次类阿库娅冲击呢，这次会完蛋吗。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30049#       发表于 2021-1-25 00:26
+
+
+
+
+celluloid/ メリッサ・キンレンカ Cover（[https://www.youtube.com/watch?v=8CUTuw-xJgc](https://www.youtube.com/watch?v=8CUTuw-xJgc)）
+
+
+感觉听过...歌回生唱过？难得没什么攻击性的翻唱
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30050#       发表于 2021-1-25 00:28
+
+
+
+
+什么叫上位替代啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30051#       发表于 2021-1-25 00:36
+
+
+
+
+这上位替代没想到啊
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 30052#       发表于 2021-1-25 00:38
+
+
+
+
+星街4点英文歌回
+你们cover不要太过分了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30053#       发表于 2021-1-25 00:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔皇就是兔皇，下手比夸皇狠啊，直接扯到钱上那是真的凶
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 30054#       发表于 2021-1-25 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50135787&amp;ptid=1969498" target="_blank">winda 发表于 2021-1-25 00:43</a>
+
+兔皇就是兔皇，下手比夸皇狠啊，直接扯到钱上那是真的凶</blockquote>
+好歹是社霸啊 这就是我欣赏兔皇的一点<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30055#       发表于 2021-1-25 01:36
+
+
+
+
+葛叶和丽姐兰酱搭在一起笑死我，哈弟还特地来看她们组的情况<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30056#       发表于 2021-1-25 01:39
+
+
+
+
+cover这回会死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30057#       发表于 2021-1-25 01:53
+
+
+
+
+Cover这回会死🐎
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 30058#       发表于 2021-1-25 01:59
+
+
+
+
+什么魔幻现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯城恶魔  
+##### 30059#       发表于 2021-1-25 02:04
+
+
+
+
+cover怎么了
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 30060#       发表于 2021-1-25 02:06
+
+
+
+
+兔皇能做一次女主角吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kazuma  
+##### 30061#       发表于 2021-1-25 02:11
+
+
+
+ 本帖最后由 kazuma 于 2021-1-25 02:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50136274&amp;ptid=1969498" target="_blank">斯城恶魔 发表于 2021-1-25 02:04</a>
+
+cover怎么了
+
+
+—— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+
+
+
+
+
+
+
+-zue37Q16o-av8jZ18T3cSyi-1dr.jpg
+(244.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-25 02:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/25/021501olfb40vfo0lz9l09.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 斯城恶魔| + 1|谢谢，看懂了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30062#       发表于 2021-1-25 02:12
+
+
+
+
+年年炸头牌cover是几个意思<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30063#       发表于 2021-1-25 02:24
+
+
+
+
+今晚葛皇和一之濑这段不错
+
+久违地看了下日V
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30064#       发表于 2021-1-25 02:25
+
+
+
+
+这后夜祭最后一局太精彩了，有Qu和tubaki教练带叶师这队直接杀疯了，25kill吃鸡，全队2000以上伤害，打完之后叶师回味好久才下播
+
+教练一上来就甩出致命卡组问叶师有没有喜欢的女孩子，还好叶师避火熟练说自己apex里最喜欢地平线
+
+不过叶师这种强行尬聊带动气氛跟真正的阳角组队差距还是巨大，星川这边全程欢声笑语，结束后还继续打
+
+另外，星川信长这两个黑屏榻榻米了好久都没发现，边打枪边聊得不亦乐乎，我挂着星川窗突然听到叶师来他们discord提醒信长直播黑屏，星川大声嘲笑信长馬鹿，然后一会儿叶师又进来提醒星川<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 30065#       发表于 2021-1-25 02:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在头牌不是鲨么，去年兔子上位夸就和运营闹矛盾了，现在就到兔子了，估计一年后就是鲨鱼了，正所谓holo皇位继承
+
+
+
+
+
+                                               
