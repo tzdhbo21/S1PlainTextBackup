@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 03:34** 
+> ## **本文件最后更新于2021-01-24 11:12** 
 
 
 
@@ -9829,4 +9829,685 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 
 
 
-                               
+
+
+-----
+
+####  Fami水  
+##### 11042#       发表于 2021-1-24 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">虽然早就知道这是她本性，但是打的这么难看还是挺看不下去的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11043#       发表于 2021-1-24 12:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">以为她这次会认真参赛的我真像个傻子，绫总以后还是不要再参加竞技游戏的比赛了吧，为了自己为了观众都好。
+
+有时候真不明白她，好胜心这么强又不肯去练习或者研究，输多了打得难看又会不高兴，然后把负面情绪传染给队友和观众。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11044#       发表于 2021-1-24 14:06
+
+
+
+
+早期玩的时候应该是有人教过 会用各种上分密码 
+现在脑死恶灵还玩的效果稀烂是不是因为被野男人抛弃了呀<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11045#       发表于 2021-1-24 14:10
+
+
+
+
+绫总就是虚拟大司而已，我死都是对面捞，嘴硬，不学不练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11046#       发表于 2021-1-24 14:41
+
+
+
+
+总计均伤跟均杀都比狐狸还低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/24/144108drevzzb5uuvu11a8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>APEX.jpg</strong> (36.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 14:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11047#       发表于 2021-1-24 16:19
+
+
+
+
+最后一名也有电脑可以拿，竞争激烈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11048#       发表于 2021-1-24 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">其实嘛，她不学不练脑死玩什么也好，遨游鱼塘也罢，不打比赛去打匹配想怎么玩爱怎么玩也没人说。
+
+现在别人大多数都挺认真的，就她们去比赛郊游，被虐了又觉得面子过不去，这不是把自己做宝搞吗。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11049#       发表于 2021-1-24 16:29
+
+
+
+ 本帖最后由 stedckk 于 2021-1-24 16:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比赛开始了，才发现她们队好像没人开视角，看来还是有点自知之明的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来绫总有开播。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11050#       发表于 2021-1-24 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">压力来到了绫总这边
+
+都开了啊
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11051#       发表于 2021-1-24 16:35
+
+
+
+
+绫总还是有包袱的，总不能嗯摆烂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11052#       发表于 2021-1-24 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜还有包袱，这才是看的难受的地方
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 11053#       发表于 2021-1-24 16:40
+
+
+
+
+啊没了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11054#       发表于 2021-1-24 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被灭了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11055#       发表于 2021-1-24 16:42
+
+
+
+
+好像是被bigstar灭的吧，死在大热手上不冤。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11056#       发表于 2021-1-24 16:45
+
+
+
+
+能活多久完全看多久碰不到队伍，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">和落地成盒的差距就是会揽件
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11057#       发表于 2021-1-24 16:56
+
+
+
+
+绫总就是来整蛊的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11058#       发表于 2021-1-24 16:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/165641rq5i18z37ecr5vn7.png" referrerpolicy="no-referrer">
+
+
+<strong>}Z@J@MY3{}A[$SBA)0Z0FBC.png</strong> (4.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 16:56 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻紫这伤害。。。这是要争取16名拿电脑吗
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11059#       发表于 2021-1-24 16:58
+
+
+
+
+七酱
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11060#       发表于 2021-1-24 17:15
+
+
+
+
+被萝卜子和fbk他们打了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11061#       发表于 2021-1-24 17:16
+
+
+
+
+这也太好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11062#       发表于 2021-1-24 17:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/172740yvgwglfg2fqg2lgm.png" referrerpolicy="no-referrer">
+
+
+<strong>O0N])RC1P)T{7[M48PF{6[1.png</strong> (5.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 17:27 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总居然有1杀
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11063#       发表于 2021-1-24 17:46
+
+
+
+
+不会打完比赛傻紫被ktv了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11064#       发表于 2021-1-24 17:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报仇了，把狐皇怼了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11065#       发表于 2021-1-24 17:51
+
+
+
+
+被bora她们队收了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11066#       发表于 2021-1-24 18:04
+
+
+
+
+又一杀，可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11067#       发表于 2021-1-24 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">排16，你们故意的吧
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11068#       发表于 2021-1-24 18:15
+
+
+
+
+绫总厚实表皮，杀了一个还发推炫耀一下吗，立大功是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11069#       发表于 2021-1-24 18:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨了狐皇炫耀？不想混了是吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11070#       发表于 2021-1-24 18:27
+
+
+
+
+傻紫这又白给了。。。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11071#       发表于 2021-1-24 18:30
+
+
+
+
+灭了别人队，高光了
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 11072#       发表于 2021-1-24 18:30
+
+
+
+
+这波可以的 不算耻辱了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11073#       发表于 2021-1-24 18:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/183746u030zhhn05ypzxxn.png" referrerpolicy="no-referrer">
+
+
+<strong>0JGTU)@V$G%4HY_W07BWW]N.png</strong> (5.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 18:37 上传
+
+
+
+
+
+
+这把绫总不丢人了
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11074#       发表于 2021-1-24 18:38
+
+
+
+
+GON没有垫底风险了
+压力来到了TMS一边
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11075#       发表于 2021-1-24 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有毒是吧 又发推
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11076#       发表于 2021-1-24 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超了西西她们两分，拿电脑又难了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11077#       发表于 2021-1-24 18:57
+
+
+
+
+这把也太穷了
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 11078#       发表于 2021-1-24 19:07
+
+
+
+
+结束了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11079#       发表于 2021-1-24 19:07
+
+
+
+
+被夹了，又被萝卜子她们干了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11080#       发表于 2021-1-24 19:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五圈还是蓝白甲 包了饺子
+
+
+
+
+
+                              

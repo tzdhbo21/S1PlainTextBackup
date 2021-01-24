@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 10:14** 
+> ## **本文件最后更新于2021-01-24 11:15** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_zrkBi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_EC0TY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -28147,4 +28147,377 @@ OKS撞上西西队，郡道没了，神成星川没法合流，一局更比一�
 
 
 
- 
+
+
+-----
+
+####  stedckk  
+##### 29969#       发表于 2021-1-24 18:15
+
+
+
+
+tms上来就被nan收了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29970#       发表于 2021-1-24 18:17
+
+
+
+
+花芽姐你们在干嘛？？？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29971#       发表于 2021-1-24 18:27
+
+
+
+
+big star被kiss部和郡道她们追着杀啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29972#       发表于 2021-1-24 18:29
+
+
+
+
+OKS击杀了个big star好像。
+
+但是然后星川和老师被毒圈毒死了
+
+又是神成solo苟活 time了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29973#       发表于 2021-1-24 18:29
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-24 18:32 编辑 
+
+又是剩下神成一人，炎上流星群给我支棱起来！
+
+四位，神成姐，存活能力强大过了头
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29974#       发表于 2021-1-24 18:32
+
+
+
+
+神成牛逼 又带到第四了 
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29975#       发表于 2021-1-24 18:34
+
+
+
+
+nan吃了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29976#       发表于 2021-1-24 18:38
+
+
+
+ 本帖最后由 NBXX 于 2021-1-24 18:41 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/183822du2p12y5kl925xq2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124193805.png</strong> (263.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 18:38 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/184129mrjr8pfzcjr5s5fs.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124194101.png</strong> (484.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 18:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29977#       发表于 2021-1-24 18:38
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-24 18:42 编辑 
+
+OKS好像排名到了四位，
+
+oks：哇四位很讨厌啊（没奖品），不如待会什么都不做落地死争个16位吧（奖品很好）
+
+
+给我好好打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，啊是五位来着，都最后了这局来个一位嘛！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29978#       发表于 2021-1-24 18:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">oks，苟活的神
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 29979#       发表于 2021-1-24 19:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/190029u0dvz00yzp9vdg0s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsfecfZVkAERegU.jpg</strong> (276.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 19:00 上传
+
+
+
+
+
+[twitter](https://twitter.com/ogamikeito/status/1353295129411350528?s=20)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29980#       发表于 2021-1-24 19:02
+
+
+
+
+草 OKS最后一把拉了  神成死了然后葫芦娃救爷爷 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29981#       发表于 2021-1-24 19:08
+
+
+
+
+木口内战，海带头一枪带走阿希
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29982#       发表于 2021-1-24 19:09
+
+
+
+
+提前恭喜nan夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 29983#       发表于 2021-1-24 19:10
+
+
+
+ 本帖最后由 黑之和 于 2021-1-24 19:11 编辑 
+
+这位置好，极限逃生
+吃鸡了！
+第一第三视角都好热血啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29984#       发表于 2021-1-24 19:12
+
+
+
+
+叶队吃鸡了，不容易
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 29985#       发表于 2021-1-24 19:14
+
+
+
+
+叶队完全就是在指挥飞天的qqq，太热血了，tql
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29986#       发表于 2021-1-24 19:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/191511xx0sspb00jq9e0e9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124201448.png</strong> (264.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 19:15 上传
+
+
+
+
+
+
+
+
+
+
