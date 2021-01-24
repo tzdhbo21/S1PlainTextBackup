@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-23 17:39** 
+> ## **本文件最后更新于2021-01-24 10:14** 
 
 
 
@@ -23470,7 +23470,7 @@ DeepKiss部今天这打的，这样下去名次啥的就别想了，也太下饭
 
 
 gkd
-<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_a2KG8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://external-preview.redd.it/D7rT0Ymg7ZA2HvRBS5Ls-YxlceYqLQIirGCKxxi-NPM.png?auto=webp&amp;s=f6a4d46719eb2ac0d75c0716ea224c7c5d7d3601" id="aimg_zrkBi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -27421,4 +27421,730 @@ BIGSTAR太强力，决赛会怎么样呢
 
 
 
-  
+
+
+-----
+
+####  Ketestrait  
+##### 29932#       发表于 2021-1-24 02:37
+
+
+
+
+白雪巴这句“玩恐怖游戏以外的场合被惊吓会害我子宫疼”差点让我把正在喝的可乐喷出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  swordofsoul1  
+##### 29933#       发表于 2021-1-24 03:15
+
+
+
+ 本帖最后由 swordofsoul1 于 2021-1-24 03:17 编辑 
+
+<img src="https://i.imgur.com/3ZW7VTq.gif" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/lJPOm8z.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 29934#       发表于 2021-1-24 10:34
+
+
+
+
+高情商:你很适合做管人啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29935#       发表于 2021-1-24 15:55
+
+
+
+
+练了这么久，最协最终战四点开，燃起来了！（落地死的除外）
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29936#       发表于 2021-1-24 16:22
+
+
+
+
+紧张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29937#       发表于 2021-1-24 16:44
+
+
+
+
+bigstar也太强了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29938#       发表于 2021-1-24 16:44
+
+
+
+
+OKS一瞬间被团灭了，活下来的队伍多过头了吧！
+
+14位还行惹
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29939#       发表于 2021-1-24 16:46
+
+
+
+
+这么小个圈有10个队就离谱
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 29940#       发表于 2021-1-24 16:46
+
+
+
+
+DeepKiss部第一局率先白给，唉，看能不能幸运16名了，奖品还挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29941#       发表于 2021-1-24 16:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夜神月吃鸡，真的没想到
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 29942#       发表于 2021-1-24 16:50
+
+
+
+
+这最后一圈还有这么多人还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29943#       发表于 2021-1-24 16:50
+
+
+
+
+美夜子牛逼！
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29944#       发表于 2021-1-24 16:50
+
+
+
+
+卧槽，我一直觉得夜神月没什么机会了，结果正赛开门红<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29945#       发表于 2021-1-24 16:51
+
+
+
+
+OKS：哦哦哦！夜神月以前都没一位过，这回决胜一位，好燃啊！！
+
+
+大姐你们也燃起来啊，你们也没一位过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29946#       发表于 2021-1-24 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 第一局就还是挺意外的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29947#       发表于 2021-1-24 16:51
+
+
+
+
+正赛的神，恭喜夜神月，太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 29948#       发表于 2021-1-24 16:52
+
+
+
+
+够戏剧性的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 29949#       发表于 2021-1-24 16:52
+
+
+
+ 本帖最后由 ygysh0505 于 2021-1-24 16:54 编辑 
+
+猜不透，看不懂，处处有可能syl BIG这击杀数吓人
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29950#       发表于 2021-1-24 16:53
+
+
+
+ 本帖最后由 NBXX 于 2021-1-24 17:05 编辑 
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/170433sg4j24iv11fwg20b.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124180326.png</strong> (410.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 17:04 上传
+
+
+
+
+
+
+
+
+
+
+
+NYCB6JPO0T)~U[PH5L`09PM.png
+(263.43 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-24 16:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/165230a5err54udz58oewo.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 29951#       发表于 2021-1-24 16:58
+
+
+
+
+一局杀20人 这其他人不用玩了啊
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29952#       发表于 2021-1-24 17:02
+
+
+
+
+该讨伐BIG了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29953#       发表于 2021-1-24 17:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/170406t544m51rvv31m9v4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q16o-a9z5ZcT3cSss-g6.jpg</strong> (122.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 17:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 29954#       发表于 2021-1-24 17:17
+
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-1-24 17:21 编辑 
+
+big star只剩白雪了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29955#       发表于 2021-1-24 17:21
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-24 17:26 编辑 
+
+OKS撞上西西队，郡道没了，神成星川没法合流，一局更比一局难呐！
+
+星川也无了，还剩八队，密です，神成从15队苟到5队，大腿啊，
+
+
+
+
+靠一人苟进前三了，神成是郡道星川的爹（夸张）
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 29956#       发表于 2021-1-24 17:25
+
+
+
+
+第二把小狮子队吃了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29957#       发表于 2021-1-24 17:27
+
+
+
+ 本帖最后由 NBXX 于 2021-1-24 17:36 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/172657k6owwz6owtaozakf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124182642.png</strong> (261.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 17:26 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/173559qsghzqpadpcnclzg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124183529.png</strong> (415.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 17:35 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29958#       发表于 2021-1-24 17:28
+
+
+
+
+神成这把一人苟到第二  无敌啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 29959#       发表于 2021-1-24 17:31
+
+
+
+
+底边虹女逃脱不了被神田pua的命运<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 29960#       发表于 2021-1-24 17:32
+
+
+
+
+你虹这个时候还真是草的，自己人快递绝对只送自己人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29961#       发表于 2021-1-24 17:48
+
+
+
+ 本帖最后由 空集 于 2021-1-24 18:00 编辑 
+
+在毒圈里哭和 疯狂鬼叫 穿越传送门的OKS  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+苟到决赛圈六队 最后第三 在神成指挥下好强啊  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 29962#       发表于 2021-1-24 17:57
+
+
+
+
+虽然葛皇同接很好，可是这队发挥不太行啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 29963#       发表于 2021-1-24 18:02
+
+
+
+
+顺便虽然刚才看到击杀记录  bis star这把是被NSN灭了吧 好强 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 29964#       发表于 2021-1-24 18:02
+
+
+
+
+郡道美玲，又是你拉跨！！
+
+但OKS这局不错啊！三人一起的三位！
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 29965#       发表于 2021-1-24 18:05
+
+
+
+
+小千还是急了点
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 29966#       发表于 2021-1-24 18:10
+
+
+
+ 本帖最后由 NBXX 于 2021-1-24 18:11 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/180926wk1keod1xefmiows.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124190904.png</strong> (264.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 18:09 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/24/181136srd8rsxsdr8sl0zw.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210124191039.png</strong> (472.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 18:11 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 29967#       发表于 2021-1-24 18:11
+
+
+
+
+这排名 第一页前7名 女V远大于男V 是不是说明阴盛阳衰 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 29968#       发表于 2021-1-24 18:13
+
+
+
+
+男人同接赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 

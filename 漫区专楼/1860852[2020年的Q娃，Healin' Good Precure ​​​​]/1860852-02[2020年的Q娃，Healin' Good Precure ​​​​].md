@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-10 06:38** 
+> ## **本文件最后更新于2021-01-24 10:10** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_IC6Jz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_fDRbW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_E33tn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Lwm8m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -22252,7 +22252,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_RFhcI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_U0G9f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -25735,4 +25735,450 @@ OST2的某些曲子让我想起小时候看的奥特曼</blockquote>
 
 
 
-   
+
+
+-----
+
+####  粉儿alice  
+##### 2885#       发表于 2021-1-10 14:39
+
+
+
+
+这几年boss能不能不low点
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2886#       发表于 2021-1-11 08:50
+
+
+
+
+女干部是被支走了，正太就一直看戏？看这架势男干部也不是最终boss么
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 2887#       发表于 2021-1-11 10:24
+
+
+
+
+一般来讲古艾瓦路才像是被背刺的那个吧....达鲁伊森你为什么只是看着OMO
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2888#       发表于 2021-1-17 13:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">感觉接下来要么是古埃瓦吸了病幻王要么就是达鲁伊森去，集数也没多少了啊
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 2889#       发表于 2021-1-17 14:38
+
+
+
+
+怀疑下集那一团是辛多伊奈，古埃瓦要被橄榄
+另外这集脚本好会，推民怎么说来着，思春期男子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 2890#       发表于 2021-1-17 18:52
+
+
+
+
+开始还以为古埃瓦是傻大个缺心眼，没想到也是在搞计谋。不过看起来这也是炮灰，我猜小哥能挺到最后，类似Close那样和和佳最终回一对一
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2891#       发表于 2021-1-17 19:22
+
+
+
+
+还有几集啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 2892#       发表于 2021-1-17 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50065263&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2021-1-17 19:22</a>
+
+还有几集啊。</blockquote>
+到下个月尾才能看新Q娃
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2893#       发表于 2021-1-17 20:22
+
+
+
+<blockquote>傲娇的章鱼 发表于 2021-1-17 19:22
+还有几集啊。</blockquote>
+45集就结局，不剩几集了
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2894#       发表于 2021-1-18 01:28
+
+
+
+
+看预告估计还是病根王逆袭吧，正太和女干部估计还是能洗白或者起码有个好结局
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2895#       发表于 2021-1-21 19:42
+
+
+
+
+德鲁伊森要和佳救他，和佳拒绝了
+<img src="http://wx3.sinaimg.cn/mw690/71f87cc0ly1gmv6u410qbj20hs12pgms.jpg" referrerpolicy="no-referrer">
+
+事后和佳自责觉得自己太自私和病根子没两样，然后德鲁伊森开始找办法进化……
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2896#       发表于 2021-1-22 07:34
+
+
+
+
+这展开……
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2897#       发表于 2021-1-22 18:56
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gmwhcxlzw3j20u016iniw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2898#       发表于 2021-1-22 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105311&amp;ptid=1860852" target="_blank">HGCG 发表于 2021-1-21 19:42</a>
+
+德鲁伊森要和佳救他，和佳拒绝了
+
+
+事后和佳自责觉得自己太自私和病根子没两样，然后德鲁伊森开始找办法进化 ...</blockquote>
+这展开让我只想打问号？？？创新幅度是不是有点大
+
+
+
+
+
+
+
+-----
+
+####  liu2000310  
+##### 2899#       发表于 2021-1-24 10:08
+
+
+
+
+今天这剧情，要是达鲁伊森就这么被进化了我觉得愈q这后期简直是个灾难，中期和佳的觉悟简直是在自己骗自己。反派割裂感严重，这达鲁伊森上话还计划通这话直接被吓跑了，下话要是被净化了就太有麦基利斯那味了
+
+
+
+
+
+
+
+-----
+
+####  liu2000310  
+##### 2900#       发表于 2021-1-24 10:08
+
+
+
+
+今天这剧情，要是达鲁伊森就这么被进化了我觉得愈q这后期简直是个灾难，中期和佳的觉悟简直是在自己骗自己。反派割裂感严重，这达鲁伊森上话还计划通这话直接被吓跑了，下话要是被净化了就太有麦基利斯那味了
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2901#       发表于 2021-1-24 10:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怕不是剧情中途改了？
+
+
+
+
+
+
+
+-----
+
+####  叛逆之双子星  
+##### 2902#       发表于 2021-1-24 10:41
+
+
+
+
+按照某婆罗门的逻辑，隔年一部神作，闪Q星Q是屎，法Q抱Q是神作，那HG当然也是神作啊，后者我深感认同，望某些大友不要自作多情乱婊。
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 2903#       发表于 2021-1-24 11:00
+
+
+
+
+以为正太在大气层，结果其实在负一层，直接打算回娘胎，真的可以
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2904#       发表于 2021-1-24 11:15
+
+
+
+
+对了
+
+新的剧场版没有灯了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2905#       发表于 2021-1-24 12:27
+
+
+
+
+这是什么神经病展开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2906#       发表于 2021-1-24 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">跟我想的反过来还行，达鲁伊森这给直接吓怕了我是没想到的
+
+总觉得跟奸笑那样到最后一集还在吃瘪，然后机械降神秒了病幻王
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2907#       发表于 2021-1-24 13:04
+
+
+
+
+正太之前几集还一切尽在掌握，这一集直接坠到谷底，虽然这个展开也很老套就是了。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2908#       发表于 2021-1-24 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50129074&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2021-1-24 10:26</a>
+
+怕不是剧情中途改了？</blockquote>
+剧情肯定改了，毕竟总集数都改了
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2909#       发表于 2021-1-24 14:03
+
+
+
+
+就怕搞出比去年原谅和自爆还离谱的骚操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 2910#       发表于 2021-1-24 14:54
+
+
+
+
+居然品出了一丝Byogen Lives Matter的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2911#       发表于 2021-1-24 17:11
+
+
+
+
+达鲁伊森最后会不会变成灭活疫苗同和佳合体然后去打病根王呢？
+
+
+
+
+
+  
