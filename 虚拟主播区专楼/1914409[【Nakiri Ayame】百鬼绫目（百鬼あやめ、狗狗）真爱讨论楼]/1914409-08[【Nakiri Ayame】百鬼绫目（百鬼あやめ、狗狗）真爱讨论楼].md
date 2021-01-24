@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-23 13:12** 
+> ## **本文件最后更新于2021-01-24 03:34** 
 
 
 
@@ -9367,4 +9367,466 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 
 
 
-                                
+
+
+-----
+
+####  stedckk  
+##### 11014#       发表于 2021-1-23 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样是打完比赛很不甘心的，马自立的实际行动比绫总强多了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11015#       发表于 2021-1-23 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜这次马自立那队和萝卜子那队都要比绫总这队排名高，所以到底是谁最菜最拖后腿不用多说了吧。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11016#       发表于 2021-1-23 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">简直惨不忍睹
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11017#       发表于 2021-1-23 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50126348&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-1-23 21:51</a>
+
+我猜这次马自立那队和萝卜子那队都要比绫总这队排名高，所以到底是谁最菜最拖后腿不用多说了吧。 ...</blockquote>
+那是肯定的，祭那一隊默契好太多。
+
+狐那邊本來不平衡，但狐有一點好，知道自己定位，當狗就當狗，乖乖讓大師接管比賽。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11018#       发表于 2021-1-23 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打这种有指挥的队伍比赛根本没有能对枪的能力，战场快递员
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11019#       发表于 2021-1-23 22:23
+
+
+
+ 本帖最后由 stedckk 于 2021-1-23 22:24 编辑 
+
+比赛大家都苟圈，绫总那队根本没有指挥的感觉，一点默契都没有，就是乱逛，黄泉感觉也就枪准一点，但是对比赛什么的也完全没有思路。
+
+现在基本上就是遇人就团灭，然后又是气氛异常沉默，ob别人的时候基本就只有黄泉和绫总在尬聊，傻紫都不怎么说话了。
+
+我以为上次这么难受绫总会吸取教训，结果还是那鬼样，可能绫总自带冷场技能吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11020#       发表于 2021-1-23 22:33
+
+
+
+
+聚是一坨屎，散是…………<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11021#       发表于 2021-1-23 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好意思，别人都好起来了，只有绫总还是那鬼样。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11022#       发表于 2021-1-23 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">打完这场大会就该永久卸载apex了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11023#       发表于 2021-1-23 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死，绫总自信送头，3打2还打不赢。
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 11024#       发表于 2021-1-23 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">该哭了该哭了，傻紫，我的傻紫
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11025#       发表于 2021-1-23 22:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">还有6千人在看，真难为他们了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11026#       发表于 2021-1-23 23:03
+
+
+
+
+我已经跑去看小千那边了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11027#       发表于 2021-1-23 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你做得好
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11028#       发表于 2021-1-23 23:11
+
+
+
+
+她们三个溜了啊，好醒目的空缺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11029#       发表于 2021-1-23 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">耻辱下播，每次差不多都是搜索五分钟，ob20分钟，感觉每一场比赛都是煎熬，赶紧洗洗睡吧。
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11030#       发表于 2021-1-23 23:31
+
+
+
+
+氣到不打友誼賽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11031#       发表于 2021-1-23 23:52
+
+
+
+
+†魔幽鬼†的幕间无主题乱扯淡聊天比她们打枪好看<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+高情商：有没有考虑过开一台杂谈コラボ
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11032#       发表于 2021-1-24 08:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一边是不学不练不听指挥，另一边是遇人就死技能人物啥的都还没清楚，哪个大腿来都救不了这两位大佬。
+
+我猜傻紫可能是被强行拉来的，一幅完全不感兴趣的样子，如果队友是大天使或许她还会下点功夫。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我估计绫总平时开黑打lol也是这样的吧，只能你们来配合好我，我打得不好不能说我，也不能指挥我，我爱怎么玩就怎么玩。
+
+
+
+
+
+
+
+-----
+
+####  Vindicator  
+##### 11033#       发表于 2021-1-24 09:13
+
+
+
+
+卧槽昨天的直播私享了么？
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11034#       发表于 2021-1-24 09:29
+
+
+
+
+隐藏了，心态已经崩了吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11035#       发表于 2021-1-24 10:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">昨天大部分时间都是遇人就死一直在观战，不崩就怪了，同接从一万多降到六千多跑了近一半人已经说明这直播有多难看了。
+
+所以说真不懂她干嘛要参赛，这不是跟上次一样吗，打的难受，看的也难受。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11036#       发表于 2021-1-24 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无法理解，打过一次了就应该对自己实力有点数了，结果还参加
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11037#       发表于 2021-1-24 10:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这是实力的问题吗？夏哥、萝卜子、狐狸她们不都打得有模有样。
+
+这次大会为了平衡实力已经限制每队只能有一个大腿了，或者3个比较平均的，她们落地就死根本就是态度问题，不学不练能好才怪呢。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11038#       发表于 2021-1-24 10:55
+
+
+
+
+社恐desu 已经尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11039#       发表于 2021-1-24 11:00
+
+
+
+
+稍微动一下脑子学点意识都不至于这样 就她那为了人头 击倒一个就无脑往护盾正面上一顿糊 这种队友我都要开骂了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11040#       发表于 2021-1-24 11:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打了这么久，意识 枪法毫无长进也是独一份了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11041#       发表于 2021-1-24 11:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">lol不也玩了很久了，一样菜到无语。
+
+而且打枪这类型的游戏要一直玩才能保持状态的，玩一阵又放一阵，肯定不会有什么长进。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">她又不是大天使那种游戏天赋比较高的人，真要想进步只有两个方法
+
+要不多看看别人会玩的是怎么玩的研究一下，要不就找个师傅好好接受教育，然而 绫总这两种都不会去做的。
+
+
+
+
+
+                               
