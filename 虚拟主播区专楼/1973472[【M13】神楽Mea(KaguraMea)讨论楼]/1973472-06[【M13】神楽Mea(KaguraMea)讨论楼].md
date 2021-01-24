@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-23 13:21** 
+> ## **本文件最后更新于2021-01-24 05:18** 
 
 
 
@@ -4641,4 +4641,499 @@ miyuki溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 
 
-                                        
+
+
+-----
+
+####  Joffre✔  
+##### 7776#       发表于 2021-1-23 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125899&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-1-23 21:02</a>
+
+18年的直播 有这虽然模糊但能动的画面
+
+20年的直播 只有一张图</blockquote>
+再往前的直播还有手有腿呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 越来越退化了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7777#       发表于 2021-1-23 22:09
+
+
+
+
+啊啊啊啊啊好精神啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7778#       发表于 2021-1-23 22:22
+
+
+
+
+迪士尼曲连发她不怕直播突然被ban了吗（）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7779#       发表于 2021-1-23 22:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">该汗她一起合唱again力
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 7780#       发表于 2021-1-23 22:37
+
+
+
+
+转播还挺卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7781#       发表于 2021-1-23 22:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7782#       发表于 2021-1-23 22:57
+
+
+
+ 本帖最后由 十九号大侠 于 2021-1-23 23:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">咩咩，早晚嫁给我
+
+
+
+
+
+
+
+-----
+
+####  wwwwwssjwb  
+##### 7783#       发表于 2021-1-23 23:30
+
+
+
+
+希望是个好男人
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7784#       发表于 2021-1-23 23:36
+
+
+
+
+咩宝不喜欢男人的（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7785#       发表于 2021-1-23 23:38
+
+
+
+
+不错，喜欢我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7786#       发表于 2021-1-24 00:08
+
+
+
+
+这曲子之前没听过呢
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7787#       发表于 2021-1-24 00:30
+
+
+
+
+唱了一堆抒情曲催眠最后放一个嗨曲收尾还行
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7788#       发表于 2021-1-24 00:32
+
+
+
+
+就不想让你好睡 睡眠剥夺惩罚
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7789#       发表于 2021-1-24 00:36
+
+
+
+
+想rua她想抱她想看她笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7790#       发表于 2021-1-24 00:48
+
+
+
+
+她今年开年以后感觉心情都一直很好,希望这一年顺利点吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7791#       发表于 2021-1-24 00:51
+
+
+
+
+明天live之后还有盒限，可能时间会来不及勃了
+
+
+精神好时候的直播看着真舒服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">（就是有点媚宅
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7792#       发表于 2021-1-24 01:08
+
+
+
+
+神经病 不媚宅你养她啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 7793#       发表于 2021-1-24 01:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我养 我养
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7794#       发表于 2021-1-24 01:11
+
+
+
+
+养我 养我
+
+
+
+
+
+
+
+-----
+
+####  vegetable  
+##### 7795#       发表于 2021-1-24 01:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50127675&amp;ptid=1973472" target="_blank">黒長直姫 发表于 2021-1-24 01:08</a>
+
+神经病 不媚宅你养她啊
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+还有这种好事？
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 7796#       发表于 2021-1-24 01:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">养，都可以养
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7797#       发表于 2021-1-24 08:32
+
+
+
+
+昨晚被灌了一晚上酒没看到<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 明明预判了10点有播
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7798#       发表于 2021-1-24 08:55
+
+
+
+
+是小麻在陪酒吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7799#       发表于 2021-1-24 10:00
+
+
+
+
+20210124东京6点
+
+<img src="https://img.saraba1st.com/forum/202101/24/095956s0u87xj79y800nyz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CC30ED47-3A44-445D-AD75-1B739939AC4F.jpeg</strong> (182.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 09:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7800#       发表于 2021-1-24 11:57
+
+
+
+
+今天几点来着？cst7点吗
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 7801#       发表于 2021-1-24 12:06
+
+
+
+
+20210124东京6点
+
+<img src="https://img.saraba1st.com/forum/202101/24/120608ezrrz8x9s55x80a3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>37A092D1-174B-438E-AD7F-10DC925B9D55.jpeg</strong> (180.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-24 12:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7802#       发表于 2021-1-24 12:07
+
+
+
+<blockquote>Mr.shelter 发表于 2021-1-24 11:57
+今天几点来着？cst7点吗</blockquote>
+北京晚7点
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+                                       
