@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 11:12** 
+> ## **本文件最后更新于2021-01-25 14:13** 
 
 
 
@@ -10510,4 +10510,468 @@ GON没有垫底风险了
 
 
 
-                              
+
+
+-----
+
+####  stedckk  
+##### 11081#       发表于 2021-1-24 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两边都是杏，一边是狐皇她们，一边是杏星队
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11082#       发表于 2021-1-24 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了，tms排16拿电脑
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11083#       发表于 2021-1-24 19:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输的彻底
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11084#       发表于 2021-1-24 19:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行吧，正赛比想象中的好，没有上次那样死人般的氛围，绫总也有高光过。
+
+不过大赢家还是tms
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11085#       发表于 2021-1-24 19:31
+
+
+
+
+不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11086#       发表于 2021-1-24 20:19
+
+
+
+
+“下次会更加努力”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11087#       发表于 2021-1-24 20:35
+
+
+
+ 本帖最后由 stedckk 于 2021-1-24 20:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">还敢有下次？
+
+还说努力后有成果，你们到底努力了啥。。。
+
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11088#       发表于 2021-1-24 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">还有下次
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11089#       发表于 2021-1-24 21:24
+
+
+
+
+行吧...下次就下次吧，雖然按理來說，你老人家百忙之中抽空練習，下次應該不想再參加才對吧
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11090#       发表于 2021-1-24 22:43
+
+
+
+
+绫总脸皮也变厚了，下次再来怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11091#       发表于 2021-1-24 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次后夜祭也不参加，真不知道她们有什么好忙的。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11092#       发表于 2021-1-24 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">现在才吃饭。。。
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11093#       发表于 2021-1-24 23:36
+
+
+
+
+忙着吃饭没想到吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11094#       发表于 2021-1-25 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">咋地，绫总也要来个会限哭哭嘛
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11095#       发表于 2021-1-25 12:07
+
+
+
+
+挺开心的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+还会逗百鬼众玩了
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11096#       发表于 2021-1-25 14:41
+
+
+
+
+别演了别演了，比赛打完赶紧卸游戏啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11097#       发表于 2021-1-25 15:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白银局也能炫耀的吗。。。。
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11098#       发表于 2021-1-25 16:13
+
+
+
+
+绫总的行动模式还不好懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+比赛被锤烂就要人夸夸她啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11099#       发表于 2021-1-25 19:46
+
+
+
+
+这路人id都不打码了 大概以前的都是跟野男人开黑的心虚吧<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11100#       发表于 2021-1-25 21:06
+
+
+
+
+开幕大脸跟谁学的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11101#       发表于 2021-1-25 21:17
+
+
+
+
+好大的脑袋
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11102#       发表于 2021-1-25 21:24
+
+
+
+
+怎么还有推荐GBF的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11103#       发表于 2021-1-25 21:26
+
+
+
+
+你说氪金我可就不困了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11104#       发表于 2021-1-25 21:29
+
+
+
+
+太宅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11105#       发表于 2021-1-25 21:47
+
+
+
+
+怎么老有人问还玩不玩lol<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11106#       发表于 2021-1-25 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">anti都是anti
+
+净说些不能播的游戏
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11107#       发表于 2021-1-25 22:03
+
+
+
+
+绫总是最后一个决定进队的啊 好甩锅<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11108#       发表于 2021-1-25 22:10
+
+
+
+
+说了一堆 根本原因还是不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                             
