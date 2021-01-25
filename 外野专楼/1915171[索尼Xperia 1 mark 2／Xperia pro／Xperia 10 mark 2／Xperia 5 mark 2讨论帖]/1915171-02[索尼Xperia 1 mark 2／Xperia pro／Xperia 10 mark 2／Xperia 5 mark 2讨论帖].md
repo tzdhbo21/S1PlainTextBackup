@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-15 12:05** 
+> ## **本文件最后更新于2021-01-25 13:16** 
 
 
 
@@ -1252,16 +1252,7 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ####  tsounaiq  
 ##### 1556#       发表于 2020-10-19 11:56
 
-
-
-
-大法淮海路店的销售说5.2不支持移动5G，是反贼吧
-
-— from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1292,21 +1283,7 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ####  tsounaiq  
 ##### 1558#       发表于 2020-10-19 13:29
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49087777&amp;ptid=1915171" target="_blank">asakura20005 发表于 2020-10-19 12:26</a>
-
-貌似5m2目前只支持联通，电信nsa，不支持三网sa，以后会通过ota推送
-
-
-—— 来自 OnePlus IN2020, Android ...</blockquote>
-我看zack的回复
-
-Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持一个移动 NSA 5G，移动 SA 5G 及另外两家 5G 都可以正常使用。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1885,16 +1862,7 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ####  tsounaiq  
 ##### 1585#       发表于 2020-10-20 10:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49098391&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-20 09:38</a>
-
-店里的机模是塑料背壳，实机是玻璃的哦</blockquote>
-？？？磨砂黑背板是玻璃？不是金属吗
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8191,20 +8159,7 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ####  tsounaiq  
 ##### 1894#       发表于 2020-11-8 20:03
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49321839&amp;ptid=1915171" target="_blank">happyliuhao 发表于 2020-11-8 17:29</a>
-试了试好像华为的充电器没法给52充电？
-
-
-----发送自 HUAWEI TAS-AN00,Android 10</blockquote>
-华为USB c线的问题
-
-— from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12207,4 +12162,643 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 
 
 
-                             
+
+
+-----
+
+####  leystage  
+##### 2102#       发表于 2021-1-15 22:12
+
+
+
+<blockquote>zzzeven 发表于 2021-1-15 19:27
+5II 你们有没有会在打开支付宝健康码，微信小程序这些应用时候，奇卡无比，要缓个几秒才能加载出来？ ...</blockquote>
+有个其他的问题，我发现我的马克兔微信随申办的实名认证每周都会过期要重新扫人脸识别，感觉是 bug 啊…
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2103#       发表于 2021-1-16 07:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046293&amp;ptid=1915171" target="_blank">zzzeven 发表于 2021-1-15 19:27</a>
+
+5II 你们有没有会在打开支付宝健康码，微信小程序这些应用时候，奇卡无比，要缓个几秒才能加载出来？ ...</blockquote>
+要说反应慢的话最明显是qq，发图片打开图片选取view的时候，那个图片要隔10秒才能选中。
+
+偶很多很旧的机子也不会如此。但如果将图片网上拉的话就能立刻发出去。
+
+不过如果想先编辑的话必须得等10秒。
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2104#       发表于 2021-1-16 07:46
+
+
+
+ 本帖最后由 oskneo 于 2021-1-16 07:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50039043&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-1-15 04:36</a>
+
+888既然这代这个样子，那么也没必要着急上MK2吧。
+
+
+可以预见到的是，如果照这个节奏下去，MK Ⅳ Mk Ⅴ MKⅥ ...</blockquote>
+怎么可能对索尼这么有信心。
+
+这台机子好的话，下台不行的几率很大。特别是888这么不行。
+
+不知道会否出半年改进款，像以前那801，805啥的，这样还可能有救。
+
+
+
+
+
+
+
+
+-----
+
+####  zzzeven  
+##### 2105#       发表于 2021-1-16 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50049507&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-1-16 07:45</a>
+要说反应慢的话最明显是qq，发图片打开图片选取view的时候，那个图片要隔10秒才能选中。
+
+偶很多很旧的机 ...</blockquote>
+看来有些app卡顿不是我一个人问题，我以为是个案呢
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2106#       发表于 2021-1-16 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046293&amp;ptid=1915171" target="_blank">zzzeven 发表于 2021-1-15 19:27</a>
+
+5II 你们有没有会在打开支付宝健康码，微信小程序这些应用时候，奇卡无比，要缓个几秒才能加载出来？ ...</blockquote>
+我是在打开QQ小程序，比如查看编辑共享文档的时候，奇慢无比
+
+
+
+
+
+
+
+-----
+
+####  没有未来的未来  
+##### 2107#       发表于 2021-1-16 18:56
+
+
+
+
+我xzp也这样…
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2108#       发表于 2021-1-16 20:21
+
+
+
+
+妹妹收到了 1m2，从 XZ3 升级上来。对外形和灰紫色镜面赞不绝口。对性能和相机满意。对大容量满意，之前手机64G存储常年被微信空间占满没法新安装程序很烦。对主界面功能全没了甚至不能抽屉中快速合并文件夹不满，在我建议下换了微软桌面，比较满意。对索尼相册缺失不满，但对 Google 相册有回收站满意。总体来讲很满足。
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2109#       发表于 2021-1-17 02:16
+
+
+
+
+马克兔最高支持多少w的快充？还是PD协议吗？网上搜了一下，好像没有很清晰的说法，想再买一个第三方的充电器
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2110#       发表于 2021-1-17 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50058828&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-1-17 02:16</a>
+马克兔最高支持多少w的快充？还是PD协议吗？网上搜了一下，好像没有很清晰的说法，想再买一个第三方的充电 ...</blockquote>
+18wpd
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Betalo  
+##### 2111#       发表于 2021-1-17 14:50
+
+
+
+
+有朋友的国行1马克兔前阵子OTA了吗？我OTA完后，发现NFC残了，之前能用微信qq读公交卡的。更重要的是：GPS无法导航了，地图软件定位正常，但一旦进入导航10秒以上，就提示GPS信号弱了。这是不是该系统版本的问题，现在恢复出厂无法解决问题，我还找不到国行初版固件。。。
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2112#       发表于 2021-1-17 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50054562&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-1-16 18:56</a>
+我xzp也这样…</blockquote>
+xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了鹅球
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2113#       发表于 2021-1-17 19:09
+
+
+
+<blockquote>引用第2111楼oskneo于2021-01-17 18:48发表的  :
+
+引用:没有未来的未来 发表于 2021-1-16 18:56我xzp也这样…xzp末期简直了，所有第......</blockquote>
+我那个z3都没这样 ……你们怎么用手机的啊 
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2114#       发表于 2021-1-18 09:00
+
+
+
+<blockquote>引用第2110楼Betalo于2021-01-17 14:50发表的  :
+
+有朋友的国行1马克兔前阵子OTA了吗？我OTA完后，发现NFC残了，之前能用微信qq读公交卡的。更重......</blockquote>
+国行固件前几页就有啊 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  闪光的萝蕾娜  
+##### 2115#       发表于 2021-1-21 10:51
+
+
+
+
+问一下，上下扬声器里面脏该怎么清理
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2116#       发表于 2021-1-21 11:06
+
+
+
+<blockquote>闪光的萝蕾娜 发表于 2021-1-21 10:51
+问一下，上下扬声器里面脏该怎么清理
+
+
+—— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+我用的是多年前买显示器时商家送的扁平的软刷，正好可以扫各种缝隙
+
+
+
+
+
+
+
+-----
+
+####  没有未来的未来  
+##### 2117#       发表于 2021-1-22 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064922&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-1-17 18:48</a>
+xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了鹅球
+
+— from Sony XQ-AT52, Android 10 of S ...</blockquote>
+都是流氓软件的错<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jaord  
+##### 2118#       发表于 2021-1-22 15:31
+
+
+
+
+买了1马克兔，看了下评论，官方那个手机壳不支持无线充电，那么有支持无线充电的手机壳推荐么？
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2119#       发表于 2021-1-22 21:42
+
+
+
+ 本帖最后由 Cray 于 2021-1-22 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50113314&amp;ptid=1915171" target="_blank">jaord 发表于 2021-1-22 15:31</a>
+
+买了1马克兔，看了下评论，官方那个手机壳不支持无线充电，那么有支持无线充电的手机壳推荐么？ ...</blockquote>
+是个塑料的就支持啊
+
+
+
+评论那个8成线圈没对准。。
+
+
+我看了下是WCH20。。。这个东西给索半斤xz2p用都有点小问题。都18年的老货了。
+
+
+再说线圈贴歪了就会有点问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2120#       发表于 2021-1-22 22:10
+
+
+
+
+想给5兔买个充电器放办公室用，有啥推荐的么？
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2121#       发表于 2021-1-23 14:25
+
+
+
+<blockquote>引用第2119楼wizardasd于2021-01-22 22:10发表的  :
+
+想给5兔买个充电器放办公室用，有啥推荐的么？—— 来自 Sony XQ-AS72, Android ......</blockquote>
+最大21w
+
+支持PD快充的都能买，不在乎体积就紫米咯。
+我有个安克的mini，蛮小的。
+
+苹果的那些也可以直接用。
+
+不要直接买65w的那种，会打火。
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2122#       发表于 2021-1-23 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50122856&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-23 14:25</a>
+
+最大21w
+
+
+支持PD快充的都能买，不在乎体积就紫米咯。</blockquote>
+打火这么可怕……
+
+反正放办公室固定用，体积无所谓
+
+看了下，紫米的1A1C 30w感觉还不错，还能给mini5一起用
+
+虽说单口20w也能用，不过还要插拔线就有点麻烦了……
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2123#       发表于 2021-1-23 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50110025&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-1-22 10:22</a>
+都是流氓软件的错</blockquote>
+要说流氓估计就qq一个，游戏更是没。支付宝淘宝在平板上。
+第一方和额球顺畅度还好，第三方app开了后也顺畅，啥原理完全不懂
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Milkyway  
+##### 2124#       发表于 2021-1-24 19:48
+
+
+
+
+入手5m2了，求推壳膜
+
+顺便问下底部的搜索栏怎么移除啊？
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2125#       发表于 2021-1-24 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50049507&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-1-16 07:45</a>
+
+要说反应慢的话最明显是qq，发图片打开图片选取view的时候，那个图片要隔10秒才能选中。
+
+偶很多很旧的机 ...</blockquote>
+5ii没有 我试了下 丝般顺滑
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2126#       发表于 2021-1-24 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50133286&amp;ptid=1915171" target="_blank">Milkyway 发表于 2021-1-24 19:48</a>
+
+入手5m2了，求推壳膜
+
+顺便问下底部的搜索栏怎么移除啊？</blockquote>
+cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚是厚了点 不过手感是真的好
+
+
+百度？停用就好
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Milkyway| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2127#       发表于 2021-1-24 21:02
+
+
+
+<blockquote>Milkyway 发表于 2021-1-24 19:48
+入手5m2了，求推壳膜
+
+顺便问下底部的搜索栏怎么移除啊？</blockquote>
+长按主屏幕空处，在设置里有一个选项可以关闭
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Milkyway| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2128#       发表于 2021-1-25 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50133918&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-24 21:02</a>
+
+cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚是厚了点 不过手感是真的好
+
+
+百度？停用就好 ...</blockquote>
+有没有好用的背膜推荐？不想戴套但是玻璃还是挺容易花的啊。
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2129#       发表于 2021-1-25 17:14
+
+
+
+
+想起来我百度直接给删了  难怪找不到 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2130#       发表于 2021-1-25 17:16
+
+
+
+<blockquote>引用第2127楼无印凉粉于2021-01-25 10:46发表的  :
+
+引用:Cray 发表于 2021-1-24 21:02cawa的膜边缘做了弧度   壳就买渣渣出的那......</blockquote>
+可以随便找个DIY店做一个吧  3M背胶的那种不怕热。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2131#       发表于 2021-1-25 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">话说你们用有没有那种信号显示卡死，没法上网打电话的情况。每次都要开关飞行模式来解决。
+而且每次都是两张卡一起出现，volte的图标也一起没了
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                            

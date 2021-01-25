@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 03:38** 
+> ## **本文件最后更新于2021-01-25 13:19** 
 
 
 
@@ -7114,4 +7114,497 @@ belibelicute
 
 
 
-                                   
+
+
+-----
+
+####  时雨rain  
+##### 7922#       发表于 2021-1-25 14:53
+
+
+
+
+这双马尾想抓着玩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7923#       发表于 2021-1-25 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50140275&amp;ptid=1973472" target="_blank">时雨rain 发表于 2021-1-25 14:53</a>
+这双马尾想抓着玩</blockquote>
+油条双马尾就不想抓了吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7924#       发表于 2021-1-25 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50140401&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-1-25 15:06</a>
+
+油条双马尾就不想抓了吗</blockquote>
+腻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+想帮她把那麻花辫辫完<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7925#       发表于 2021-1-25 15:20
+
+
+
+
+不洗头，双马尾一定很油吧
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7926#       发表于 2021-1-25 15:38
+
+
+
+
+炸麻油
+
+
+
+
+
+
+
+-----
+
+####  黑皇帝  
+##### 7927#       发表于 2021-1-25 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50137756&amp;ptid=1973472" target="_blank">草牛 发表于 2021-1-25 10:20</a>
+
+神乐mea吧贴票据领录播，昨晚没时间的可以看一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我怎么在贴吧只找到了领live录播的，到底哪里能弄到昨天的同步试听录播啊<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 7928#       发表于 2021-1-25 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉比live版萌音捏的更尖是错觉吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7929#       发表于 2021-1-25 17:07
+
+
+
+
+萌萌加特林<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 7930#       发表于 2021-1-25 17:15
+
+
+
+ 本帖最后由 青春银河 于 2021-1-25 17:34 编辑 
+
+感觉还是直接唱好听
+
+刚才上的404，上阿b听了听怎么感觉音质比404还好草
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 7931#       发表于 2021-1-25 17:17
+
+
+
+
+嗯？感觉live上的好听一点
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7932#       发表于 2021-1-25 17:30
+
+
+
+
+live好听+1 
+
+这个感觉听着尖尖的 不耐听
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7933#       发表于 2021-1-25 17:32
+
+
+
+
+毕竟是经典拉跨mix 感觉比live要吵 不过小麻就好这口也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7934#       发表于 2021-1-25 17:34
+
+
+
+
+所以我昨天听咩说这套极光服是她选的才感到震惊啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7935#       发表于 2021-1-25 17:44
+
+
+
+
+海苔男你开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7936#       发表于 2021-1-25 18:15
+
+
+
+
+这黄油既视感过于强烈，你说你麻有马甲做过黄油或者里番配音我都信好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7937#       发表于 2021-1-25 18:22
+
+
+
+
+这人看过玩过的黄油又不少，照葫芦画瓢还不会嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7938#       发表于 2021-1-25 18:22
+
+
+
+
+麻里番在哪里，群友找到了私聊给我，价钱好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7939#       发表于 2021-1-25 18:28
+
+
+
+
+突然想到新的孩子会出现。。。。希望是黄毛
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7940#       发表于 2021-1-25 18:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">风怒
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7941#       发表于 2021-1-25 18:45
+
+
+
+
+萌萌加特林实在太生草了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7942#       发表于 2021-1-25 19:14
+
+
+
+
+萌 萌 加 特 林！
+
+
+（很难绷的住
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7943#       发表于 2021-1-25 19:21
+
+
+
+
+有没有歌词朗诵企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7944#       发表于 2021-1-25 19:23
+
+
+
+
+可以把id改成歌词打sc让她念（）
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7945#       发表于 2021-1-25 19:33
+
+
+
+
+可是昨天咩自己就念叨好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 7946#       发表于 2021-1-25 19:34
+
+
+
+
+不是说今天还有个告知来着，就这么睡过去了？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 7947#       发表于 2021-1-25 19:43
+
+
+
+
+她说的是其它原创曲之后会陆续发表，不是今天有告知（阿b同传翻译错了）
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 7948#       发表于 2021-1-25 19:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">一想到新人有可能学苔苔带个男人
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7949#       发表于 2021-1-25 20:02
+
+
+
+
+真带男人就乐了 又可以看魔怔gachi破防小作文了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 7950#       发表于 2021-1-25 20:34
+
+
+
+
+她选的话确实是一反常态的卖肉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然对比业界还差得远<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7951#       发表于 2021-1-25 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">如果有麻图，就算是男人
+
+
+
+
+
+                                  

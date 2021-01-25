@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 08:13** 
+> ## **本文件最后更新于2021-01-25 13:18** 
 
 
 
@@ -2355,10 +2355,11 @@ qs，管你是什么内容只要是木口的内容直接一刀切，你不关注
 
 
 
+ 本帖最后由 caupollen 于 2021-1-25 16:14 编辑 
 
 b站holo视频举报的最欢的不是4v杏奴吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
-组团干活的
+巴哈那群初高中生整天关注B站各种动向着干活呢
 
 
 
@@ -2373,13 +2374,519 @@ b站holo视频举报的最欢的不是4v杏奴吗<img src="https://static.saraba
 
 
 
+ 本帖最后由 保罗赫伯特 于 2021-1-25 16:16 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141165&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-25 16:09</a>
 
 当然最乐的还是因为925群情激愤让holo滚出去，结果到现在PXJ在一堆弯弯繁体海盗肉下面其乐融融，amazing。 ...</blockquote>
 两岸一家亲哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+也好理解，很多人是反蝗反杏管理层，但是不反其他杏的liver，本质还是杏仁。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+大陆杏仁旱4v杏仁相亲相爱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
 
 
-                                             
+
+
+
+-----
+
+####  mr.dragon  
+##### 30124#       发表于 2021-1-25 16:17
+
+
+
+
+草，b站推荐算法。首页全是杏的自觉去路灯啊。
+
+那些熟肉没删我也不奇怪，谁吃饱了撑的特意搜熟肉看完再举报啊。新时代的管人观众谁去搜木口哦。没人举报叔叔才懒得管。
+
+倒是这个视频估计因为木口相关被智能算法推给杏奴了，杏奴不举报一波才有鬼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30125#       发表于 2021-1-25 16:22
+
+
+
+
+0人这apex枪法还不如佐藤希呢，不想和misumi混了找个电子厂上班去好吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 30126#       发表于 2021-1-25 16:23
+
+
+
+
+b站推荐算法，你点嘉然也会给你推荐holo的
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30127#       发表于 2021-1-25 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想当杏奴直接屏蔽标签或者点几次不推荐选项就没了，没什么成本的
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但呆真的好烦啊，被放逐了还赖着不官宣走人
+
+跟B站互相卡违约金的事？
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 30128#       发表于 2021-1-25 16:25
+
+
+
+
+谁知道聚众的pxj们是不是消失的s1楼友穿上西装呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 30129#       发表于 2021-1-25 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141346&amp;ptid=1969498" target="_blank">坂田金时kin 发表于 2021-1-25 16:23</a>
+
+b站推荐算法，你点嘉然也会给你推荐holo的</blockquote>
+emmm那就不清楚了，木**炸后就没怎么看过木口视频，现在推给我的全是方舟、萌物和彩虹男人。
+
+不得不说虹男有点香
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30130#       发表于 2021-1-25 16:29
+
+
+
+
+BSYL：
+
+该抵制罗森了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30131#       发表于 2021-1-25 16:35
+
+
+
+
+月之不开会员的理由（简单来说就是担心自己差别化听众没法用平常心直播）果不其然被剪出来了，也果不其然被尬吹，
+滚啊！我命令月之立刻就开会员大搞正经asmr打脸看不起liver开会员的那群人，气死了，交钱能被月之区别对待不好吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30132#       发表于 2021-1-25 16:43
+
+
+
+
+官宣退出比官宣回旋还不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 30133#       发表于 2021-1-25 16:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+更离谱的是塔，润姨的塔天天给我推
+
+
+咪蕾直播看视频，网页端还给她推送一个佐藤希，直接让人愣住几秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 30134#       发表于 2021-1-25 16:53
+
+
+
+
+我外面看今天v区杀到第二还以为有什么大新闻，进来一看还是在这轮杏仁……
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30135#       发表于 2021-1-25 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141665&amp;ptid=1969498" target="_blank">Reimu853 发表于 2021-1-25 16:53</a>
+
+我外面看今天v区杀到第二还以为有什么大新闻，进来一看还是在这轮杏仁…… ...</blockquote>
+其实是兔皇搞了个大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 30136#       发表于 2021-1-25 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141715&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-25 16:56</a>
+其实是兔皇搞了个大新闻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到了，兔皇这是整了个好活
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30137#       发表于 2021-1-25 17:55
+
+
+
+
+感谢嘉殊P，终于有片看了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30138#       发表于 2021-1-25 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50140242&amp;ptid=1969498" target="_blank">vorastrix 发表于 2021-1-25 14:50</a>
+那关cn的站啥事儿啊？自己退出去了，哪儿来的约束力啊？孝不孝啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那你去开叔叔啊 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30139#       发表于 2021-1-25 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141270&amp;ptid=1969498" target="_blank">mr.dragon 发表于 2021-1-25 16:17</a>
+草，b站推荐算法。首页全是杏的自觉去路灯啊。
+
+那些熟肉没删我也不奇怪，谁吃饱了撑的特意搜熟肉看完再举报 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 说的好像以前就能整明白你到底看了没有 反正就一张嘴来回说，你在v综除了放屁也没说出过啥
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 30140#       发表于 2021-1-25 18:36
+
+
+
+
+拉下来一看原来v综这么多人天天在叔叔站吃二手屎的吗，不安
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 30141#       发表于 2021-1-25 18:41
+
+
+
+
+你楼现在也就车杏奴能有点活人声气了，快点死吧，嘻嘻。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 30142#       发表于 2021-1-25 18:53
+
+
+
+
+最后受伤的只有野兔子，明明这边都没剩几个了还要被别人当乐子看<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30143#       发表于 2021-1-25 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被当乐子看，还不是你们这群人不赶紧滚蛋么，随着你们的主子转进en去红迪好不好。
+
+把v综换给爱国的crew和ccll谢谢
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 30144#       发表于 2021-1-25 19:21
+
+
+
+
+虹迪是真的没意思好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30145#       发表于 2021-1-25 19:24
+
+
+
+
+彩虹怎么又开始宝可梦了，此风不可长。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30146#       发表于 2021-1-25 19:31
+
+
+
+
+最協決定戦の最後にこれだけは皆に伝えたい夏色まつり【ホロライブ切り抜き/夏色まつり】
+[https://www.youtube.com/watch?v=A_Ez_Y8VQ7g](https://www.youtube.com/watch?v=A_Ez_Y8VQ7g)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 30147#       发表于 2021-1-25 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141116&amp;ptid=1969498" target="_blank">离心 发表于 2021-01-25 16:05:55</a>
+对啊，杏奴多，杏奴不多的话各大论坛和b站到现在还会有影响？尼姑庵的杏讨论合集都已经到多少了？杏一有什 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是说，Ｖ综天天讨论杏内容，不知道还以为杏奴大本营在s1呢
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 30148#       发表于 2021-1-25 20:11
+
+
+
+
+v综是除crew外的杏仁，尼哥是crew杏仁，高下立判啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30149#       发表于 2021-1-25 20:38
+
+
+
+
+无法言喻的喜欢，歌也好合适（虽然郡道大概唱不来），啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">！！！！！在美图攻击下原谅了郡道晚上要搞apex杂谈
+
+
+（[https://twitter.com/jinusi822/status/1353673971288346625/photo/1](https://twitter.com/jinusi822/status/1353673971288346625/photo/1)）
+
+
+<img src="https://img.saraba1st.com/forum/202101/25/203715ltdcekca13qdctkt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>gngn.jpg</strong> (741.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-25 20:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30150#       发表于 2021-1-25 20:47
+
+
+
+
+看了一下夜见明天的任天堂工商又是和牛姨一起接的，本身她俩都是属于播的非常多但是sc全社垫底的那种类型，看来是终于入不敷出没钱了只能使劲接工商才能活了，有点惨
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 30151#       发表于 2021-1-25 21:17
+
+
+
+
+有些人是不带crew这词不会说话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            
