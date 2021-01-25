@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 05:16** 
+> ## **本文件最后更新于2021-01-25 08:13** 
 
 
 
@@ -1214,19 +1214,18 @@ cover怎么了
 
 -----
 
-####  kazuma  
-##### 30061#       发表于 2021-1-25 02:11
+####   匿名
+##### 30061#        匿名   发表于 2021-1-25 02:11
 
 
 
- 本帖最后由 kazuma 于 2021-1-25 02:15 编辑 
+ 本帖最后由 匿名 于 2021-1-25 15:54 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50136274&amp;ptid=1969498" target="_blank">斯城恶魔 发表于 2021-1-25 02:04</a>
 
 cover怎么了
 
 
 —— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
-
 
 
 
@@ -1996,4 +1995,391 @@ cnm，燃起来了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
-                                              
+
+
+-----
+
+####  TRW  
+##### 30101#       发表于 2021-1-25 13:57
+
+
+
+
+十几同接去顶着疫情开线下sololive，ickr是想弄死这最后的十几个人？
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 30102#       发表于 2021-1-25 14:16
+
+
+
+
+同接居然能有两位数的吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 30103#       发表于 2021-1-25 14:22
+
+
+
+
+绝了，大佐诉苦黑泥视频熟肉被哔哔汗莉莉nuke了
+
+这杏不都滚出cn了吗，还护着呢？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30104#       发表于 2021-1-25 14:23
+
+
+
+
+建议野兔子加大力度，封一传十<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 30105#       发表于 2021-1-25 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50139993&amp;ptid=1969498" target="_blank">vorastrix 发表于 2021-1-25 14:22</a>
+
+绝了，大佐诉苦黑泥视频熟肉被哔哔汗莉莉nuke了
+
+这杏不都滚出cn了吗，还护着呢？ ...</blockquote>
+兔子开头就说了不适合在直播讲，所以在会限人少的状态下讲，谢谢
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30106#       发表于 2021-1-25 14:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">都滚出去的企业，叔叔在护着啥呢
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 30107#       发表于 2021-1-25 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50140108&amp;ptid=1969498" target="_blank">admentus 发表于 2021-1-25 14:34</a>
+
+兔子开头就说了不适合在直播讲，所以在会限人少的状态下讲，谢谢</blockquote>
+那关cn的站啥事儿啊？自己退出去了，哪儿来的约束力啊？孝不孝啊？
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 30108#       发表于 2021-1-25 14:58
+
+
+
+
+就是，没约束力小陈还ban掉了，迷之操作，铁内鬼
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30109#       发表于 2021-1-25 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定还和他b有海外合作呢，谁知道。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  目力干员leison  
+##### 30110#       发表于 2021-1-25 15:08
+
+
+
+
+已经躺平挨打了，你们爱劈就劈吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30111#       发表于 2021-1-25 15:13
+
+
+
+
+不用遵守木口二创了，但是叔叔的规还是要守的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30112#       发表于 2021-1-25 15:15
+
+
+
+
+V综就别来“陈睿为什么不听我指挥”这套了吧
+
+
+
+
+
+
+
+-----
+
+####  mr.dragon  
+##### 30113#       发表于 2021-1-25 15:30
+
+
+
+
+我倒觉得pilipili没想那么多，估计哪个杏奴一举报叔叔一看是木口的内容都没看就直接删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 30114#       发表于 2021-1-25 15:34
+
+
+
+
+这不就是木口滚出cn的表现么，有什么关于杏的，一举报直接删
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 30115#       发表于 2021-1-25 15:35
+
+
+
+
+叔叔是很多个叔叔，而不是一个陈叔叔
+
+说不定举报多了，其中一个叔叔不高兴直接咔嚓了
+
+还给cover开什么后门？现在以礼来降，仍不失刀哥之位，站安民乐，岂不美哉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 30116#       发表于 2021-1-25 15:36
+
+
+
+
+qs，管你是什么内容只要是木口的内容直接一刀切，你不关注，我不关注。木口不就凉了？
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 30117#       发表于 2021-1-25 15:38
+
+
+
+
+是那样就好了，b站还一堆切片天天在我首页，"tmd烦死了"
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 30118#       发表于 2021-1-25 15:48
+
+
+
+
+看得多才会推吧，什么杏奴😥
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30119#       发表于 2021-1-25 15:49
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-25 15:55 编辑 
+
+还一刀切呢，昨天lamy的3D今天就一堆几万播放的切片也没人删啊，周日holo小动画油管发了隔天B站就有熟肉，国正中心杏奴多，PXJ深柜杏奴更多罢了。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 30120#       发表于 2021-1-25 16:05
+
+
+
+
+对啊，杏奴多，杏奴不多的话各大论坛和b站到现在还会有影响？尼姑庵的杏讨论合集都已经到多少了？杏一有什么事就发帖，不是宣传是什么？不是杏奴是什么？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30121#       发表于 2021-1-25 16:09
+
+
+
+
+当然最乐的还是因为925群情激愤让holo滚出去，结果到现在PXJ在一堆弯弯繁体海盗肉下面其乐融融，amazing。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30122#       发表于 2021-1-25 16:11
+
+
+
+
+b站holo视频举报的最欢的不是4v杏奴吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+组团干活的
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 30123#       发表于 2021-1-25 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141165&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-25 16:09</a>
+
+当然最乐的还是因为925群情激愤让holo滚出去，结果到现在PXJ在一堆弯弯繁体海盗肉下面其乐融融，amazing。 ...</blockquote>
+两岸一家亲哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                             
