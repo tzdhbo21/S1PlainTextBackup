@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-15 08:24** 
+> ## **本文件最后更新于2021-01-26 06:53** 
 
 
 
@@ -23616,4 +23616,605 @@ zemadao也没有草生
 
 
 
-      
+
+
+-----
+
+####  peh  
+##### 14792#       发表于 2021-1-15 21:21
+
+
+
+
+除了法武bb武，还要哪个必须200的吗？这两个都出了多久了啊..
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然骂这游戏阴间狗粮机制算我一个，还不知道之后天人150要怎么搞呢
+
+
+
+
+
+
+
+-----
+
+####  leeskies  
+##### 14793#       发表于 2021-1-17 02:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">从这次古战场可以看出 鬼灭真的带来了好多人
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14794#       发表于 2021-1-18 02:16
+
+
+
+
+endgame之后很多日课本是不产狗粮的 只打古战和剧情活动的箱子 经验杯子是会有缺口的
+
+倒是技狗 自从开了沙盒就告别缺口了(现在掉落ssr我已经全部拆掉换记忆了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+顺便什么时候人物强化也可以喂杯子啊 喂武器有点烦啊（不过这样好像卖不了金月书了）
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14795#       发表于 2021-1-18 06:56
+
+
+
+
+沙盒掉的没用的转世武和1.0太多了。技狗已经无所谓塞不塞狗粮了，直接吃就行。就是手动清起来真累
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 14796#       发表于 2021-1-19 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">刷够记忆也就15000欠片，天人终终突可要高达75000的欠片呢，鸡皮好像也就25000
+
+—— 来自 Xiaomi M2007J1SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 14797#       发表于 2021-1-20 11:49
+
+
+
+
+就这个150...昨天放弃一档开始摸鱼的决定果然是明智的
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14798#       发表于 2021-1-20 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">硬抬莉莉我是能想到了。我想不到1102也抬起来了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 14799#       发表于 2021-1-20 17:00
+
+
+
+
+打之前怎么都能预想到突破后的二姐打150是铁前排吧 db 暴击buff 突破后的技伤大炮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14800#       发表于 2021-1-20 17:52
+
+
+
+
+称不上是硬抬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14801#       发表于 2021-1-20 19:10
+
+
+
+
+1102那是欺负光没破格打手吧。毕竟我和路五五开。路都是1几年的lm了?虽然也上修过了。
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14802#       发表于 2021-1-20 19:29
+
+
+
+
+大家做2自然是看好她输出，你不看看有几个做1的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 14803#       发表于 2021-1-21 08:20
+
+
+
+
+路还不够破格啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  windhawind2  
+##### 14804#       发表于 2021-1-21 11:04
+
+
+
+
+可是路在150本算不上破格的打手啊 分分钟暴毙给你看1102好歹还有功能性 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14805#       发表于 2021-1-21 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50098917&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-1-21 08:20</a>
+路还不够破格啊
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+100路就有点吃不住了，150我干脆换了杂。
+
+1102我是没有这点我得承认
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 14806#       发表于 2021-1-21 11:18
+
+
+
+
+我看到的方阵带路3台作业都是假的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14807#       发表于 2021-1-21 11:33
+
+
+
+ 本帖最后由 areklose 于 2021-1-21 11:37 编辑 
+
+莉莉的本身强度真的不行，150能上主要是这boss的DB礼包，第二个原因是光没太多少强力的减豆角和FA净化角。种族限制不说，那个FC才触发的被动真是。。。至于1102。她是胜在有输出的基础上还有功能性上岗。但是即使如此打完这次团我也不会做1102。。
+
+不过这次团战缺啥让我觉得我自己低人一等的话，我选择微辣斧
+
+
+
+
+
+
+
+-----
+
+####  horacio  
+##### 14808#       发表于 2021-1-21 13:34
+
+
+
+
+维拉斧伤害又打不过六龙武，你是不知道2有多厉害，甚至上2个马蹄都能带的动全队伤害，毕竟选择权在个人，光团都过去了。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14809#       发表于 2021-1-21 15:59
+
+
+
+ 本帖最后由 areklose 于 2021-1-21 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50101929&amp;ptid=1158205" target="_blank">horacio 发表于 2021-1-21 13:34</a>
+
+维拉斧伤害又打不过六龙武，你是不知道2有多厉害，甚至上2个马蹄都能带的动全队伤害，毕竟选择权在个人，光 ...</blockquote>
+95光六龙没问题，150还是要维拉斧头。主要是前两天拉闸我打得不多。最后2天不拉打得多才有这个感觉。不过这个个人观感，没啥好说。至于1102.我承认团战中她表现的确强。但我说过了这次团战过后也不做。就是因为除了团战以外的其他场合，她不会显著提高我的体验。既然都吃那么多材料，当然想日常也经常拿出来用。。哎，还是吃的材料太阴间了。天人只能选择来做，而且后面还有120,130,140,150.
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14810#       发表于 2021-1-21 16:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">维拉斧1102莉剩下一个位置你有啥出啥，贞猛5稳，宙斯fa用这厉不厉害，用了就知道
+
+维拉斧带来的连击可以拉动2的奥义回转，3技能大炮不要太爽，而且运气好还有好多次fc，而且维拉斧和六龙武可以一起带啊
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14811#       发表于 2021-1-21 16:26
+
+
+
+
+以“日常”经常拿出来用，不是只剩下6710了吗
+
+
+
+
+
+
+
+-----
+
+####  horacio  
+##### 14812#       发表于 2021-1-21 16:49
+
+
+
+
+这不是回到前面的话题，这次团战毫无疑问2才是vip，而不是维拉斧
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 14813#       发表于 2021-1-21 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50100508&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-1-21 11:10</a>
+100路就有点吃不住了，150我干脆换了杂。
+
+1102我是没有这点我得承认</blockquote>
+我150 2莉 4号位试了不少，符姐贞啥的，最后还是换回路了，就因为双技伤大炮有时候帮助提前进od很好使。不过我老王带琴就是了，没感觉路很容易死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14814#       发表于 2021-1-21 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50103759&amp;ptid=1158205" target="_blank">horacio 发表于 2021-1-21 16:49</a>
+
+这不是回到前面的话题，这次团战毫无疑问2才是vip，而不是维拉斧</blockquote>
+我一直没争团战MVP是谁。
+
+开头。我说的是缺了什么让我觉得自己低人一等。所以我后面都在说都是个人观感。
+
+我有莉莉，所以昨天我在烦恼怎样组队。
+
+如果有维拉斧头，维拉斧的连击加快了莉莉的奥义净化，还有硬度。我就不需要考虑再塞能提高硬度和回复的角色。
+
+
+
+
+
+
+
+-----
+
+####  horacio  
+##### 14815#       发表于 2021-1-21 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50104380&amp;ptid=1158205" target="_blank">areklose 发表于 2021-1-21 17:48</a>
+
+我一直没争团战MVP是谁。
+
+开头。我说的是缺了什么让我觉得自己低人一等。所以我后面都在说都是个人观感。 ...</blockquote>
+行吧，反正我也说过了做什么都是自己的选择而已，没必要在这里争什么，你说硬抬就硬抬
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14816#       发表于 2021-1-21 19:27
+
+
+
+ 本帖最后由 areklose 于 2021-1-21 19:28 编辑 
+
+硬抬我指的是莉莉。。对比起回复防御角，可能会有人周年超NMN和泳盾。但超莉莉应该会很少。只是150的环境适合她上班，本身并没有太破格的强度。
+
+我对2说抬一下。是因为我觉得2并没有比路强一个层次。否则当初上修和超限为什么那么多人有意见，这次光团能大放光彩很大原因是平时基本没用到和忽略的功能性。例如这次95背水高文利用50特动下线刚好上2DB。这个平时基本不会用到。主要是都吃3金了。我希望自身输出能比路强一个层次...
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14817#       发表于 2021-1-21 19:54
+
+
+
+
+说到底大家对抬的定义都不一样，我还觉得这次也没特别抬莉莉呢，光宝石io这类回复角整体表现也都不错啊，说穿了150这个难度就是想定内的恶心db连锁、自强化、高伤害，你要说boss有个必须fc解的恶心db那叫硬抬还可以
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不然水团到时候来个朴素的平a过w的boss 难道又是硬抬1爷吗，一次奥义约等于5k回复呢
+
+
+
+
+
+
+
+-----
+
+####  kobushi  
+##### 14818#       发表于 2021-1-25 19:52
+
+
+
+
+还以为又ban人了原来是因为一个人气画师说我被误ban了……
+
+
+
+
+
+
+
+-----
+
+####  Alice.Andvari  
+##### 14819#       发表于 2021-1-25 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+借问下有没有A躺团有位置的，团战能拿个必得卷的那种，团内和谐点就好……
+
+我号240级，没怎么氪，能稳定打个一档吧。
+
+
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14820#       发表于 2021-1-25 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50143590&amp;ptid=1158205" target="_blank">Alice.Andvari 发表于 2021-1-25 20:12</a>
+
+借问下有没有A躺团有位置的，团战能拿个必得卷的那种，团内和谐点就好……
+
+我号240级，没怎么氪， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能打一档A躺不是随便找吗
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14821#       发表于 2021-1-26 14:35
+
+
+
+
+狗这个终凸强度看起来非常不错，功能性拉满了自身输出也有提升，对得起神将身份了
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14822#       发表于 2021-1-26 14:45
+
+
+
+
+那个，奥义次数强化神将buff层数能不能叠快点。
+
+本来就是5次5层，现在连击和奥义上限还得继续叠吗。
+
+硬要在胡扯就是少个奶。其他没什么意见
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 14823#       发表于 2021-1-26 14:48
+
+
+
+
+狗终秃真强 10分没毛病
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14824#       发表于 2021-1-26 14:50
+
+
+
+
+瓦姬拉于今日抵达她忠诚的格兰赛法
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 14825#       发表于 2021-1-26 14:53
+
+
+
+
+那么问题来了，伟大的瓦姬拉阁下抬得动她忠诚的小妹米林吗
+
+
+
+
+
+     
