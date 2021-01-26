@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 13:18** 
+> ## **本文件最后更新于2021-01-26 02:51** 
 
 
 
@@ -2889,4 +2889,680 @@ v综是除crew外的杏仁，尼哥是crew杏仁，高下立判啊
 
 
 
-                                            
+
+
+-----
+
+####  aptx318  
+##### 30152#       发表于 2021-1-25 21:36
+
+
+
+
+丽姐一天涨了6千订阅<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 30153#       发表于 2021-1-25 22:17
+
+
+
+
+老爱竟然连赢两把打块了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30154#       发表于 2021-1-25 22:26
+
+
+
+
+想起来第一次看一之濑的时候同接才几百，一年就翻了几十倍，这就是打枪民的实力吗，真是令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 30155#       发表于 2021-1-25 23:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">贷款吃
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30156#       发表于 2021-1-25 23:05
+
+
+
+ 本帖最后由 rzrbtk 于 2021-1-25 23:09 编辑 
+
+ema打apex（[https://www.youtube.com/watch?v=xtJMIZlJDM0](https://www.youtube.com/watch?v=xtJMIZlJDM0)），混在一堆最协感想会里，如同参加了最协一样。
+
+待会郡道也要打（确实要打，15分开，封面图不错[https://www.youtube.com/watch?v=6C1hiLKbhxg&amp;feature=youtu.be](https://www.youtube.com/watch?v=6C1hiLKbhxg&amp;feature=youtu.be)），好像两个都是白金，有没可能，有没可能...
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30157#       发表于 2021-1-25 23:08
+
+
+
+[https://youtu.be/xyQJCf-lAHk](https://youtu.be/xyQJCf-lAHk)
+
+月灵油管播恐怖小游戏
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30158#       发表于 2021-1-25 23:10
+
+
+
+
+狱卒终于又打枪了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30159#       发表于 2021-1-25 23:15
+
+
+
+
+居然是魔女之家，会玩金游已经是合格的管人了。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30160#       发表于 2021-1-25 23:57
+
+
+
+ 本帖最后由 JoelBirch 于 2021-1-26 00:07 编辑 
+
+是nico太拉胯吗？这第一眼看上去都不像一个皮？是新皮在测试吗？感觉还蛮怪的，还不是成品吧？
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 30161#       发表于 2021-1-26 00:04
+
+
+
+
+看了一下，丽姐今天涨了7000，建议后面找机会联动
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30162#       发表于 2021-1-26 00:16
+
+
+
+
+终极大物降临
+
+<img src="https://img.saraba1st.com/forum/202101/26/001652p2mjscs1pa6mcr5v.png" referrerpolicy="no-referrer">
+
+
+<strong>1611589069864.png</strong> (63.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-26 00:16 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30163#       发表于 2021-1-26 00:26
+
+
+
+
+这人不是以前被油管搞了吗，怎么弄了个皮啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30164#       发表于 2021-1-26 00:29
+
+
+
+
+对kmm这种软妹子真的毫无抵抗力，玩恐怖游戏的状态也太棒了，最协打枪慌慌张张的样子也很可爱
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30165#       发表于 2021-1-26 00:33
+
+
+
+
+狱卒都双锤骷髅海了，你们几个没有的打枪人好自为之<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30166#       发表于 2021-1-26 00:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">狱卒在黄金局就是鲨鱼，debu也打了个3000锤
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30167#       发表于 2021-1-26 00:34
+
+
+
+
+赶紧快进到钻石局吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30168#       发表于 2021-1-26 00:37
+
+
+
+
+下次大赛我要看到狱卒乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30169#       发表于 2021-1-26 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50145221&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-1-25 23:57</a>
+
+是nico太拉胯吗？这第一眼看上去都不像一个皮？是新皮在测试吗？感觉还蛮怪的，还不是成品吧？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么觉得还是nico的正常一点
+
+是这个没什么可动性吗（还是她没怎么动
+
+
+
+
+
+
+
+-----
+
+####  秘封赛高！  
+##### 30170#       发表于 2021-1-26 00:52
+
+
+
+
+小千钻一了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 30171#       发表于 2021-1-26 00:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">千钻二吃两鸡升钻一了，虹第一个钻一
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30172#       发表于 2021-1-26 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50145480&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-1-26 00:43</a>
+
+我怎么觉得还是nico的正常一点
+
+是这个没什么可动性吗（还是她没怎么动 ...</blockquote>
+都是老皮，新的应该还在做，不过我倒是觉得油管这个反应程度更高更流畅一点
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30173#       发表于 2021-1-26 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50145539&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-26 00:54</a>
+
+都是老皮，新的应该还在做，不过我倒是觉得油管这个反应程度更高更流畅一点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概因为nico的看多看习惯了
+
+油管的还没适应 
+
+还是等2D皮吧，这两个皮拉到B站我都不太能接受
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30174#       发表于 2021-1-26 01:11
+
+
+
+<img src="https://p.sda1.dev/1/ceecab2ae449599fe5cead6ae11190c1/IMG_20210126_011006.jpg" referrerpolicy="no-referrer">
+想问一下看虹的，彩虹最近没有版权/毕业啥的吧。
+这视频数增长怎么还有负几十的<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+来源https://twitter.com/v_powerbalance/status/1353743814511349760?s=19
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30175#       发表于 2021-1-26 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50144826&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-1-25 23:05</a>
+ema打apex（https://www.youtube.com/watch?v=xtJMIZlJDM0），混在一堆最协感想会里，如同参加了最协一样。 ...</blockquote>
+好像之前大福匹配到过ema
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 30176#       发表于 2021-1-26 01:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50145338&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-26 00:16</a>
+
+终极大物降临</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/26/015852o45iiugj8kwg5juj.png" referrerpolicy="no-referrer">
+
+
+<strong>1611588766666.png</strong> (35.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-26 01:58 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30177#       发表于 2021-1-26 02:11
+
+
+
+
+露露本体都上传跳舞小视频了……
+
+看来没了live很生气啊
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30178#       发表于 2021-1-26 02:40
+
+
+
+
+露露还是pro啊，看着舒服
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30179#       发表于 2021-1-26 02:41
+
+
+
+
+建议莉泽向她多学学
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 30180#       发表于 2021-1-26 08:42
+
+
+
+
+这几天木口日增又钝化倍杀不了彩虹了，运营买订阅是论周的吗一会疯涨一会躺平
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 30181#       发表于 2021-1-26 08:45
+
+
+
+
+木口订阅增量纯看当天有无人在冲订阅，有人冲自然高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 30182#       发表于 2021-1-26 08:59
+
+
+
+<blockquote>AKili 发表于 2021-1-26 08:45
+木口订阅增量纯看当天有无人在冲订阅，有人冲自然高</blockquote>
+不看这个看底边&amp;躺涨幅度，经常有连续日增1000和连续日增2000的期间，和潮汐一样。当然底边能躺出2000的时候上位也有加成涨的更多
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30183#       发表于 2021-1-26 09:32
+
+
+
+
+其实丽姐才是有少女向作品女主内味，人有点憨，无论是以前和叶联动还是后夜祭和葛叶的神回，都处在互相吵嘴大多吃瘪的定位，但最后都获得了莫大的BUFF<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/f2d0a8849cfed72df99d5609e36c2d5d/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/bf3c5a836a1ad6c0d42e1f9d5c61f88c/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30184#       发表于 2021-1-26 09:41
+
+
+
+
+king还差月之7w，篡位就在眼前
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 30185#       发表于 2021-1-26 09:43
+
+
+
+<blockquote>渡鸦骑士 发表于 2021-1-26 01:11
+想问一下看虹的，彩虹最近没有版权/毕业啥的吧。
+
+这视频数增长怎么还有负几十的
+
+来源https://twitt ...</blockquote>
+彩虹最近dq版权被gank了，可能dq的都删了或隐藏了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30186#       发表于 2021-1-26 10:33
+
+
+
+ 本帖最后由 nowaki 于 2021-1-26 10:39 编辑 
+
+威村的stf的格局，是和别处不同的：都是当街一个曲尺形的大柜台，柜里面大企划预备着，可以随时呈上。直播的人，傍晚深夜散了工，每每花三成sc，买一份大企划，——这是二十多年前的事，现在每个大企划要涨到五成，——靠柜外站着，赶紧的看了休息；倘肯多花一成，便可以买一份衣服配件，或者2.0，做赠品了，如果出到八成，那就能买一次新衣，或3d企划，但这些顾客，多是握手女奴，大抵没有这样阔绰。只有受宠的男v，才踱进店面隔壁的房子里，要大企划要新衣，和掌柜慢慢地坐谈。
+
+
+我a酱从十二岁起，便在村口的holo酒店里当伙计，掌柜yagoo说，我样子太傻，怕侍候不了男v主顾，就在外面做点事罢。外面的握手女奴，虽然容易说话，但唠唠叨叨缠夹不清的也很不少。他们往往要亲眼看着企划案从后台里取出，看过新衣服底里有猫耳没有，又亲看将秋裤改成橙色，然后放心：在这严重监督下，企划省钱也很为难。所以过了几天，掌柜又说我干不了这事。幸亏荐头的情面大，辞退不得，便改为专管递企划的一种无聊职务了。
+
+
+我a酱从此便整天的站在柜台里，专管我的职务。虽然没有什么失职，但总觉得有些单调，有些无聊。掌柜yagoo是一副凶脸孔，握手女奴也没有好声气，教人活泼不得；只有佩克拉到店，才可以笑几声，所以至今还记得。
+
+
+佩克拉是站着要企划而出十成sc的唯一的人。她身材很瘦小；青白发色，双股辫间时常夹些萝卜；脖上围着乱蓬蓬的花白的兔子。虽然是出的十成，可是依旧是握手乞讨得来的，那红绿的sc似乎又破又旧。她对人说话，总是满口pekopeko，叫人半懂不懂的。因为她姓兔，别人便从描红纸上的“乌萨达佩克拉”这半懂不懂的话里，替她取下一个绰号，叫作佩克拉。佩克拉一到店，所有要企划的人便都看着她笑，有的叫道，“佩克拉，你又乞讨来不少sc了！”她不回答，对柜里说，“两份企划，要一件新衣服。”便排出九成sc。她们又故意的高声嚷道，“你一定又想要虚无缥缈的企划了！”佩克拉睁大眼睛说，“你怎么这样凭空污人清白……”“什么清白？我前天亲眼见你偷了miko的企划，吊着打。”佩克拉便涨红了脸，额上的青筋条条绽出，争辩道，“窃企划不能算偷……窃企划！……vtb的事，能算偷么？”接连便是难懂的话，什么“狐夸不仲”，什么“peko”之类，引得众人都哄笑起来：店内外充满了快活的空气。
+
+
+听人家背地里谈论，佩克拉原来也做过直播，但终于没有上位，又不会养噶吃；于是愈过愈穷，弄到将要讨饭了。幸而跳得一手好脸，便替人家打打下手，换一碗饭吃。可惜她又有一样坏脾气，便是白日做梦。坐不到几天，便拿着挣来的钱想换件新衣，一齐失踪。如是几次，叫她陪衬的人也没有了。佩克拉没有法，便免不了偶然做些偷企划的事。但她在我们店里，品行却比别人都好，就是从不拖欠；虽然间或没有现sc，暂时记在粉板上，但不出一月，定然还清，从粉板上拭去了佩克拉的名字。
+
+
+佩克拉读过半份企划，涨红的脸色渐渐复了原，旁人便又问道，“佩克拉，画师当真给你画么？”佩克拉看着问她的人，显出不屑置辩的神气。她们便接着说道，“怎的连去年六月新衣的粽子都有新猫耳配件了？”佩克拉立刻显出颓唐不安模样，脸上笼上了一层灰色，嘴里说些话；这回可是全是pekopeko之类，一些不懂了。在这时候，众人也都哄笑起来：店内外充满了快活的空气。
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+                                           
