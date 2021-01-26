@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 13:19** 
+> ## **本文件最后更新于2021-01-26 11:36** 
 
 
 
@@ -4754,6 +4754,25 @@ miyuki溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kazuma|-2|别做梦了醒醒吧肥宅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -7607,4 +7626,530 @@ live好听+1
 
 
 
-                                  
+
+
+-----
+
+####  Ky·Kiske  
+##### 7952#       发表于 2021-1-25 21:28
+
+
+
+
+原创单曲目前还是最喜针
+
+要是以后发CD，放在主打曲好嘛
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7953#       发表于 2021-1-25 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7954#       发表于 2021-1-25 22:13
+
+
+
+
+女人kiss男人.jpg
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7955#       发表于 2021-1-25 22:24
+
+
+
+
+快进到下播后の小麻.avi<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7956#       发表于 2021-1-25 23:18
+
+
+
+
+不要男人，小麻0721. avi摩多摩多<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7957#       发表于 2021-1-25 23:22
+
+
+
+
+还以为发推了会播呢，无聊，睡了
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 7958#       发表于 2021-1-26 01:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 7959#       发表于 2021-1-26 03:04
+
+
+
+
+这pv轰头，扛不住<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7960#       发表于 2021-1-26 03:49
+
+
+
+
+你麻的奇妙御用曲师，不会真的是给低成本黄油配音时认识的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 7961#       发表于 2021-1-26 09:07
+
+
+
+
+我怀疑调音就是小麻自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7962#       发表于 2021-1-26 09:25
+
+
+
+
+别说了，明天就开始小黄油大搜集计划<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 7963#       发表于 2021-1-26 09:42
+
+
+
+
+说到小麻配的黄油 我又想到了这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/26/094130xe5ltboe5oljrd2j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>17BD650499AC48D71DD075B507B91694.jpg</strong> (170.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-26 09:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7964#       发表于 2021-1-26 09:45
+
+
+
+
+还是月兔那种调音适合麻酱
+
+
+谁能写首原创曲给麻酱唱啊 拯救下调音<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7965#       发表于 2021-1-26 09:49
+
+
+
+
+啊，麻酱，寂しい......寂しい...... <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7966#       发表于 2021-1-26 14:01
+
+
+
+
+犬山哥，就不能把调音送给麻酱吗
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 7967#       发表于 2021-1-26 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这调音的歌适合抖音外放
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 7968#       发表于 2021-1-26 17:29
+
+
+
+
+破案了 麻酱喜欢看tiktok
+
+所以才调成这样
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 7969#       发表于 2021-1-26 18:44
+
+
+
+
+晚上犬山联动是搞什么有说过吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7970#       发表于 2021-1-26 19:00
+
+
+
+
+就是上次黑皮主持的小故事人狼吧
+syl，又生了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7971#       发表于 2021-1-26 19:00
+
+
+
+
+憋出个新人来 草
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 7972#       发表于 2021-1-26 19:03
+
+
+
+<img src="https://p.sda1.dev/1/0d6c4a30450f0375d94ef16f3e42232f/IMG_CMP_79283214.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7973#       发表于 2021-1-26 19:07
+
+
+
+
+新人出来的有点快啊，放出消息没多久
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7974#       发表于 2021-1-26 19:08
+
+
+
+
+什么棕毛，还不如eve，呜呜呜，eve我的eve
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 7975#       发表于 2021-1-26 19:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好像就小僵尸的皮最不行了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 7976#       发表于 2021-1-26 19:21
+
+
+
+
+太gal了，太gal了
+
+反倒有点普通，讲真
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7977#       发表于 2021-1-26 19:24
+
+
+
+
+皮是挺耐看的，不过没啥特点，太多了。
+
+等个咩姐组内联动了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 7978#       发表于 2021-1-26 19:28
+
+
+
+
+官组真的没人了吗，怎么做到如月组都转发了还没动静的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7979#       发表于 2021-1-26 19:28
+
+
+
+
+我觉得小僵尸和eve的皮是最好的啊
+
+这个新人是黑兔子？
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 7980#       发表于 2021-1-26 19:30
+
+
+
+
+不知道是哪个想不开的yhm被拐骗来做v了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 7981#       发表于 2021-1-26 19:30
+
+
+
+
+草，这么一说才发现像是个异色组长
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 7982#       发表于 2021-1-26 19:34
+
+
+
+
+怎么说呢，有点像6元RM RPG里的人物立绘
+
+
+
+
+
+                                 
