@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 13:16** 
+> ## **本文件最后更新于2021-01-26 18:00** 
 
 
 
@@ -12801,4 +12801,576 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 
 
 
-                            
+
+
+-----
+
+####  li__god  
+##### 2132#       发表于 2021-1-26 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50143608&amp;ptid=1915171" target="_blank">黑之月 发表于 2021-1-25 20:15</a>
+话说你们用有没有那种信号显示卡死，没法上网打电话的情况。每次都要开关飞行模式来解决。
+而且每次 ...</blockquote>
+感觉上次升级完了就有这种情况了
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2133#       发表于 2021-1-26 08:02
+
+
+
+<blockquote>黑之月 发表于 2021-1-25 20:15
+话说你们用有没有那种信号显示卡死，没法上网打电话的情况。每次都要开关飞行模式来解决。
+
+而且每次 ...</blockquote>
+国行吗？有看到类似症状说是下个更新修复，但现在正好遇到春节
+
+
+国行系统总是各种毛病的样子，唉
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 2134#       发表于 2021-1-26 09:02
+
+
+
+
+5G信号很弱的时候偶尔有  我关掉5g后就没这种情况
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 2135#       发表于 2021-1-26 09:49
+
+
+
+
+大法问题就借帖子问问大家，我自己的XZ1最近有点问题，充电线连着座充头充电是完全没问题，但是连着电脑的USB，不论是前还是后USB接口都完全没有反应，既连不上电脑，也不能用电脑充电，这个啥情况，何解？
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2136#       发表于 2021-1-26 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50146265&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 08:02</a>
+国行吗？有看到类似症状说是下个更新修复，但现在正好遇到春节
+
+
+国行系统总是各种毛病的样子，唉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">是啊，还有GPS感觉上次更新后也有点问题。经常开阔路面就丢信号
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2137#       发表于 2021-1-26 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50146879&amp;ptid=1915171" target="_blank">艾尔特翔 发表于 2021-1-26 09:49</a>
+大法问题就借帖子问问大家，我自己的XZ1最近有点问题，充电线连着座充头充电是完全没问题，但是连着电脑的U ...</blockquote>
+同一根线吗，试试别的电脑怎么样
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 2138#       发表于 2021-1-26 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50147874&amp;ptid=1915171" target="_blank">黑之月 发表于 2021-1-26 11:39</a>
+
+同一根线吗，试试别的电脑怎么样
+
+
+—— 来自 Sony XQ-AT72, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+同一根线也试过，不同线也试过，原装的和第三方的都试过，然后不同电脑也试过了
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2139#       发表于 2021-1-26 15:00
+
+
+
+
+港版Android 11来咯
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2140#       发表于 2021-1-26 15:10
+
+
+
+
+港版 Android 11 收到更新推送了，1.1GB大小，魔都 CN2 网络3分钟下载完成
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2141#       发表于 2021-1-26 15:57
+
+
+
+
+除了 Android 11 本身对权限控制和隐私保护等方面的增强以及安全补丁外，
+
+在这次更新更新后，
+
+Cinematography Pro 新增 4K HDR 120 慢动作摄像。
+
+Photography Pro 新增照片纵横比快捷设置按钮、MR 模式，及连拍反馈。
+
+新增支持通过 HDMI-UVC 与 Alpha 无反相机连接作为其外部监视器。
+
+侧感触控易用性增强，支持浮窗快捷方式。
+
+游戏增强器新增游戏图标收纳功能。
+
+电池保养功能支持常时80/90% 充电限制。
+
+内建屏幕录制、增强媒体播放控制、Nearby Share 文件共享功能。
+
+长按电源键的界面等细节也跟随 Android 11 改变。
+
+
+
+
+
+
+
+-----
+
+####  楠芽吹  
+##### 2142#       发表于 2021-1-26 16:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用不惯安卓11，截图之后还会弹悬浮窗也太**了吧
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 2143#       发表于 2021-1-26 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150651&amp;ptid=1915171" target="_blank">楠芽吹 发表于 2021-1-26 16:31</a>
+
+用不惯安卓11，截图之后还会弹悬浮窗也太**了吧</blockquote>
+闹钟也花Q,隔一段时间发提示声说闹钟很快响了
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2144#       发表于 2021-1-26 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150299&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 15:57</a>
+
+除了 Android 11 本身对权限控制和隐私保护等方面的增强以及安全补丁外，
+
+在这次更新更新后，
+
+Cinematograp ...</blockquote>
+屏幕录制没找到，这个从哪里调出来？
+
+
+
+
+
+
+
+-----
+
+####  hippias  
+##### 2145#       发表于 2021-1-26 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150299&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 15:57</a>
+除了 Android 11 本身对权限控制和隐私保护等方面的增强以及安全补丁外，
+
+在这次更新更新后，
+
+Cinematograp ...</blockquote>
+意思是外接相机还要采集卡？
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2146#       发表于 2021-1-26 17:20
+
+
+
+<blockquote>EFSF 发表于 2021-1-26 16:53
+屏幕录制没找到，这个从哪里调出来？</blockquote>
+通知栏快捷方式里可以添加
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2147#       发表于 2021-1-26 17:20
+
+
+
+<blockquote>hippias 发表于 2021-1-26 17:05
+意思是外接相机还要采集卡？
+
+
+—— 来自 Sony XQ-AT72, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+不把，就是视频输出，在设置里有个选项可以开启
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2148#       发表于 2021-1-26 17:21
+
+
+
+<blockquote>楠芽吹 发表于 2021-1-26 16:31
+用不惯安卓11，截图之后还会弹悬浮窗也太**了吧</blockquote>
+确实，还少了删除功能。。 
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2149#       发表于 2021-1-26 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50151190&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 17:20</a>
+
+通知栏快捷方式里可以添加</blockquote>
+谢谢谢谢，居然在那里。
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2150#       发表于 2021-1-26 19:27
+
+
+
+
+xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港行基本没啥问题？是的话就港行青山绿了
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2151#       发表于 2021-1-26 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50152405&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-1-26 19:27</a>
+
+xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港行基本没啥问题？是的话就港行青山绿了
+
+
+—— 来自 ...</blockquote>
+港行少4G内存，微信不能用指纹支付
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2152#       发表于 2021-1-26 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50152486&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-1-26 19:34</a>
+港行少4G内存，微信不能用指纹支付</blockquote>
+港绿有12，支付的话我密码输习惯了好像无所谓？我还是比较看重系统稳不稳定
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2153#       发表于 2021-1-26 19:48
+
+
+
+<blockquote>wqm2008 发表于 2021-1-26 19:34
+港行少4G内存，微信不能用指纹支付</blockquote>
+港版好像后来也出了12G的大内存版的。
+
+指纹不是说微信支付也支持了吗，但我不确定。反正那么多年我都是输密码的，也就两秒
+
+
+
+
+
+
+
+-----
+
+####  Shabadadoo  
+##### 2154#       发表于 2021-1-26 20:33
+
+
+
+
+手机坏了，想换个1ii或者5ii，之前没关注过，请问那个好点啊？现在港版5000这个价怎么样？
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2155#       发表于 2021-1-26 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50153027&amp;ptid=1915171" target="_blank">Shabadadoo 发表于 2021-1-26 20:33</a>
+
+手机坏了，想换个1ii或者5ii，之前没关注过，请问那个好点啊？现在港版5000这个价怎么样？ ...</blockquote>
+5M2的话贵，1M2的话不如国行。
+
+
+
+
+
+
+
+-----
+
+####  Shabadadoo  
+##### 2156#       发表于 2021-1-26 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50153081&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-1-26 20:42</a>
+5M2的话贵，1M2的话不如国行。</blockquote>
+请问1ii是哪里不如国行，因为本身打算买港版的用全家桶
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2157#       发表于 2021-1-26 21:14
+
+
+
+
+港行用户表示如果你对谷歌全家桶高度依赖……那还是买港好点
+
+国行能用全家桶，但终究有点不完美
+
+微信指纹不懂1m2那边啥情况，但5m2至今正常可用
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2158#       发表于 2021-1-26 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50153230&amp;ptid=1915171" target="_blank">Shabadadoo 发表于 2021-1-26 21:00</a>
+请问1ii是哪里不如国行，因为本身打算买港版的用全家桶</blockquote>
+ram少4个G，但是港行我记得原本去年年底说要发国行同等配置的绿色。
+
+— from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2159#       发表于 2021-1-26 22:43
+
+
+
+<blockquote>Shabadadoo 发表于 2021-1-26 21:00
+请问1ii是哪里不如国行，因为本身打算买港版的用全家桶</blockquote>
+全家桶请买港版，国行可能会有奇怪的小毛病。国行优点是对大陆5G支持好、内置类似于黑域的防流氓功能，还有全都是12G内存。但是贵
+
+
+
+
+
+
+
+-----
+
+####  fishmanzero  
+##### 2160#       发表于 2021-1-27 00:43
+
+
+
+
+Pro终于要发售，算不算1？
+这个壳真的是完美，可惜洋垃圾可能也捡不到吧…
+
+—— 来自 粗粮 K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  暗铁  
+##### 2161#       发表于 2021-1-27 01:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国行都舍得上12G，pro反而不上，也是很奇妙
+
+
+
+
+
+                           
