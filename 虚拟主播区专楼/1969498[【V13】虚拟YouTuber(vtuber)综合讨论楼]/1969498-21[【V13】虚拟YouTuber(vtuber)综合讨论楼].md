@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-27 10:41** 
+> ## **本文件最后更新于2021-01-27 15:41** 
 
 
 
@@ -5623,4 +5623,360 @@ y1s1我给她安利过好多次life is strange了，不能skip的剧情游戏还
 
 
 
-                                        
+
+
+-----
+
+####  kangkangsama  
+##### 30285#       发表于 2021-1-27 18:43
+
+
+
+
+mrra和国产6字母相比不是百合或侄女的问题，而是这俩作为人类就八字不合（但是业务水平还不错）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30286#       发表于 2021-1-27 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162430&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-27 18:34</a>
+死懒鬼需要先禁apex。
+
+y1s1我给她安利过好多次life is strange了，不能skip的剧情游戏还是女同游戏，可惜 ...</blockquote>
+要玩apex，只要换上粉丝做的封面图，然后就可以开心畅玩了，那必然不可能戒啊，反正她年纪大身体跟不上，到一定等级的时候玩200局都吃不到鸡就自然弃了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，现在就健健脑吧。
+lifeisstrange没她会喜欢的角色我觉得不行，有个我断定她会有兴趣的女同游戏（有性格恶女主）又只有英文，就，算了。
+省一楼，历史都是相似的，mrra死后会有tmsk来救世
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30287#       发表于 2021-1-27 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 葛西莉是不是你虹现在T0组合阿，秒杀3马鹿没问题吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30288#       发表于 2021-1-27 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明治lamp小姐只是顺便利用下金口谣言的黑热度罢了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30289#       发表于 2021-1-27 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 微星找葛西莉，rog没法找holo的情况下，找谁宣传阿
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30290#       发表于 2021-1-27 19:01
+
+
+
+
+油男这个，甲子园再临啊，杏奴们颤抖了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 30291#       发表于 2021-1-27 19:08
+
+
+
+
+#にじライバーの野望資料集 这个企划的战国fanart真不错
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/190752tgvfyutxbuohhoft.png" referrerpolicy="no-referrer">
+
+
+<strong>Esg8nFSUwAEPuPO.png</strong> (75.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 19:07 上传
+
+
+
+
+
+[https://twitter.com/hayamaruna/status/1353398792716861441](https://twitter.com/hayamaruna/status/1353398792716861441)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pansherry| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30292#       发表于 2021-1-27 19:08
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-27 18:45
+要玩apex，只要换上粉丝做的封面图，然后就可以开心畅玩了，那必然不可能戒啊，反正她年纪大身体跟不上， ...</blockquote>
+life is strange有日文版和日文版配音的（还不错）。而且不是有Victoria吗，我觉得她应该好这口（MaxXVic党很多的）。
+
+Apex她演出型人格太过了，干啥都喜欢叫，而且apex的观赏性算是实力至上了。
+
+
+最近的爆点除了短发还仍然是和星川啵嘴，关系性运营水平可以的偏偏不搞（被两个地雷伤到了，当然自己也是地雷）。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30293#       发表于 2021-1-27 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 真鸡儿真实，king代言的就是最好的gp系列、椎名就是最轻薄的gs系列，莉莉姆就是最垃圾的入门级gf了
+
+
+阶级社会嗷
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30294#       发表于 2021-1-27 19:13
+
+
+
+ 本帖最后由 winda 于 2021-1-27 19:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162747&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-27 19:01</a>
+油男这个，甲子园再临啊，杏奴们颤抖了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看被holorim压杀么
+再编辑自己要连1w4都保不住了
+
+直播excel debug艹
+
+
+
+
+
+
+
+-----
+
+####  kakera9576  
+##### 30295#       发表于 2021-1-27 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162228&amp;ptid=1969498" target="_blank">free 发表于 2021-1-27 18:13</a>
+
+https://space.bilibili.com/1678439710
+
+上田敦美，这是怎么想到来B站的，还发了一首这么拉的炎 ...</blockquote>
+打死你
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30296#       发表于 2021-1-27 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162816&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-27 19:08</a>
+life is strange有日文版和日文版配音的（还不错）。而且不是有Victoria吗，我觉得她应该好这口（MaxXVic ...</blockquote>
+郡道看到Victoria这种攻击性强歇斯底里重女不会那个吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 30297#       发表于 2021-1-27 22:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/220704ekzxuuo1ggh1uuug.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsvC9OsUYAMaD63.jpg</strong> (558.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 22:07 上传
+
+
+
+
+
+[https://twitter.com/oekaky/status/1354398750832087047](https://twitter.com/oekaky/status/1354398750832087047)
+
+<img src="https://img.saraba1st.com/forum/202101/27/220517qwd2udid0b0lgb5i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsufiEYVcAIvWQ1.jpg</strong> (280.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 22:05 上传
+
+
+
+
+
+[https://twitter.com/ruwo_benzen/status/1354351524831346690](https://twitter.com/ruwo_benzen/status/1354351524831346690)
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30298#       发表于 2021-1-27 22:08
+
+
+
+
+/ 奇屋敷ゾンゾン cover
+[https://www.youtube.com/watch?v=gqJqlCRf_X4&amp;feature=youtu.be](https://www.youtube.com/watch?v=gqJqlCRf_X4&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 30299#       发表于 2021-1-27 22:15
+
+
+
+
+黄兔子又在直播黑后辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能这么干的管人大概还是找不到第二个
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30300#       发表于 2021-1-27 22:28
+
+
+
+
+月灵nico马上播
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30301#       发表于 2021-1-27 22:57
+
+
+
+
+小千单排上大师，但是真的太难了，回到了最初的起点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
