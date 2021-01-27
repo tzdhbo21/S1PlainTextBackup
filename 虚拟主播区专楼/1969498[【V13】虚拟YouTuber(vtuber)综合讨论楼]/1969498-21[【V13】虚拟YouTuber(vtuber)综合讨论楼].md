@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-26 15:44** 
+> ## **本文件最后更新于2021-01-27 07:41** 
 
 
 
@@ -4171,4 +4171,726 @@ https://twitter.com/mochi8hiyoko/status/1354038814700761090</blockquote>
 
 
 
-                                          
+
+
+-----
+
+####  Peris  
+##### 30214#       发表于 2021-1-26 23:47
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/26/234757xvyyst8sca4xyytu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210126_234100_edit_303671311119288.jpg</strong> (171.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-26 23:47 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 30215#       发表于 2021-1-27 00:06
+
+
+
+
+箱靠得又不是实力而是社群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过确实希望nanashi能抽到强卡变得好起来
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 30216#       发表于 2021-1-27 00:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">急病乱投医
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30217#       发表于 2021-1-27 00:17
+
+
+
+
+实力够强就可以把箱拉起来
+
+看好774取代点成为第三箱
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30218#       发表于 2021-1-27 00:24
+
+
+
+
+阿床刚才的歌回突然隐藏了，什么情况
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 30219#       发表于 2021-1-27 00:26
+
+
+
+<img src="https://p.sda1.dev/1/dfb6ae17a283bc9fddb05db670ea72e3/IMG_CMP_30055952.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 百合大法好| + 1||
+| 乌鸦绅士| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30220#       发表于 2021-1-27 00:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/005332h2vh8n2zee1f8yl2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (70.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 00:53 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/005334chhxjtddzxrtii5a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (63.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 00:53 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 30221#       发表于 2021-1-27 01:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155011&amp;ptid=1969498" target="_blank">free 发表于 2021-1-27 00:24</a>
+
+阿床刚才的歌回突然隐藏了，什么情况</blockquote>
+因为压根就没唱，u2b拉胯了一直在转圈<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  midearth  
+##### 30222#       发表于 2021-1-27 08:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155190&amp;ptid=1969498" target="_blank">free 发表于 2021-1-27 00:53</a></blockquote>
+原来富士葵还是有人看的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30223#       发表于 2021-1-27 09:22
+
+
+
+
+你虹哪是不招人，是招不到人吧ww
+
+你虹liver大量依赖粉丝社区投简历，但你虹现在这样子真的有人投吗ww
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30224#       发表于 2021-1-27 09:32
+
+
+
+
+没有了，半年到了，就快死了
+
+
+
+
+
+
+
+-----
+
+####  百合大法好  
+##### 30225#       发表于 2021-1-27 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155023&amp;ptid=1969498" target="_blank">nian1538 发表于 2021-1-27 00:26</a>
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+破防了😭
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30226#       发表于 2021-1-27 11:05
+
+
+
+
+你虹下一批希望再抽一次全男吧，对比挑染组油男，三小只实在是扶不起。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30227#       发表于 2021-1-27 11:12
+
+
+
+
+两女一男组才是最pro的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30228#       发表于 2021-1-27 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">C老哥口口声声说你虹社区完蛋了，
+
+
+但社区完蛋根本原因不是老害只盯着几个老害薅羊毛，新人融不进去的缘故么
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30229#       发表于 2021-1-27 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次报名先找好靠山吧，金鱼妹mrr成濑等前车之鉴还没过气呢
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 30230#       发表于 2021-1-27 12:52
+
+
+
+
+草，去了一趟dlsite，结果看见金鱼妹下海出R18音声了（
+
+
+RJ315477，她扮演反派组织“诺娅's 恶”的深红发双马尾女恶魔干部“2535号”，执行抖S榨取任务（
+
+真可怕，不惜用这么low的手段来发泄吗（
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 30231#       发表于 2021-1-27 13:15
+
+
+
+ 本帖最后由 天悬星河 于 2021-1-27 13:20 编辑 
+
+2535喷了
+
+这算锤实明治=金鱼妹么
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30232#       发表于 2021-1-27 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">比起三小只，不是更应该找找五绝拉了的原因吗。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30233#       发表于 2021-1-27 13:30
+
+
+
+
+虹女那么多，拉就拉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30234#       发表于 2021-1-27 13:38
+
+
+
+
+少搭理点养gachi的前经验者和太妹屁事没有，种和19组进去的那一批文化民虹信也没拉帮结派的口碑可是现在你虹里的顶流了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30235#       发表于 2021-1-27 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159379&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-1-27 13:38</a>
+少搭理点养gachi的前经验者和太妹屁事没有，种和19组进去的那一批文化民虹信也没拉帮结派的口碑可是现在你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">绿军阀和nico同窗会可以毙掉虹一大半人了，剩下不拉帮结派的，圣人？底边？
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30236#       发表于 2021-1-27 13:42
+
+
+
+
+bora说葛叶有实力上大师，自己在钻石就满足，葛叶又说bora硬实力大师没问题，自己不想被强强队友带上不符合自己实力的大师白白增加点数限制，真就商业互吹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过第三届最协大概6月份就会有，有个大师的目标让自己有冲劲也是好事，我自己现在钻4深知没实力继续往上爬都开始没什么动力了（
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30237#       发表于 2021-1-27 13:43
+
+
+
+ 本帖最后由 poipanchao 于 2021-1-27 13:44 编辑 
+
+虽然nico同窗会和绿系是中坚
+但是也有king和露露这种
+舞元社畜这种太难抽了，我觉得还是赌一把再来一个king比较现实
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30238#       发表于 2021-1-27 13:45
+
+
+
+ 本帖最后由 cqkxywj 于 2021-1-27 13:49 编辑 
+
+无印种黛芙小辣椒社长小护士那种人可不少
+
+
+你虹按⚪⚪children的系谱分可从来轮不上nico同窗会
+
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 30239#       发表于 2021-1-27 13:50
+
+
+
+
+三小只变工具人了吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30240#       发表于 2021-1-27 13:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 懂了，按照C老哥的意思，你虹应该停留在无印时代，永远不抽新卡才是正确的，维持以月之为首的高度集中形式，社区二创高度发达，
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30241#       发表于 2021-1-27 14:51
+
+
+
+
+纯路人，不懂就问，小护士现在也有口碑了？除了养百合豚还干过啥？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30242#       发表于 2021-1-27 14:52
+
+
+
+
+2535号这个真的喷了，有一种扎小人诅咒你的感觉...
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30243#       发表于 2021-1-27 15:16
+
+
+
+
+抖s深红发双马尾女恶魔，金鱼坂（疑似）好有幽默感，
+跟之前看到说郡道是焦躁症逃婚中年女的好笑程度不相上下
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 30244#       发表于 2021-1-27 15:27
+
+
+
+ 本帖最后由 北山玖公 于 2021-1-27 15:29 编辑 
+
+看了一眼，反派名字叫NOA，实在是爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+这件事怎么看怎么想都觉得太好笑了。
+
+2535，noa………
+
+这么低级的报复手段还是第一次见……<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">。
+不过反过来一想，这岂不是把自己和彩虹的阴湿关系拿来贩卖了嘛！退社了还能玩梗变现出钱来啊，牛。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 30245#       发表于 2021-1-27 15:29
+
+
+
+
+也太阴湿了，这就是阴湿强者吗？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30246#       发表于 2021-1-27 15:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 被你们说的心痒痒想去支援一下金鱼妹了，
+
+
+有无老哥下了确认下是蹭热度玩梗，还是金鱼妹本色出演？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30247#       发表于 2021-1-27 15:37
+
+
+
+
+你虹第一重女vs你虹（前）第一阴湿女的戏原来还没完结吗？
+
+
+SYL：
+
+郡道当年和重女营业抗了这么久，牛逼啊。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30248#       发表于 2021-1-27 15:39
+
+
+
+
+关于前几天投稿的「エバ」，有热心观众指出MV使用的插画与别的翻唱作品十分相似。出于考量，决定重新绘制插画素材来替换现有的插画素材。
+
+
+本次的MV制作是由神楽七奈有志创作团体的插画师帮忙制作的插画，我在没有调查确认「エバ」其他翻唱作品的情况下确认收稿并使用，做成了MV。
+
+在收到草稿时没有及时调查确认其他翻唱视频，对于这点应该反省。
+
+
+非常感谢大家及时的指正。
+
+然后，我想和粉丝们以及参与本视频制作的相关人员说一声对不起。
+
+
+现在，「エバ」翻唱视频的插画正在重新绘制中。近期制作完毕将会立刻投稿替换原来的视频。
+
+
+我会在今后的作品制作中更加留意，以确保不再发生类似的情况。
+
+
+神楽七奈/NanaKagura
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 30249#       发表于 2021-1-27 15:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瓜还是2434的甜
+
+
+
+
+
+                                         
