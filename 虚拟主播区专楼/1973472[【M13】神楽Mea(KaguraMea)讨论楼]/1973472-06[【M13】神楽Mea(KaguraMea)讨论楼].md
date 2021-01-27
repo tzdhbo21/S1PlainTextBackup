@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-26 15:46** 
+> ## **本文件最后更新于2021-01-27 05:43** 
 
 
 
@@ -8727,4 +8727,627 @@ mea不要又难产了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                
+
+
+-----
+
+####  thisisaspider  
+##### 8012#       发表于 2021-1-27 00:00
+
+
+
+
+mea又领先业界了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 8013#       发表于 2021-1-27 00:04
+
+
+
+
+要素过多+1，地下偶像是不是都是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8014#       发表于 2021-1-27 00:05
+
+
+
+
+还有用爸爸活给爱豆送钱可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8015#       发表于 2021-1-27 00:23
+
+
+
+
+什么nt管人观众，呜呜呜，我想好好看个番还出来发弹幕恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8016#       发表于 2021-1-27 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155008&amp;ptid=1973472" target="_blank">时雨rain 发表于 2021-1-27 00:23</a>
+
+什么nt管人观众，呜呜呜，我想好好看个番还出来发弹幕恶心人</blockquote>
+小鬼永远不少 不过骂得好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 8017#       发表于 2021-1-27 01:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果我去补了奇蛋 只能说差不多得了 
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8018#       发表于 2021-1-27 03:08
+
+
+
+
+奇蛋物语不是还行么
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8019#       发表于 2021-1-27 06:26
+
+
+
+ 本帖最后由 Dualist彩 于 2021-1-27 06:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+挺乐的
+
+syl，话说2021年了怎么还有人想不开出道个人v的<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8020#       发表于 2021-1-27 07:23
+
+
+
+
+不过是你咩姐避税的工具人罢了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8021#       发表于 2021-1-27 07:31
+
+
+
+
+现在的收入还用得着交那么多税么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+               
+
+二月b限原因找到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 8022#       发表于 2021-1-27 09:51
+
+
+
+
+U1S1，昨天和群友看完奇蛋物语这集，第一反应都是这是连体婴内鬼？
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8023#       发表于 2021-1-27 09:57
+
+
+
+
+那个动画有个原画画过阿夸 都说是crew内鬼
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8024#       发表于 2021-1-27 10:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">棕毛带点粉挑染对粉丝满口财布debu的前地下偶像，偶像形态是粉毛蓝挑染双马尾，这味略冲——你们11区的地下爱豆都是这样的吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">话说怎么到哪都有管人痴啊（半恼）
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 8025#       发表于 2021-1-27 10:10
+
+
+
+ 本帖最后由 clvan_ 于 2021-1-27 10:16 编辑 
+
+太tm弱智了，跟在狗头人那里刷死人一样弱智。老病栋遗毒不浅
+
+真要说这角色言行毒舌和你麻有点重合就算了，作监管到人设原案上去了还说内鬼可算了吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8026#       发表于 2021-1-27 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友又想骗我去看原创番
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8027#       发表于 2021-1-27 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">批判下乱刷就差不多得了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 8028#       发表于 2021-1-27 10:30
+
+
+
+
+只能说管人文化发展的确实有声有色
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 8029#       发表于 2021-1-27 10:42
+
+
+
+
+我也去看了下，黑毛女主长着一副凛子样却有着mea的蓝黄异色瞳；黄毛女基本就是当偶像时的麻，而且她当偶像时的打扮是夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这要是放到2年前怕不是新的贴贴圣经
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 8030#       发表于 2021-1-27 10:47
+
+
+
+
+别这样，本来想去看的，现在不想看了
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8031#       发表于 2021-1-27 11:06
+
+
+
+
+是什么让你们变成这样的，是V管人吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8032#       发表于 2021-1-27 11:21
+
+
+
+
+pewdiepie都套皮了，疫情全居家隔离，现在当管人充满光明好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8033#       发表于 2021-1-27 11:25
+
+
+
+ 本帖最后由 笋狐 于 2021-1-27 11:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50157299&amp;ptid=1973472" target="_blank">gongge666 发表于 2021-1-27 10:42</a>
+
+我也去看了下，黑毛女主长着一副凛子样却有着mea的蓝黄异色瞳；黄毛女基本就是当偶像时的麻，而且她当偶像 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再给你加一笔，女主衣服上是一朵向日葵，黄毛女还是个爱摸妹子大腿的lsp（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 8034#       发表于 2021-1-27 11:55
+
+
+
+
+艹本来想看的，听楼友这么一说不想看了……
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 8035#       发表于 2021-1-27 12:06
+
+
+
+
+看到说财布的时候也想到mea了，但是看偶像时期样子只觉得顺眼没想起阿夸，到战吧看到有人提到才想起来，只是这种原创番讨论里看到管人痴和管人黑还是很蛋疼，想看有意思的讨论都得去找了，发散有意思但在自己圈子里才好
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 8036#       发表于 2021-1-27 12:07
+
+
+
+
+原创有风险，等收官也行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8037#       发表于 2021-1-27 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">还好我已经不看了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8038#       发表于 2021-1-27 12:27
+
+
+
+
+日本还有连体人？
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8039#       发表于 2021-1-27 12:28
+
+
+
+
+哪来的管人痴，guna<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 8040#       发表于 2021-1-27 12:28
+
+
+
+
+今日大量crew涌入<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+还好昨晚看过了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8041#       发表于 2021-1-27 12:54
+
+
+
+
+看完表示这已经不是连体是合体了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 8042#       发表于 2021-1-27 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是贴贴的结晶
+
+
+
+
+
+
+
+-----
+
+####  Day_One  
+##### 8043#       发表于 2021-1-27 13:09
+
+
+
+
+日本人真有连体人？<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8044#       发表于 2021-1-27 13:14
+
+
+
+
+有，麻 麻自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8045#       发表于 2021-1-27 13:15
+
+
+
+
+叔叔能再放狗咬人嘛，我好气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 8046#       发表于 2021-1-27 13:20
+
+
+
+
+我怀疑这粉发挑染其实也是取材于爱小姐的，和某紫色的洋葱可能没有关系，说不定设计这个角色的家伙是个单推，你们错怪他了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8047#       发表于 2021-1-27 13:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己乐乐得了，我还觉得像璃亚梦呢
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 8048#       发表于 2021-1-27 13:33
+
+
+
+
+ 你们去看看李亚萌的人设啊
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 8049#       发表于 2021-1-27 13:41
+
+
+
+
+璃亚梦比较像18年到19年初时的mea，除了那张略傻的夸脸别的真的一模一样，现在的mea也就在犬山频道还能看到这种状态。这动画黄毛更像现在的mea，尤其是在对待粉丝这件事上，真的一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
