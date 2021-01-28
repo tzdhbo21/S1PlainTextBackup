@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-15 13:13** 
+> ## **本文件最后更新于2021-01-27 08:44** 
 
 
 
@@ -444,22 +444,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ####  波隆  
 ##### 54021#       发表于 2020-12-27 11:43
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49840528&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-25 14:06</a>
-
-从壁画来看~那几个小人就是从地上去月球的，艾尼路也是直接飞上去的，
-
-OP很有可能还包含了古代王国D一族的 ...</blockquote>
-自然系，不会武装色，战斗力过于依赖果实
-
-搁在新世界就是菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-你要说宇宙海贼王会有新技能艾尼路学了当个看门人也不是不行，但是众所周知换地图经验清零是大忌啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1284,16 +1269,7 @@ OP很有可能还包含了古代王国D一族的 ...</blockquote>
 ####  波隆  
 ##### 54068#       发表于 2020-12-29 07:50
 
-
-
-
-说了半天流樱到底是啥，高级的霸气？
-
-第一次看op看到决战了还没搞懂必杀技的性能
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2375,20 +2351,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ####  lightingwolf  
 ##### 54125#       发表于 2020-12-30 16:18
 
-
-
-
-转自泥潭网友
-
-[https://bbs.saraba1st.com/2b/for ... 17&amp;pid=49889751](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1980317&amp;pid=49889751)
-
-微博上有海贼粉丝找出一段央视和4v电视台共同报道的一段视频，说这个旗子恰恰是支持92共识的标志。还有另一伙人说，日版实体发行里根本没那个旗子 是4v那边自己加的
-
-央视采访视频：[http://t.cn/A6qHmo84](http://t.cn/A6qHmo84)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2624,22 +2587,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 ####  lightingwolf  
 ##### 54139#       发表于 2020-12-31 02:45
 
-
-
- 本帖最后由 lightingwolf 于 2020-12-31 02:47 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891575&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-30 19:34</a>
-
-刚翻了下，日文单行本里面是有的
-
-
-—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
-那么后来的说明原文说的是国家还是国家及地区？
-
-毕竟有旗不是问题各种地区选择比如苹果的地区选择不少都有该旗
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2648,26 +2596,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 ####  lightingwolf  
 ##### 54140#       发表于 2020-12-31 02:52
 
-
-
- 本帖最后由 lightingwolf 于 2020-12-31 02:55 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894174&amp;ptid=98922" target="_blank">敖轩 发表于 2020-12-31 01:07</a>
-
-能有这么多人洗而不是大义独轮车，说明海贼粉丝德匹下，甚至不如杏奴
-
-
-—— 来自 HUAWEI ANA ...</blockquote>
-不然 也可能是普通大众不像粉圈容易被煽动当枪做出极端行为
-
-证据: 
-
-按泥潭之前已经删除的讨论，叫封叫的凶的大部分是想搞扩大化的反串黑
-
-连上帝之鹰发的都是洗白的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2731,19 +2660,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 ####  lightingwolf  
 ##### 54144#       发表于 2020-12-31 16:18
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49898718&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-31 14:32</a>
-
-能告诉我是哪一话后面的sbs吗
-
-
-—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
-我也不知道了 原贴已删除
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4359,22 +4276,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  波隆  
 ##### 54219#       发表于 2021-1-15 11:01
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50029312&amp;ptid=98922" target="_blank">banglian 发表于 2021-1-14 08:16</a>
-
-仔细想想以前的五皇好像也不很大智若愚，更该算是实干型。重要剧情时面对同伴表情较冷静，转身就埋头苦干。 ...</blockquote>
-还是老套路解决不了新问题了
-
-以前五黄=领袖这个理论的基础在于，五黄能抓住矛盾的核心一击致命。砂之国劝不服鸡血上脑的王师和造反派，那我就打老沙；幽灵岛不可能一晚干掉茫茫多僵尸找回影子，那就直接打影子能力者。五黄的一针见血其实是建立在确实有个地方能让他扎出血之上的。
-
-但是新世界到现在为止没办法塑造出这么一个局面，一切的矛盾按照老套路都只能归到一个结果上：打四皇。但问题就是四皇他打不爆啊。针还是那个针，但是别说血了防都破不开，自然就显得开倒车了
-
-另外不能破防的另一个结果就是既然没法一拳打爆了，那就只能迂回前进，拉更多人进场创造条件。你觉得新世界杂鱼过多，其实是不写这帮人直接打爆难度更大，光是练级速度怎么平衡就满地是雷点，现在这样已经是没办法的办法了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4822,4 +4724,584 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 
 
 
-                                         
+
+
+-----
+
+####  309465205  
+##### 54245#       发表于 2021-1-15 22:09
+
+
+
+
+感觉op不出情报直接出漫画的话口碑应该会好不少
+
+
+
+
+
+
+
+-----
+
+####  wwmmddqqbbpp  
+##### 54246#       发表于 2021-1-15 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
+
+最近有时间重看前期的OP，发现大智若愚时期的五皇真的很有魅力
+
+比如打巴基手下的狮子这段描写就很好
+
+因为 ...</blockquote>
+看了这个真的觉得不是自己口味变了，就是没以前好看
+
+
+
+
+
+
+
+-----
+
+####  管他三俗  
+##### 54247#       发表于 2021-1-16 01:30
+
+
+
+
+山治都不配站在巅峰战场上了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54248#       发表于 2021-1-16 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048911&amp;ptid=98922" target="_blank">管他三俗 发表于 2021-1-16 01:30</a>
+
+山治都不配站在巅峰战场上了</blockquote>
+想起当年去砸阿龙场子的时候，四个男的并排走在一起的感觉是真的好。我甚至怀疑当时的乌索普比现在的有种
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 54249#       发表于 2021-1-16 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048911&amp;ptid=98922" target="_blank">管他三俗 发表于 2021-1-16 01:30</a>
+
+山治都不配站在巅峰战场上了</blockquote>
+这次是超新星大战四皇，新时代和旧时代的对决，山治确实不搭...
+
+恐怕后面霍金斯、阿普、德雷克都还有可能上楼，他们上了都轮不到山治
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 54250#       发表于 2021-1-16 07:29
+
+
+
+ 本帖最后由 天下至贱 于 2021-1-16 07:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50049111&amp;ptid=98922" target="_blank">zodiac137 发表于 2021-1-16 02:38</a>
+
+这次是超新星大战四皇，新时代和旧时代的对决，山治确实不搭...
+
+恐怕后面霍金斯、阿普、德雷克都还有可能 ...</blockquote>
+
+他们上倒也很正常，当年夏奇说过，基德、路飞、罗、霍金斯和德雷克在这十一人当中最受世人瞩目，正好再加上索隆基拉两个副手。
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54251#       发表于 2021-1-16 09:44
+
+
+
+
+现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  裤袜大落  
+##### 54252#       发表于 2021-1-16 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
+现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错了 应该是“草帽一伙 战斗员 厨师 山治”
+显然没有机会 起码绿藻头还是个干部
+
+
+
+
+
+
+
+-----
+
+####  暗影翔  
+##### 54253#       发表于 2021-1-16 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50051078&amp;ptid=98922" target="_blank">裤袜大落 发表于 2021-1-16 12:05</a>
+
+错了 应该是“草帽一伙 战斗员 厨师 山治”
+
+显然没有机会 起码绿藻头还是个干部 ...</blockquote>
+甚平没说是副船长吧。绿藻头从顺序和一直以来的定位就是副船长。
+
+山治当年还说过是一伙里最难对付的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54254#       发表于 2021-1-16 22:25
+
+
+
+
+所以说凯多为什么死不了？这表现，海军没一个能破防？
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54255#       发表于 2021-1-17 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
+
+现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站</blockquote>
+山治两年里练习的也是体术，两年后连正面战场都很少，成了剧情工具人了。
+
+
+
+
+
+
+
+-----
+
+####  裤袜大落  
+##### 54256#       发表于 2021-1-17 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨子再也没有过去单人带线打野必偷家的辉煌了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 54257#       发表于 2021-1-17 16:00
+
+
+
+
+高级霸气这设定也太傻缺了，这么上百年搞半天就和之国有人会，然后还秘而不宣，外面没一个知道的，离谱不
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54258#       发表于 2021-1-17 16:33
+
+
+
+ 本帖最后由 汤圆です 于 2021-1-17 16:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50063214&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-1-17 15:20</a>
+山治两年里练习的也是体术，两年后连正面战场都很少，成了剧情工具人了。 ...</blockquote>
+厨子两年腿更有力了，学了很多人都会的月步了，根本就练了个寂寞嘛，两年后最大的能力提升还是家族血统挂，和修炼没啥关系的3号战斗服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 54259#       发表于 2021-1-17 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50063531&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2021-1-17 16:00</a>
+高级霸气这设定也太傻缺了，这么上百年搞半天就和之国有人会，然后还秘而不宣，外面没一个知道的，离谱不 ...</blockquote>
+外面不是有人会嘛.只是不知道是不是御田传出去的.不过如果确定那个剪影里的是洛克斯，还能打伤凯多，那么说明外面也有人会的.毕竟御田出海那会白胡子都独立出来了.
+
+
+
+
+
+
+
+-----
+
+####  zxzx7753  
+##### 54260#       发表于 2021-1-17 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50063531&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2021-1-17 16:00</a>
+高级霸气这设定也太傻缺了，这么上百年搞半天就和之国有人会，然后还秘而不宣，外面没一个知道的，离谱不 ...</blockquote>
+外边人会的都是顶级人物  
+御田第一次见到就是白胡子和罗杰的对波  他自己那时候都还不会
+
+但海贼里面强弱主要还是看人物三围的  
+海军靠六式来训练基础  估计也和霸气教学有关  像九蛇岛的全民霸气运用  和之国的豹五郎和九侠   
+但这些人学会樱流也没法和四皇级的打   
+
+御田三围也是皇级的  所以他学会的樱流才有用
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 54261#       发表于 2021-1-17 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50056893&amp;ptid=98922" target="_blank">赚钱娶老婆 发表于 2021-1-16 22:25</a>
+
+所以说凯多为什么死不了？这表现，海军没一个能破防？</blockquote>
+早说了，吹太大圆不上了。
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54262#       发表于 2021-1-18 01:14
+
+
+
+
+石纪元181话封面有意思，千空从赤犬手上救下了艾斯
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 54263#       发表于 2021-1-18 06:06
+
+
+
+
+厨子其实说不定已经和路飞他们在一起了，只是穿上了战斗服我们看不到而已。
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 54264#       发表于 2021-1-21 20:46
+
+
+
+ 本帖最后由 C男人 于 2021-1-23 16:05 编辑 
+
+万磁王逗比化能理解，毕竟在兔碗已经这样了，
+
+
+罗能沦落到 “组队卖颜艺” 的下场是真没想到。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54265#       发表于 2021-1-21 20:54
+
+
+
+ 本帖最后由 nuoer 于 2021-1-21 20:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105829&amp;ptid=98922" target="_blank">C男人 发表于 2021-1-21 20:46</a>
+万磁王逗比化能理解，毕竟在兔碗已经这样了，
+
+
+罗能落到这个下场是真没想到。</blockquote>
+冰火岛同盟后，被乌索普把乔巴绑在头上之后，就能预想到有这一天了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/588a1c71f00e7b86ff77e7bc8d191eb7/IMG_CMP_257119412.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54266#       发表于 2021-1-23 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105829&amp;ptid=98922" target="_blank">C男人 发表于 2021-1-21 20:46</a>
+
+万磁王逗比化能理解，毕竟在兔碗已经这样了，
+
+
+罗能落到这个下场是真没想到。</blockquote>
+搭上路飞的都会逗比化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 54267#       发表于 2021-1-23 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
+
+现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站</blockquote>
+我怀疑你在黑老詹但是我没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 54268#       发表于 2021-1-23 17:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">卧槽这么一细想还真是
+
+以前的海上谁都不服谁，只有GOAT罗杰拿到了onepiece
+
+现在的海上流行抱团，现任钦定GOAT就是大船团的船长
+
+尾田平时看NBA吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54269#       发表于 2021-1-23 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50124407&amp;ptid=98922" target="_blank">hagane 发表于 2021-1-23 17:58</a>
+卧槽这么一细想还真是
+
+以前的海上谁都不服谁，只有GOAT罗杰拿到了onepiece
+
+现在的海上流行抱团，现 ...</blockquote>
+那么被打败以后投敌的书包就是阿普咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 54270#       发表于 2021-1-23 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105829&amp;ptid=98922" target="_blank">C男人 发表于 2021-1-21 20:46</a>
+
+万磁王逗比化能理解，毕竟在兔碗已经这样了，
+
+
+罗能沦落到 “组队卖颜艺” 的下场是真没想到。</blockquote>
+自从罗在草帽团搭船时不由自主顺势说出“我讨厌面包片”的时候，就注定被草帽团同化了
+
+
+这个团的傻缺光环是很强的……
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 54271#       发表于 2021-1-27 16:16
+
+
+
+
+1002话标题《四皇VS新世代》（本话全程为战斗剧情）
+
+【情报师说本次情报更新内容主要是招式部分，未详细描述剧情部分。】
+
+凯多使出"怪风"(剑气招式），索隆用阎魔接下。
+
+路飞使出"橡胶橡胶 猿王回旋弹"。【此处为情报师自绘图部分】
+
+基德使出"Slam Gibson", 罗"伽玛刀", 基拉"Kamaa Sonic"攻击凯多。
+
+大妈使出"因陀罗（Indra）"(闪电攻击)攻击基拉。
+
+路飞使出"橡胶橡胶 犀牛榴弹炮（Rhino Schneider）”攻击凯多。
+
+凯多使出"热息"攻击路飞，索隆"裂焰斩"劈开。
+
+索隆使出"一刀流 飞龙 火焰"攻击凯多。【注：第一版情报韩文情报师写的路飞，后来修正为索隆，这招2年前索隆对付龙马僵尸用过】
+
+凯多："为何从刀中能感受到御田的气息?"
+
+大妈使用"全方位雷电攻击"。
+
+大妈："草帽路飞，为何雷电对你无效？"
+
+路飞："因为我是橡胶啊。"
+
+凯多使出"热息"攻击路飞，"火焰对你也无效吗?"
+
+路飞："韧性啊"，使出"橡胶橡胶 猿王机关枪（枪乱打）！"
+
+下周不休刊。
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 54272#       发表于 2021-1-27 16:29
+
+
+
+
+因为我是橡胶啊
+
+大妈：艾尼路脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 54273#       发表于 2021-1-27 16:38
+
+
+
+
+元素攻击能不能缠绕霸气？缠绕的话带霸气的雷打橡胶扣不扣血？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                        

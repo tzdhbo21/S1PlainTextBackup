@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-27 07:41** 
+> ## **本文件最后更新于2021-01-27 15:41** 
 
 
 
@@ -4820,6 +4820,25 @@ bora说葛叶有实力上大师，自己在钻石就满足，葛叶又说bora硬
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|有试听啊|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4893,4 +4912,1071 @@ SYL：
 
 
 
-                                         
+
+
+-----
+
+####  free  
+##### 30250#       发表于 2021-1-27 15:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/154401y0fnnyyytrnztdtf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2535.jpg</strong> (139.42 KB, 下载次数: 1)
+
+下载附件
+
+2021-1-27 15:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30251#       发表于 2021-1-27 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50160576&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-27 15:39</a>
+
+关于前几天投稿的「エバ」，有热心观众指出MV使用的插画与别的翻唱作品十分相似。出于考量，决定重新绘制插 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/27/154623b7ts15lt5u51tz1s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>154205jfzpdrr8rpqzwdvv.jpg</strong> (179.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 15:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 30252#       发表于 2021-1-27 16:04
+
+
+
+<blockquote>free 发表于 2021-1-27 15:44
+</blockquote>
+牛B，这不比mrr强十倍？yagoo快来捡宝
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30253#       发表于 2021-1-27 16:07
+
+
+
+
+佛陀呢？快来救驾啊
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30254#       发表于 2021-1-27 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50160648&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-27 15:46</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想弥宝当年被自家组长和彩虹粉头一起骂，再想想C老哥刚刚还在吹文化民虹信出道，挺乐的。
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 30255#       发表于 2021-1-27 16:24
+
+
+
+
+链接：[https://pan.baidu.com/s/13fvhMo8VvaUqwyTOcVfdsQ](https://pan.baidu.com/s/13fvhMo8VvaUqwyTOcVfdsQ) 
+
+提取码：liwb 
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该品鉴了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30256#       发表于 2021-1-27 16:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 还不明白吗，话都让C老哥一个人说了，
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30257#       发表于 2021-1-27 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">从我云过的vr消息来说vr可是有几个男v虹信干了挺久评价也不错，建议你弥自己多找找问题，你虹要不是那堆前虹信给你统合后的虹赚口碑你虹还能干到2021还开fes？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30258#       发表于 2021-1-27 16:46
+
+
+
+
+你看现在虹官推还提fes吗？
+
+
+你应该祈祷让虹信能顶着疫情去参加fes，而不是在社区里剪视频，水贴
+
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30259#       发表于 2021-1-27 16:48
+
+
+
+
+真阴湿还得看虹人，女主角黑p和金鱼这比起来真的是小巫见大巫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30260#       发表于 2021-1-27 16:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">，金鱼自爆袭击也就一换一都不知道换成功没有自己也没了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30261#       发表于 2021-1-27 16:50
+
+
+
+
+这也太阴湿了，我要买一份支持一下金鱼妹<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30262#       发表于 2021-1-27 17:04
+
+
+
+
+有没有听过的老哥点评一下
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30263#       发表于 2021-1-27 17:09
+
+
+
+
+可金鱼是明治不是一直都没有实锤，观点提出这么久了也没有形成统一意见
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30264#       发表于 2021-1-27 17:10
+
+
+
+
+现在所谓明治的证据是真的充气锤
+突出一个脑补和牵强附会
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30265#       发表于 2021-1-27 17:13
+
+
+
+
+山神2.0的可动性不错，不错（[https://twitter.com/nijisanji_app/status/1354338355702542338?s=21](https://twitter.com/nijisanji_app/status/1354338355702542338?s=21)），
+省一楼，郡道去玩单发恋爱小游戏了，巨喜欢，郡道只有好好看文本的时候才能稍稍展现出一点点的感受性，这种不能大段skip的游戏就很好，希望能服务观众把之后预定要播的bl游戏换成单发小游戏😅
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30266#       发表于 2021-1-27 17:18
+
+
+
+
+这是ickr出钱让明治做的吧，口了小姐口碑大反转<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30267#       发表于 2021-1-27 17:22
+
+
+
+
+所以口了能不能回来像郡道一样换个皮走成熟女人角色
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30268#       发表于 2021-1-27 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50161691&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2021-1-27 17:22</a>
+所以口了能不能回来像郡道一样换个皮走成熟女人角色</blockquote>
+像郡道一样，是指属性重复吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这种话说出去郡道真的真的要死了，郡道不像金鱼坂，口了真的什么都不做就能把郡道搞飞，
+像千和花妈一样好吧（用魔法转大人），用当时翻唱曲声线来个形象改变挺好的
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30269#       发表于 2021-1-27 17:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/173004kbi9vd8ond55zn58.png" referrerpolicy="no-referrer">
+
+
+<strong>20210127172931.png</strong> (84.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 17:30 上传
+
+
+
+
+
+
+
+没出这事口了小姐就能滚去杏了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30270#       发表于 2021-1-27 17:35
+
+
+
+ 本帖最后由 CAserlumos 于 2021-1-27 17:37 编辑 
+
+像郡道一样换个初始皮/断句<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">syl，郡道换了皮后感觉有了微妙的变化，不知道是不是我的错觉
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30271#       发表于 2021-1-27 17:50
+
+
+
+
+是说最近同接稳固在200吗？这个变化差不多一个月前就这样了呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">（玩笑）
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 30272#       发表于 2021-1-27 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50161208&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-1-27 16:40</a>
+
+从我云过的vr消息来说vr可是有几个男v虹信干了挺久评价也不错，建议你弥自己多找找问题，你虹要不是 ...</blockquote>
+vr能算真虹人的男v，一个八木一个萨麦尔，别的纯度都不行，可人家两人是底边啊
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 30273#       发表于 2021-1-27 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">刷推看到的
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/180230bh2222lkmvhmmvnv.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (14.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 18:02 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/180336dzl2snh6nzoagj2s.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (3.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 18:03 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30274#       发表于 2021-1-27 18:06
+
+
+
+
+与其说纯度不行，除了他俩就没了，雷岁就不是vr的
+反而是女v里虹人不少，但最上位的也就鲨鱼和弥了
+就这两以前还经常被攻击
+当然还有名声最差，最被骂蹭热度的仓鼠
+
+不由感叹一句，女粉是真狠
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30275#       发表于 2021-1-27 18:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/181025y2psq0j4wjqqdidj.png" referrerpolicy="no-referrer">
+
+
+<strong>20210127180919.png</strong> (28.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 18:10 上传
+
+
+
+
+
+
+前几天看到这个还挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30276#       发表于 2021-1-27 18:13
+
+
+
+[https://space.bilibili.com/1678439710](https://space.bilibili.com/1678439710)
+
+上田敦美，这是怎么想到来B站的，还发了一首这么拉的炎
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30277#       发表于 2021-1-27 18:17
+
+
+
+
+月之真的在认真讲怎么做缩略图，受众是什么人啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，
+聊到做杂谈封面的时候说不管主题如何先会有意识地选自己的可爱大脸图放上去，很有自觉哦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。
+能做出反映直播大致内容的缩略图果然还是会对吸观众有帮助吧，虽然观众做的图一般都好看，但是缩略图和直播内容不符就…根据预定的直播内容（如果有的话）和氛围做的图如同精彩片段剪辑，郡道死懒鬼能不能<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30278#       发表于 2021-1-27 18:25
+
+
+
+
+话说维阿有本土黑黑乐啥时候搞个本土tmsk……哦已经炸了啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30279#       发表于 2021-1-27 18:25
+
+
+
+
+那个是mrra<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30280#       发表于 2021-1-27 18:33
+
+
+
+
+明治金鱼说能被传唱的这种程度不得不说口了信和佛陀厉害。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30281#       发表于 2021-1-27 18:33
+
+
+
+
+别尬黑，mrra是直女卖姬
+mihiru是纯正姬佬，更何况比tsmk还早
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30282#       发表于 2021-1-27 18:34
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-27 18:17
+月之真的在认真讲怎么做缩略图，受众是什么人啊，
+
+聊到做杂谈封面的时候说不管主题如何先会有意识地 ...</blockquote>
+死懒鬼需要先禁apex。
+
+y1s1我给她安利过好多次life is strange了，不能skip的剧情游戏还是女同游戏，可惜她没兴趣。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30283#       发表于 2021-1-27 18:36
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-1-27 18:39 编辑 
+
+别尬黑，国产六字母起码一半是真的，mrra能有一帕先是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然国产六字母也没有当年mrra哪怕一帕先的演技和服务精神。
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30284#       发表于 2021-1-27 18:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/184055sub172mr9sc7sbm7.png" referrerpolicy="no-referrer">
+
+
+<strong>20210127184043.png</strong> (51.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 18:40 上传
+
+
+
+
+
+
+明治？
+
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30285#       发表于 2021-1-27 18:43
+
+
+
+
+mrra和国产6字母相比不是百合或侄女的问题，而是这俩作为人类就八字不合（但是业务水平还不错）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30286#       发表于 2021-1-27 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162430&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-27 18:34</a>
+死懒鬼需要先禁apex。
+
+y1s1我给她安利过好多次life is strange了，不能skip的剧情游戏还是女同游戏，可惜 ...</blockquote>
+要玩apex，只要换上粉丝做的封面图，然后就可以开心畅玩了，那必然不可能戒啊，反正她年纪大身体跟不上，到一定等级的时候玩200局都吃不到鸡就自然弃了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，现在就健健脑吧。
+lifeisstrange没她会喜欢的角色我觉得不行，有个我断定她会有兴趣的女同游戏（有性格恶女主）又只有英文，就，算了。
+省一楼，历史都是相似的，mrra死后会有tmsk来救世
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30287#       发表于 2021-1-27 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 葛西莉是不是你虹现在T0组合阿，秒杀3马鹿没问题吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30288#       发表于 2021-1-27 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明治lamp小姐只是顺便利用下金口谣言的黑热度罢了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30289#       发表于 2021-1-27 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 微星找葛西莉，rog没法找holo的情况下，找谁宣传阿
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30290#       发表于 2021-1-27 19:01
+
+
+
+
+油男这个，甲子园再临啊，杏奴们颤抖了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 30291#       发表于 2021-1-27 19:08
+
+
+
+
+#にじライバーの野望資料集 这个企划的战国fanart真不错
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/190752tgvfyutxbuohhoft.png" referrerpolicy="no-referrer">
+
+
+<strong>Esg8nFSUwAEPuPO.png</strong> (75.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 19:07 上传
+
+
+
+
+
+[https://twitter.com/hayamaruna/status/1353398792716861441](https://twitter.com/hayamaruna/status/1353398792716861441)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pansherry| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30292#       发表于 2021-1-27 19:08
+
+
+
+<blockquote>rzrbtk 发表于 2021-1-27 18:45
+要玩apex，只要换上粉丝做的封面图，然后就可以开心畅玩了，那必然不可能戒啊，反正她年纪大身体跟不上， ...</blockquote>
+life is strange有日文版和日文版配音的（还不错）。而且不是有Victoria吗，我觉得她应该好这口（MaxXVic党很多的）。
+
+Apex她演出型人格太过了，干啥都喜欢叫，而且apex的观赏性算是实力至上了。
+
+
+最近的爆点除了短发还仍然是和星川啵嘴，关系性运营水平可以的偏偏不搞（被两个地雷伤到了，当然自己也是地雷）。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30293#       发表于 2021-1-27 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 真鸡儿真实，king代言的就是最好的gp系列、椎名就是最轻薄的gs系列，莉莉姆就是最垃圾的入门级gf了
+
+
+阶级社会嗷
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30294#       发表于 2021-1-27 19:13
+
+
+
+ 本帖最后由 winda 于 2021-1-27 19:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162747&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-27 19:01</a>
+油男这个，甲子园再临啊，杏奴们颤抖了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看被holorim压杀么
+再编辑自己要连1w4都保不住了
+
+直播excel debug艹
+
+
+
+
+
+
+
+-----
+
+####  kakera9576  
+##### 30295#       发表于 2021-1-27 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162228&amp;ptid=1969498" target="_blank">free 发表于 2021-1-27 18:13</a>
+
+https://space.bilibili.com/1678439710
+
+上田敦美，这是怎么想到来B站的，还发了一首这么拉的炎 ...</blockquote>
+打死你
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30296#       发表于 2021-1-27 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50162816&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-1-27 19:08</a>
+life is strange有日文版和日文版配音的（还不错）。而且不是有Victoria吗，我觉得她应该好这口（MaxXVic ...</blockquote>
+郡道看到Victoria这种攻击性强歇斯底里重女不会那个吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 30297#       发表于 2021-1-27 22:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/220704ekzxuuo1ggh1uuug.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsvC9OsUYAMaD63.jpg</strong> (558.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 22:07 上传
+
+
+
+
+
+[https://twitter.com/oekaky/status/1354398750832087047](https://twitter.com/oekaky/status/1354398750832087047)
+
+<img src="https://img.saraba1st.com/forum/202101/27/220517qwd2udid0b0lgb5i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EsufiEYVcAIvWQ1.jpg</strong> (280.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 22:05 上传
+
+
+
+
+
+[https://twitter.com/ruwo_benzen/status/1354351524831346690](https://twitter.com/ruwo_benzen/status/1354351524831346690)
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30298#       发表于 2021-1-27 22:08
+
+
+
+
+/ 奇屋敷ゾンゾン cover
+[https://www.youtube.com/watch?v=gqJqlCRf_X4&amp;feature=youtu.be](https://www.youtube.com/watch?v=gqJqlCRf_X4&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 30299#       发表于 2021-1-27 22:15
+
+
+
+
+黄兔子又在直播黑后辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能这么干的管人大概还是找不到第二个
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30300#       发表于 2021-1-27 22:28
+
+
+
+
+月灵nico马上播
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30301#       发表于 2021-1-27 22:57
+
+
+
+
+小千单排上大师，但是真的太难了，回到了最初的起点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
