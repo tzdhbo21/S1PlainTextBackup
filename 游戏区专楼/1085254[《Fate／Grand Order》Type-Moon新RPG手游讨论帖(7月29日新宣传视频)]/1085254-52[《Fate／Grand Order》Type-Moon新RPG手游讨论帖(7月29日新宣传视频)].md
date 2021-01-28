@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-22 02:23** 
+> ## **本文件最后更新于2021-01-28 18:23** 
 
 
 
@@ -23944,4 +23944,548 @@ EsLG-06U0AAykRo.jpg
 
 
 
-     
+
+
+-----
+
+####  黑上シグマ  
+##### 77822#       发表于 2021-1-22 11:13
+
+
+
+<blockquote>引用第77818楼v22325于2021-01-22 03:25发表的  :
+
+50天领个石 稍微卡了一下  金光 仇背 狼王 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">安啦，我已经连续两个仇阶池子来狗子了
+还都是和出货在同一个11连里，对心脏非常不好（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77823#       发表于 2021-1-22 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50110575&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-1-22 11:13</a>
+
+安啦，我已经连续两个仇阶池子来狗子了
+
+还都是和出货在同一个11连里，对心脏非常不好（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77824#       发表于 2021-1-23 19:28
+
+
+
+
+多谢奶奶给的礼装<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77825#       发表于 2021-1-23 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125070&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-23 19:28</a>
+
+多谢奶奶给的礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次礼装直接给满5张的啊
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77826#       发表于 2021-1-23 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125070&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-23 19:28</a>
+
+多谢奶奶给的礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任务送1张 能换4张啊
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77827#       发表于 2021-1-23 19:42
+
+
+
+
+没所谓啦，当提前享受满破礼装就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77828#       发表于 2021-1-23 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">以及由于会导致无法愉快的3T，我根本就不带这礼装刷的
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77829#       发表于 2021-1-23 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125181&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-23 19:42</a>
+
+没所谓啦，当提前享受满破礼装就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带了就不能3t了啊（
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77830#       发表于 2021-1-23 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50125201&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-23 19:45</a>
+带了就不能3t了啊（</blockquote>
+这次是出现率，我宁可慢慢打，也就是多2到3t，没所谓啦。
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 77831#       发表于 2021-1-24 18:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男友又出场了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77832#       发表于 2021-1-24 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50132374&amp;ptid=1085254" target="_blank">v22325 发表于 2021-1-24 18:07</a>
+
+男友又出场了</blockquote>
+樱井必备男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77833#       发表于 2021-1-24 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，竟然有提到静御前，
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77834#       发表于 2021-1-25 17:56
+
+
+
+
+又一个老苏<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 77835#       发表于 2021-1-25 19:16
+
+
+
+
+635的本也能冲的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77836#       发表于 2021-1-27 13:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">街机实装库夫林莉莉了……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 77837#       发表于 2021-1-27 13:51
+
+
+
+
+日本不是也开始禁足了吗？这种时间还鼓励人去街机铺？
+
+
+
+
+
+
+
+-----
+
+####  yzj134100  
+##### 77838#       发表于 2021-1-27 14:09
+
+
+
+
+那年头也流行开裆裤？雷克斯点了个赞
+
+
+
+
+
+
+
+-----
+
+####  katun  
+##### 77839#       发表于 2021-1-27 14:09
+
+
+
+
+盐川早点和街机一起打包去世吧，紧急事态宣言了还浪费资源去扶一个赔钱货<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 77840#       发表于 2021-1-27 14:28
+
+
+
+
+连一向逢盐先帝必舔的NGA这回都坐不住了，街机独占真是天怒人怨啊。
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77841#       发表于 2021-1-27 14:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有高人说下 街机版现在到底是个什么情况 大爆死预定还是很热门?
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 77842#       发表于 2021-1-27 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159930&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-27 14:37</a>
+有没有高人说下 街机版现在到底是个什么情况 大爆死预定还是很热门?</blockquote>
+很热门还急着出一堆独占吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77843#       发表于 2021-1-27 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50160136&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-1-27 14:58</a>
+
+很热门还急着出一堆独占吗
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这可说不好啊(
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77844#       发表于 2021-1-27 15:10
+
+
+
+
+说起来舰娘的街机还活着吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yangun22  
+##### 77845#       发表于 2021-1-27 16:08
+
+
+
+
+舰娘街机属于摇钱树级别，fgo街机看资料要分地段，赚钱的地方也是很赚钱，没客群的地方不行，但总的来说SEGA现在最赚钱的街机大概就这2台了
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 77846#       发表于 2021-1-27 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159930&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-27 14:37</a>
+
+有没有高人说下 街机版现在到底是个什么情况 大爆死预定还是很热门?</blockquote>
+有说街机铺和SEGA就是靠舰C和FGO混饭吃
+
+
+
+
+
+
+
+-----
+
+####  rzxa  
+##### 77847#       发表于 2021-1-27 16:27
+
+
+
+
+疫情前应该不错
+
+
+
+
+
+
+012.jpg
+(226.14 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-27 16:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/162646dubhwwh3z8uz2ffz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnknownRei  
+##### 77848#       发表于 2021-1-27 16:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">神经病啊，一直给街机加独占，太弱智了这谁能理解日本人的脑回路啊
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 77849#       发表于 2021-1-28 11:36
+
+
+
+
+街机是盐上皇在管啊，权力比叶良树大多了去了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 77850#       发表于 2021-1-28 16:50
+
+
+
+
+今天废狗街机死了吗？没有.jpg
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77851#       发表于 2021-1-29 00:55
+
+
+
+
+偷渡失败来这里吐槽一下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+这次活动抽三回黑狗池了，之前都没金英灵，今天又氪了半单，在单UP池抽，先给我金圈出金狂，高兴，结果是不知道卖了多少的茨木童子，绝望，结果紧接着下一张没特效，出了金狂卡背，欣喜若狂，然后南丁二宝了，WDNMD，这概率真的恶心，贻害万年啊...<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+（其实源赖光第一次UP时，我也护符连出过四个金狂，全是四星...看来我是和开服后的五星狂战们不对付啊）
+
+
+
+
+
+    
