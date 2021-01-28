@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-26 18:00** 
+> ## **本文件最后更新于2021-01-28 10:43** 
 
 
 
@@ -13373,4 +13373,593 @@ Pro终于要发售，算不算1？
 
 
 
-                           
+
+
+-----
+
+####  leystage  
+##### 2162#       发表于 2021-1-27 07:37
+
+
+
+<blockquote>暗铁 发表于 2021-1-27 01:09
+国行都舍得上12G，pro反而不上，也是很奇妙</blockquote>
+这几年国行内存都比国际版大呀，毕竟国内生态要更恶劣一点…也可能是天真的以为内存大一点国内销量就会上去吧…
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2163#       发表于 2021-1-27 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155278&amp;ptid=1915171" target="_blank">暗铁 发表于 2021-1-27 01:09</a>
+国行都舍得上12G，pro反而不上，也是很奇妙</blockquote>
+<img src="https://p.sda1.dev/1/93344cc56673e2940d93445e170f9b92/IMG_2021012708_3804_6390.jpg" referrerpolicy="no-referrer">
+
+pro是12G吧？
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2164#       发表于 2021-1-27 08:41
+
+
+
+
+其实pro完全可以考虑吧摄像头阉到只剩一个主摄扫码，然后电池再大500mah吧……质感帅是帅，就是对比1M2升级还是有限了。
+
+<img src="https://p.sda1.dev/1/744b4a8db8c30929a925355118d6e7e4/IMG_2021012708_3903_6980.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/acb8e3bfd028e4505db06da81d8750f1/IMG_2021012708_3857_0030.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/5f7809ff1d606b273b3fd27f10c2ea92/IMG_2021012708_3906_8390.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2165#       发表于 2021-1-27 11:23
+
+
+
+<img src="https://p.sda1.dev/1/b5425f950342a7e2949f894939fe8613/IMG_CMP_253585467.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2166#       发表于 2021-1-27 12:34
+
+
+
+
+翔移更新后这是什么奇怪的调度……跑分旗舰大核几乎不动……
+
+<img src="https://p.sda1.dev/1/c8ff708a44654a70e3f18af88c3c3832/IMG_CMP_138155235.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  暗铁  
+##### 2167#       发表于 2021-1-27 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50158718&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-27 12:34</a>
+翔移更新后这是什么奇怪的调度……跑分旗舰大核几乎不动……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前适配888
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2168#       发表于 2021-1-27 12:54
+
+
+
+ 本帖最后由 我很费纸 于 2021-1-27 13:59 编辑 
+
+比提前适配888更惨的来了
+
+CNM，重启以后连3个中核都给我锁了，现在变成4核A55了
+
+CNM，傻逼玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/ab392c0bc2dd8aa829c2dcd32230742c/IMG_CMP_267003590.png" referrerpolicy="no-referrer">
+
+更新：开机等了10分钟调度才稍微正常点，现在中核上线了。特么翔移这帮废物工程师什么时候才能吊路灯？号称主打游戏体验的X5M2调度改得这么消极，大核迟迟不上线，GPU撑死跑个400mhz，玩🔨呢，神经病啊
+
+更新2：放了一个中午大核终于舍得上线了……好家伙，这特么还是分批起床的？（另外分数还是低于Android 10时期）
+<img src="https://p.sda1.dev/1/3e54222c1bebec275ac0e573bb1c681a/IMG_CMP_82993410.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2169#       发表于 2021-1-27 14:09
+
+
+
+<blockquote>我很费纸 发表于 2021-1-27 12:54
+比提前适配888更惨的来了
+
+
+CNM，重启以后连3个中核都给我锁了，现在变成4核A55了</blockquote>
+那么弱智。。。
+
+我也是昨天重启三次后才恢复之前的流畅度。。。
+
+也许是大版本升级后后台有些处理？
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2170#       发表于 2021-1-27 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159664&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-27 14:09</a>
+那么弱智。。。
+
+我也是昨天重启三次后才恢复之前的流畅度。。。
+
+也许是大版本升级后后台有些处理？ ...</blockquote>
+后台处理按照常规操作应该是CPU满载温热，后台在跑任务影响前台流畅度
+
+这次的弱智操作是强制锁核，而且优先锁大核……这要不是bug我只能佩服索尼工程师的脑回路，重启手机以后卡得我不要不要的，865变成625了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2171#       发表于 2021-1-27 20:19
+
+
+
+
+好家伙……这个版本的大核调度绝对有问题……索移不会真的特么把888的调度下放给865了吧在，绝了，大部分时间大核锁844mhz，不动如山<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 2172#       发表于 2021-1-27 20:30
+
+
+
+
+日版xz1c硬干bl锁成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8441, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2173#       发表于 2021-1-27 21:51
+
+
+
+
+DxOMark 把 1m2 的相机评分改成 112 了 XD
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2174#       发表于 2021-1-27 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50164367&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-27 21:51</a>
+DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
+看了一下就是拿默认的相机测的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  天妇罗  
+##### 2175#       发表于 2021-1-28 09:25
+
+
+
+
+2500刀的手机 X
+
+2500刀的监视器 O
+
+
+可惜500刀监视器该有的功能它都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mir123  
+##### 2176#       发表于 2021-1-28 11:15
+
+
+
+
+国行刚推的更新是安卓11？
+
+
+
+
+
+
+
+-----
+
+####  狂风DKC  
+##### 2177#       发表于 2021-1-28 11:24
+
+
+
+
+我也收到了，977M，感觉像是大更新吧。等一个坛友试毒
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2178#       发表于 2021-1-28 12:54
+
+
+
+<blockquote>引用第2173楼SplashCrBy于2021-01-27 23:23发表的  :
+
+引用:leystage 发表于 2021-1-27 21:51DxOMark 把 1m2 的相机评分......</blockquote>
+测个寂寞 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  hguawolo  
+##### 2179#       发表于 2021-1-28 12:57
+
+
+
+
+真·板砖<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wenze  
+##### 2180#       发表于 2021-1-28 13:44
+
+
+
+
+我吐了，国行更新后把浏览器给换了，所有书签和浏览记录都没了
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2181#       发表于 2021-1-28 15:03
+
+
+
+
+我单方面宣布（目前的）安卓10是最适合5M2的系统！
+
+
+
+
+
+
+
+-----
+
+####  mickoo  
+##### 2182#       发表于 2021-1-28 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50163565&amp;ptid=1915171" target="_blank">ziyo 发表于 2021-1-27 20:30</a>
+
+日版xz1c硬干bl锁成功
+
+
+—— 来自 Sony G8441, Android 11上的 S1Next-鹅版 v2.4.3</blockquote>
+怎么弄得？我手上有台XZ1，do版，强刷了国行9.0，不过很费电，想root刷其他系统看看
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 2183#       发表于 2021-1-28 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171252&amp;ptid=1915171" target="_blank">mickoo 发表于 2021-1-28 15:14</a>
+
+怎么弄得？我手上有台XZ1，do版，强刷了国行9.0，不过很费电，想root刷其他系统看看 ...</blockquote>
+Google 20欧  淘宝200块
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2184#       发表于 2021-1-28 16:29
+
+
+
+ 本帖最后由 我很费纸 于 2021-1-28 16:31 编辑 
+
+有没有更了国行11的勇士说一下国行11修复CPU调度bug没有啊？
+
+说是国行比港行高一个版本，修复了部分bug
+
+现在geekbench跑分太惨不忍睹了，从900/3200变成700/1900，差距太大了。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  mickoo  
+##### 2185#       发表于 2021-1-28 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171334&amp;ptid=1915171" target="_blank">ziyo 发表于 2021-1-28 15:22</a>
+
+Google 20欧  淘宝200块</blockquote>
+200太贵了，这机器要退役了
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 2186#       发表于 2021-1-28 16:56
+
+
+
+
+国行更新了安卓11
+更新了日历！但是这日历好像没法同步Outlook里邮件工作事项，还不如Outlook自带的日历来的方便。可能是因为没有自带的邮件软件所以没法联动吧吧。
+浏览器从换皮chrome变成自产浏览器？可以直接卸了，反正一直在用chrome。
+应用商城变成铁毒瘤软件了，一点开就是广告悬浮窗三连，好在可以直接卸了。
+依然不支持支付宝指纹
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2187#       发表于 2021-1-28 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172450&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-28 16:56</a>
+
+国行更新了安卓11
+
+更新了日历！但是这日历好像没法同步Outlook里邮件工作事项，还不如Outlook自带的日历来 ...</blockquote>
+新浏览器是360的，应用商店变成了毒瘤应用宝
+
+直接卸载了事
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2188#       发表于 2021-1-28 18:06
+
+
+
+
+借楼求问国行5M2的cpu调度如何，看楼上老哥说的港行安卓11系统锁核心有点不太敢更新国行的
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2189#       发表于 2021-1-28 18:09
+
+
+
+<blockquote>里少 发表于 2021-1-28 16:56
+国行更新了安卓11
+
+更新了日历！但是这日历好像没法同步Outlook里邮件工作事项，还不如Outlook自带的日历来 ...</blockquote>
+听着比港版升级还弱智啊。。。
+
+
+这就是支持微信指纹支付的代价吗。。。
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2190#       发表于 2021-1-28 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172450&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-28 16:56</a>
+国行更新了安卓11
+更新了日历！但是这日历好像没法同步Outlook里邮件工作事项，还不如Outlook自带的日历来 ...</blockquote>
+日历要从哪搞出来..我更新了还没找到
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2191#       发表于 2021-1-28 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50173122&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-28 18:09</a>
+
+听着比港版升级还弱智啊。。。
+
+
+这就是支持微信指纹支付的代价吗。。。 ...</blockquote>
+安卓10不升级也支持微信指纹支付啊
+
+
+
+
+
+                          
