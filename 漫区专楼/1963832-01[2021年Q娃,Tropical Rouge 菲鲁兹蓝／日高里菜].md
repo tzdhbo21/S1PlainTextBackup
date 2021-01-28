@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 10:15** 
+> ## **本文件最后更新于2021-01-28 22:45** 
 
 
 
@@ -6400,4 +6400,526 @@ Summer：ファイルーズあい
 
 
 
-                                     
+
+
+-----
+
+####  isa2456  
+##### 362#       发表于 2021-1-25 18:22
+
+
+
+
+人鱼是高丽菜吗，我先好了
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 363#       发表于 2021-1-25 18:36
+
+
+
+
+居然有埃及人
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 364#       发表于 2021-1-25 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50142456&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-1-25 18:01</a>
+https://weibo.com/tv/show/1034:4597294704558139?from=old_pc_videoshow</blockquote>
+广告里的小女孩有没有日高里菜？
+这广告想起了本名女士客串Black两集。
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 365#         楼主| 发表于 2021-1-25 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50142829&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2021-1-25 18:43</a>
+
+广告里的小女孩有没有日高里菜？
+
+这广告想起了本名女士客串Black两集。</blockquote>
+据说写字的那个就是她
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 366#       发表于 2021-1-25 20:00
+
+
+
+
+小女孩都长大成Q娃了。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 367#       发表于 2021-1-25 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50143307&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-1-25 19:35</a>
+据说写字的那个就是她</blockquote>
+看到后15秒有两个小女孩，哪个是日高？
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 368#       发表于 2021-1-25 20:35
+
+
+
+
+日高里菜挺符合我预期的，夏夏和人鱼看上去很典型的没头脑和不高兴，所以一直觉得人鱼是个骂倒型角色
+
+顺带之前我猜的是富田美忧（）
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 369#         楼主| 发表于 2021-1-25 21:59
+
+
+
+
+估计这几天会有剩下几个人的声优情报
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 370#       发表于 2021-1-25 22:51
+
+
+
+
+维基查到粉主“拥有西兰公国的爵位。”
+
+仔细了解了一下西兰公国，开了眼界
+
+
+
+
+
+
+
+-----
+
+####  lotwhite  
+##### 371#       发表于 2021-1-26 02:42
+
+
+
+
+有生之年应该没有名冢太太Q娃转正了
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 372#         楼主| 发表于 2021-1-26 07:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50145929&amp;ptid=1963832" target="_blank">lotwhite 发表于 2021-1-26 02:42</a>
+
+有生之年应该没有名冢太太Q娃转正了</blockquote>
+别急啊……没准今年呢
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 373#       发表于 2021-1-26 08:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50144716&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-1-25 22:51</a>
+维基查到粉主“拥有西兰公国的爵位。”
+
+仔细了解了一下西兰公国，开了眼界 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想了想我第一次听说西兰公国是在黑塔利亚
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 374#       发表于 2021-1-26 09:35
+
+
+
+
+埃及人好耶，元气可爱不聒噪
+
+
+
+
+
+
+
+-----
+
+####  金色先锋  
+##### 375#       发表于 2021-1-26 11:44
+
+
+
+
+埃及人好耶！
+
+
+
+
+
+
+
+-----
+
+####  夏侯妙才  
+##### 376#       发表于 2021-1-26 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50143541&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2021-1-25 20:07</a>
+
+看到后15秒有两个小女孩，哪个是日高？</blockquote>
+应该是右边那个
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 377#       发表于 2021-1-26 14:34
+
+
+
+
+高丽菜，微妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 378#         楼主| 发表于 2021-1-27 07:28
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn1uwo4i81j20u00u077n.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn1uwo1erzj20u00u00w3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn1uwo7qr7j20u00u0jw5.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gn1uwnvdqtj20fk0fkjs1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gn1uwopkvfj20vy0g4k6h.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gn1uwp8wzqj20g42na4qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn1uwomp0bj20vy0g47fz.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gn1uwounlzj20vy0g4tp6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn1uwosdbgj20vy0g47e8.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 379#       发表于 2021-1-27 08:46
+
+
+
+
+还有口罩啊
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 380#       发表于 2021-1-27 08:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50156272&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-1-27 08:46</a>
+还有口罩啊</blockquote>
+紧跟时代
+
+
+
+
+
+
+
+-----
+
+####  DARK_HGCG  
+##### 381#       发表于 2021-1-27 08:51
+
+
+
+ 本帖最后由 DARK_HGCG 于 2021-1-27 11:12 编辑 
+
+彩主声音的试听
+[https://m.weibo.cn/s/video/show? ... 895773719&amp;fromWap=1](https://m.weibo.cn/s/video/show?object_id=1034%3A4597890895773719&amp;fromWap=1)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 382#       发表于 2021-1-27 10:34
+
+
+
+
+听着挺元气
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 383#       发表于 2021-1-27 12:18
+
+
+
+
+先入为主，听声音我感觉是隔壁prichan爱丽丝跑来当q娃，还是同样的金发侧马尾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 384#         楼主| 发表于 2021-1-27 18:48
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gn26na9fgsj20u0143ng3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 385#       发表于 2021-1-27 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50144716&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-01-25 22:51:44</a>
+维基查到粉主“拥有西兰公国的爵位。”
+
+仔细了解了一下西兰公国，开了眼界 ...</blockquote>西兰公国艹死
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 386#         楼主| 发表于 2021-1-27 19:37
+
+
+
+
+たのしい幼稚園 2021年3月号 (発売日2021年01月29日)
+
+也就是说声优情报在周五前一定能出来吧 ​​​​
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 387#       发表于 2021-1-27 20:29
+
+
+
+
+敲碗等声优情报
+
+
+
+
+
+
+
+-----
+
+####  DARK_HGCG  
+##### 388#       发表于 2021-1-29 06:04
+
+
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gn43tbifdmj20m34c7e7y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 389#       发表于 2021-1-29 06:26
+
+
+
+
+哎呦卧槽，今年这cv阵容可以啊
+
+算不算法q之后最靠谱的一年<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+— from OnePlus IN2020, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 390#       发表于 2021-1-29 06:28
+
+
+
+
+这声优阵好啊，希望剧情不要扯后腿
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 391#       发表于 2021-1-29 06:32
+
+
+
+
+惊了。这次难得没有新人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                    
