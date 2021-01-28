@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-26 06:53** 
+> ## **本文件最后更新于2021-01-28 07:31** 
 
 
 
@@ -24217,4 +24217,483 @@ endgame之后很多日课本是不产狗粮的 只打古战和剧情活动的箱
 
 
 
-     
+
+
+-----
+
+####  peh  
+##### 14826#       发表于 2021-1-26 16:02
+
+
+
+<blockquote>凌云三才 发表于 2021-1-26 14:53
+那么问题来了，伟大的瓦姬拉阁下抬得动她忠诚的小妹米林吗</blockquote>
+我觉得可以
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14827#       发表于 2021-1-26 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50149664&amp;ptid=1158205" target="_blank">凌云三才 发表于 2021-1-26 14:53</a>
+
+那么问题来了，伟大的瓦姬拉阁下抬得动她忠诚的小妹米林吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小弟，她配吗
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14828#       发表于 2021-1-26 17:45
+
+
+
+
+狗子这强度真是毫不含糊了，再给点新lm够活
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14829#       发表于 2021-1-26 18:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">狗子终突给了 驱散/全队连击/减豆/db
+
+我现在开始好奇4妹超越要怎么改了
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 14830#       发表于 2021-1-26 18:46
+
+
+
+
+本来看news说明感觉也没多夸张，现在测试出来发现改了仁义八行的累积，还把奥义槽up偷偷改成30%。
+
+狗一次终突远远超过80+90+95+100四次增强。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  江戸前ルナ  
+##### 14831#       发表于 2021-1-26 18:59
+
+
+
+
+羊：龙吟虎啸。我的招式名比较威<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerg12345  
+##### 14832#       发表于 2021-1-26 19:09
+
+
+
+
+现在神将里面只有猪不会打拳了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14833#       发表于 2021-1-26 19:19
+
+
+
+
+还有一套降神的皮肤和语音，没啥好说的，看强度这牌面也足够拉满了已经
+
+
+
+
+
+
+
+-----
+
+####  古典吉他  
+##### 14834#       发表于 2021-1-26 20:46
+
+
+
+
+狗有10分吗
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14835#       发表于 2021-1-26 21:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50152002&amp;ptid=1158205" target="_blank">zilch_ren 发表于 2021-1-26 18:46</a>
+本来看news说明感觉也没多夸张，现在测试出来发现改了仁义八行的累积，还把奥义槽up偷偷改成30%。
+
+狗一次终 ...</blockquote>
+艹30奥义加速?
+
+这个是真的nb了
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14836#       发表于 2021-1-26 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原版都9.8，这个10分毫无疑问
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14837#       发表于 2021-1-26 22:31
+
+
+
+
+先代全是男生姜 这代都是妹子
+
+最好的时代
+
+
+
+
+
+
+
+-----
+
+####  桧川直巳  
+##### 14838#       发表于 2021-1-27 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50152163&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2021-1-26 18:59</a>
+羊：龙吟虎啸。我的招式名比较威</blockquote>
+等出龙和虎的时候就笑不出来了
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 14839#       发表于 2021-1-27 01:51
+
+
+
+
+能刷肉能高难能打奥义能打拳，终突强度拉满，不过与此同时LB被动也彻底被迈进墓地里了，默哀三秒钟（
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14840#       发表于 2021-1-27 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155467&amp;ptid=1158205" target="_blank">久井路路 发表于 2021-1-27 01:51</a>
+
+能刷肉能高难能打奥义能打拳，终突强度拉满，不过与此同时LB被动也彻底被迈进墓地里了，默哀三秒钟（
+
+ ...</blockquote>
+并没有
+
+「ガルジャナ召喚中」是指攻击带大狗追伤的状态，而这个状态目前的狗基本开启后就能常驻，不如说一下子变成了常驻10ta10da的破格lb..
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 14841#       发表于 2021-1-27 10:16
+
+
+
+ 本帖最后由 久井路路 于 2021-1-27 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50157012&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-27 10:13</a>
+
+并没有
+
+「ガルジャナ召喚中」是指攻击带大狗追伤的状态，而这个状态目前的狗基本开启后就能常驻，不如说 ...</blockquote>
+真的吗，我怎么记得是15DA3TA的效果量来着，是我记错了或者这次上修暗改了么（
+
+话说狗其实也一点都不差连击率，开三技能至少两回合必定TA，开幕咸鱼打两次奥义的话狗就能直接得到奥义buff的30DA和15TA
+
+虽然要说绝对一点都派不上用场是有点武断了，不过我确实想不到太多点这个LB被动的价值（
+
+
+
+
+
+
+
+-----
+
+####  MARBLE  
+##### 14842#       发表于 2021-1-27 10:17
+
+
+
+
+这狗终突让我对今年的水期待起来了
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14843#       发表于 2021-1-27 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50157050&amp;ptid=1158205" target="_blank">久井路路 发表于 2021-1-27 10:16</a>
+
+真的吗，我怎么记得是15DA3TA的效果量来着
+
+
+是我记错了或者这次上修暗改了么（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还真是15da3ta，是我搞错了，但至少常驻也还凑合吧
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 14844#       发表于 2021-1-27 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50157085&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-27 10:20</a>
+
+还真是15da3ta，是我搞错了，但至少常驻也还凑合吧</blockquote>
+其实主要是终突后奥义加的buff效果也改了，狗用两次奥义直接全队30DA+15TA
+
+相比之下LB被动的效果量搞得太缩了，要是提升一下效果量或者修改一下效果内容，会更有采用的价值（
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14845#       发表于 2021-1-27 11:43
+
+
+
+
+LB被动那个效果量不同网站数值不同，也有不少网站写的是20da10ta，如果给了婚戒点了也不亏吧。
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 14846#       发表于 2021-1-27 12:11
+
+
+
+
+终秃了被动等于常驻 点了不亏
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 14847#       发表于 2021-1-27 19:29
+
+
+
+
+想抽狗，没有池，急。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14848#       发表于 2021-1-27 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50163038&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-1-27 19:29</a>
+
+想抽狗，没有池，急。
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+过两天就是狗up了
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 14849#       发表于 2021-1-28 09:08
+
+
+
+
+看了クザン的视频，感觉还是应该憋到3月再井
+
+
+
+
+
+
+
+-----
+
+####  dayuii  
+##### 14850#       发表于 2021-1-28 13:22
+
+
+
+
+3月有没有全神将池还是未确定，就算有也是一个无up池，也有点亏。
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14851#       发表于 2021-1-28 14:16
+
+
+
+
+今年还跟去年一样送的话2月全花光3月底也能再来一井啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14852#       发表于 2021-1-28 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50170149&amp;ptid=1158205" target="_blank">dayuii 发表于 2021-1-28 13:22</a>
+3月有没有全神将池还是未确定，就算有也是一个无up池，也有点亏。</blockquote>
+求问一下，这个月的月末百六是狗会up，但是周年的n个神将的池子是没有神将up但是可能叠转盘吗？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+    
