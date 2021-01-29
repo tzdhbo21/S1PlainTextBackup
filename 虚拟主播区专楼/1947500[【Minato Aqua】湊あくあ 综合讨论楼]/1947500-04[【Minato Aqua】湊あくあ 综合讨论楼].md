@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 15:58** 
+> ## **本文件最后更新于2021-01-29 10:43** 
 
 
 
@@ -8877,4 +8877,624 @@ https://www.lawson.co.jp/lab/campaign/hololive/
 
 
 
-                                 
+
+
+-----
+
+####  离魂仙  
+##### 4983#       发表于 2021-1-26 01:18
+
+
+
+<blockquote>つまりこうなるのか
+
+マイクラ中のあくあ「えい♥えい♥よいしょっと♪」
+
+野うさぎ「おいぺこらに触れろ、ぺこら大変なことになってるぞ」
+
+あくあ「え？ぺこらちゃんなんかあったの？」
+
+野うさぎ「あ」「まずい」「ひん」「やめべ」
+
+あくあ「...？？次の作業いこうかな」
+
+野うさぎ「ぺこらから逃げるな」「ぺこらに触れろ」
+
+あくあ「...ぺこらちゃんどうしたん？」
+
+野うさぎ「あ」「まずい」「ひん」「やめべ」</blockquote>
+看到这个我是真忍不了了，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+火星归来上网冲浪，懵了好一会儿才知道原来是🐇皇遇刺了
+
+就是奇怪怎么日本野うさぎ也人均阿夸不离嘴
+
+恍惚间以为暗黑连体人还活着、木石前盟的是あくぺこ呢
+
+感觉比Akukin企划要精彩，不愧是王（的余韵）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4984#       发表于 2021-1-26 09:29
+
+
+
+
+あくぺこ贴贴，这建筑王办的还挺成的，拉拢人心，你们的王回来了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4985#       发表于 2021-1-26 21:13
+
+
+
+
+今天摸了。
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 4986#       发表于 2021-1-27 00:08
+
+
+
+
+喷了，看个新番这配色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+20210127000809.png
+(69 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-27 00:08 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/000829uhp0ieiev0xppemb.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 乌鸦绅士| + 1|对不上|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 4987#       发表于 2021-1-27 01:38
+
+
+
+<img src="https://p.sda1.dev/1/7b218a2dce5d0a7db78404e86b36fc0d/010611ymuhurukvhselh24.png.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作监私货
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守| + 1|草|
+| 甜甜圈与棒棒糖| + 1|欢乐多|
+| 乌鸦绅士| + 1|对上了!?|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 4988#       发表于 2021-1-27 02:03
+
+
+
+
+真是私货！？
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 4989#       发表于 2021-1-27 02:23
+
+
+
+ 本帖最后由 499 于 2021-1-27 02:30 编辑 
+
+这种东西归角色设计管啊，作监只是负责修图的
+
+动画人这种二次元行业的，看个管人画个fan art再正常不过了
+
+
+再编辑一下这种炎上系偶像想到偶像大师的璃阿梦还更合理一下
+
+
+不过这画的确实很像夸
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 4990#       发表于 2021-1-27 02:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要说没受到影响完全不知道阿夸是谁我是不信的，看来管人上电视以后会越来越常见了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 4991#       发表于 2021-1-27 10:00
+
+
+
+ 本帖最后由 fangjun96 于 2021-1-27 14:11 编辑 
+
+私货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好事这番，好几个都是挑染，眼睛一黄一蓝也是特色，感觉是色彩设计的，不过是挺巧的
+
+syl  这分镜有点意思啊，燃的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4992#       发表于 2021-1-27 11:08
+
+
+
+
+单纯的偶然吧，粉发蓝色挑染不算什么稀奇发色，这角色还是单马尾
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 4993#       发表于 2021-1-27 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50157628&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-27 11:08</a>
+
+单纯的偶然吧，粉发蓝色挑染不算什么稀奇发色，这角色还是单马尾</blockquote>
+是不是私货不好说，不过是双马尾（或者说偶像时候是双马尾形态）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202101/27/113436gsxdxbavpvpd3b0b.png" referrerpolicy="no-referrer">
+
+
+<strong>{[1QV{]0GDSAMW1`ZYHUM%0.png</strong> (13.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 11:34 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/113441a8z98ir5i54xpf12.png" referrerpolicy="no-referrer">
+
+
+<strong>A)A}R(`{X{3GV8R~L(1}968.png</strong> (16.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 11:34 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 4994#       发表于 2021-1-27 13:24
+
+
+
+
+这种东西你去盯着色指定都比盯个作监靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 4995#       发表于 2021-1-27 16:55
+
+
+
+
+作监负责的是修正  这人物长啥样什么上色不是那么容易加私货的。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4996#       发表于 2021-1-27 17:43
+
+
+
+
+夸宝的apex观感变好了啊
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 4997#       发表于 2021-1-27 20:00
+
+
+
+ 本帖最后由 wwddrte 于 2021-1-27 20:22 编辑 
+
+阿夸这是觉得上钻太快耐久直播名不副实，所以想多打一会吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+笑死我了_TW
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4998#       发表于 2021-1-27 20:22
+
+
+
+
+台湾队友在游戏里无能狂怒敲汉字
+台湾观众在直播间无能狂怒敲汉字
+天下小学生是一家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4999#       发表于 2021-1-27 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">外国人又分不清简体和繁体，最后还不是被算到大陆这边
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5000#       发表于 2021-1-27 21:21
+
+。
+
+
+ 本帖最后由 面具13 于 2021-1-27 22:24 编辑 
+
+我觉得钻三还是找会打枪的同事三排吧。
+
+
+怕不是被那只肥猫强制戒了网瘾。emmm，这味道，不好说啊。总之有（小）概率等会儿重开。
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5001#       发表于 2021-1-27 23:26
+
+
+
+
+钻三还有时间吗……2.2新赛季，1.29工商 30nicolive  
+上钻应该没问题
+
+
+
+
+
+
+
+-----
+
+####  清枝  
+##### 5002#       发表于 2021-1-28 04:29
+
+
+
+
+一般为了避免版权问题，虽然路人卡都是好き放題，放飞自我的人多了去了，但是一般会死在作监手上，不死也会死在上色手上，上色不认识最好，随便乱来，认识了更好，换个色观众就认不出来了
+
+这么大张旗鼓的搞说不是夸是巧合，会吗
+
+肯定要考虑观众看了什么反应，如果你第一反应是夸，那一般就是夸了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5003#       发表于 2021-1-28 18:47
+
+
+
+
+这APEX水平毫无进步，甚至崩拉卖撤、找借口的坏习惯比之前更加严重了，巅峰真就只在第5赛季最后一次上钻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kingoftheworld  
+##### 5004#       发表于 2021-1-28 18:54
+
+
+
+
+在贴吧看到合成大阿夸 [http://neally.gitee.io/bigaqua/](http://neally.gitee.io/bigaqua/)
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=15aca5ed1d7b02080cc93fe952d8f25f/a3b5a686c9177f3e1ca3714567cf3bc79e3d5664.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5005#       发表于 2021-1-28 19:55
+
+
+
+
+好像是私下把分数打回7000了。今晚估计不会冲那么猛了。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5006#       发表于 2021-1-28 20:25
+
+
+
+
+昨晚的录像隐藏了？
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5007#       发表于 2021-1-28 20:34
+
+
+
+
+私享了。应该是因为中间汉字刷屏的部分吧。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5008#       发表于 2021-1-28 21:12
+
+
+
+
+肥猫被关起来了哈哈哈哈哈。
+
+今天口音不带“类关西腔”了
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5009#       发表于 2021-1-29 00:53
+
+
+
+
+喜提APEX钻石尾气
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5010#       发表于 2021-1-29 02:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊这，好像又说是官方弄错了，钻石尾气是下赛季（第九赛季获得）的奖励
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5011#       发表于 2021-1-29 18:34
+
+
+
+
+器材故障？？？
+
+
+
+
+
+                                
