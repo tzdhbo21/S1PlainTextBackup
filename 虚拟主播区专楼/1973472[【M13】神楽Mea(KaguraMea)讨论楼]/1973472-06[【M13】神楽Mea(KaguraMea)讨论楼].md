@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-28 18:07** 
+> ## **本文件最后更新于2021-01-29 14:40** 
 
 
 
@@ -10282,4 +10282,585 @@ tc可是小麻的港湾<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 
-                             
+
+
+-----
+
+####  rosevalley46  
+##### 8102#       发表于 2021-1-29 02:19
+
+
+
+
+1月27日:咩啊,你要好好直播啊
+
+1月28日:摸
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8103#       发表于 2021-1-29 02:43
+
+
+
+
+失联一天了。是不是哪位楼友得手了？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8104#       发表于 2021-1-29 02:53
+
+
+
+
+1日のうち起きてる時間が4,5時間しかないので恐らく冬眠に入る準備してます。
+
+3月くらいに起きる予定です。
+
+
+摸！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 8105#       发表于 2021-1-29 03:01
+
+
+
+
+鸽一个月？是准备休产假去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8106#       发表于 2021-1-29 07:04
+
+
+
+
+产假只休一个月也太黑暗企业了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8107#       发表于 2021-1-29 07:11
+
+
+
+
+想听咩宝分娩的声音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8108#       发表于 2021-1-29 08:12
+
+
+
+
+分娩声音参考咩宝健身环
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 8109#       发表于 2021-1-29 11:54
+
+
+
+
+她这个月不算TC播的也太少了吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8110#       发表于 2021-1-29 16:19
+
+
+
+
+呜呜呜破防了，午睡梦到自己在街边垃圾箱特到了小麻扔掉的快递箱，快递盒上的名字写的是方方，虽然不知道和你麻有啥关系，但是当时全网都在传这个箱子的照片，说是你麻给在lpl打职业的男朋友买的鞋子，总之这会儿就是心情很难受，还很气你麻这笨比找什么不好找个打游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8111#       发表于 2021-1-29 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50182515&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-1-29 16:19</a>
+呜呜呜破防了，午睡梦到自己在街边垃圾箱特到了小麻扔掉的快递箱，快递盒上的名字写的是方方，虽然不知道和 ...</blockquote>
+方方不是武汉那谁吗
+
+坏女人播一下啊
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 8112#       发表于 2021-1-29 16:30
+
+
+
+
+在lpl打职业的男朋友草
+
+傍大款的梦想，破灭了……
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8113#       发表于 2021-1-29 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50182571&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-1-29 16:24</a>
+
+方方不是武汉那谁吗
+
+
+坏女人播一下啊</blockquote>
+和那没啥关系，做梦本来就是天马行空，挺怪的就是
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8114#       发表于 2021-1-29 16:49
+
+
+
+
+轮mea气死事业厨的一百种方法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/ba59f0a0291b4d0cea1e23470688e968/IMG_CMP_170090889.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8115#       发表于 2021-1-29 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8116#       发表于 2021-1-29 17:03
+
+
+
+
+最爱的memory来了，破防录像历历在目<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8117#       发表于 2021-1-29 17:05
+
+
+
+
+呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 8118#       发表于 2021-1-29 17:19
+
+
+
+
+这首怎么突然也来了，调音还这么正常
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8119#       发表于 2021-1-29 17:21
+
+
+
+
+草，怎么突然更了个原创曲
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 8120#       发表于 2021-1-29 17:47
+
+
+
+
+这首唉........
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8121#       发表于 2021-1-29 18:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/183017c5zhha1amfmbib4h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>78C01EEA-7C54-407F-97AA-BEE0E82031FE.jpeg</strong> (316.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 18:30 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫| + 2|哭了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 8122#       发表于 2021-1-29 18:48
+
+
+
+
+别这样<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 8123#       发表于 2021-1-29 19:07
+
+
+
+
+唉……这孩子咋又悄悄发了一首歌啊（恼）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8124#       发表于 2021-1-29 19:07
+
+
+
+
+小巨魔，发个时间啥也不说
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8125#       发表于 2021-1-29 19:10
+
+
+
+ 本帖最后由 路人庚 于 2021-1-29 19:12 编辑 
+
+你咩姐刚发的fleet（等一个翻译
+
+<img src="https://img.saraba1st.com/forum/202101/29/191017j0tdhoyultjllyac.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8EAAFE80-A94F-4FD0-97CF-B8C07B5CCF9B.jpeg</strong> (24.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 19:10 上传
+
+
+
+
+
+
+
+syl，好家伙观测站抓出来了（
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 8126#       发表于 2021-1-29 19:54
+
+
+
+
+20210129东京20点（1、2）
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/195348y4tpru4r442pu3v4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B151A173-EC0D-493D-B022-57A4E564784F.jpeg</strong> (185.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 19:53 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/195348l9cc2jqjaa00ae0c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B8D4ECE1-CA59-481E-8534-169CB64FF82D.jpeg</strong> (218.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 19:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8127#       发表于 2021-1-29 19:58
+
+
+
+
+👊硬了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8128#       发表于 2021-1-29 21:16
+
+
+
+
+memory的mix是不是换了 感觉比之前的好多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8129#       发表于 2021-1-29 22:13
+
+
+
+
+开幕试麦，又生草又可爱
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8130#       发表于 2021-1-29 22:22
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2021-1-29 22:24 编辑 
+
+感觉放弃音乐20年唱得少了，19年唱得挺多的
+拿曲连唱也是定番了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8131#       发表于 2021-1-29 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
