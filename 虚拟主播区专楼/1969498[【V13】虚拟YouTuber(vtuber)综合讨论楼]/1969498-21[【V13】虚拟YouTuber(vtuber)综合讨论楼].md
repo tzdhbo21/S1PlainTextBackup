@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 06:45** 
+> ## **本文件最后更新于2021-01-29 11:37** 
 
 
 
@@ -4178,29 +4178,7 @@ https://twitter.com/mochi8hiyoko/status/1354038814700761090</blockquote>
 ####  Peris  
 ##### 30214#       发表于 2021-1-26 23:47
 
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202101/26/234757xvyyst8sca4xyytu.jpg" referrerpolicy="no-referrer">
-
-
-<strong>Screenshot_20210126_234100_edit_303671311119288.jpg</strong> (171.69 KB, 下载次数: 0)
-
-下载附件
-
-2021-1-26 23:47 上传
-
-
-
-
-
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6633,4 +6611,554 @@ apex的排位机制改动了，大师的标准一下子降低了好多，s8冲�
 
 
 
-                                      
+
+
+-----
+
+####  rzrbtk  
+##### 30333#       发表于 2021-1-29 16:41
+
+
+
+
+郡道最近几乎天天新游戏，是不是前段时间低同接被马内甲喷了啊，希望以后保持
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30334#       发表于 2021-1-29 16:53
+
+
+
+
+挺想看看这位最后是怎么“去中国化”的
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/165336kc44hj29v9vwzd49.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ne.jpg</strong> (232.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 16:53 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30335#       发表于 2021-1-29 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">你虹fes取消了
+
+最后的反击失败了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30336#       发表于 2021-1-29 17:04
+
+
+
+
+包子头看起来还在，这能叫去中国化吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30337#       发表于 2021-1-29 17:08
+
+
+
+
+卜要慌，前夜祭和东京场revenge不是还在卖么
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30338#       发表于 2021-1-29 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">收留抽到票的心碎虹粉
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30339#       发表于 2021-1-29 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2k过分了，只是部分线上化，不过总感觉是不能线上的项目线上了，能线上的项目反倒还线下了。。。。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 30340#       发表于 2021-1-29 17:17
+
+
+
+<blockquote>katern 发表于 2021-1-29 17:04
+包子头看起来还在，这能叫去中国化吗</blockquote>
+去大陆化（指正）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30341#       发表于 2021-1-29 17:19
+
+
+
+
+郡道玩相亲游戏真的姨味爆表了，为什么能这么肯定地说出“在个人简介写还不太会用软件的有3%的可能性是真的新手，其他人都是装的”这种配对软件大师言论啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30342#       发表于 2021-1-29 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这波你在第五层啊，线上化了，抽不到票的人就会去买电子票了啊，一定能把租场馆的亏空补齐吧，
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30343#       发表于 2021-1-29 17:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 鬼屋→中止！
+
+
+体験授業教室→线上！
+
+
+視聴覚室→中止！
+
+
+ゲーム文化研究会→中止！
+
+
+asmr研究会→中止！
+
+
+漫研→中止！
+
+
+美術部→讨论中！
+
+
+什么嘛，取消的还挺多的嘛！
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30344#       发表于 2021-1-29 17:40
+
+
+
+
+大部分线下的的节目都去取消了，只留了主舞台的3d节目，所有副舞台的节目都转官号免费放送了，这一波你虹大概是血本无归，上市基本没希望了，田角赶紧准备跑路吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30345#       发表于 2021-1-29 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> kmm、pst:"歪，yagoo，我和我的好姐妹还有位置么？内定俩！”
+
+
+yagoo刚准备回复，此时狐狸抢过来：“滚OOD的，我是fubuki，叫你们家king过来接电话！”
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30346#       发表于 2021-1-29 17:51
+
+
+
+
+低情商：线下企划血本无归
+
+高情商：19W同接记录有望突破
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30347#       发表于 2021-1-29 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183345&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-1-29 17:39</a>
+鬼屋→中止！
+
+
+体験授業教室→线上！</blockquote>
+乐观点，虹底边的企划没了就逃过了niji疫情底边清除计划了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30348#       发表于 2021-1-29 17:57
+
+
+
+
+看了下新枪30-30和重型子弹的新金弹夹，g7彻底变烧火棍，新枪就是中远距离新宠了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30349#       发表于 2021-1-29 17:58
+
+
+
+
+不是取消而是线上，海外饭大喜惹，像偶像团线上握手会一样<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，下次别赌了嗷。
+省一楼，郡道怒喷在聊天的时候特地说自己厌倦menhera的人，怕不是觉得自己巨帅，不过从选了/吸了很多menhera做对象就能看出这个人估计眼光和性格不太行。
+说的对啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">！！！！！
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30350#       发表于 2021-1-29 18:04
+
+
+
+
+这要是木口直接红红火火开卖线上票了，彩虹还是老实。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30351#       发表于 2021-1-29 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183488&amp;ptid=1969498" target="_blank">winda 发表于 2021-1-29 17:56</a>
+乐观点，虹底边的企划没了就逃过了niji疫情底边清除计划了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer"> 前夜祭和东京场复仇还是照常线下，
+
+这波啊，这波是精准灭绝计划
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30352#       发表于 2021-1-29 18:06
+
+
+
+
+这两场人选里的人没了那你虹直接没了，2000哪里来的这么大的恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30353#       发表于 2021-1-29 18:07
+
+
+
+
+什么，虹又又又又又半年了吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30354#       发表于 2021-1-29 18:11
+
+
+
+
+快让我玩apex新赛季
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30355#       发表于 2021-1-29 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183566&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-1-29 18:06</a>
+这两场人选里的人没了那你虹直接没了，2000哪里来的这么大的恨</blockquote>
+人上人liver肯定是各种防护措施拉满全程播片啊，
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30356#       发表于 2021-1-29 18:21
+
+
+
+
+半年之期已到，这次线下泡汤就是彩虹的丧钟<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30357#       发表于 2021-1-29 18:29
+
+
+
+
+apex新赛季好想玩
+现在都没什么动力了，快点让我重新开始冲分（
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30358#       发表于 2021-1-29 18:33
+
+
+
+
+这次慢了哦裁🐕
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/183239aahyce3cp9lbicpi.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #047 - 'YouTube' - www_youtube_com.png</strong> (33.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 18:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 30359#       发表于 2021-1-29 18:33
+
+
+
+
+Ickr还是抱着n站当宝，你们哥俩啥时候爆炸啊？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30360#       发表于 2021-1-29 18:44
+
+
+
+
+口了之前跟金鱼不对付，就金鱼休了她播，她休了金鱼播，
+现在想再看见口了是要郡道休吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，啥时候某县解除紧急状态给郡道去进行失踪式旅游啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 30361#       发表于 2021-1-29 19:01
+
+
+
+
+tybf 终于战胜了末影龙（指利用天使特权复活7次）
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 30362#       发表于 2021-1-29 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立本人是真的心里没数吗  之前还计划着搞这种线下企划 
+
+
+
+
+
+                                     
