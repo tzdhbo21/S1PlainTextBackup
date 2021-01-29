@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-27 15:41** 
+> ## **本文件最后更新于2021-01-29 06:45** 
 
 
 
@@ -5979,4 +5979,658 @@ life is strange有日文版和日文版配音的（还不错）。而且不是�
 
 
 
-                                       
+
+
+-----
+
+####  katern  
+##### 30302#       发表于 2021-1-27 23:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/27/234643yclstsqqqtl7z4lq.png" referrerpolicy="no-referrer">
+
+
+<strong>[I7ZWQ00VBUF4VC{Q6{)[TI.png</strong> (109.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-27 23:46 上传
+
+
+
+
+
+
+情人节和大原樱子舞蹈联动，最多一个小时也太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30303#       发表于 2021-1-28 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50165363&amp;ptid=1969498" target="_blank">katern 发表于 2021-1-27 23:49</a>
+
+情人节和大原樱子舞蹈联动，最多一个小时也太贵了</blockquote>
+那给你讲个笑话，日清这个网站没做同时登录检查<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30304#       发表于 2021-1-28 00:19
+
+
+
+
+这个日清前面几次联动管人live都这个价的啊，星街 kmnz 花剪狮子神，都这个价钱一小时3300的
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30305#       发表于 2021-1-28 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50165494&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-1-28 00:04</a>
+
+那给你讲个笑话，日清这个网站没做同时登录检查</blockquote>
+原来还没做啊。哈人<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30306#       发表于 2021-1-28 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50165625&amp;ptid=1969498" target="_blank">free 发表于 2021-1-28 00:19</a>
+
+这个日清前面几次联动管人live都这个价的啊，星街 kmnz 花剪狮子神，都这个价钱一小时3300的 ...</blockquote>
+没注意6600的有签名抽奖<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30307#       发表于 2021-1-28 01:49
+
+
+
+
+今天月灵 油管 nico两动，怎么就这么勤了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30308#       发表于 2021-1-28 17:09
+
+
+
+<blockquote>それでは、そろそろ、
+
+3/14 Apex CRカップのリーダーへの招待をしていこうと思います。
+
+ドキドキワクワク</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30309#       发表于 2021-1-28 18:10
+
+
+
+<blockquote>にじさんじ公式
+
+@nijisanji_app
+
+【新衣装 Coming Soon…！】
+
+
+まもなく公開！！
+
+にじさんじライバーが新衣装で登場！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202101/28/181014rhvbmawhamzwavvb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Esz4q2LVoAEQLBC.jpg</strong> (258.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-28 18:10 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 30310#       发表于 2021-1-28 18:15
+
+
+
+
+一看就是德比。
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30311#       发表于 2021-1-28 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">茄子你怎么出门不戴口罩啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30312#       发表于 2021-1-28 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小福的新视觉图，这是逐渐和井皇“切割”了吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30313#       发表于 2021-1-28 19:21
+
+
+
+
+油男这是因为没法放所有人链接所以一个人都不放了吗
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 30314#       发表于 2021-1-28 19:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/28/192818vqa5zpxgabdgd9lb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210128192751.png</strong> (62.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-28 19:28 上传
+
+
+
+
+
+
+郡道也玩这暴死气息浓厚的手游了啊
+
+<img src="https://img.saraba1st.com/forum/202101/28/192919x8difocig9wi7tcw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>IMG_CMP_124635167.jpeg</strong> (346.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-28 19:29 上传
+
+
+
+
+
+
+随便捏捏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 30315#       发表于 2021-1-28 19:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/28/194625k4qrrzwezfj4phz4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210128194436860.jpg</strong> (40.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-28 19:46 上传
+
+
+
+
+
+
+这四个人联动<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 30316#       发表于 2021-1-28 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50173963&amp;ptid=1969498" target="_blank">真田源次郎信繁 发表于 2021-1-28 19:47</a>
+这四个人联动</blockquote>
+这么神奇的组合
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30317#       发表于 2021-1-28 19:59
+
+
+
+
+？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30318#       发表于 2021-1-28 20:14
+
+
+
+
+烂货圆脸这live还要卖BD？还卖5000一张，脸是真的大，不知道哪来的脸，垃圾烂货
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30319#       发表于 2021-1-28 22:12
+
+
+
+ 本帖最后由 caupollen 于 2021-1-28 22:13 编辑 
+
+太阳从那边出来了，月灵推特竟然发了个<strong>今天不播</strong><img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 原来计划天天播了吗
+
+
+
+
+
+
+GAHLU0JS86@`DG]PHSZ3P}S.png
+(10.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-28 22:12 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/28/221231wlfqqvvkes4f7ims.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30320#       发表于 2021-1-28 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50175333&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-28 22:12</a>
+太阳从那边出来了，月灵推特竟然发了个今天不播 原来计划天天播了吗 ...</blockquote>
+最近又闲下来了吧，不过每次播得也蛮晚的，而且都是刚回到家
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 30321#       发表于 2021-1-28 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50175333&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-1-28 22:12</a>
+
+太阳从那边出来了，月灵推特竟然发了个今天不播 原来计划天天播了吗 ...</blockquote>
+好像月灵最近计划天天播一小段魔女之家？
+
+
+
+
+
+
+
+-----
+
+####  distrowatch  
+##### 30322#       发表于 2021-1-28 23:46
+
+
+
+
+inui的笑场怎么越来越严重了,一次歌回一半笑场
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30323#       发表于 2021-1-29 08:57
+
+
+
+<img src="https://i.loli.net/2021/01/29/CcdzEYvn9WFweBm.jpg" referrerpolicy="no-referrer">
+这学的也太快了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30324#       发表于 2021-1-29 09:59
+
+
+
+
+阿床都连续三周歌回了，这KPI压力是多大啊，田角你不是人😭
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 30325#       发表于 2021-1-29 10:54
+
+
+
+
+紧跟时事。。。。？？？
+
+<img src="https://img.saraba1st.com/forum/202101/29/105435mfk4fko6i9m5h944.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210129105334.png</strong> (47 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 10:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30326#       发表于 2021-1-29 10:56
+
+
+
+
+原来朝鲜人和那个弱智对线这事闹这么大啊，早知道就不睡了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30327#       发表于 2021-1-29 11:22
+
+
+
+
+神椿给理芽和guiano的那首歌买广告了吧
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 30328#       发表于 2021-1-29 14:01
+
+
+
+ 本帖最后由 KarsusNeko 于 2021-1-29 14:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179212&amp;ptid=1969498" target="_blank">pansherry 发表于 2021-1-29 10:54</a>
+
+紧跟时事。。。。？？？</blockquote>
+该开个mireihub了。塞满#ぐんみち　#えっち #gif
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30329#       发表于 2021-1-29 14:03
+
+
+
+
+今天的焦点人物
+提督+一味+雪民
+<img src="https://p.sda1.dev/1/e8cd1f1bf80cd50c029e26c149def5ff/-e9a68ea7cfada3a.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30330#       发表于 2021-1-29 14:21
+
+
+
+
+apex的排位机制改动了，大师的标准一下子降低了好多，s8冲大师的人应该会挺多的，不知道虹里谁是第一个
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30331#       发表于 2021-1-29 14:28
+
+
+
+
+葛king18杀双锤了，鉴于目前apex逼疯了很多人的情况，建议你虹之后没有双锤骷髅海不许直播apex嗷
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 30332#       发表于 2021-1-29 14:40
+
+
+
+
+发个夸夸😿
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/144044osa0ynnnlnyqafro.png" referrerpolicy="no-referrer">
+
+
+<strong>snapshot_2021-01-29-14-39-29.png</strong> (205.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 14:40 上传
+
+
+
+
+
+
+
+
+
+                                      
