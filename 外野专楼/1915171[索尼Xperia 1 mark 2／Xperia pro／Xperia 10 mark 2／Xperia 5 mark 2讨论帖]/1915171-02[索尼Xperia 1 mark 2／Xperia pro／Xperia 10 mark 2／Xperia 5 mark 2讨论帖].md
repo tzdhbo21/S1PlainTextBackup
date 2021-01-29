@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-28 10:43** 
+> ## **本文件最后更新于2021-01-29 03:45** 
 
 
 
@@ -13962,4 +13962,573 @@ Google 20欧  淘宝200块</blockquote>
 
 
 
-                          
+
+
+-----
+
+####  黑之月  
+##### 2192#       发表于 2021-1-28 19:14
+
+
+
+
+em..原来在抽屉里
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  安从生  
+##### 2193#       发表于 2021-1-28 20:23
+
+
+
+
+X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">现在拿起来就显示个电量
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 2194#       发表于 2021-1-28 20:51
+
+
+
+
+反向升级，所以说什么本地化维持现状就好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2195#       发表于 2021-1-28 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的，国行更新完。连车上蓝牙疯狂卡顿和杂音。没法听
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2196#       发表于 2021-1-28 20:56
+
+
+
+
+可怕，那我不更新了
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2197#       发表于 2021-1-28 21:01
+
+
+
+
+这还更个P，等下一版，没解决问题的话怕不是要一直停在Android10了
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 2198#       发表于 2021-1-28 21:19
+
+
+
+
+我国行1m2升级后蓝牙倒是没啥问题
+连索尼降噪豆和xm3头戴没啥变化
+总体感觉跟上个版本没啥特别大使用上的变化
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2199#       发表于 2021-1-28 22:18
+
+
+
+
+回家试了下连狗圈和漫步者的音箱蓝牙很正常..
+明天再看看车上什么情况。
+另外信号卡死的问题好像没修
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  何でやねん  
+##### 2200#       发表于 2021-1-28 22:36
+
+
+
+ 本帖最后由 何でやねん 于 2021-1-28 23:02 编辑 
+
+X1更新完指纹解锁没了？
+
+重启一下又好了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2201#       发表于 2021-1-28 22:48
+
+
+
+<blockquote>无印凉粉 发表于 2021-1-28 18:36
+安卓10不升级也支持微信指纹支付啊</blockquote>
+我指的是商店，感觉是加了腾讯一堆广告？
+
+
+
+
+
+
+
+-----
+
+####  Benthic  
+##### 2202#       发表于 2021-1-28 22:56
+
+
+
+
+Android/data无法写入，烦死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  みかこし  
+##### 2203#       发表于 2021-1-28 23:11
+
+
+
+
+看你们说得这么可怕不敢更新了。。。然后又有了个新的问题，这系统更新的通知在通知栏里消不掉，有什么办法吗？
+
+
+
+
+
+
+
+-----
+
+####  超阳电子炮  
+##### 2204#       发表于 2021-1-28 23:17
+
+
+
+
+更新完软件全都不识别图片了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 2205#       发表于 2021-1-28 23:57
+
+
+
+
+Android Auto没法用了，有人有类似现象吗
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2206#       发表于 2021-1-29 00:06
+
+
+
+
+大版本就重置看看 
+
+
+----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 2207#       发表于 2021-1-29 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50175825&amp;ptid=1915171" target="_blank">みかこし 发表于 2021-1-28 23:11</a>
+
+看你们说得这么可怕不敢更新了。。。然后又有了个新的问题，这系统更新的通知在通知栏里消不掉，有什么办法 ...</blockquote>
+向下滑开挨个消
+
+
+
+
+
+
+
+-----
+
+####  hippias  
+##### 2208#       发表于 2021-1-29 09:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50151199&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 17:20</a>
+不把，就是视频输出，在设置里有个选项可以开启</blockquote>
+试过了，连90d需要usb采集卡 type-c转micro usb不认。
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2209#       发表于 2021-1-29 09:45
+
+
+
+
+啊，是不是可以开个 索尼 Xperia 1 III 讨论帖了 XD 
+
+长度更短，比 5 II 更窄，额外功能键，潜望镜光变镜头
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2210#       发表于 2021-1-29 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178407&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 09:45</a>
+
+啊，是不是可以开个 索尼 Xperia 1 III 讨论帖了 XD 
+
+长度更短，比 5 II 更窄，额外功能键，潜望镜光变镜头 ...</blockquote>
+开是可以开，不过现在还是半成品的翔移 Android 11讨论热度更大点。
+
+
+作为每次都第一时间冲大版本的人，这次是我这几年最失望的一次了，更新完bug是真的多。蛋疼。现在更新完还把Android data obb文件夹的修改权限锁了，炼妖壶里的微信用不了小程序了，影响极大，蛋疼
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2211#         楼主| 发表于 2021-1-29 09:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178407&amp;ptid=1915171" target="_blank">leystage 发表于 2021-01-29 09:45:36</a>
+啊，是不是可以开个 索尼 Xperia 1 III 讨论帖了 XD 
+
+长度更短，比 5 II 更窄，额外功能键，潜望镜光变镜头 ...</blockquote>您去开一个吧233
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2212#       发表于 2021-1-29 10:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">上班路上连车蓝牙中途不知道什么时候好了，到公司停车场才注意到
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 2213#       发表于 2021-1-29 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178407&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 09:45</a>
+
+啊，是不是可以开个 索尼 Xperia 1 III 讨论帖了 XD 
+
+长度更短，比 5 II 更窄，额外功能键，潜望镜光变镜头 ...</blockquote>
+额外功能键引起严重不适，直接把整台机器的设计破坏掉的感觉
+
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 2214#       发表于 2021-1-29 10:25
+
+
+
+
+电脑主板没有typec接口……
+在家里翻箱倒柜找着一根不知道啥牌子的typec公转usb公的线插上去不识别，有啥可行的方法，再买根绿联的线还是买一个usb母转typec母的转接器？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2215#       发表于 2021-1-29 10:48
+
+
+
+<blockquote>淡定君 发表于 2021-1-29 10:05
+额外功能键引起严重不适，直接把整台机器的设计破坏掉的感觉</blockquote>
+嗯，如果不支持自定义就更不好了。支持自定义我还能接受。但 5 II 上居然不行，太奇怪了
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2216#       发表于 2021-1-29 10:49
+
+
+
+<blockquote>被雨困住的城市 发表于 2021-1-29 09:56
+您去开一个吧233
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+哈哈哈，那我去占个位先。虽然热度肯定还是会在这楼
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2217#       发表于 2021-1-29 10:50
+
+
+
+<blockquote>我很费纸 发表于 2021-1-29 09:51
+开是可以开，不过现在还是半成品的翔移 Android 11讨论热度更大点。
+
+
+作为每次都第一时间冲大版本的人， ...</blockquote>
+是啊，我看大家的反馈，简直了。。。
+
+
+
+感觉索尼就在不断重复自己曾经犯过的错误。其实上一次小版本更新好像就有各种问题了，让人怀疑他们的开发体制是否存在根本性的问题。也许你之后可以多等几天，如果不是为了做小白鼠的话。。。
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 2218#       发表于 2021-1-29 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178489&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 09:51</a>
+开是可以开，不过现在还是半成品的翔移 Android 11讨论热度更大点。
+
+
+作为每次都第一时间冲大版本的人， ...</blockquote>
+索索的软件老股东还不知道什么水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer"> 等着先看看更新了啥bug再决定要不要更新…
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2219#       发表于 2021-1-29 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179162&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 10:50</a>
+
+是啊，我看大家的反馈，简直了。。。</blockquote>
+难得硬件不算拉跨的一代，软件又又又拖后腿了。
+
+
+把翔移工程师吊路灯吧，我是被这拉跨的调度气疯了。日常用还好，游戏体验明显下降。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2220#       发表于 2021-1-29 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179321&amp;ptid=1915171" target="_blank">bxcds 发表于 2021-1-29 11:05</a>
+
+索索的软件老股东还不知道什么水平吗 等着先看看更新了啥bug再决定要不要更新…
+
+
+—— 来自 Sony  ...</blockquote>
+作为老股东，讲真这次更新翻车也是少见的大翻车
+
+
+往年更新大版本，多多少少有点小bug，我也能接受。大部分都是兼容性的问题。这次硬件调度的问题是真的糟心，印象中是头一遭，865缩肛成855甚至765给我用，这就很蛋疼了。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2221#       发表于 2021-1-29 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178546&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-1-29 09:56</a>
+
+您去开一个吧233
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+作为非股东开了PC区首页第一高楼感想如何？
+
+
+拢共2台机器也能讨论一整年的也就是翔移了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
