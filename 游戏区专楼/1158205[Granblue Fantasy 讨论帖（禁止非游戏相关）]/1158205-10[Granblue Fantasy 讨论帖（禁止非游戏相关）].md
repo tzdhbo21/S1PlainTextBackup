@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-28 07:31** 
+> ## **本文件最后更新于2021-01-29 09:55** 
 
 
 
@@ -24696,4 +24696,583 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 
 
 
-    
+
+
+-----
+
+####  eyeego  
+##### 14853#       发表于 2021-1-28 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171055&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 14:57</a>
+求问一下，这个月的月末百六是狗会up，但是周年的n个神将的池子是没有神将up但是可能叠转盘吗？
+
+—— 来 ...</blockquote>
+月末有狗但应该不会up 神将现在只有刚出才会up<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14854#       发表于 2021-1-28 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171492&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-1-28 15:36</a>
+月末有狗但应该不会up 神将现在只有刚出才会up</blockquote>
+哦哦，那其实这个月井和周年井也没啥大差是吗？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14855#       发表于 2021-1-28 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171575&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 15:45</a>
+哦哦，那其实这个月井和周年井也没啥大差是吗？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅 ...</blockquote>
+周年如果跟去年一样的话有保底100+超级红毛 能节约不少 再说水团反正也在4月 没必要急着现在井就是了
+当然前提是跟去年一样的话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14856#       发表于 2021-1-28 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171651&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-1-28 15:51</a>
+周年如果跟去年一样的话有保底100+超级红毛 能节约不少 再说水团反正也在4月 没必要急着现在井就是了
+当 ...</blockquote>
+想再请问一下去年周年的神将池子会有lm同时up吗？考虑如果这次月末有真扎up的话就这次井狗，没有的话就等等周年看up谁
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  super0395  
+##### 14857#       发表于 2021-1-28 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171725&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 15:57</a>
+想再请问一下去年周年的神将池子会有lm同时up吗？考虑如果这次月末有真扎up的话就这次井狗，没有的话就等 ...</blockquote>
+有lm但是不up，对于有一定box基础的人来说这个池子还蛮毒的
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14858#       发表于 2021-1-28 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171806&amp;ptid=1158205" target="_blank">super0395 发表于 2021-1-28 16:04</a>
+有lm但是不up，对于有一定box基础的人来说这个池子还蛮毒的</blockquote>
+所以周年是个有多神将和lm但是啥都不up的池子？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  super0395  
+##### 14859#       发表于 2021-1-28 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171866&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 16:08</a>
+所以周年是个有多神将和lm但是啥都不up的池子？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅 ...</blockquote>
+对，kmr不会好心到送了你百连还让你在这个池子里狙些什么（
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 14860#       发表于 2021-1-28 16:34
+
+
+
+
+只是缺狗和真扎弓就算这月末up还是不推荐井，万一周年月末出了呢
+有井也留给下个月中有情人节限定，情人节限定基本都是强力角色而且错过等一年
+周年有月末限定必得，限定超得和月末转盘白送半井，只是为了备战水团大可以等一等，没必要在这关头就把石头花完
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14861#       发表于 2021-1-28 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172178&amp;ptid=1158205" target="_blank">Kagam1 发表于 2021-1-28 16:34</a>
+只是缺狗和真扎弓就算这月末up还是不推荐井，万一周年月末出了呢
+有井也留给下个月中有情人节限定，情人节 ...</blockquote>
+谢谢建议！情人节是打算下井的，去掉这部分库存手上还有两井，如果周年不up的话感觉也挺难真扎和狗一起入手的，堵必得出率似乎不靠谱，水lm就差真扎，现在很纠结
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14862#       发表于 2021-1-28 16:41
+
+
+
+
+记得kmr说了上次周年的6%红毛100抽没下次了，逼真亏到坐公交
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14863#       发表于 2021-1-28 16:43
+
+
+
+
+还有请问各位周年神将的池子里有泳装吗？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14864#       发表于 2021-1-28 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172227&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 16:39</a>
+
+谢谢建议！情人节是打算下井的，去掉这部分库存手上还有两井，如果周年不up的话感觉也挺难真扎和狗一起入 ...</blockquote>
+真扎等等吧，水lm里它跟卡剑是最快踢出盘子的，卡剑你没有好歹有个万金油卡姐，点点眉除了摆拍还有什么用..
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14865#       发表于 2021-1-28 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172291&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-28 16:44</a>
+真扎等等吧，水lm里它跟卡剑是最快踢出盘子的，卡剑你没有好歹有个万金油卡姐，点点眉除了摆拍还有什么用 ...</blockquote>
+本来想整水必爆盘，看攻略要一把真扎弓，就想说如果和狗进池子的时候一起up搞一个，不过想想是不是很有可能马上出新的水lm真扎弓就下岗了？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14866#       发表于 2021-1-28 16:51
+
+
+
+ 本帖最后由 peh 于 2021-1-28 16:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172354&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 16:48</a>
+
+本来想整水必爆盘，看攻略要一把真扎弓，就想说如果和狗进池子的时候一起up搞一个，不过想想是不是很有可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">就先等等下个lm呗，要整也可以现在必爆就是2龙1欧1弓，但后面随便出个质量高点的暴击武器肯定踢弓不会先踢欧枪啊
+
+你要玩水必爆拿2欧1龙虾拳 1欧2龙虾拳 低防不差很多的，
+
+
+除非你目标下次团战竞速打英雄，那可能还是以前的2弓1枪比较好
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 14867#       发表于 2021-1-28 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172227&amp;ptid=1158205" target="_blank">aqualyre 发表于 2021-1-28 16:39</a>
+谢谢建议！情人节是打算下井的，去掉这部分库存手上还有两井，如果周年不up的话感觉也挺难真扎和狗一起入 ...</blockquote>
+权衡过就好，毕竟一个月末实现两个愿望也是好事
+去年情人节后又出了0妈这种作弊级性能的角色，3月末又半强制让你井，各人看各人的库存规划自己怎么抽卡吧
+
+不过真扎弓就算up也不一定出，月末还很可能是带两个活动角色普池，这种情况就真不推荐了
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14868#       发表于 2021-1-28 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172391&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-28 16:51</a>
+就先等等下个lm呗，要整也可以现在必爆就是2龙1欧1弓，但后面随便出个质量高点的暴击武器肯定踢弓 ...</blockquote>
+嗯……那还是先看看吧，因为是去年年中入坑的完搞不清楚周年转盘的情况，如果说去年的百连保底转盘叠百六没了的话，是不是最差就是神将池保底每天10连补井？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  aqualyre  
+##### 14869#       发表于 2021-1-28 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172406&amp;ptid=1158205" target="_blank">Kagam1 发表于 2021-1-28 16:52</a>
+权衡过就好，毕竟一个月末实现两个愿望也是好事
+去年情人节后又出了0妈这种作弊级性能的角色，3月末又半 ...</blockquote>
+俩普池up我肯定pass了，跨年也是纠结了半天没补井井牛
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14870#       发表于 2021-1-28 20:09
+
+
+
+
+啊对了，主页角色固定机能是几月来着，这都1月底了怎么还没出？
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 14871#       发表于 2021-1-28 20:20
+
+
+
+
+等水新lm了 去年打了个英雄 今年要是团战前四字母能整点好活 今年掏个石油再打一次<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14872#       发表于 2021-1-29 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172253&amp;ptid=1158205" target="_blank">权志龙 发表于 2021-1-28 16:41</a>
+
+记得kmr说了上次周年的6%红毛100抽没下次了，逼真亏到坐公交</blockquote>
+你游现在这个情况要是周年转盘福利不进反退，分分钟炎上...
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14873#       发表于 2021-1-29 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50176769&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-1-29 01:03</a>
+
+你游现在这个情况要是周年转盘福利不进反退，分分钟炎上...</blockquote>
+能有什么情况？古战场又创了新人口记录了..谁都想继续好福利，然老大都这样说过，没有了也没啥奇怪
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 14874#       发表于 2021-1-29 09:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">情人节，惊恐的情人节。我也不知道要不要下井。毕竟我只有400多抽。有没有老哥给点建议。情人节卡池最想要的女人前任号主直接周年超了（导致没有mao），情军虽然功能性超强但是感性上不想为了一个男人下井。感觉还是得看情人节的新（水）限定是不是美少女，是韦恩兰斯洛特这种，就算再强，感觉也下不去，但是若是真扎，狗狗（做梦），冰牛这样的话就真的有点不知怎么办了。
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14875#       发表于 2021-1-29 10:10
+
+
+
+
+有余力的话情人节建议还是下一井，主要是情人节这个池子太难搞了，情军佐仓又是很大程度提升体验的角色
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14876#       发表于 2021-1-29 10:27
+
+
+
+ 本帖最后由 syndrome2032 于 2021-1-29 10:29 编辑 
+
+反正按照传统历次的周期白嫖都会想办法加福利。至于这福利是得脸黑的补救还是脸好继续加料另说。
+
+比如说去年抽开到脑溢血的九宫格，都说有好lm，也有就紫角 cpu收场连红豆都没有的。
+
+今年周年白嫖看看怎么改吧。
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 14877#       发表于 2021-1-29 11:09
+
+
+
+ 本帖最后由 久井路路 于 2021-1-29 11:12 编辑 
+
+老实说，我宁愿要九宫格刮刮卡也不想要那个点宝箱（
+
+
+一张刮刮卡不管是谁都只能得到一个东西，运气差距只决定得到的东西的质
+
+点宝箱运气好和不好之间的差距就不止入手道具的质了，量都不一样（
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14878#       发表于 2021-1-29 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178474&amp;ptid=1158205" target="_blank">黄昏的轮回 发表于 2021-1-29 09:50</a>
+
+情人节，惊恐的情人节。我也不知道要不要下井。毕竟我只有400多抽。有没有老哥给点建议。情人节卡池 ...</blockquote>
+季限不就是纯粹看XP和强度，武器通常都没任何作用的。你顺着XP想井哪个就哪个不就行了，反正3月到时候送一堆你留个100抽足够再来一井了。
+
+而且情人节池子历来是全情人节限定up，臭男人什么得说不定下井的时候就捞到了。再不济也可以买情人节傻必博彩。真的很在意纸片人性别，不井是最直接的。
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14879#       发表于 2021-1-29 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50180721&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-1-29 12:59</a>
+季限不就是纯粹看XP和强度，武器通常都没任何作用的。你顺着XP想井哪个就哪个不就行了，反正3月到时候送 ...</blockquote>
+付费坚守情龙爪<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14880#       发表于 2021-1-29 14:17
+
+
+
+
+不知道今年情人节会不会给缩圈傻必
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14881#       发表于 2021-1-29 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50181407&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-29 14:17</a>
+不知道今年情人节会不会给缩圈傻必</blockquote>
+按照去年的做法应该会给。20年年末就是万圣节 圣诞节单独傻逼了。不过情人节限定是新出的
+
+满打满算 小美 佐仓 军神 龙 玉米5个，是少了点。万圣节傻逼我记得是七选一，圣诞是八选一来着?
+玉米是不是来着?
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14882#       发表于 2021-1-29 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50182726&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-1-29 16:40</a>
+
+按照去年的做法应该会给。20年年末就是万圣节 圣诞节单独傻逼了。不过情人节限定是新出的
+
+
+满打满算 小美 ...</blockquote>
+玉米是，圣诞缩圈加了当年新加的
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">不过今年说不定有3个情限呢
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14883#       发表于 2021-1-29 17:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这新解包看着情人节也要分两批了吗
+
+
+
+
+
+   
