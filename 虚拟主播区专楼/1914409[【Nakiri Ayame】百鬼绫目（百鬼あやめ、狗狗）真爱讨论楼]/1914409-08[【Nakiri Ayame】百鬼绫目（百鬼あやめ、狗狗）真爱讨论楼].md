@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-25 14:13** 
+> ## **本文件最后更新于2021-01-30 04:47** 
 
 
 
@@ -10974,4 +10974,386 @@ GON没有垫底风险了
 
 
 
-                             
+
+
+-----
+
+####  水城雪风_Z  
+##### 11109#       发表于 2021-1-25 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来就临时拼凑的队
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11110#       发表于 2021-1-25 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再熟打完都要打没这段友谊了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11111#       发表于 2021-1-25 22:37
+
+
+
+
+不愧是她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+下次还参加吗
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11112#       发表于 2021-1-25 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苦呀西 下次继续努力
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11113#       发表于 2021-1-25 22:46
+
+
+
+
+挺好的 发现了瓶颈不在手上而是意识上 
+没主见打apex拖拖拉拉真不行
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11114#       发表于 2021-1-25 23:29
+
+
+
+
+狗狗时隔17天终于重回召唤师峡谷了。拿软辅匹配混了两把<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11115#       发表于 2021-1-26 12:32
+
+
+
+
+绫总忙是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202101/26/123106vmm8d5logzw552dg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>擷取.JPG</strong> (134.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-26 12:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11116#       发表于 2021-1-26 12:34
+
+
+
+
+竟然参了两首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  文冰  
+##### 11117#       发表于 2021-1-26 12:50
+
+
+
+
+这真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11118#       发表于 2021-1-26 13:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太怪了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11119#       发表于 2021-1-26 17:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凭什么？
+
+
+
+
+
+
+
+-----
+
+####  Nitro901  
+##### 11120#       发表于 2021-1-26 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">唉嘿嘿
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11121#       发表于 2021-1-26 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11122#       发表于 2021-1-27 14:26
+
+
+
+
+绫总又开始pua了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11123#       发表于 2021-1-27 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+低情商：你没有脑子
+
+高情商：凭感觉的天才
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11124#       发表于 2021-1-27 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多损呐
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11125#       发表于 2021-1-27 20:44
+
+
+
+
+FAMS和OKBR怎么还有第二次联动的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11126#       发表于 2021-1-28 13:21
+
+
+
+
+新曲还挺意外的高质量 
+这组合估计是那俩高歌力低人气让绫总插进去人气和歌力做个折中稍微好卖一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11127#       发表于 2021-1-29 21:17
+
+
+
+
+唱歌了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11128#       发表于 2021-1-29 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yoasobi连唱是吧
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11129#       发表于 2021-1-29 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就每次直播都有人打生日sc
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11130#       发表于 2021-1-30 11:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好一个回马枪
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11131#       发表于 2021-1-30 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发现起不来 找个理由鸽了
+
+
+
+
+
+                            
