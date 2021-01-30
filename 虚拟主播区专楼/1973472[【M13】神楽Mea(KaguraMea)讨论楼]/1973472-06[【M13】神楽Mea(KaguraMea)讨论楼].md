@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 14:40** 
+> ## **本文件最后更新于2021-01-30 02:53** 
 
 
 
@@ -10863,4 +10863,618 @@ memory的mix是不是换了 感觉比之前的好多了<img src="https://static.
 
 
 
-                            
+
+
+-----
+
+####  Dualist彩  
+##### 8132#       发表于 2021-1-29 22:56
+
+
+
+
+感觉在玩手机？这种背德感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8133#       发表于 2021-1-29 23:06
+
+
+
+
+ハルジオン，好
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8134#       发表于 2021-1-29 23:14
+
+
+
+
+没法看直播,点开看了下同接还不错,看来今晚状态挺好
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8135#       发表于 2021-1-29 23:19
+
+
+
+
+这首好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8136#       发表于 2021-1-29 23:30
+
+
+
+
+最近转播真是拉胯啊，看来要买油管会员了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8137#       发表于 2021-1-29 23:33
+
+
+
+
+想要息屏听歌的朋友可以用手机chrome浏览器<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+上网搜下教程就好
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8138#       发表于 2021-1-29 23:43
+
+
+
+
+傻逼ios你不懂我的痛
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8139#       发表于 2021-1-29 23:48
+
+
+
+
+好 gear解决了，滚吧转播man
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8140#       发表于 2021-1-29 23:52
+
+
+
+
+感觉晚上能好眠<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，谢谢你咩咩
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 8141#       发表于 2021-1-30 00:06
+
+
+
+
+舒服了，眠
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 8142#       发表于 2021-1-30 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">错过了，是不留档歌回
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 8143#       发表于 2021-1-30 00:22
+
+
+
+
+看fafa佬动态今晚喉咙有点哑唱的很色气？
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 8144#       发表于 2021-1-30 00:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">今天值得补 爽到哦
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8145#       发表于 2021-1-30 01:17
+
+
+
+
+配合上今晚的无言歌回，这什么女主角对白，我好爱她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8146#       发表于 2021-1-30 01:20
+
+
+
+
+是对野男人说的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+哦 我也是野男人啊 那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8147#       发表于 2021-1-30 01:21
+
+
+
+
+太媚宅了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+现在好想抱着麻酱说最最最喜欢你阿<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8148#       发表于 2021-1-30 03:48
+
+
+
+
+【神楽めあ 直播开始】
+标题：きょうもげんき！たのしい！えがお！
+时间：2021-01-30 03:46:16 UTC+08:00
+网址：https://twitcasting.tv/KaguraMea_VoV
+
+沃日
+
+tc了<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 8149#       发表于 2021-1-30 03:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">tc还是最安定 
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8150#       发表于 2021-1-30 04:03
+
+
+
+
+安心了，可以睡了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8151#       发表于 2021-1-30 06:08
+
+
+
+
+又是安稳的一天呢，tc啥的不存在
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 8152#       发表于 2021-1-30 06:42
+
+
+
+
+安稳的通宵
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8153#       发表于 2021-1-30 07:12
+
+
+
+
+太自由了 遭不住
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 8154#       发表于 2021-1-30 09:32
+
+
+
+ 本帖最后由 路人辰 于 2021-1-30 09:37 编辑 
+
+20210130东京4点（1、2、3）
+
+<img src="https://img.saraba1st.com/forum/202101/30/093221gjtqmz6bx0mbmd33.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D854CDBE-9537-422B-9560-5E7E7578BF03.jpeg</strong> (193.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 09:32 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/093608m0rj8fi1qgqgjig1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1ED86727-F0A8-4C64-A86E-0BE6EC77727B.jpeg</strong> (251.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 09:36 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/093611xhuhuspupusde1e9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ED83728A-790E-4354-BD9F-0CB43915ED20.jpeg</strong> (221.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 09:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 8155#       发表于 2021-1-30 09:39
+
+
+
+ 本帖最后由 路人辰 于 2021-1-30 10:01 编辑 
+
+20210130东京9点（1、2、3）
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/093921x4s0k0x0z0lrl3z0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>644296ED-E317-402C-B707-E2A5A2B234E0.jpeg</strong> (199.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 09:39 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/100153ajyaddu5q5yqnmzn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ED44FF07-55D0-437C-AEFB-082894F6FBE2.jpeg</strong> (317.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 10:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8156#       发表于 2021-1-30 09:51
+
+
+
+
+这个短视频听着很寂寞
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8157#       发表于 2021-1-30 09:52
+
+
+
+
+小麻也到了发病的时间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8158#       发表于 2021-1-30 10:04
+
+
+
+
+毕竟众所周知（？）她搞无言连唱歌回的时候都是遇到事儿了的时候
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8159#       发表于 2021-1-30 10:10
+
+
+
+
+小羊寂寞了啊
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8160#       发表于 2021-1-30 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一定是压坏了体重秤
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8161#       发表于 2021-1-30 10:33
+
+
+
+ 本帖最后由 甘栗No.007 于 2021-1-30 10:40 编辑 
+
+只要打钱sl就基本成为了24小时开放的dm
+
+想了想发现外国主播很多都用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8162#       发表于 2021-1-30 10:47
+
+
+
+ 本帖最后由 路人庚 于 2021-1-30 10:51 编辑 
+
+感觉还是因为正好碰到了一个月没来姨妈（经常通宵的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+tc之后精神倒是已经恢复了（tc治百病）
+
+虽然这种作息不变的话之后肯定还会再遇到类似的情况（
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8163#       发表于 2021-1-30 10:48
+
+
+
+
+咋又被破防了
+
+
+
+
+
+                           
