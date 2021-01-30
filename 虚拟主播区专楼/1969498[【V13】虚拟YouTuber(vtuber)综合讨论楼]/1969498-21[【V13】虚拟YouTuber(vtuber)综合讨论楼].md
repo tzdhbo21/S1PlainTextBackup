@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 11:37** 
+> ## **本文件最后更新于2021-01-30 08:44** 
 
 
 
@@ -7161,4 +7161,618 @@ tybf 终于战胜了末影龙（指利用天使特权复活7次）
 
 
 
-                                     
+
+
+-----
+
+####  netwof2008  
+##### 30363#       发表于 2021-1-29 19:40
+
+
+
+
+可赶紧取消吧，这疫情还搞线下真是胆子大
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30364#       发表于 2021-1-29 19:51
+
+
+
+ 本帖最后由 katern 于 2021-1-29 20:10 编辑 
+
+说起来明天就开VTuber Fes Japan了，有点不安<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+2ndシングル 追加情報解禁！ - ハニカムステーション！#14【HACHI】
+[https://www.youtube.com/watch?v=C0v1fAu8QdQ](https://www.youtube.com/watch?v=C0v1fAu8QdQ)
+
+
+HACHI 2nd Digital Single   《Rainy proof》      2月6号发售
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30365#       发表于 2021-1-29 21:18
+
+
+
+
+VTuber Fes Japan不是线上的吗，纯播片都行吧
+
+[https://www.youtube.com/watch?v=yE2OgbdqBrA](https://www.youtube.com/watch?v=yE2OgbdqBrA)
+
+奏みみ『君色』／Official Music Video
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 30366#       发表于 2021-1-29 21:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/29/213852h5c9vzce6ect3ycv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Es3BTmAU0BYMi7U.jpg</strong> (76.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-29 21:38 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30367#       发表于 2021-1-29 22:25
+
+
+
+
+恭喜4chan管人粉被踢出/jp/<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30368#       发表于 2021-1-29 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30369#       发表于 2021-1-29 22:39
+
+
+
+
+今天夏哥嗓子状态不错
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30370#       发表于 2021-1-29 22:41
+
+
+
+[https://www.youtube.com/watch?v=MMNReMlb_Cc](https://www.youtube.com/watch?v=MMNReMlb_Cc)
+
+AYAHINA Last Live『HOME』
+
+
+两位，还有游戏部，一路走好
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30371#       发表于 2021-1-29 22:50
+
+
+
+
+今天这共鸣，这音色，偷了歌单就是可以为所欲为嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+哭惹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30372#       发表于 2021-1-29 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50185077&amp;ptid=1969498" target="_blank">free 发表于 2021-1-29 21:18</a>
+
+VTuber Fes Japan不是线上的吗，纯播片都行吧
+
+
+https://www.youtube.com/watch?v=yE2OgbdqBrA</blockquote>
+不是有线下场吗，还有现场乐队演奏
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30373#       发表于 2021-1-29 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50185850&amp;ptid=1969498" target="_blank">katern 发表于 2021-1-29 22:52</a>
+
+不是有线下场吗，还有现场乐队演奏</blockquote>
+去看了下，还真的有线下我草，心真大还敢办线下，我还以为取消了......
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30374#       发表于 2021-1-29 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50185919&amp;ptid=1969498" target="_blank">free 发表于 2021-1-29 23:00</a>
+
+去看了下，还真的有线下我草，心真大还敢办线下，我还以为取消了......</blockquote>
+就改了个卖谷子的时间，看不懂。明天人有点多，一不小心真就要爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30375#       发表于 2021-1-30 01:01
+
+
+
+
+ina的猩猩封面图就是MC这个游戏的意义所在（夸张）
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30376#       发表于 2021-1-30 08:38
+
+
+
+
+你虹liver的反抗期似乎又开始了，三枝黛灰都喷了ickr，惊闻葵皇休止也是另有隐情，甚至还是和露露商量过的。
+
+syl
+<img src="https://p.sda1.dev/1/549b19c6a7b7cba200fa4445bdbbea42/Screenshot_2021-01-30-08-32-41-832_com.google.android.youtube.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30377#       发表于 2021-1-30 09:11
+
+
+
+
+贴贴♥️♥️♥️♥️♥️♥️
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30378#       发表于 2021-1-30 09:28
+
+
+
+
+葛King的后宫令人羡慕
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30379#       发表于 2021-1-30 11:38
+
+
+
+
+真是情比金坚，就算跑路了也能一起快乐双排。
+省一楼，早上醒来就看到郡道跟粉丝调情，搞屁啊，
+再省一楼，你虹内部早已暗流涌动，郡道谜语中甚至读出了当年西子凛的那味<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30380#       发表于 2021-1-30 11:41
+
+
+
+
+你虹终于要炸了？
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 30381#       发表于 2021-1-30 11:46
+
+
+
+
+什么？彩虹的半年终于要结束了！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 30382#       发表于 2021-1-30 11:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是真的。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30383#       发表于 2021-1-30 12:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">椎名和笹木都被招安了，这次谁来反抗呢？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 30384#       发表于 2021-1-30 12:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/121109sjw8ej2oen42ow3w.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210130121016.png</strong> (27.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 12:11 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 30385#       发表于 2021-1-30 13:38
+
+
+
+
+果然还是我熟悉的v综<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30386#       发表于 2021-1-30 13:55
+
+
+
+
+果然只有彩虹爆炸v综才会好起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 30387#       发表于 2021-1-30 14:33
+
+
+
+
+？看了v综之后我啊b首页也出现了奶油面包拳相关
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太大数据了吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30388#       发表于 2021-1-30 14:40
+
+
+
+<blockquote>緊急事態宣言 1カ月程度延長で検討
+
+政府は、新型コロナウイルスの感染拡大に伴い発令している緊急事態宣言について、2月7日までの期限を1カ月程度延長する方向で調整に入ったとのことです。</blockquote>
+
+田角你是提前得到消息了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30389#       发表于 2021-1-30 15:22
+
+
+
+
+这位算管人吗
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/152243ystkh24htzz2wa2h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ywwuyi.jpg</strong> (203.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 15:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30390#       发表于 2021-1-30 15:49
+
+
+
+[https://www.youtube.com/watch?v=nMnRauz3lqk](https://www.youtube.com/watch?v=nMnRauz3lqk)
+
+VTuber Fes Japan 2021 DAY1【1/30】冒頭チラ見せ
+
+
+这会场咋稀稀拉拉就坐这么几个人......
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30391#       发表于 2021-1-30 15:50
+
+
+
+
+nico这个清晰度是真的辣眼睛
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 30392#       发表于 2021-1-30 16:04
+
+
+
+
+nga星街楼标题一股免费的味道
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30393#       发表于 2021-1-30 16:18
+
+
+
+
+那楼星街个锤子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30394#       发表于 2021-1-30 16:21
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-1-30 16:28 编辑 
+
+720p就8k到7k码率平均，都比不过老爱稳定9999码率的流。
+
+同样是720都这么菜niconico就不能死一死吗<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">syl
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/162818h77te8w3wevwk37w.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (44.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 16:28 上传
+
+
+
+
+
+
+这药袋又诈尸……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+                                    
