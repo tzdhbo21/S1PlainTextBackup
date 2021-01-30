@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-30 02:53** 
+> ## **本文件最后更新于2021-01-30 11:41** 
 
 
 
@@ -11477,4 +11477,480 @@ tc之后精神倒是已经恢复了（tc治百病）
 
 
 
-                           
+
+
+-----
+
+####  ashero  
+##### 8164#       发表于 2021-1-30 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50188585&amp;ptid=1973472" target="_blank">rosevalley46 发表于 2021-1-30 10:48</a>
+
+咋又被破防了</blockquote>
+生理不来 外加有个半年前sl小作文是普通应援的人最近sl小作文变得越来越事业民指示厨
+
+然后心情就很差了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8165#       发表于 2021-1-30 11:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">没来姨妈
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8166#       发表于 2021-1-30 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">没来姨妈
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8167#       发表于 2021-1-30 11:29
+
+
+
+
+刚来完，感觉像大病初愈<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，希望咩咩内心放晴呀
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8168#       发表于 2021-1-30 11:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">没来姨妈
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8169#       发表于 2021-1-30 11:36
+
+
+
+
+只要一场无言歌回和一句ねえ、すき？就能把我折腾的心神不宁睡不好，大半夜tc开播400同接，听到声音没什么大问题才睡着，小麻你害了多少人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 8170#       发表于 2021-1-30 12:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">没来姨妈
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8171#       发表于 2021-1-30 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">没来姨妈
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8172#       发表于 2021-1-30 12:53
+
+
+
+ 本帖最后由 笋狐 于 2021-1-30 12:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内啥，女性因为精神压力、作息不规律等原因是会导致内分泌失调经期紊乱不来姨妈的，最近天回暖了，帽子可以不用戴的这么勤（
+
+
+不过真是这个情况的话要及时就医，虽然现在对面这情况我觉得这人肯定不敢出门....
+
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8173#       发表于 2021-1-30 12:59
+
+
+
+
+就什么医，是我干的，对不起大家<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8174#       发表于 2021-1-30 13:06
+
+
+
+
+跑去医院的话是不是又要给欧吉酱医生看芒果了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+总感觉去年初发生过类似的事情）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8175#       发表于 2021-1-30 13:16
+
+
+
+
+看来绿帽病毒也该就医<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 8176#       发表于 2021-1-30 13:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我感觉她生理经常不准时……
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 8177#       发表于 2021-1-30 14:16
+
+
+
+
+ 心事重引发紊乱也不奇怪啊
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 8178#       发表于 2021-1-30 14:17
+
+
+
+
+作息混乱导致生理紊乱可太常见了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8179#       发表于 2021-1-30 14:25
+
+
+
+
+您可别在颠倒作息了每次坚持不到三天正常作息又回去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8180#       发表于 2021-1-30 14:26
+
+
+
+
+本来就不准时，之前还有过周期30、39、56的
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8181#       发表于 2021-1-30 15:14
+
+
+
+
+比起压力大/作息乱导致周期紊乱，我比较能接受怀孕的停经
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 8182#       发表于 2021-1-30 15:31
+
+
+
+
+看了fafa总结，这事儿能说出来总比憋着好，不过早上看了点零头tc，她心情应该算好了点吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8183#       发表于 2021-1-30 15:32
+
+
+
+
+怀孕吃点啥好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8184#       发表于 2021-1-30 16:00
+
+
+
+
+建议孕妇吃营养丰富、容易消化的食物为主，还要注意荤素搭配，可以多摄入维生素、矿物质等。主食可以食用粳米、大米、小米、燕麦等。 肉类可以食用鸡肉、牛肉、猪肉、鱼肉等。水果、坚果可以食用葡萄、苹果、榛子、核桃、芝麻等。蔬菜可以食用地瓜苗、蒜苗、小白菜、油菜、菠菜等。另外，蛋类、奶类也需要多吃。但是要注意不能吃浓茶、咖啡、酒以及辛辣性大、刺激性大、油腻煎炸、生冷寒凉的食物，也要注意谨慎用药，不能私自使用。
+
+
+———— 来自百度
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8185#       发表于 2021-1-30 17:41
+
+
+
+
+太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8186#       发表于 2021-1-30 17:53
+
+
+
+
+《母羊产前护理》
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8187#       发表于 2021-1-30 17:53
+
+
+
+
+《母猫产前护理》
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 8188#       发表于 2021-1-30 18:37
+
+
+
+
+熟悉的弱智时间<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8189#       发表于 2021-1-30 18:38
+
+
+
+
+《极光螃蟹养殖手册》
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8190#       发表于 2021-1-30 18:43
+
+
+
+
+《坦克维修及保养指南》
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 8191#       发表于 2021-1-30 19:39
+
+
+
+
+怎么都M13了，我这么久没来了吗
+
+
+
+
+
+                          
