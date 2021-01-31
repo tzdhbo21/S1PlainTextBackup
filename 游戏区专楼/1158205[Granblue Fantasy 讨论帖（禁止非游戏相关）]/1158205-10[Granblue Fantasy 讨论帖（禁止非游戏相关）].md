@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 09:55** 
+> ## **本文件最后更新于2021-01-31 09:57** 
 
 
 
@@ -25275,4 +25275,613 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 
 
 
-   
+
+
+-----
+
+####  Kagam1  
+##### 14884#       发表于 2021-1-29 17:58
+
+
+
+
+看解包要素不像情人，大概就新普池或者lm，萌王的设定进lm还是说得过去的
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14885#       发表于 2021-1-29 19:06
+
+
+
+
+傻必肯定有，去年最少的傻必大概7个？情人节这量完全可以出傻必了，虽然带不带新卡就不好说了，反正也是傻必5抽1 7抽1都是运气问题
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 14886#       发表于 2021-1-29 20:40
+
+
+
+
+今年情人节会出总池嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14887#       发表于 2021-1-29 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次活动不错，fkhr努力一下还是能写出正常人的故事的嘛
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 14888#       发表于 2021-1-29 22:44
+
+
+
+
+这次活动故事虽然最后有些天降神，但前面有说小哥是星晶兽的渣，所以契约达成恢复可以接受
+
+
+倒是东山和主角这两个没想到是即时没有生命联系相关，彼此都是决意和对方生死相许。你们俩不是一直劝人要珍惜生命的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 14889#       发表于 2021-1-30 03:10
+
+
+
+ 本帖最后由 久井路路 于 2021-1-30 03:18 编辑 
+
+难得这次活动剧情出了个新BG，看起来也有做角色小人，实装大概也是时间问题了
+
+
+不过让人困扰的是，我们今后该怎么称呼シンシャ啊，有统一的译名了吗（
+
+直接用日语汉字来说的话直接就是“新车”了，那边的玩家念起来大概会很别扭（
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14890#       发表于 2021-1-30 03:32
+
+
+
+ 本帖最后由 武の炽羽 于 2021-1-30 07:59 编辑 
+
+看了一圈，月底这个老男人还是LM可能性比较高，而且大概率会给风<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+不过以狗男女现在的处境，武器怎么给技能都会不满意，到时候有好戏看了.jpg顺便想问下现在土打BB都怎么打？我之前因为没大奶所以一直是魔术师泳盾鸡+骑兵的阵容，挺稳，不过感觉炸得不够爽。现在有了大奶，是替换泳盾吧？
+
+之前什么兽王摇滚都试过没减豆贼难受<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  西人  
+##### 14891#       发表于 2021-1-30 10:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">老男人LM的话就土吧
+
+
+
+
+
+
+
+-----
+
+####  leafS  
+##### 14892#       发表于 2021-1-30 10:18
+
+
+
+
+手头只有堪堪一井，情人节限定只有斯卡哈没有，有种预感一旦下井周年就会尴尬，毕竟平时战货都只打不到10箱的水平<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14893#       发表于 2021-1-30 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50187271&amp;ptid=1158205" target="_blank">久井路路 发表于 2021-1-30 03:10</a>
+
+难得这次活动剧情出了个新BG，看起来也有做角色小人，实装大概也是时间问题了
+
+
+不过让人困扰的是，我们今后 ...</blockquote>
+宝石之国的シンシャ-辰砂
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 久井路路| + 1|这名字挺不错，到时候实装我抽一个（.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14894#       发表于 2021-1-30 15:28
+
+
+
+
+辰砂这角色设定看着就是个厉害的挂然后套了很多的限制，和史莱姆各种对标主角和刘女士
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 14895#       发表于 2021-1-31 11:44
+
+
+
+ 本帖最后由 久井路路 于 2021-1-31 12:41 编辑 
+
+是涅克塔单卡啊，不是和辰砂的双人卡稍微有点遗憾（
+
+辰砂本体又没什么战斗力，今后的单独实装怕是也无望了
+
+
+老男人的强度目前有点难以评价，40回合后才能用的2技能是绑死了和诺亚组队吧，1技能看起来是永续buff很香，但是有奥义获取down，有没有利用价值完全取决于buff数值高低了（
+
+
+追记：
+
+全体永续不可消去的奥义获取减半，你真的是张主打奥义的卡来着吧（
+
+搞成这样要怎么用出2技能（
+
+
+
+
+
+
+
+
+今日的我.jpg
+(210.22 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-31 12:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/124124cm3ubkzm3miztqqe.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14896#       发表于 2021-1-31 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50196722&amp;ptid=1158205" target="_blank">久井路路 发表于 2021-1-31 11:44</a>
+是涅克塔单卡啊，不是和辰砂的双人卡稍微有点遗憾（
+
+辰砂本体又没什么战斗力，今后的单独实装怕是也无望了
+
+ ...</blockquote>
+开奥义的时候可以看到 四舍五入也算双人卡了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14897#       发表于 2021-1-31 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50196722&amp;ptid=1158205" target="_blank">久井路路 发表于 2021-1-31 11:44</a>
+
+是涅克塔单卡啊，不是和辰砂的双人卡稍微有点遗憾（
+
+辰砂本体又没什么战斗力，今后的单独实装怕是也无望了
+
+ ...</blockquote>
+突破绘的背后灵真的很像ruria
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14898#       发表于 2021-1-31 12:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年新LM估计是剩下4属性喜获六龙2技能词条
+
+
+
+
+
+
+
+-----
+
+####  怀楠凌  
+##### 14899#       发表于 2021-1-31 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把风水的进境武器补上再补4把六龙武器差不多今年就出完了
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 14900#       发表于 2021-1-31 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50187324&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-1-30 03:32</a>
+
+看了一圈，月底这个老男人还是LM可能性比较高，而且大概率会给风
+
+不过以狗男女现在的处境，武器怎么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大奶泳盾魔术师啊，减什么豆出什么解什么
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14901#       发表于 2021-1-31 15:05
+
+
+
+
+40t有点怪了，但是卡面真的是很可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14902#       发表于 2021-1-31 15:50
+
+
+
+
+50奥义down太傻逼了吧，一度怀疑写反了
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14903#       发表于 2021-1-31 16:02
+
+
+
+
+草，从50修到35
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14904#       发表于 2021-1-31 16:07
+
+
+
+
+怕不是根本不是不具合，看后台数据都没人抽吧..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  边界循环  
+##### 14905#       发表于 2021-1-31 16:48
+
+
+
+
+抽了300没出老男人 在猪和老男人中间犹豫 有没有兄弟给个建议井啥
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14906#       发表于 2021-1-31 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198938&amp;ptid=1158205" target="_blank">边界循环 发表于 2021-1-31 16:48</a>
+抽了300没出老男人 在猪和老男人中间犹豫 有没有兄弟给个建议井啥</blockquote>
+老男人呗 光团也打完了猪今年根本没位置 还一年的时间给你井 老男人可以拿了看着玩玩 虽然暂时看也没什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 14907#       发表于 2021-1-31 16:53
+
+
+
+ 本帖最后由 Niu 于 2021-1-31 00:57 编辑 
+
+光有6道劍諾亞莉莉
+
+這個奧義量減少真的不算什麼
+
+話說這次這個羅莉太bug了吧?
+
+跟史萊姆的契約是教導的最奧
+
+契約時的那個髮色明顯是十天極
+
+再加上還有從們的對面抽取魔力的能力
+
+這女孩到底是何方妖孽?
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 14908#       发表于 2021-1-31 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">落地即进手术室，这么不把我的石头还回来
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14909#       发表于 2021-1-31 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198938&amp;ptid=1158205" target="_blank">边界循环 发表于 2021-1-31 16:48</a>
+
+抽了300没出老男人 在猪和老男人中间犹豫 有没有兄弟给个建议井啥</blockquote>
+建议猪，猪不是每个月底都有，老男人是每个月底都有。而且老男人这强度真的一般般
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14910#       发表于 2021-1-31 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198938&amp;ptid=1158205" target="_blank">边界循环 发表于 2021-1-31 16:48</a>
+
+抽了300没出老男人 在猪和老男人中间犹豫 有没有兄弟给个建议井啥</blockquote>
+神将总要井的..
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14911#       发表于 2021-1-31 17:29
+
+
+
+
+如果卖掉收件箱里面带加号的R召唤石会返回加号吗
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 14912#       发表于 2021-1-31 17:29
+
+
+
+
+看完更新第二条，我仔细想了下怎么总和才能超过100
+
+
+老男人1不修是-50，猪这种自带-30，然后群友指出c4ss的连击还有个-30，合计-110
+
+结果这奥义获取量down能超过100他们根本就没测试过吗。。。
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 14913#       发表于 2021-1-31 17:53
+
+
+
+<blockquote>引用第14904楼边界循环于2021-01-31 16:48发表的  :
+
+抽了300没出老男人 在猪和老男人中间犹豫 有没有兄弟给个建议井啥</blockquote>
+@边界循环
+
+想要老男人就老男人，五十五十肯定猪了，起码有月末狙击的时候能狗下老男人甚至狙击到了也能井老男人，猪你在月末下井的时候不一定有
+
+当然拼等周年转盘能不能嫖到当我没说，甚至都不一定有全神将池呢
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+  

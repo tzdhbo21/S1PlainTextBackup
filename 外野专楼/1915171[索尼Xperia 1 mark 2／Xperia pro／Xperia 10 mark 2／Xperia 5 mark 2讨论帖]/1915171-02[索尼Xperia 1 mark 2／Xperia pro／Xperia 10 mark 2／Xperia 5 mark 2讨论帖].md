@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 03:45** 
+> ## **本文件最后更新于2021-01-31 09:44** 
 
 
 
@@ -14531,4 +14531,644 @@ Android Auto没法用了，有人有类似现象吗
 
 
 
-                         
+
+
+-----
+
+####  无印凉粉  
+##### 2222#       发表于 2021-1-29 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179580&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 11:24</a>
+
+作为老股东，讲真这次更新翻车也是少见的大翻车
+
+
+往年更新大版本，多多少少有点小bug，我也能接受。大部 ...</blockquote>
+国行5M2的更新我到现在都没收到，估计在紧急修复bug
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2223#       发表于 2021-1-29 12:06
+
+
+
+<blockquote>我很费纸 发表于 2021-1-29 11:25
+作为非股东开了PC区首页第一高楼感想如何？
+
+
+拢共2台机器也能讨论一整年的也就是翔移了 ...</blockquote>
+天国的 10 II 哈哈哈
+
+
+Pro 看起来也不会有什么热度的样子，不知道专业人士会不会买帐。看宣传片似乎在一些场合能帮助提高的生产力，但会有多少市场呢
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2224#         楼主| 发表于 2021-1-29 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179607&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-01-29 11:25:52</a>
+作为非股东开了PC区首页第一高楼感想如何？
+
+
+拢共2台机器也能讨论一整年的也就是翔移了 ...</blockquote>恨铁不成钢啊，我也是从家长淘汰的U到Z3C到XZ到XZ2、XZ2C这么用来的，感觉还是索尼移动的进步太少
+
+记得好像是从一加楼里看到有人这么评价类原生系统
+——你们为什么不加入xx功能？
+——我们是类原生
+——那为什么原生有的你们没有
+——我们是类原生
+感觉这个对索尼移动的机型也适用
+
+我希望的索尼的手机，硬件大概保持这样就好，软件上外观保持跟原生一样，功能上尽可能靠近国产机，但是又不需要那么臃肿，能交给第三方的交给第三方，但是该自己加入的那些第三方无法处理的功能，一定要索尼主动加入啊！
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2225#       发表于 2021-1-29 15:08
+
+
+
+
+安卓11有个新功能，就是限制了/Android/data文件夹的读写，这就造成很多下载的东西找不到
+
+目前用RE管理器无法浏览/Android/data文件夹，除非root，授予777权限
+
+用自带的可以
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2226#       发表于 2021-1-29 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178489&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 09:51</a>
+
+开是可以开，不过现在还是半成品的翔移 Android 11讨论热度更大点。
+
+
+作为每次都第一时间冲大版本的人， ...</blockquote>
+刚去测试了下金拱门小程序，好像没得问题
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2227#       发表于 2021-1-29 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50181912&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-1-29 15:13</a>
+刚去测试了下金拱门小程序，好像没得问题</blockquote>
+我的不行，岛内完全打不开小程序了，play最新版微信，7.0.21
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2228#       发表于 2021-1-29 17:14
+
+
+
+
+还有个问题，微博打开闪退，最新版也一样，清空数据重装都不行，后来把微博的定位权限去掉就可以了
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2229#       发表于 2021-1-29 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179607&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 11:25</a>
+
+作为非股东开了PC区首页第一高楼感想如何？
+
+
+拢共2台机器也能讨论一整年的也就是翔移了 ...</blockquote>
+比话题度我索从来没输过
+
+看看那个一年一机的魅族
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2230#       发表于 2021-1-29 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50180178&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-1-29 12:11</a>
+恨铁不成钢啊，我也是从家长淘汰的U到Z3C到XZ到XZ2、XZ2C这么用来的，感觉还是索尼移动的进步太少
+
+记得好 ...</blockquote>
+唉……难。翔移先做好没有bug再说吧，真的很想要个真正的解锁性能的游戏模式。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2231#       发表于 2021-1-29 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183310&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-1-29 17:35</a>
+比话题度我索从来没输过
+
+看看那个一年一机的魅族</blockquote>
+毕竟泥潭汇集了翔移绝大部分的用户<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+翔移在国内还有销量，我觉得楼内的各位难辞其咎
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+希望2021年翔移能开窍，找一批正常的工程师做一批正常的手机吧。想要骁龙870的X5M3
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  みかこし  
+##### 2232#       发表于 2021-1-29 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50177004&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-1-29 01:56</a>
+
+向下滑开挨个消</blockquote>
+不行，软件更新的通知无法消除以及关闭
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2233#       发表于 2021-1-29 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179133&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 10:48</a>
+
+嗯，如果不支持自定义就更不好了。支持自定义我还能接受。但 5 II 上居然不行，太奇怪了 ...</blockquote>
+可以自定义 用软件
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2234#       发表于 2021-1-29 19:14
+
+
+
+ 本帖最后由 Cray 于 2021-1-29 20:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50182408&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 16:10</a>
+
+我的不行，岛内完全打不开小程序了，play最新版微信，7.0.21
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S ...</blockquote>
+play版的新微信就是打不开小程序的 一起骂张小龙
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2235#       发表于 2021-1-29 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184100&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-29 19:14</a>
+play版的新微信就是打不开小程序的 你去骂张小龙</blockquote>
+并不，岛外是可以的……这就是炼妖壶的bug
+
+10时代可以通过复制obb修复，但11以后没有data文件夹的修改权限，复制obb大法失效了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Heero_Z  
+##### 2236#       发表于 2021-1-29 19:59
+
+
+
+
+国内有人升11后全面屏手势会无法切换应用管理的那个界面么，国际版经常有这bug<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2237#       发表于 2021-1-29 20:00
+
+
+
+
+安卓11可以养猫了，看这篇文章：
+[https://sspai.com/post/61957](https://sspai.com/post/61957)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2238#       发表于 2021-1-29 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184371&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 19:43</a>
+
+并不，岛外是可以的……这就是炼妖壶的bug
+
+
+10时代可以通过复制obb修复，但11以后没有data文件夹的修改权 ...</blockquote>
+我那个安卓9的xz2play的新微信就开不了  应用宝的就好了  还是得骂张小龙<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2239#       发表于 2021-1-29 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184564&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-29 20:10</a>
+我那个安卓9的xz2play的新微信就开不了  应用宝的就好了  还是得骂张小龙 ...</blockquote>
+张小龙有没有🐴这是没有讨论价值的问题，地球人都知道张小龙没🐴
+
+Android 11收紧权限则是另一个蛋疼的问题--这勉强算个bug，愁死人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 2240#       发表于 2021-1-29 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，和车载蓝牙的间断断连这个问题绝了。。。要卡个3-10分钟就完全畅通播放了，每天开车还要先暖下蓝牙
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 2241#       发表于 2021-1-30 02:38
+
+
+
+
+Android10的时候我用炼妖壶（island）的设备管理员模式去管理Appos和冰箱，同时还能双开
+
+更新之后炼妖壶自己就没了…我不确定是自己误操作还是什么的，总而言之，重新折腾回来之后，我发现没法开启工作空间了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  喵喵叫的猫  
+##### 2242#       发表于 2021-1-30 12:14
+
+
+
+
+Xperia 1 II 港版8g 升级后， 环境显示（始终显示）那个时间会有延迟，比如现在12点拿起来会显示11点什么的，再锁屏再开就会恢复。不知道有人也这样吗？ 不过我play版的微信小程序到完全没问题
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2243#       发表于 2021-1-30 17:50
+
+
+
+
+之前没注意，换了个底部有字的壁纸才发现被强制放大了，就为了下拉通知栏的时候能有个缩放效果，还取消不了，安卓11的开发人员多少带点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2244#       发表于 2021-1-30 23:33
+
+
+
+
+我的国行52也收不到推送，估计是在紧急改bug？
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 2245#       发表于 2021-1-30 23:55
+
+
+
+
+翻了下好像没人提
+黑域在11可以通过无线调试自行激活
+1.打开无线调试
+2.打开黑域，进入只读模式，然后黑域会弹窗要激活，选无线调试
+3.打开设置里的无线调试，选择通过啥啥码激活，然后看到一个6位的码和端口
+4.双屏显示黑域，填那个6位的码，端口会自动识别应该不用自己填。双屏显示是因为那个码好像切换回后台就会变
+5.有一定几率失败，不用管，多点几次就能激活
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  御坂14084  
+##### 2246#       发表于 2021-1-31 08:26
+
+
+
+<blockquote>被雨困住的城市 发表于 2021-1-29 12:11
+恨铁不成钢啊，我也是从家长淘汰的U到Z3C到XZ到XZ2、XZ2C这么用来的，感觉还是索尼移动的进步太少
+
+
+记得好 ...</blockquote>
+达利特用户不在乎隐私换效率
+
+
+
+
+
+
+
+-----
+
+####  御坂14084  
+##### 2247#       发表于 2021-1-31 08:29
+
+
+
+<blockquote>cleaner 发表于 2021-1-30 02:38
+Android10的时候我用炼妖壶（island）的设备管理员模式去管理Appos和冰箱，同时还能双开
+
+
+更新之后炼妖壶自 ...</blockquote>
+用Shizuku激活APPOPS和冰箱 支持ADB ROOT
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 2248#       发表于 2021-1-31 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50195680&amp;ptid=1915171" target="_blank">御坂14084 发表于 2021-1-31 08:29</a>
+用Shizuku激活APPOPS和冰箱 支持ADB ROOT</blockquote>
+是的，我才后知后觉地发现，shizuku也可以通过无线调试启动了，可以全面抛弃设备管理员模式了。
+
+而且island、设备管理员和工作空间在11上估摸着有bug，互相不兼容（当然也可能是索尼的问题），取消island的设备管理员就能正常启用工作空间了。
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2249#         楼主| 发表于 2021-1-31 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50195671&amp;ptid=1915171" target="_blank">御坂14084 发表于 2021-01-31 08:26:47</a>
+达利特用户不在乎隐私换效率</blockquote>这跟隐私没关系的啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  YoumuChan  
+##### 2250#       发表于 2021-1-31 11:49
+
+
+
+
+Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然还带上了5 ii
+
+
+
+
+
+
+
+-----
+
+####  aiooia  
+##### 2251#       发表于 2021-1-31 17:22
+
+
+
+
+想问下这个强行圆化的app图标能改回去么？看着好特么蠢啊……顺带这个显示所有app的界面的背景能改么？
+
+<img src="https://img.saraba1st.com/forum/202101/31/172100k5xgrjl11p1tk561.jpg" referrerpolicy="no-referrer">
+
+
+<strong>捕获.JPG</strong> (36.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 17:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+捕获.JPG
+(26.64 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-1-21 22:08 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/21/220836bih20iaok4d4jq2k.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+                        
