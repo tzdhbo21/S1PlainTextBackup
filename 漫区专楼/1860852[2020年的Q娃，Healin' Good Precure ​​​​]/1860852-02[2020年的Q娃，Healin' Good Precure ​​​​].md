@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-24 10:10** 
+> ## **本文件最后更新于2021-01-31 08:45** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_fDRbW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_wubaV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Lwm8m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_aXApF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -22252,7 +22252,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_U0G9f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_p539V" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -26181,4 +26181,544 @@ OST2的某些曲子让我想起小时候看的奥特曼</blockquote>
 
 
 
-  
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2912#       发表于 2021-1-24 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，看着好色啊。想回到妈妈的体内什么的。
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2913#       发表于 2021-1-24 18:32
+
+
+
+<blockquote>HGCG 发表于 2021-1-24 17:11
+达鲁伊森最后会不会变成灭活疫苗同和佳合体然后去打病根王呢？</blockquote>
+这个可以有
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 2914#       发表于 2021-1-24 19:11
+
+
+
+
+难道要害怕木铁鸡
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2915#       发表于 2021-1-24 20:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50132508&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2021-1-24 18:25</a>
+
+妈的，看着好色啊。想回到妈妈的体内什么的。</blockquote>
+妈妈面对不听话的孩子时，有时会说「真恨不得把你塞回肚子里去！」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  exam00  
+##### 2916#       发表于 2021-1-24 22:18
+
+
+
+
+在日本病毒肆虐的当下，还搞洗白病毒才是作死，教坏小朋友。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2917#       发表于 2021-1-24 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我到现在都还是看不顺达鲁伊森这个角色······就你事多又别扭。
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2918#       发表于 2021-1-24 23:05
+
+
+
+
+对下一集有不好的预感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2919#       发表于 2021-1-25 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是下集和佳真的因为没有保护病毒而自责，那我只能说实在不懂编剧的脑回路了。
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2920#       发表于 2021-1-25 00:11
+
+
+
+
+不过感觉下集预告里的“和佳的选择！必须守护之物”应该是地球或者大家吧，别是达鲁伊森吧...别吧...
+
+希望下集能看到达鲁伊森被超度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 2921#       发表于 2021-1-25 00:23
+
+
+
+<blockquote>三合一出现 发表于 2021-1-24 23:01
+我到现在都还是看不顺达鲁伊森这个角色······就你事多又别扭。</blockquote>
+反派里就他事最多了，另外两个我个人觉得在对比之下存在感都有点虚
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 2922#       发表于 2021-1-25 16:40
+
+
+
+
+达鲁伊森还是早点被净化好了
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2923#       发表于 2021-1-26 01:39
+
+
+
+
+这正太就是大愚若智。。。还以为他什么都看透了其实啥都不懂。。。而且做坏事也是随心所欲没有道德观，和佳在对待他的问题上却坚持自己作为人的价值观，放在大人的社会里这肯定是不合理的，不过子贡番里嘛。。。就看下话巨大化之后是留下来还是直接超度了，我觉得留下来可能性极大
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 2924#       发表于 2021-1-26 08:39
+
+
+
+
+太迷惑了
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2925#       发表于 2021-1-31 08:22
+
+
+
+
+哈，达鲁伊森这个杂修。虽然没被打到物理超度，但是被吞了<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">活该
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 2926#       发表于 2021-1-31 08:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50195657&amp;ptid=1860852" target="_blank">csolfans 发表于 2021-1-31 08:22</a>
+哈，达鲁伊森这个杂修。虽然没被打到物理超度，但是被吞了活该</blockquote>
+故意打爆达鲁伊森且不净化
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2927#       发表于 2021-1-31 08:34
+
+
+
+
+这次净化怕是把少年打成灭活疫苗了
+
+我赌之后BOSS打顺风局时被少年反控，毕竟他本来就不情愿被吞
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2928#       发表于 2021-1-31 11:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">求你们快点让他退场吧。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2929#       发表于 2021-1-31 13:06
+
+
+
+
+有点大快人心的感觉，还有拉比琳可爱<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2930#       发表于 2021-1-31 13:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大快人心
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 2931#       发表于 2021-1-31 13:45
+
+
+
+
+大快人心
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2932#       发表于 2021-1-31 13:46
+
+
+
+
+正太这个剧情，我不知道该哭还是该笑。。。
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2933#       发表于 2021-1-31 14:02
+
+
+
+
+希望这位小哥 在大结局日后谈的时候被编剧遗忘到大气层<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+没有结局就是最好的结局 对于它而已
+
+还有明日美是准备学福娃吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  twit  
+##### 2934#       发表于 2021-1-31 14:12
+
+
+
+
+可算没救这正太。虽然官方中途一度在卖和佳和正太的cp，但还是在结局扳回来了。
+
+另外，今年的女干部居然舔到了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2935#       发表于 2021-1-31 15:28
+
+
+
+
+明明是严肃的一集 但是我想笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2936#       发表于 2021-1-31 15:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/153514yuk21w2u1m6nl1i1.png" referrerpolicy="no-referrer">
+
+
+<strong>0K{B0F92P1_NU{${4]6AOHT.png</strong> (63.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 15:35 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">活该！和佳骂得好~！~
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2937#       发表于 2021-1-31 15:45
+
+
+
+
+大  快   人   心，打撸伊森果然就该死
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2938#       发表于 2021-1-31 15:49
+
+
+
+
+这样才符合当前的价值观吗，放毒的家伙就该死
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2939#       发表于 2021-1-31 16:03
+
+
+
+ 本帖最后由 HGCG 于 2021-1-31 16:06 编辑 
+
+清流
+
+虽然处于看戏的心态，我之前都预测这对要原谅
+
+但今天这集的台词太有说服力了
+
+所以我也支持不原谅
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2940#       发表于 2021-1-31 16:11
+
+
+
+
+大快人心，女孩子就是要爱惜自己身体不要被渣男pua，这才是正能量的子供向动画，比抱q那些狗屁道理高出1000%
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2941#       发表于 2021-1-31 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198562&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2021-1-31 15:49</a>
+
+这样才符合当前的价值观吗，放毒的家伙就该死
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+我估计也是和现实有关，这里果断选择了不原谅不认同快去死
+
+
+毕竟中段还有着谜之CP营业
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 2942#       发表于 2021-1-31 16:44
+
+
+
+
+还没播完呢，说不定后面就洗白了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+热q啥时候播啊，能不能快进一下。病幻王你也别吸辛多尹奈垂死挣扎了，赶紧和体内的一起死了，和佳她们再干掉辛多伊奈进交接回吧
+
+
+
+
+
+ 
