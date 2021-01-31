@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-30 11:41** 
+> ## **本文件最后更新于2021-01-31 17:10** 
 
 
 
@@ -11953,4 +11953,591 @@ tc之后精神倒是已经恢复了（tc治百病）
 
 
 
-                          
+
+
+-----
+
+####  呓亘  
+##### 8192#       发表于 2021-1-30 20:19
+
+
+
+
+人间一天 管界一年 我的朋友
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8193#       发表于 2021-1-30 20:45
+
+
+
+
+麻 麻下海音声找到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/87ad7d5e535c47f3a17e1773c4a91c20/4fee869be47fe85.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 8194#       发表于 2021-1-30 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50192933&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-1-30 20:45</a>
+
+麻 麻下海音声找到了</blockquote>
+好<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 8195#       发表于 2021-1-30 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50192933&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-1-30 20:45</a>
+
+麻 麻下海音声找到了</blockquote>
+好<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8196#       发表于 2021-1-30 21:28
+
+
+
+
+哪怕声音有点像呢
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8197#       发表于 2021-1-30 21:32
+
+
+
+
+TC播
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 8198#       发表于 2021-1-30 21:34
+
+
+
+
+tc，永远的家<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8199#       发表于 2021-1-30 21:43
+
+
+
+
+咩宝起床啦
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8200#       发表于 2021-1-30 21:52
+
+
+
+
+TC 咩的亲人
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 8201#       发表于 2021-1-30 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">昨晚听了一会纯歌回到没感觉到什么不对就去上班了
+
+话说谁来统计一下你楼绿帽表情频率……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8202#       发表于 2021-1-30 21:59
+
+
+
+
+绿帽真的坏文明，讨厌<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 8203#       发表于 2021-1-30 22:26
+
+
+
+
+tc真的卡
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 8204#       发表于 2021-1-30 22:38
+
+
+
+
+我感觉不卡啊，可能梯子的问题？
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8205#       发表于 2021-1-30 22:43
+
+
+
+
+小麻啾啾<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8206#       发表于 2021-1-30 23:02
+
+
+
+
+TC之前墙高了后就容易卡了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 8207#       发表于 2021-1-30 23:28
+
+
+
+
+以前家里wifi能直连，现在却只能用流量梯子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 8208#       发表于 2021-1-31 15:12
+
+
+
+
+苔苔的引流安排
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8209#       发表于 2021-1-31 15:21
+
+
+
+
+苔苔：想在2月和我联动两次你需要做些什么，应该是懂的吧？
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 8210#       发表于 2021-1-31 15:22
+
+
+
+
+不好，小麻要被海苔男榨干了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8211#       发表于 2021-1-31 15:28
+
+
+
+
+上次和白雪联动看出她和苔箱其他人其实不太熟啊,这次又是初见么
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8212#       发表于 2021-1-31 15:48
+
+
+
+
+海苔男的苔箱引流计划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 8213#       发表于 2021-1-31 16:43
+
+
+
+
+然而真的能引得到流吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+作为你麻小弟的那俩也就那样，更何况根本不熟的苔箱
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8214#       发表于 2021-1-31 17:51
+
+
+
+
+拜码头罢了，你麻作为业界带前辈，苔苔唯一指定前辈，让手下小弟来一趟是很合理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8215#       发表于 2021-1-31 21:01
+
+
+
+
+你们懂个屁的海苔男的野望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8216#       发表于 2021-1-31 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候恶堕
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8217#       发表于 2021-1-31 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">不能是小麻化身吸血鬼，一口把苔苔的人吸完
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8218#       发表于 2021-1-31 22:31
+
+
+
+
+不要加速姨化<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 8219#       发表于 2021-1-31 22:32
+
+
+
+
+速速加速姨化<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8220#       发表于 2021-1-31 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">恶堕能利好肉体厨，那也是好事
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 8221#       发表于 2021-1-31 23:56
+
+
+
+ 本帖最后由 KL25001 于 2021-1-31 23:57 编辑 
+
+2021.1直播时长统计
+
+Twitcasting，我的半壁江山
+
+<img src="https://img.saraba1st.com/forum/202101/31/235526m11ch2cokf5r1gxz.png" referrerpolicy="no-referrer">
+
+
+<strong>01c.PNG</strong> (62.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 23:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/235525q7ufq8n2s7575rgq.png" referrerpolicy="no-referrer">
+
+
+<strong>01a.PNG</strong> (85.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 23:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/235525jxt5oezkl09q6ohh.png" referrerpolicy="no-referrer">
+
+
+<strong>01b.PNG</strong> (63.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 23:55 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1||
+| 路人庚| + 1|好评加鹅|
+| fsfs_freeze| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 8222#       发表于 2021-2-1 00:22
+
+
+
+
+18天29播平均每次接近一小时 是勤奋的主播呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         

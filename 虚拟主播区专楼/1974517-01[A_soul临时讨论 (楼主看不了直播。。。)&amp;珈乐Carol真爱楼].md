@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 02:55** 
+> ## **本文件最后更新于2021-01-31 17:12** 
 
 
 
@@ -167,14 +167,7 @@ TIM截图20201127020535.jpg
 ####  Peris  
 ##### 4#       发表于 2020-11-27 08:14
 
-
-
-
-好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -884,14 +877,7 @@ CHV`Q_4M6ZWI]BF8``(O9%F.png
 ####  Peris  
 ##### 43#       发表于 2020-11-28 07:39
 
-
-
-
-赶紧首播<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">只要质量好，我必上舰
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1061,14 +1047,7 @@ syl  破防了，就这样吧
 ####  Peris  
 ##### 53#       发表于 2020-11-28 15:34
 
-
-
-
-嘉然跟向晚太阴间了吧🤭
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2171,7 +2150,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_GmU4T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_QVAlz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -2313,16 +2292,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 ####  Peris  
 ##### 122#       发表于 2020-12-22 17:25
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49808860&amp;ptid=1974517" target="_blank">Aminor 发表于 2020-12-22 16:53</a>
-
--</blockquote>
-反转了，是贴吧高仿号整得双簧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4509,14 +4479,7 @@ rp是做不久的。
 ####  Peris  
 ##### 229#       发表于 2020-12-27 09:45
 
-
-
-
-嘉然赶紧出联名薯片<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4806,14 +4769,7 @@ rp队友环节还挺可爱的，有反差萌
 ####  Peris  
 ##### 246#       发表于 2020-12-27 20:23
 
-
-
-
-难为她硬凹人设了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4904,14 +4860,7 @@ rp队友环节还挺可爱的，有反差萌
 ####  Peris  
 ##### 252#       发表于 2020-12-27 20:49
 
-
-
-
-这肯定是运营写的台本，等一个道歉好吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5132,14 +5081,7 @@ rp队友环节还挺可爱的，有反差萌
 ####  Peris  
 ##### 265#       发表于 2020-12-27 21:06
 
-
-
-
-感觉是嘉然乃琳两个高手带三个小孩
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5236,14 +5178,7 @@ rp队友环节还挺可爱的，有反差萌
 ####  Peris  
 ##### 271#       发表于 2020-12-27 21:19
 
-
-
-
-这™唱得是个啥啊😭😭😭能不能整点别人唱不了的歌
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5501,14 +5436,7 @@ rp队友环节还挺可爱的，有反差萌
 ####  Peris  
 ##### 286#       发表于 2020-12-27 22:07
 
-
-
-
-听说最后哭了？这™是个啥啊😭
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7063,14 +6991,7 @@ V8怎么自己打起来了</blockquote>
 ####  Peris  
 ##### 365#       发表于 2020-12-29 08:32
 
-
-
-
-看不到QA，身上有🐜在爬
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7313,14 +7234,7 @@ V8怎么自己打起来了</blockquote>
 ####  Peris  
 ##### 379#       发表于 2020-12-29 13:44
 
-
-
-
-向晚就会吸血是吧😡
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7723,14 +7637,7 @@ NGA和V8，S1是什么臭鱼烂虾，有流量吗<img src="https://static.saraba
 ####  Peris  
 ##### 403#       发表于 2020-12-29 20:54
 
-
-
-
-什么本子剧情😅
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10678,14 +10585,7 @@ syl，有素人感也是不可多得的乐趣啊<img src="https://static.saraba1
 ####  Peris  
 ##### 558#       发表于 2021-1-3 23:30
 
-
-
-
-被别人一说，我也觉得嘉然有点像了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13453,7 +13353,7 @@ late to the party
 
  本帖最后由 浇砼结衣 于 2021-1-11 04:27 编辑 
 
-<img src="http://border=0" id="aimg_xnuNE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
+<img src="http://border=0" id="aimg_gukJx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
 
 
 
@@ -13616,16 +13516,7 @@ https://t.bilibili.com/479359023578650254</blockquote>
 ####  Peris  
 ##### 697#       发表于 2021-1-12 22:29
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50015344&amp;ptid=1974517" target="_blank">qw945 发表于 2021-1-12 21:08</a>
-
-排班表呢？明天不播吗？好急</blockquote>
-碗指导独C😁
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13724,14 +13615,7 @@ https://t.bilibili.com/479359023578650254</blockquote>
 ####  Peris  
 ##### 703#       发表于 2021-1-13 13:42
 
-
-
-
-碗碗上次单人直播还是原神抽卡吧？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14706,17 +14590,7 @@ QA终于来了，我还以为不发了<img src="https://static.saraba1st.com/ima
 ####  Peris  
 ##### 759#       发表于 2021-1-20 11:42
 
-
-
- 本帖最后由 Peris 于 2021-1-20 11:43 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50084854&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-1-19 18:00</a>
-
-现在这个圈子不需要做的好，只要不比别人烂就行</blockquote>
-何止不比别人烂，比别人好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">每周这么长时间的3D直播别人怎么比
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16019,4 +15893,601 @@ Q：琳的粉丝牌 现在还没有动。。有在决定吗
 
 
 
-                      
+
+
+-----
+
+####  Peris  
+##### 812#       发表于 2021-1-29 11:00
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 813#       发表于 2021-1-29 11:35
+
+
+
+
+好急啊，好想快进到晚上开播<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 814#       发表于 2021-1-29 16:34
+
+
+
+
+向晚和贝拉都面瘫了，今晚会五人一起面瘫吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 815#       发表于 2021-1-29 21:00
+
+
+
+
+草，这骑士团得封爵了。真有这么大提升吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 816#       发表于 2021-1-29 22:22
+
+
+
+
+团播每次都不错。通过通过通过<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+懒羊羊和水母的梗已经甩不掉了，我好想看一眼设定立绘里的狂小碗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 817#       发表于 2021-1-29 22:27
+
+
+
+
+今天看的真的是很欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 818#       发表于 2021-1-29 23:43
+
+
+
+
+今晚挺好看的，除了弹幕膨胀到最后刷的有点累了，弹幕全责<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forsakenll  
+##### 819#       发表于 2021-1-30 00:22
+
+
+
+
+没赶上直播，问下今天晚指导为啥哭了啊
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 820#       发表于 2021-1-30 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50186586&amp;ptid=1974517" target="_blank">forsakenll 发表于 2021-1-30 00:22</a>
+没赶上直播，问下今天晚指导为啥哭了啊</blockquote>
+唱歌拉跨了，弹幕投票数量也没够，可能是用心练了，没想到拉了心里委屈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| forsakenll| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 821#       发表于 2021-1-30 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50186586&amp;ptid=1974517" target="_blank">forsakenll 发表于 2021-1-30 00:22</a>
+没赶上直播，问下今天晚指导为啥哭了啊</blockquote>
+唱日语歌把自己拉胯到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是努力认真练了，没唱好自己也委屈，所以哭了之后很多人都gachi了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| forsakenll| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 822#       发表于 2021-1-30 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50186707&amp;ptid=1974517" target="_blank">花生酱神侃 发表于 2021-1-30 00:42</a>
+唱日语歌把自己拉胯到了应该是努力认真练了，没唱好自己也委屈，所以哭了之后很多人都gachi了 ...</blockquote>
+一想到晚指导下班之后，还要高强度回复骚扰私信，我就更心疼更gachi了。这就继续骚扰<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  forsakenll  
+##### 823#       发表于 2021-1-30 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哦，那还好啊，我还以为做了什么被弹幕喷哭了
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 824#       发表于 2021-1-30 00:56
+
+
+
+
+晚：谢谢大家。谢谢大家。
+
+珈：呃，有一件事情要我现在告诉你吗。（晚：什么呀。）就是我们晚晚的投票现在还差一点点。
+
+晚：顶碗人！顶碗人在哪里~
+
+晚：顶碗人！这次可以吧。这次单相思通过了吧。
+
+晚：呃，我这次，面试，没有准备好，我下一次还会准备的！果咩纳塞！哼哼，啊哼哼，哼哼
+
+晚：我，我唱，唱，唱错段落了，我太紧张了！
+
+晚：果咩，对不起！我下次一定会好好，唱的。
+
+晚：呜呜，我的歌词...我不耽误大家的时间了。
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 825#       发表于 2021-1-30 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50186802&amp;ptid=1974517" target="_blank">slaysleepslow 发表于 2021-1-30 00:56</a>
+晚：谢谢大家。谢谢大家。
+
+珈：呃，有一件事情要我现在告诉你吗。（晚：什么呀。）就是我们晚晚的投票现在 ...</blockquote>
+鳖嗦了，一早起来只有晚指导没有动态营业，一定是哭晕在被窝里惹，呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 826#       发表于 2021-1-30 21:51
+
+
+
+ 本帖最后由 yuzu98k 于 2021-1-30 22:26 编辑 
+
+看嘉然然直播，有一种用烂梗疯狂轰炸路人但是她又不敢还口而只能接受的快乐<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+syl 然然在乃琳直播开头的小互动真可爱，又是T0了。滤镜戴上了，下次画画我还看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 827#       发表于 2021-1-30 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉我对“虚无”的接受力比其他人高很多，这场就有一小段把我尬住了其他都感觉挺不错的
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 828#       发表于 2021-1-30 22:47
+
+
+
+
+乃琳太懂了，我真心动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 829#       发表于 2021-1-30 22:48
+
+
+
+
+乃0太会了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 830#       发表于 2021-1-30 23:24
+
+
+
+
+原来真有女人看骑士，而且还是电王<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 831#       发表于 2021-1-31 22:08
+
+
+
+
+今天晚晚这场真的满分，乃琳也拉的住场面，比上周脑死pubg高多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 832#       发表于 2021-1-31 22:08
+
+
+
+
+今天直播好欢乐
+
+
+
+
+
+
+
+-----
+
+####  端木恋心  
+##### 833#       发表于 2021-1-31 22:12
+
+
+
+
+玲珑骰子安红豆，入骨相思知不知。完了啊，我感觉我乃琳入脑了。
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 834#       发表于 2021-1-31 22:12
+
+
+
+
+一想到下次直播在好几天之后<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MAO_DREAMER  
+##### 835#       发表于 2021-1-31 22:16
+
+
+
+
+as除了珈乐没看过，其他我都好喜欢啊，这就是专业偶像的实力吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 836#       发表于 2021-1-31 22:17
+
+
+
+
+能不能快进到下周二<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 837#       发表于 2021-1-31 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">要入脑惹
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 838#       发表于 2021-1-31 22:52
+
+
+
+
+晚晚玩点派对游戏行了，别惦记吃鸡那破流量了。
+
+除了乃0，稳定谁单人播谁拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+下周的版本能再救救我的嘉然然吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DKD  
+##### 839#       发表于 2021-1-31 23:03
+
+
+
+
+晚晚今天太行了！
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 840#       发表于 2021-1-31 23:28
+
+
+
+
+乃琳辅助一直可以的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  端木恋心  
+##### 841#       发表于 2021-1-31 23:45
+
+
+
+
+看到贴吧50皇珈骑士团里有人说之前珈乐在小黑屋直播的时候透露，只播到小年，其他人回家，珈乐老家要隔离所以暂时不回去。看一下小年是腊月23，下周的直播就到周四，不知道怎么安排下周直播。
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 842#       发表于 2021-1-31 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202394&amp;ptid=1974517" target="_blank">端木恋心 发表于 2021-1-31 23:45</a>
+
+看到贴吧50皇珈骑士团里有人说之前珈乐在小黑屋直播的时候透露，只播到小年，其他人回家，珈乐老家要隔离所 ...</blockquote>
+官号不是说2月五号直播过小年吗  如果要回去的话应该是2月5号播完吧
+
+
+
+
+
+
+
+-----
+
+####  端木恋心  
+##### 843#       发表于 2021-1-31 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202427&amp;ptid=1974517" target="_blank">slaysleepslow 发表于 2021-1-31 23:50</a>
+
+官号不是说2月五号直播过小年吗  如果要回去的话应该是2月5号播完吧</blockquote>
+我不太清楚啊，我看贴吧皇珈骑士团说的。不知道是不是造谣。如果不是造谣那应该就是小年播完回家吧。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 844#       发表于 2021-2-1 00:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">没直播看要死了
+
+
+
+
+
+                     
