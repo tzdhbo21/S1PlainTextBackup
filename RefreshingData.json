@@ -1373,7 +1373,7 @@
     "title": "[原来每小时负重20公斤6次的工作就不允许女性从事了？]",
     "lastedit": 1609503220,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1980214",
@@ -1849,9 +1849,9 @@
   },
   {
     "id": "1959892",
-    "totalpage": 677,
+    "totalpage": 678,
     "title": "[原神（多平台）攻略讨论专楼，更新群号（禁止新开讨论）]",
-    "lastedit": 1612083350,
+    "lastedit": 1612098008,
     "category": "游戏区专楼",
     "active": true
   },
@@ -4689,9 +4689,9 @@
   },
   {
     "id": "1959373",
-    "totalpage": 14,
+    "totalpage": 15,
     "title": "[太空科幻模拟经营《戴森球计划》 将加入战斗、空间站]",
-    "lastedit": 1612057231,
+    "lastedit": 1612099310,
     "category": "游戏区专楼",
     "active": true
   },
@@ -5273,9 +5273,9 @@
   },
   {
     "id": "1985273",
-    "totalpage": 61,
+    "totalpage": 63,
     "title": "[【B23】VUP综合讨论楼]",
-    "lastedit": 1612094829,
+    "lastedit": 1612099707,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -5473,9 +5473,9 @@
   },
   {
     "id": "1985312",
-    "totalpage": 7,
+    "totalpage": 8,
     "title": "[名越稔洋下台了]",
-    "lastedit": 1612009180,
+    "lastedit": 1612099838,
     "category": "游戏区",
     "active": true
   },
