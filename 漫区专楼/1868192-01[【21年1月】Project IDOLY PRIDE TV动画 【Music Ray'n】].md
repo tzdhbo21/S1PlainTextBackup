@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-18 12:24** 
+> ## **本文件最后更新于2021-01-31 14:46** 
 
 
 
@@ -223,7 +223,7 @@ Aile to Yell / TRINITYAiLE
 
 
 比较好奇的是推上这个人物好像不在10人内？
-<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_UG11K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_Mo9ry" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2276,4 +2276,526 @@ CG制作：ラークスエンタテインメント
 
 
 
-                                             
+
+
+-----
+
+####  t222  
+##### 122#       发表于 2021-1-18 20:47
+
+
+
+
+画风不错，但是对于刚看过虹团的我来说，这质量有点。。。
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 123#       发表于 2021-1-18 21:36
+
+
+
+
+剧情挺有意思，开篇死个人让剧情更有趣了，估计剧情就是围绕2人展开，剩下的8个背景板。
+
+女鬼的心愿明显是男主的告白吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 124#       发表于 2021-1-18 21:40
+
+
+
+
+当妹妹登上顶级偶像后 姐姐托梦让妹妹向制作人告白了结心愿，姐姐成佛 完
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 125#       发表于 2021-1-18 22:57
+
+
+
+
+两人一集的话篇幅是够了，但是还是有点紧张，希望故事能讲好吧。
+
+
+
+
+
+
+
+-----
+
+####  whzfjd  
+##### 126#       发表于 2021-1-18 23:19
+
+
+
+
+绝望老师再演
+
+偶像挂了就可以拍BG了（
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 127#       发表于 2021-1-19 00:05
+
+
+
+
+一般来说会是新组合模仿姐姐最后打出自己风格的剧情，然后女鬼成佛
+
+
+期望有半个花名的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 128#       发表于 2021-1-19 00:16
+
+
+
+
+挺有意思的，发刀毫不含糊，追了追了。看弹幕笑死，樱咲川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stuka1942  
+##### 129#       发表于 2021-1-19 00:27
+
+
+
+
+感觉挺标准的偶像番展开，加了幽灵更有意思了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  普通哈尼  
+##### 130#       发表于 2021-1-19 00:31
+
+
+
+
+这橙毛的电波神棍台词，有花田内味了
+
+
+
+
+
+
+
+-----
+
+####  小倉朝日  
+##### 131#       发表于 2021-1-19 14:05
+
+
+
+
+樱这是移植了姐姐的心脏了吧，心的指向怕不是事务所而是事务所里的男主，加上妹妹和幽灵姐姐，四角恋吗
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 132#       发表于 2021-1-19 20:04
+
+
+
+
+有描写麻奈过去的漫画「Beginning of Lodestar」[https://comic-walker.com/content ... W01201912010000_68/](https://comic-walker.com/contents/detail/KDCW_CW01201912010000_68/)
+
+和动画不同，麻奈是先被社长给名片了。出道后live途中照明灯掉下来，牧野替挡（没大碍），不过使得麻奈唱不出歌了。
+
+
+
+
+
+
+
+-----
+
+####  酥蕤  
+##### 133#       发表于 2021-1-21 22:24
+
+
+
+
+妹子人设真好看，可惜作画不够稳啊
+遥子和妹妹胸画得真挺啊 黄毛可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 134#       发表于 2021-1-24 22:31
+
+
+
+
+舞蹈作画好强，黑长直同学不知道会不会和女主3人扭起来，制作人和幽灵对话要是能多点就好了
+
+
+
+
+
+
+
+-----
+
+####  蜂蜜咖啡  
+##### 135#       发表于 2021-1-24 22:33
+
+
+
+
+第三集ed好听！
+
+
+
+
+
+
+
+-----
+
+####  DarthAka  
+##### 136#       发表于 2021-1-25 02:12
+
+
+
+
+大小姐在英国回不来了，爱生也一块摸了？
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 137#       发表于 2021-1-25 02:17
+
+
+
+<blockquote>DarthAka 发表于 2021-1-25 02:12
+大小姐在英国回不来了，爱生也一块摸了？</blockquote>
+好像最开始设定就是二人组合 剩下两个应该是后期加入的
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 138#       发表于 2021-1-25 02:25
+
+
+
+
+虽然有点瑕疵 但是2020了 还有人愿意画2D舞蹈就已经很感动了
+
+
+
+
+
+
+
+-----
+
+####  ReginaldMorgan  
+##### 139#       发表于 2021-1-25 12:58
+
+
+
+
+敌团这俩看着眼熟，然后想起来第一集出现过，Ep.1 13:00 那里
+
+
+
+
+
+
+
+-----
+
+####  wsqxz  
+##### 140#       发表于 2021-1-25 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">这段跳舞不错，感觉可以追下去了
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 141#       发表于 2021-1-25 13:52
+
+
+
+
+这成宫家大小姐的声音快给我听吐了 
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 142#       发表于 2021-1-25 14:01
+
+
+
+
+我倒是喜欢大小姐的声音，反而黑长直同学就很棒读
+
+
+
+
+
+
+
+-----
+
+####  赛U灵  
+##### 143#       发表于 2021-1-25 14:10
+
+
+
+
+舞蹈太有趣了W真的一眼能看出来跳的好和跳的不好的区别
+竟然有专属ED牌面
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  赛U灵  
+##### 144#       发表于 2021-1-25 14:12
+
+
+
+
+敌团的曲子太好听了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+话说其实三集下来比起主要讲团的故事，感觉还是麻奈是主线啊？有点不清晰的感觉
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 145#       发表于 2021-1-25 20:09
+
+
+
+[https://www.bilibili.com/video/BV12v411x7ne](https://www.bilibili.com/video/BV12v411x7ne)
+
+第三集ED的完整版，猫眼三姐妹好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 146#       发表于 2021-1-25 20:24
+
+
+
+
+这就是，PRO吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+琴乃和樱相反的感受，同样的结论这里很喜欢。
+
+Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhouaa  
+##### 147#       发表于 2021-1-25 21:43
+
+
+
+ 本帖最后由 zhouaa 于 2021-1-25 21:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了，这就是个拼团的故事，上不了宇宙了
+
+不是很欣赏这种拿一个电波女当剧情道具的作法
+
+
+
+
+
+
+
+-----
+
+####  酥蕤  
+##### 148#       发表于 2021-1-25 23:47
+
+
+
+
+有其它队员的支线剧情吗，别看完了名字都叫不出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whzfjd  
+##### 149#       发表于 2021-1-26 04:33
+
+
+
+
+听说这集手绘舞蹈炸裂
+
+看到主角团练习：嗯，确实不错，不过这脸怎么有点走形
+
+没想到还有踢馆：我去这才是本体
+
+
+虽说是要衬托，不过让主角团菜到走形也太惨了
+
+
+悸动战士和压力马斯的对比挺有趣的
+
+信息这么流通，富婆是怎么没发现假签名的
+
+
+
+
+
+
+
+-----
+
+####  songchen_bruce  
+##### 150#       发表于 2021-1-26 08:17
+
+
+
+
+男主角这一天到晚当着其他人的面对着空气讲话的表面行为，后面肯定要专门抽出一集来彻底崩溃一下，就看到时候staff怎么表现了。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 151#       发表于 2021-1-31 22:35
+
+
+
+ 本帖最后由 最强惠酱 于 2021-1-31 22:36 编辑 
+
+好看，原来男主不是神经病<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+琴乃这反应真像个麻烦小女友。新人每晚都去男主房间玩还被发现笑到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+把双马尾除开是为了双领队吧，期待后续，每集都能看到高水准舞蹈作画真好啊，好钢在刀刃
+
+
+
+
+
+                                            

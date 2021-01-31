@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-30 17:13** 
+> ## **本文件最后更新于2021-01-31 14:39** 
 
 
 
@@ -8310,4 +8310,598 @@ hana最近和sky联动那次，日语说的还挺多的
 
 
 
-                                   
+
+
+-----
+
+####  flyskywalker92  
+##### 30423#       发表于 2021-1-31 05:35
+
+
+
+
+月灵现在油管用的这个皮 不会就是最终的了吧、、
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 30424#       发表于 2021-1-31 09:24
+
+
+
+
+进虹等死吗，杏星才是未来
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30425#       发表于 2021-1-31 11:52
+
+
+
+
+友人h的青梅不都自己建箱了，当然去她家啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30426#       发表于 2021-1-31 12:27
+
+
+
+
+那肯定得去虹啊，去虹就能看马自立（又）化身舔狗了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30427#       发表于 2021-1-31 14:23
+
+
+
+
+牛姨：感觉尼尔在我玩过的游戏里算是操作感比较舒适的了
+
+评论栏：因为跟原神很接近吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 30428#       发表于 2021-1-31 14:58
+
+
+
+<blockquote>雨森 小夜  @Sayo_Amemori
+
+本日1月31日の25時（2月1日の午前1時）より、2.0になります！そんなに長くならないと思います（30分くらいで終わる予定）
+
+アーカイブは残します、お時間が合えば何卒よろしくお願い致します！</blockquote>
+2.0になる放送
+[https://youtu.be/pKE7iMKJGHg](https://youtu.be/pKE7iMKJGHg)
+
+<img src="https://img.saraba1st.com/forum/202101/31/145700o7tj5jjhutai5ihe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>hq720_live.jpg</strong> (36.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 14:57 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30429#       发表于 2021-1-31 15:46
+
+
+
+
+大亏今天能上钻三吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 30430#       发表于 2021-1-31 18:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/181232qhozyv1dh3x1owdp.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-01-31_18-12-13.png</strong> (141.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 18:12 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v= ... nel=ISA%27sSONGROOM](https://www.youtube.com/watch?v=byOCvtEbp4E&amp;ab_channel=ISA%27sSONGROOM)
+
+之前在V红白上看见的用吉他弹唱的Vtuber，很容易听出来的变声器，不过不知为何我听着觉得挺好玩的，有种俏皮感，感觉找回了点初心。
+
+频道里翻唱的歌都是欧美的曲子，不过在推特上倒是有唱日文歌的小视频。
+
+现在是初生放，有兴趣的可以看一下。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30431#       发表于 2021-1-31 19:26
+
+
+
+ 本帖最后由 OldGlory 于 2021-1-31 19:27 编辑 
+
+nene鸡可以了已经11w了，不用拖了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 30432#       发表于 2021-1-31 19:33
+
+
+
+<blockquote>黒音よみおじ㌠
+
+@Kurone__Yomi
+
+【お知らせ】
+
+
+この度、2月17日をもちまして所属事務所のRe:AcTから卒業し黒音よみとしての活動を終える事になりました。
+
+
+今まで本当に大変でしたがずっと支えてくれたゆきちゃんや先輩、後輩達のおかげで頑張ってこれました。
+
+
+応援してくれたみんなが大好きです
+
+本当にありがとうございました。
+
+
+午後7:19 · 2021年1月31日·Twitter for iPhone</blockquote>
+
+啊..
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30433#       发表于 2021-1-31 19:33
+
+
+
+
+这是做了隆胸手术吧
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30434#       发表于 2021-1-31 19:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没拖的结果就是hiyoko只录了10w5，杏现在3d披露的buff已经不如新衣装了是没想到的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30435#       发表于 2021-1-31 19:59
+
+
+
+<blockquote>真飞鸟i 发表于 2021-1-31 19:33
+没拖的结果就是hiyoko只录了10w5，杏现在3d披露的buff已经不如新衣装了是没想到的。
+
+
+—— 来自 Xia ...</blockquote>
+物以稀为贵
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30436#       发表于 2021-1-31 20:00
+
+
+
+
+看了一眼这人设改成纯偶像了吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30437#       发表于 2021-1-31 20:07
+
+
+
+
+这就是大杏的去中国化吗......比之前的起码是顺眼了点
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30438#       发表于 2021-1-31 20:08
+
+
+
+
+GAS GAS GAS but GAWR GURA
+[https://www.youtube.com/watch?v=1lcOyt_403U](https://www.youtube.com/watch?v=1lcOyt_403U)
+<img src="https://static01.imgkr.com/temp/b09bc382db1c4d83964b29b4dae4208c.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30439#       发表于 2021-1-31 20:16
+
+
+
+<[img src="https://i.loli.net/2021/01/31/WRg7HU2w1TeDXMy.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/01/31/FXEYOqNAQT2IMDl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30440#       发表于 2021-1-31 20:20
+
+
+
+
+今天大葵居然有新衣服......
+
+不过最让我震惊的居然是这俩怎么也V了
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/202032o2f52355fyy8ofl3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>aoi.jpg</strong> (461.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 20:20 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/202041rd93at79v409mavp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dct.jpg</strong> (326.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-31 20:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30441#       发表于 2021-1-31 20:21
+
+
+
+
+魔法少女夜见
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30442#       发表于 2021-1-31 20:22
+
+
+
+<img src="https://p.sda1.dev/1/74d94132f2e4477fe5bfab90757056f9/IMG_CMP_172885110.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30443#       发表于 2021-1-31 20:25
+
+
+
+
+还有一套护士 夜姨可爱
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30444#       发表于 2021-1-31 20:31
+
+
+
+
+夜见单推人来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30445#       发表于 2021-1-31 20:39
+
+
+
+
+今天晚上也是mmr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 30446#       发表于 2021-1-31 20:44
+
+
+
+
+有的夜见今天开新衣装披露回
+有的夜见今天开毕业歌回
+他们都有光明的前途
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 30447#       发表于 2021-1-31 21:11
+
+
+
+
+夜見的皮感觉质量都好高，机师水平也高
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 30448#       发表于 2021-1-31 21:12
+
+
+
+
+喜报，叶师终于换衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 30449#       发表于 2021-1-31 21:35
+
+
+
+
+回马枪
+不是很坏的消息 黑黑mini live延期（这时期也是好事）
+好消息 mini live升级成live！油管放送！
+另，情人节的歌可能推迟几天发布但换成了两个人很想唱的和巧克力盒风格相近的歌曲（cnr+：不如说更厉害）
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30450#       发表于 2021-1-31 21:44
+
+
+
+
+黑黑live是新3D？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30451#       发表于 2021-1-31 21:54
+
+
+
+ 本帖最后由 JoelBirch 于 2021-1-31 21:59 编辑 
+
+隔壁新进月灵推挺能挖啊……虽然就多了一步<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+不过原来月灵姐所属事务所的老板是她爹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30452#       发表于 2021-1-31 21:58
+
+
+
+
+萝卜子老鼠台
+[https://www.twitch.tv/unacee](https://www.twitch.tv/unacee)
+
+
+
+
+
+                                  
