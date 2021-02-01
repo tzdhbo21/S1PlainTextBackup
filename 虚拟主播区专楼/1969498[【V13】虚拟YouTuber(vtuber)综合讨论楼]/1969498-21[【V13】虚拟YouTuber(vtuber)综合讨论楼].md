@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-01 08:48** 
+> ## **本文件最后更新于2021-02-01 13:03** 
 
 
 
@@ -9562,4 +9562,565 @@ apex怎么还不更新，难受
 
 
 
-                                 
+
+
+-----
+
+####  IDIDIDID  
+##### 30486#       发表于 2021-2-1 16:54
+
+
+
+
+不是情人节黑黑新歌么，到时候给你59个小垃圾拉一块儿秒了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30487#       发表于 2021-2-1 16:54
+
+
+
+
+king虹初900w后这周该初1000w了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">加油，终于过木口摇一半了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30488#       发表于 2021-2-1 17:03
+
+
+
+
+黑黑连体不如king单人吧
+老叶能不能想想办法，不是说当年还做过唱见吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30489#       发表于 2021-2-1 17:07
+
+
+
+
+笑得…郡道今晚又去拿锤子，行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+最近作息真的不社会人士过了头，rp一下啦
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30490#       发表于 2021-2-1 17:09
+
+
+
+
+king一个人三个月就快1000w了，好强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30491#       发表于 2021-2-1 17:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/171132pz9w9wbhvuhbhud7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210201170737.jpg</strong> (75.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 17:11 上传
+
+
+
+
+
+
+
+会员收入、sc不够了，小老妹儿，
+
+
+
+
+
+
+
+-----
+
+####  Anthony.J  
+##### 30492#       发表于 2021-2-1 17:16
+
+
+
+
+无论是哪个运营想出来的这个烂活都建议赶紧和会限派一起卷铺盖滚蛋
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30493#       发表于 2021-2-1 17:45
+
+
+
+
+能不能借此猜一下不同马内甲担当，郡道也乖乖搞真是吓到我了，她最近真的很听话，好
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 30494#       发表于 2021-2-1 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50208755&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-1 17:03</a>
+
+黑黑连体不如king单人吧
+
+老叶能不能想想办法，不是说当年还做过唱见吗</blockquote>
+不会吧，就阿叶唱歌这天赋还做唱见啊，我听一次会限他唱一次多罗罗的火炎就笑一次，我觉得搞笑唱歌还好说，正经唱歌还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30495#       发表于 2021-2-1 18:08
+
+
+
+
+我现在只想叶师换点新游戏玩，一个月除了apex就是塔科夫，还老是深夜通宵，人麻了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30496#       发表于 2021-2-1 18:23
+
+
+
+ 本帖最后由 十四洲 于 2021-2-1 18:27 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/182341a1qssnukf5gx5lyq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (32.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 18:23 上传
+
+
+
+
+
+
+syl，彩虹最近国际进出是不是有点多？看来fes没了真的很伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30497#       发表于 2021-2-1 18:25
+
+
+
+
+彩虹急了急了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30498#       发表于 2021-2-1 18:27
+
+
+
+
+没有用男团排队收租不算急，等一个春节男团7天乐
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30499#       发表于 2021-2-1 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fes烂了总得在别的地方找回场子嘛
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30500#       发表于 2021-2-1 18:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国内市场应该还是挺有魅力的，但是yb双赢很艰难吧，而且我觉得虹已经垄断了最重要的中华工商，还有什么要追求的呢。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30501#       发表于 2021-2-1 18:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 不好意思，等什么时候vr上了你虹唯一指定节目机台，我再来承认你虹要冲国进出吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30502#       发表于 2021-2-1 18:34
+
+
+
+
+赶紧把郡道拉过来b限嗷！趁着她估计不能熟练使用b站设置，立刻使用bilibili小号对她进行一个mrra话题的狂暴评论（玩笑）
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30503#       发表于 2021-2-1 18:36
+
+
+
+
+要不是葵皇跑毒去了，这位置该给葵皇的吧，怎么回事啊，ickr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30504#       发表于 2021-2-1 18:40
+
+
+
+
+一年来一次怕是意义不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30505#       发表于 2021-2-1 18:43
+
+
+
+
+熊猫人居然来b限，不容易<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+请问美工跑路了吗
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30506#       发表于 2021-2-1 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 别葵了，批限继续脑死游戏么?再说了，她四月都不一定能回归，
+
+
+你chikara又犯了**病，抓住笹木一个人使劲割韭菜，
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30507#       发表于 2021-2-1 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">你虹炸箱的时候能不能带一批人出来重新开个有老虹味儿的箱啊
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 30508#       发表于 2021-2-1 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50209320&amp;ptid=1969498" target="_blank">netwof2008 发表于 2021-2-1 18:01</a>
+
+不会吧，就阿叶唱歌这天赋还做唱见啊，我听一次会限他唱一次多罗罗的火炎就笑一次，我觉得搞笑唱歌还好说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30509#       发表于 2021-2-1 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 老虹味包括不包括正在播原神的天皇继承人阿
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30510#       发表于 2021-2-1 19:35
+
+
+
+
+维阿干得好好的，本社就别来凑热闹了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30511#       发表于 2021-2-1 19:37
+
+
+
+
+老虹味包不包括打枪烧上天的yqqx啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30512#       发表于 2021-2-1 19:39
+
+
+
+[https://www.youtube.com/watch?v=Fw2hz4CdtEM](https://www.youtube.com/watch?v=Fw2hz4CdtEM)
+
+もちぷろから大切なおしらせ
+
+简单总结：饼叽箱黄了，神野たね，九重このの，雨町わたげ2月28日后独立为个人势，雨町わたげ活动休止
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30513#       发表于 2021-2-1 20:20
+
+
+
+
+祝☆オリジナル曲リリース記念!! 〜VTuberオリ曲クイズ&amp;生歌披露〜【奏みみ】
+[https://www.youtube.com/watch?v=FVGw5yJRjUk](https://www.youtube.com/watch?v=FVGw5yJRjUk)
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 30514#       发表于 2021-2-1 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">皇女上手就要氪金吗
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 30515#       发表于 2021-2-1 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50209384&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-2-1 18:08</a>
+
+我现在只想叶师换点新游戏玩，一个月除了apex就是塔科夫，还老是深夜通宵，人麻了 ...</blockquote>
+同意，但是估计难，阿叶玩游戏真的头铁，沉迷起来是真的沉迷，如果没有什么外力阻拦，像之前瓦罗兰，玩到没人玩一个人含泪私下单排上钻，很难消停，要是再让他卖出安利，或者运气好头铁的是人气高的作品，真是没完没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道小小梦魇2出来会不会玩
+
+
+syl 感觉皇女有来b站进出的计划啊，之前不是还会限学中文，现在还播原神，看转播人气，很看好她和大小姐，能不能把阿叶也带带，我觉得阿叶日本本土以外的人气意外的还可以啊，也发展发展吧，多个平台多条路<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 30516#       发表于 2021-2-1 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50209791&amp;ptid=1969498" target="_blank">黑暗剑 发表于 2021-2-1 19:03</a>
+
+确实做过啊睿站</blockquote>
+那只能提高选歌水平了，歌力是没指望提高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 30517#       发表于 2021-2-1 20:59
+
+
+
+
+阿夸终于钻3了
+
+
+
+
+
+                                
