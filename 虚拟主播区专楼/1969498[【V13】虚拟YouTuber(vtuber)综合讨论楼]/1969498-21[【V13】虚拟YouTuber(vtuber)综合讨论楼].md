@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-31 14:39** 
+> ## **本文件最后更新于2021-02-01 08:48** 
 
 
 
@@ -8878,10 +8878,48 @@ GAS GAS GAS but GAWR GURA
 
 
 
- 本帖最后由 JoelBirch 于 2021-1-31 21:59 编辑 
+ 本帖最后由 JoelBirch 于 2021-1-31 23:31 编辑 
 
 隔壁新进月灵推挺能挖啊……虽然就多了一步<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
 不过原来月灵姐所属事务所的老板是她爹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，附图
+
+
+
+
+
+
+
+
+
+2021-01-31 (2).png
+(13.89 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2021-1-31 23:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202101/31/233040vojjlmsa1191anjd.png" referrerpolicy="no-referrer">
+
+
+
+
+
 
 
 
@@ -8904,4 +8942,624 @@ GAS GAS GAS but GAWR GURA
 
 
 
-                                  
+
+
+-----
+
+####  Ketestrait  
+##### 30453#       发表于 2021-1-31 23:45
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gn7b4qupkuj20xq0j1n1y.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gn7b4v0y1kj20xv0j1gps.jpg" referrerpolicy="no-referrer">
+
+
+露皇玩这个小游戏真是笑得肚子疼<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30454#       发表于 2021-1-31 23:46
+
+
+
+
+今晚国际宇宙人狼联动很精彩，笑得头晕，谢谢下次还来<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30455#       发表于 2021-1-31 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202402&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-1-31 23:46</a>
+
+今晚国际宇宙人狼联动很精彩，笑得头晕，谢谢下次还来</blockquote>
+这个很精彩包括hsm吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 30456#       发表于 2021-1-31 23:49
+
+
+
+
+小夜动了，还是2.0<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30457#       发表于 2021-1-31 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202412&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-31 23:48</a>
+
+这个很精彩包括hsm吗</blockquote>
+那加个限定范围叶视角吧，其他视角情况不清楚<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30458#       发表于 2021-2-1 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50201373&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-1-31 21:54</a>
+
+隔壁新进月灵推挺能挖啊……虽然就多了一步
+
+不过原来月灵姐所属事务所的老板是她爹啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">看完了，恐怖
+
+不过更关心什么时候入驻啊，这油管同接真是可怜
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30459#       发表于 2021-2-1 00:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">小夜这里是熟悉的老虹味儿，这就是没被虹社空气污染的人吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30460#       发表于 2021-2-1 00:31
+
+
+
+
+小夜...我的小夜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 30461#       发表于 2021-2-1 01:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桃铃这新衣服头好像是P上去的。。。。。
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30462#       发表于 2021-2-1 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50201373&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-1-31 21:54</a>
+
+隔壁新进月灵推挺能挖啊……虽然就多了一步
+
+不过原来月灵姐所属事务所的老板是她爹啊</blockquote>
+事务所大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30463#       发表于 2021-2-1 08:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+14A39111-54B8-4275-9577-518C5986AC87.jpeg
+(261.63 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-1 08:13 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/081325bn2ac2rncgcz1s64.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 30464#       发表于 2021-2-1 12:43
+
+
+
+ 本帖最后由 aptx318 于 2021-2-1 13:06 编辑 
+
+哈弟现在同接再生好强
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30465#       发表于 2021-2-1 12:51
+
+
+
+<img src="https://p.sda1.dev/1/111374a3cdc9cef3c17a5cda96f6b916/19a7d1ade952c95c.jpg" referrerpolicy="no-referrer">
+这月前十都被木口占了，加上b站也是，b站最高的aza是396673元，兑换日元约646w，12月的b站油管sc对比还没出来，1月的会出来吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 30466#       发表于 2021-2-1 12:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">是不是龙女士不在第一就算成功啊？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30467#       发表于 2021-2-1 13:05
+
+
+
+
+sc有什么用，一个工商顶一个月直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30468#       发表于 2021-2-1 13:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/131833gwleglxyt2usyw9y.png" referrerpolicy="no-referrer">
+
+
+<strong>20210201131727.png</strong> (32.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 13:18 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30469#       发表于 2021-2-1 13:28
+
+
+
+
+你对mansanji有什么意见吗？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30470#       发表于 2021-2-1 13:32
+
+
+
+
+笑喷了，郡道拿锤耐久，耐了一晚上12小时都没拿到，气得删档了，
+虽然我没看完，怕不是最后哭腔下播了吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30471#       发表于 2021-2-1 13:44
+
+
+
+
+谁还记得贵社有个过气纪念日啊，整天瞎蹭能早点把小夜3D拿出来吗，看了就该退坑了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30472#       发表于 2021-2-1 14:03
+
+
+
+
+这段时间asoul太好看了，乐不思蜀
+本想说对比之下yhm什么cylx，还不如king后夜祭里牛刀小试，解放前世人格来的精彩
+不过转念一想，这不是又开始看女团了吗……
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30473#       发表于 2021-2-1 14:07
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/140705gaoaaux56us8raog.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6f0556bece6d7406.jpg</strong> (166.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 14:07 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30474#       发表于 2021-2-1 14:08
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-2-1 14:10 编辑 
+
+虹男人气高又能挣，狼性公司给资源难道不是理所应当？日本小小miki平均一个月播几个小时啊😅
+
+顺便king这个月被king（维阿）干爆了呀。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30475#       发表于 2021-2-1 14:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 可不敢这么乱说，一个月播一小时的“质量”相当于别的垃圾生主播100小时，我是这么认为的，
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30476#       发表于 2021-2-1 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50103824&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-1-21 16:55</a>
+
+鹿乃箱撑不住了吗</blockquote>
+果然啊。。。
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30477#       发表于 2021-2-1 14:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">旁边还是utk呢，那可太给虹男“资源”了，我对虹男又没意见，mayuyu可是你虹19组的有趣的顶流。
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 30478#       发表于 2021-2-1 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">冲蝗大胜利
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30479#       发表于 2021-2-1 14:37
+
+
+
+
+花寄原来就一个staff啊......
+
+转为个人势之后恐怕批站的一些活动也不好以花寄的名义一起上了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30480#       发表于 2021-2-1 14:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">19组最有趣的话男人我选尼哥，女人我选安洁。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30481#       发表于 2021-2-1 15:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 19组只有雷斗和口了让我真实觉得有趣，其他人还是算了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30482#       发表于 2021-2-1 16:27
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-1 16:29 编辑 
+
+虹这集体同一天nyanyanya又是运营摊派的什么鸟任务吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 30483#       发表于 2021-2-1 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50208395&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-2-1 16:27</a>
+虹这集体同一天nyanyanya又是运营摊派的什么鸟任务吗</blockquote>
+2月3号 彩虹日 去年搞了个国际mc联动，今年就搞翻唱接力而已，为什么要搞这种无聊还是视频接力，大抵是田角眼红隔壁千万播放的天真浪漫机能而已
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30484#       发表于 2021-2-1 16:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 59个动画，加一起都比不过隔壁吧，
+
+
+甚至连king都没有，拉了拉了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30485#       发表于 2021-2-1 16:47
+
+
+
+
+千万播放，king一个人就够了
+apex怎么还不更新，难受
+
+
+
+
+
+                                 
