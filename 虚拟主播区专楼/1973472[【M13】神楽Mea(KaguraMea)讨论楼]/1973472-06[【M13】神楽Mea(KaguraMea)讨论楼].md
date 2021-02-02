@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-31 17:10** 
+> ## **本文件最后更新于2021-02-02 08:47** 
 
 
 
@@ -11993,10 +11993,11 @@ tc之后精神倒是已经恢复了（tc治百病）
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 缺陷电气杨永信| + 1|好评加鹅|
 | 路人庚| + 1|好评加鹅|
 
 
@@ -12509,10 +12510,13 @@ Twitcasting，我的半壁江山
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| llconforever| + 1|好评加鹅|
+| 缺陷电气杨永信| + 1|好评加鹅|
+| 春澄春奈| + 1|好评加鹅|
 | thisisaspider| + 1||
 | 路人庚| + 1|好评加鹅|
 | fsfs_freeze| + 1|好评加鹅|
@@ -12540,4 +12544,709 @@ Twitcasting，我的半壁江山
 
 
 
-                         
+
+
+-----
+
+####  路人辰  
+##### 8223#       发表于 2021-2-1 08:41
+
+
+
+
+20210201东京7点（1、2）；东京9点
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/084124nzoufff7uu8w6u7c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>BFBDE5F4-4286-4CAB-AFA9-9DC16B87A43D.jpeg</strong> (164.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 08:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/084124katuxkjxxajit00u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>56B29693-39A2-440B-B86A-E4D3D8686D8A.jpeg</strong> (187.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 08:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/01/084125rcs5331d3u3b1kbk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0B0FB39A-E9AA-4355-B85F-B90DD396AFD8.jpeg</strong> (218.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 08:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8224#       发表于 2021-2-1 08:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">叹为观止
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8225#       发表于 2021-2-1 09:11
+
+
+
+
+人类奇迹
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8226#       发表于 2021-2-1 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">养胎吗
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8227#       发表于 2021-2-1 10:04
+
+
+
+
+产后抑郁罢了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 8228#       发表于 2021-2-1 10:28
+
+
+
+
+姨妈焦虑并发症
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8229#       发表于 2021-2-1 12:37
+
+
+
+
+手机客户端，我交到了朋友上热门了，真是好久不见了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8230#       发表于 2021-2-1 14:21
+
+
+
+
+好想抱抱小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8231#       发表于 2021-2-1 15:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">寂しい
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8232#       发表于 2021-2-1 19:55
+
+
+
+
+两次联动之一的多人联动来了,是倪哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+周日晚十点锁定海苔男唯一指定直播间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8233#       发表于 2021-2-1 20:09
+
+
+
+
+咩宝加油啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8234#       发表于 2021-2-1 20:50
+
+
+
+
+今天好忙，没有想我的咩宝才让小麻变成了这样，我的错<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8235#       发表于 2021-2-1 21:05
+
+
+
+ 本帖最后由 路人庚 于 2021-2-1 21:13 编辑 
+
+阿咩：大 大 大 大 大 大
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea对yuzuru的第一印象：大，苔箱一个个的都那么大
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8236#       发表于 2021-2-1 21:47
+
+
+
+
+草居然错过了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+真的大…
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8237#       发表于 2021-2-1 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8238#       发表于 2021-2-2 08:01
+
+
+
+
+寂寞了，来点tc
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8239#       发表于 2021-2-2 10:51
+
+
+
+
+基德基德
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8240#       发表于 2021-2-2 10:53
+
+
+
+
+基德基德
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 8241#       发表于 2021-2-2 11:04
+
+
+
+
+一起基德
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8242#       发表于 2021-2-2 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的，笑死我了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8243#       发表于 2021-2-2 11:38
+
+
+
+
+咩宝，带天狗们再口嗨一次吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8244#       发表于 2021-2-2 11:48
+
+
+
+
+来了 小羊来排解寂寞了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 8245#       发表于 2021-2-2 11:54
+
+
+
+
+据说新人要播了，我来你楼蹲塔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8246#       发表于 2021-2-2 12:00
+
+
+
+
+五毛小绿亲友，和你麻铁没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8247#       发表于 2021-2-2 12:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说你麻到底是怎么和小绿勾搭上的
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 8248#       发表于 2021-2-2 13:05
+
+
+
+
+大概是某天自己播tc的时候看了眼其他tc主，结果就相中了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8249#       发表于 2021-2-2 14:12
+
+
+
+
+肯定是高中同学啦
+
+《唯一的朋友》
+
+《班上唯一没有霸凌你麻的女孩》
+
+《jk转生—到了vjuan就要拿出真本事》
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8250#       发表于 2021-2-2 15:22
+
+
+
+
+中午刚把手机充上电准备睡觉就收到了开播推送，这时间开TC鬼能看啊
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8251#       发表于 2021-2-2 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50216942&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-2-2 14:12</a>
+
+肯定是高中同学啦
+
+《唯一的朋友》
+
+《班上唯一没有霸凌你麻的女孩》</blockquote>
+以小麻的体型 她应该是霸凌别人的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小绿是被小麻霸凌出了感情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8252#       发表于 2021-2-2 15:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你隔这演声之形呢，个人倾向于是逛TC物色助眠音声的时候勾搭上的（怎么听起来和逛窑子似的）
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8253#       发表于 2021-2-2 15:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tc找男人时碰到的对手，不打不相识
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8254#       发表于 2021-2-2 15:58
+
+
+
+
+是前男友变性了
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 8255#       发表于 2021-2-2 16:03
+
+
+
+
+最近在看花样男子（流星花园）很喜欢里面的道明寺司 这几天一直看 这几天从早上睡到早上之后起来又去看了 对道明寺发春 期望某天能遇到道明寺那样的真命天子 被人说和看asmr的自己很像 恼羞成怒（？说不要把自己和阿宅相提并论 很kimo 
+
+最近没出门 都不知道怎么和别人说话 看了犬山的杂谈才想起来原来是这样和别人说话的啊 犬山玉姬又拯救了一个人啊
+
+今天很闲 去直播？现在不就在直播商量么！去电脑面前会禁断症状发作的
+
+有个人打了几千说 这是我最后一次打钱了 再见了！然后过几天又回来打500了
+
+现在卖的钱包都好小 看着很大的买过来也很小 装钱会折装卡很不方便拿 朋友说带那种小包的话钱放折叠钱包里正好 试过一次完全不好用 现金的话还是会带毕竟总会有一天用得上的时候 反正一直带在那里说不定某一天正好派上用场了
+
+今天uber点了惠方卷吃 问大家怎么吃的 自己是把酱油倒上去吃 观众说是蘸着酱油吃 有评论说小心被快递员进家里强制把惠方卷塞嘴里 连说kimo 然后被说是过去自己说过的话 表示过去的自己不知道 自己是不回头的女人 过去的自己不是自己 别人讲的黄段子很kimo 自己讲的黄段子的话 大家会觉得很可爱的吧 而且自己的观众大多在10多岁20多岁左右吧 怎么这样子 对未来的社会很担忧 十几岁性欲很旺盛 虽然如此也不是性骚O的理由啊 自己发泄去 看AO什么的处理去 
+
+加湿器过一小时就会响一次 很吵 就不能自己去装水吗
+
+对哦 给这些观众推荐BL本正好 然后在聊BL本的时候 momo老师突然说了一句 吓到了她下 momo老师居然会说这样的话 然后才反应过来是书名
+
+这个月新买的漫画花了2w多 约定的梦幻岛买了1w多 只是花的钱 还有几千的点数在
+
+欧巴桑很喜欢看电视购物 有次去看她买了三个扫除机 说搬了家可以用 使用观赏保存？ 扫除机哪有观赏用的 她还用着功能机 要是她会用手机的话就估计是去网上买买买了吧 说起来有段时间很喜欢买衣服 现在都没怎么买了 不出门 而且扔衣服也很麻烦 也不知道什么时候扔 自己老家还有中学的时候穿的运动服、睡衣啥的 也还会穿 有一些是买的比较大的衣服 现在也还穿得下 去跑步？阿宅去跑步什么的好可怕 自己才不出去跑 可是很听国家的话的 虽然也没说不让出门 但是就感觉出门就是罪过 自己的话本来就没有体力 锻炼是不可能的 但是只是一天限定的使用体力还是可以的 如果到那天想着“只有今天才努力！“的时候都没有劲的话才应该警惕自己的身体了
+
+被按了门铃 回来说是一个欧巴桑 还拿着花 可能是按错了 自己出门邻居很热情会打招呼过来 不过因为很怕都没有回过 基本上是出门扔垃圾 主要看着哪里扔 扔垃圾的时候和别人坐电梯总觉得很不好意思 会臭到别人 而且下去之后电梯里还有味道 不会有液体流出了就还好？那当然是会的啊 虽然处理了 当然是等到不得不扔了才去扔垃圾的啊 垃圾放了会扔到玄关去 所以都没怎么感觉到味道 反正自己也没在社会上 不会给人添麻烦的 因为自己是爱豆路 爱豆路去打工的话会有粉丝跟过来很麻烦所以为了不添麻烦才不去打工的 有点想做那种可以边打游戏边做的那种叠纸的工作 不过那种很钱给的很少就是了
+
+最近梦不到藤原君了 藤原君嫉妒了吗 真的有梦到啊 和睡眠深浅没有关系联动前的起床也是一种压力 在确定的时间之前起床这种使命感很有压力 别人是干了一天活运动了一天回来很累 自己只是玩了一天或者睡了一天很累而已
+
+想去整体 自己的姿势很糟糕 会往前倾 3d的时候很麻烦得往前曲什么的 有点驼背的感觉 变成欧巴酱的时候很糟糕？活不到那时候的 自己的预定是再讴歌十年青春 然后死在某个帅哥的手里 被他抱着然后死去 不要大叔
+
+异世界转生？也不错 从零开始的异世界转生 挺想体验别人的人生的 异世界没有wifi？那才好啊 如果有的话那不就和地球一样了嘛
+
+家里太多能躺的地方了 比如沙发 不好 起不来 有没有那种一段时间起不来就打不开的锁 
+
+以后的男友说不定会让自己洗澡 不洗今天不许上床这种 
+
+害怕坐飞机 会掉下来的 自己坐过一次 抱着死的觉悟上去的 一边回忆着人生一边睡过去 还以为飞过云之后就会死掉了 让解开安全带还以为是告诉大家要死了 是最后的晚餐 夜间巴士也很不行 绝对不会再坐 之前有一次坐过那时候只想着省钱、live什么的 坐完全身都痛 那时候年轻 现在的话早就先坐新干线回去了 那时候还撞到头了 说不定就是因为这个所以才会变成现在这样 不知道能不能在夜间巴士上h
+
+直播读ゆきあき写的1月直播top5 念的写的人很害羞
+
+想打小钢珠了 说起来这个月是小圆生日吧 啊去年 那天早上没看趋势 有没有把初代机子放出来 好像有2000多个人排队？嘛反正自己不去的 
+
+捏萌音 还说这是自己的本音 
+
+说了下网球王子 自己在animax？上看了会 差点没说上来越前龙马的名字
+
+说起来自己之前说过有人在tc催她唱歌 然后在原唱曲的评论区里发长文道歉 还说看完删掉 然后自己没删过了会没掉了
+
+tiktok大家不知道吗？因为是大叔不知道？又不少大叔玩的啊 好多拍那种奇怪的视频的大叔 还有APEX的视频 那个推荐很厉害 看了会APEX就全是APEX了 然后腻了没意思了 就狂点不喜欢然后刷新 就又有那些大叔的视频了
+
+最后听说sevestars（香烟）的俗称叫ぶんだん 觉得文太ぶんた和ぶんだん 怎么分啊 编了个烟鬼妈妈给自己的孩子用香烟名字取名的故事 还有老师关心孩子有没有被烫烟头的情节（
+
+结束了 去电脑前了
+
+
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 7战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LIPP| + 1|还是要洗的|
+| Dualist彩| + 1|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
+| シルフィエット| + 1|“十几岁性欲很旺盛”|
+| kolu33| + 1|没关系，我觉的不洗更好|
+| A2014720| + 1||
+| llconforever| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8256#       发表于 2021-2-2 16:09
+
+
+
+
+这人的发情比你楼的弱智time还要弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 8257#       发表于 2021-2-2 16:30
+
+
+
+
+在夜间长途上做感觉比起声音气味才是问题，又没地方洗澡
+
+
+
+
+
+                        
