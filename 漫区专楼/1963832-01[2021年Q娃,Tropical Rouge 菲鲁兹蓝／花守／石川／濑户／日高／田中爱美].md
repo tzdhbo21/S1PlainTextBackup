@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-30 11:42** 
+> ## **本文件最后更新于2021-02-02 01:24** 
 
 
 
@@ -7476,4 +7476,536 @@ OPED终于不是宫本北川理惠了<img src="https://static.saraba1st.com/imag
 
 
 
-                                   
+
+
+-----
+
+####  linhaitora  
+##### 422#       发表于 2021-1-31 08:04
+
+
+
+
+人鱼肯定是追加吧
+
+否则没有蓝色
+
+
+
+
+
+
+
+-----
+
+####  DARK_HGCG  
+##### 423#       发表于 2021-1-31 08:08
+
+
+
+<blockquote>iqbsh38 发表于 2021-1-25 14:28
+人鱼妹子在岸上的时候不会吧跟室见一样踩个滑板呢</blockquote>
+钻下水道就行了，要什么滑板
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gn6jueuh0hj22yo1o0dte.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 424#       发表于 2021-1-31 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50195619&amp;ptid=1963832" target="_blank">DARK_HGCG 发表于 2021-1-31 08:08</a>
+
+钻下水道就行了，要什么滑板</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">霹雳Q娃X
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忍者神龟√
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 425#       发表于 2021-1-31 09:59
+
+
+
+
+果然动起来就好看了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">想看重拳打怪
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 426#       发表于 2021-1-31 10:33
+
+
+
+ 本帖最后由 kerfars 于 2021-1-31 10:35 编辑 
+
+全员沙雕，微笑2.0！
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 427#       发表于 2021-1-31 10:52
+
+
+
+
+PV 配乐好像under the sea<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+summer cv好评q娃之牙
+
+
+
+
+
+
+
+-----
+
+####  流浪的咸鱼  
+##### 428#       发表于 2021-1-31 11:15
+
+
+
+
+有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 429#       发表于 2021-1-31 11:44
+
+
+
+
+下水道美人鱼……这么多年都不放过我吗！！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 430#         楼主| 发表于 2021-1-31 13:59
+
+
+
+
+主题歌和片尾曲试听
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4599338995744773?from=old_pc_videoshow)
+
+这主题歌听着像片尾曲，片尾曲听着像主题歌
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 431#       发表于 2021-1-31 16:07
+
+
+
+
+完全是爱丽丝声线，变身好色，今年粉主开始就是坂冈锦画bank吗
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 432#       发表于 2021-1-31 16:12
+
+
+
+
+今年变身口红，岂不是很多舔屏幕的机会！？<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 433#       发表于 2021-1-31 16:35
+
+
+
+
+那么到底是微笑还是甜点呢，很期待啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 434#       发表于 2021-1-31 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179220&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-1-29 10:55</a>
+
+石川配的今年黄q娃 有点不能想象 她的配强女人居多 私心能别用qrr和雏姬声线来配
+
+
+濑户是个倒霉蛋  ...</blockquote>
+麻沙美的话，青春野狼其实在泥潭是反复横跳的风评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过11区都能出剧场版说明其实也还可以呀，花牌情缘虽然作者据说言行有争议（懂得都懂）但是作品没啥问题
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 435#       发表于 2021-1-31 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179220&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-01-29 10:55:07</a>
+石川配的今年黄q娃 有点不能想象 她的配强女人居多 私心能别用qrr和雏姬声线来配
+
+田中爱美和东山加隈一样 ...</blockquote>花牌风评不挺好的吗（至少动画挺好的啊）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 436#       发表于 2021-1-31 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50199173&amp;ptid=1963832" target="_blank">aptx8285144 发表于 2021-1-31 17:26</a>
+麻沙美的话，青春野狼其实在泥潭是反复横跳的风评，不过11区都能出剧场版说明其实也还可以呀，花 ...</blockquote>
+如果濑户在口红q里使用类似于折神紫的帅大妈声线那也不错
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 437#       发表于 2021-1-31 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184178&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-1-29 19:23</a>
+
+埃及人的周日 ​​​​</blockquote>
+这照片混血儿的气质看上去真独特
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 438#         楼主| 发表于 2021-1-31 20:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198854&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-1-31 16:35</a>
+
+那么到底是微笑还是甜点呢，很期待啊</blockquote>
+这种一看预告就超级有趣的东西，怎么可能是甜点呢
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 439#       发表于 2021-1-31 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50200563&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-1-31 20:14</a>
+这种一看预告就超级有趣的东西，怎么可能是甜点呢</blockquote>
+那会找米村正二当脚本吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 440#       发表于 2021-2-1 13:23
+
+
+
+
+米村也行啊
+
+至少不膈应
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 441#       发表于 2021-2-1 13:25
+
+
+
+
+我想看井上亚树子的脚本
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 442#       发表于 2021-2-1 13:28
+
+
+
+
+微笑2代我是支持的，现在我还经常去看看微笑的单元回，还好安利。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 443#       发表于 2021-2-1 14:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50206617&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-2-1 13:23</a>
+米村也行啊
+
+至少不膈应</blockquote>
+看看对面宝可梦，就算他写过微笑也不能原谅他<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 444#       发表于 2021-2-1 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50207395&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-02-01 14:59:48</a>
+看看对面宝可梦，就算他写过微笑也不能原谅他</blockquote>大家都是没主线，就是搞笑日常差了几百倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 445#         楼主| 发表于 2021-2-1 18:46
+
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn848w6tx5j20th0cvjy9.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn848wowltj20u01401kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gn848wu9igj20u01404qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gn848wvte2j20u01401kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gn848xy18qj21400u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gn848wpgccj21400u0tki.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn848xdv4qj21400u04qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gn848x1l9pj21400u0b1y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 446#       发表于 2021-2-1 19:28
+
+
+
+
+上北<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 447#       发表于 2021-2-1 19:49
+
+
+
+ 本帖最后由 banglian 于 2021-2-1 19:53 编辑 
+
+微笑当年唯一喷点就是决战太复刻dx3（甚至有人做了分镜对比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 448#       发表于 2021-2-1 21:42
+
+
+
+
+哎，人鱼这套路！
+肯定是追加了啊
+
+而且……这是传说的战士称号回归了吧？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 449#         楼主| 发表于 2021-2-1 22:11
+
+
+
+<img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gn89oe9ao0j20gk0q94j1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 450#       发表于 2021-2-1 22:41
+
+
+
+
+奸笑2……星Q上来也有一堆人说来个奸笑把<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 451#       发表于 2021-2-2 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50211535&amp;ptid=1963832" target="_blank">leleq 发表于 2021-2-1 22:41</a>
+奸笑2……星Q上来也有一堆人说来个奸笑把</blockquote>
+人设好看警告
+及格警告
+拉拉可爱警告
+交作业警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
