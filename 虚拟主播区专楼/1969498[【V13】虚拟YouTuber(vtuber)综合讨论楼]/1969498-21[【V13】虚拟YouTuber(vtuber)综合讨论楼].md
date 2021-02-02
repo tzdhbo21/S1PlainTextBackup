@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-01 13:03** 
+> ## **本文件最后更新于2021-02-02 03:46** 
 
 
 
@@ -10123,4 +10123,462 @@ syl 感觉皇女有来b站进出的计划啊，之前不是还会限学中文，
 
 
 
-                                
+
+
+-----
+
+####  OldGlory  
+##### 30518#       发表于 2021-2-1 21:09
+
+
+
+
+皇女算你虹对b特攻最佳人选了，可惜在田角眼中b站永远是发配loser的边疆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30519#       发表于 2021-2-1 21:09
+
+
+
+[https://www.nicovideo.jp/watch/sm38035698](https://www.nicovideo.jp/watch/sm38035698)
+
+【MMD】メンタマキラキラ栞桜ちゃん
+
+
+原neta我记得在楼里发过不过还是再推一下
+[https://twitter.com/_TAKUMI928_](https://twitter.com/_TAKUMI928_)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30520#       发表于 2021-2-1 21:52
+
+
+
+
+除了才发的新歌全百万<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/01/215208cdhhan3m3m119hxm.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #048 - 'メリッサ・キンレンカ - YouTube' - .png</strong> (154.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 21:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30521#       发表于 2021-2-1 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我也每首都有贡献一点再生
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30522#       发表于 2021-2-1 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉叔叔给原神直播开了更高的倍率，皇女随便播播就20w了。
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 30523#       发表于 2021-2-1 22:34
+
+
+
+
+如果我没记错皇女上一次b限已经是前年的事情了吧，人就是不想来，别总yy
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30524#       发表于 2021-2-1 22:38
+
+
+
+
+king离月之6W，叶离本间3W，不知道哪边先
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 30525#       发表于 2021-2-1 23:08
+
+
+
+
+难道不是毫无疑问的3w先吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30526#       发表于 2021-2-1 23:21
+
+
+
+
+单纯b站原神玩家多而已，米b不分家<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 30527#       发表于 2021-2-1 23:38
+
+
+
+ 本帖最后由 Aminor 于 2021-2-1 23:44 编辑 
+
+皇女这原神油管同接也挺高的，关注的一个几千订阅的底边v，平时播mc两位数，播原神能接近1k同接
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30528#       发表于 2021-2-1 23:54
+
+
+
+<blockquote>KAMITSUBAKI STUDIO
+
+@kamitsubaki_jp
+
+·
+
+7h
+
+【お知らせ】
+
+昨今、弊社所属タレントについて、根拠のない悪質な嫌がらせや誹謗中傷、タレント及び関係者のなりすまし行為などが散見されております。
+
+これらの行為については到底容認できるものではありません。
+
+対象の投稿・行為については法的処置として弁護士に報告・提出済みです。
+
+今後も度を過ぎた誹謗中傷や虚偽等、違法な行為であると判断した場合は断固たる公的な措置を取ることがありますので御理解ください。</blockquote>
+
+
+👇黑神椿艺人的人找到了
+ <blockquote>EMA
+
+@eumza1
+
+·
+
+5h
+
+たまに歌大っ嫌いになるときある</blockquote>
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30529#       发表于 2021-2-2 00:19
+
+
+
+ 本帖最后由 十四洲 于 2021-2-2 00:24 编辑 
+
+叶师游戏中不要搞别的啊，影响到队友了会炎上的吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30530#       发表于 2021-2-2 00:25
+
+
+
+
+最近的兴趣爱好是在郡道开播后立刻回复说自己去睡了，跟郡道说晚安😴，用不快击败不快
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30531#       发表于 2021-2-2 00:47
+
+
+
+
+太君是真的喜欢apex，都快凌晨两点了，シーズン8的tag还上了推特趋势
+我也好想快点玩到被炸的诸王峡谷(
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30532#       发表于 2021-2-2 00:54
+
+
+
+
+https://youtu.be/wTAS4eY6tsI
+时雨妈突击
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30533#       发表于 2021-2-2 02:02
+
+
+
+
+这又拆了两个箱啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 30534#       发表于 2021-2-2 03:07
+
+
+
+
+鲨皇再播老头滚动条证明揍阿夸不行
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 30535#       发表于 2021-2-2 09:56
+
+
+
+<blockquote>飞姆托 发表于 2021-2-2 03:07
+鲨皇再播老头滚动条证明揍阿夸不行</blockquote>
+大亏何能及鲨也。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 30536#       发表于 2021-2-2 09:58
+
+
+
+
+大亏播开放世界本来就不行，都不用en pkmk直接打爆了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30537#       发表于 2021-2-2 11:11
+
+
+
+
+郡道的apex之路还在继续，昨晚又说要搞apex锤耐久（之前那个失败了），打了半天，人elu、nrk都过来加油，结果直播间bug了，郡：“哦，歇了。”，下播
+
+本月内能成吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30538#       发表于 2021-2-2 11:13
+
+
+
+
+皇女前年说学中文是为了找幼驯染，结果一年多不来阿B，猜测一下估计是找到了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30539#       发表于 2021-2-2 11:20
+
+
+
+
+你这都云到天上去了…
+小时候有个中国朋友而已，所以有了学习契机
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30540#       发表于 2021-2-2 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皇女都不在B播了 可不就只能云了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30541#       发表于 2021-2-2 11:38
+
+
+
+
+也太云了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
