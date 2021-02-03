@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 10:38** 
+> ## **本文件最后更新于2021-02-03 14:39** 
 
 
 
@@ -13486,4 +13486,764 @@ Q.E.D.
 
 
 
-                          
+
+
+-----
+
+####  二次惨事  
+##### 30694#       发表于 2021-2-3 18:40
+
+
+
+
+safe！！safe！！
+<img src="https://i.loli.net/2021/02/03/z12GY6exkqyE9XP.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30695#       发表于 2021-2-3 18:55
+
+
+
+
+绿帽坛的傻 逼 怎么这么多？因为做了歌力斗虫图，给小将们一个个急的上蹿下跳的，还天天拿我没干过的事黑我
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30696#       发表于 2021-2-3 18:59
+
+
+
+
+所以葵皇休止就是去见前男友最后一面吗？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30697#       发表于 2021-2-3 19:03
+
+
+
+
+阿葵😭我的阿葵😭
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30698#       发表于 2021-2-3 19:07
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-3 19:10 编辑 
+
+怎么蓝狗也开始玩如龙了，是SEGA垂死挣扎四处撒播放许可了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+有一说一如龙的各种傻屌支线和小游戏我觉得很适合蓝狗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30699#       发表于 2021-2-3 19:12
+
+
+
+ 本帖最后由 katern 于 2021-2-3 19:13 编辑 
+
+波羅ノ鬼 - Harano oni - #08
+[https://www.youtube.com/watch?v=0dkpIXl3MZ4](https://www.youtube.com/watch?v=0dkpIXl3MZ4)
+
+
+syl  sega早点死对大家都好
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30700#       发表于 2021-2-3 19:13
+
+
+
+
+不是，做了这个迟早有这么一天免费你没点数吗？
+
+我还以为你是知道的，大义献身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看着真可怜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 30701#       发表于 2021-2-3 19:15
+
+
+
+
+月灵我都来没有听，光看标题就知道tql
+
+虚拟区运营在磨叽个啥啊来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30702#       发表于 2021-2-3 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> ark让管人没有秘密，
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30703#       发表于 2021-2-3 19:28
+
+
+
+
+U1S1，小河淌水这歌估计坑到月灵了，听第一遍，诶，这个比较短啊应该很好学吧，然后就掉入了普通话和西南方言发音的地狱之中<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30704#       发表于 2021-2-3 19:39
+
+
+
+
+快进到月灵川。普b限<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 30705#       发表于 2021-2-3 19:53
+
+
+
+
+田角陸😇いちからCEO / にじさんじ&amp;ユメグラ  @riku_tazumi
+
+
+本日、25歳の誕生日を迎えました～👼
+
+
+20代前半で未熟ながらこれまでやってこられたのも、従業員、所属タレント、ファンの皆様、支えてくださっている方々のおかげだと思っています！
+
+
+20代も折り返しというところで、より一層気合いを入れていきます！！！
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 30706#       发表于 2021-2-3 20:12
+
+
+
+
+月灵这选曲我惊了。如果是dd推荐的那还好说，如果是他自己选的，那他的中文信息检索能力远超我想象……
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30707#       发表于 2021-2-3 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50230082&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-2-3 20:12</a>
+月灵这选曲我惊了。如果是dd推荐的那还好说，如果是他自己选的，那他的中文信息检索能力远超我想象…… ...</blockquote>
+确实有人推荐过，没那么神，不过也是精准挑选了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30708#       发表于 2021-2-3 20:42
+
+
+
+ 本帖最后由 mmbk 于 2021-2-3 20:50 编辑 
+
+就算没人推荐，其实也就是声乐曲集里查个谱，让人范读一下歌词，就跟找歌剧选段一样，没那么夸张。编曲池之端忍倒有点意思，以前参与过一个小歌剧倉敷の空，除此之外就没什么情报了
+
+edit: twitter @shinobu414，0正在关注0关注者，有点牛的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30709#       发表于 2021-2-3 20:49
+
+
+
+
+虽然没玩过原神但不知不觉就看着皇女玩了两个小时，只能说头部能成为头部是有原因的，这就是配信天赋的体现，另外祝葵皇新婚快乐
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 30710#       发表于 2021-2-3 20:58
+
+
+
+
+皇女这个1w7还是有点东西
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 30711#       发表于 2021-2-3 20:59
+
+
+
+
+皇女这玩的太认真投入了，很多主播做不到这样的
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30712#       发表于 2021-2-3 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50230378&amp;ptid=1969498" target="_blank">mmbk 发表于 2021-2-3 20:42</a>
+就算没人推荐，其实也就是声乐曲集里查个谱，让人范读一下歌词，就跟找歌剧选段一样，没那么夸张。编曲池之 ...</blockquote>
+上次看月灵爹资料，也是搞音乐的，世家了属于，估计是圈子内朋友帮忙搞了搞
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30713#       发表于 2021-2-3 21:08
+
+
+
+ 本帖最后由 JoelBirch 于 2021-2-3 21:12 编辑 
+
+<img src="https://p.sda1.dev/1/eb5d7f7102af4a323fc7f38348f2b9b9/IMG_20210203_210457.jpg" referrerpolicy="no-referrer">
+
+太直球了，dokidoki，难顶难顶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+syl，草，在批站接梗互动了，姐你这样真的不好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  WDDzzZ  
+##### 30714#       发表于 2021-2-3 21:15
+
+
+
+
+灵儿开始动态营业了，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 30715#       发表于 2021-2-3 21:18
+
+
+
+
+月灵别以后都从情歌里学中文哟
+
+顶不住顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30716#       发表于 2021-2-3 21:19
+
+
+
+
+喷了
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/211918oah3h9a3zilaxqan.png" referrerpolicy="no-referrer">
+
+
+<strong>aether.png</strong> (13.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-3 21:19 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30717#       发表于 2021-2-3 21:21
+
+
+
+
+阿葵那个我信了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 30718#       发表于 2021-2-3 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">月灵姐太直球了，顶不住
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30719#       发表于 2021-2-3 21:25
+
+
+
+
+看到北落军门就能想起他那个典中典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 30720#       发表于 2021-2-3 21:27
+
+
+
+
+北落军门是什么大明星吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30721#       发表于 2021-2-3 21:29
+
+
+
+
+草，被月灵动态刷屏喷了
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30722#       发表于 2021-2-3 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到B博当成推特用
+
+
+免费要是你当年选择当月灵粉头，lga黑你的人大概会少一点
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30723#       发表于 2021-2-3 21:36
+
+
+
+
+要是免费当了粉头，现在可能就是在车德不配位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30724#       发表于 2021-2-3 21:37
+
+
+
+
+干嘛呢干嘛呢，越来越过分了啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/b8b699dd70c2d0f65e4c55b961f2ae5f/IMG_20210203_213701.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 30725#       发表于 2021-2-3 21:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/213741nmjhewhy3khuhywk.png" referrerpolicy="no-referrer">
+
+
+<strong>0.png</strong> (23.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-3 21:37 上传
+
+
+
+
+
+
+月灵玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30726#       发表于 2021-2-3 21:41
+
+
+
+
+彩虹猫比木口摇还要难听
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30727#       发表于 2021-2-3 21:46
+
+
+
+ 本帖最后由 JoelBirch 于 2021-2-3 21:55 编辑 
+
+又瞅了一眼评论区，看了眼消息通知，果不其然是在一个一个给柠檬怪点赞<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30728#       发表于 2021-2-3 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50231045&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-2-3 21:46</a>
+
+又瞅了一眼评论区，看了眼消息通知，果不其然又在一个一个给柠檬怪点赞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">标准推特用法
+
+不过B博比推特人多多了，以后估计就忙不过来了吧
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30729#       发表于 2021-2-3 21:50
+
+
+
+
+一个个赞过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+`9}A@8MRVTP6PO174{]HB26.png
+(21.7 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-3 21:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/214928eot6vph44ffsjrz4.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  WDDzzZ  
+##### 30730#       发表于 2021-2-3 21:56
+
+
+
+
+灵儿这是直接来了一发群体心控啊<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 30731#       发表于 2021-2-3 22:01
+
+
+
+ 本帖最后由 SuntoryNomu 于 2021-2-3 22:25 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/222438ac744h47b1gfrta4.png" referrerpolicy="no-referrer">
+
+
+<strong>210203222413.png</strong> (162.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-3 22:24 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Unlight  
+##### 30732#       发表于 2021-2-3 22:32
+
+
+
+
+时隔多日终于变回月综了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 30733#       发表于 2021-2-3 22:38
+
+
+
+
+惊觉月棕回归
+
+
+
+
+
+                         
