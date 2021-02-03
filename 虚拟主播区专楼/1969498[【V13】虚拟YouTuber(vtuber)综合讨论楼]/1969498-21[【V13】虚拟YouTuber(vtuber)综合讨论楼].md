@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 02:08** 
+> ## **本文件最后更新于2021-02-03 04:45** 
 
 
 
@@ -11822,4 +11822,752 @@ yhm要是能搞出几个堪比秦爽天的烂梗，那还用愁订阅吗<img src
 
 
 
-                             
+
+
+-----
+
+####  空集  
+##### 30607#       发表于 2021-2-3 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50223085&amp;ptid=1969498" target="_blank">Albaze 发表于 2021-2-3 08:20</a>
+你谭杏奴还是不知道你杏就是nico淘汰品回收二次利用的地方吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 笑死 那nico博成功杀出来的现在又混成啥样了呢 不如说平台直播衰弱自救罢了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30608#       发表于 2021-2-3 10:17
+
+
+
+ 本帖最后由 空集 于 2021-2-3 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50222560&amp;ptid=1969498" target="_blank">真田源次郎信繁 发表于 2021-2-3 02:53</a>
+主播要是每天打公平的公开赛，从青铜打到黄金，大师，我就信bilibili是垃圾回收厂
+
+
+主播是要占坑的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Albaze  
+##### 30609#       发表于 2021-2-3 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224049&amp;ptid=1969498" target="_blank">空集 发表于 2021-2-3 10:14</a>
+笑死 那nico博成功杀出来的现在又混成啥样了呢 不如说平台直播衰弱自救罢了
+
+—— 来自 Xiaomi M ...</blockquote>
+跑灯塔国平台营业，是自救，彳亍!
+跑冲国平台自救，是废品回收，不行!
+还是说是yagoo叔叔救了因为nico衰落混不下去的套皮女主播呢?yagoo叔叔，你真善良!<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30610#       发表于 2021-2-3 10:24
+
+
+
+
+平台拉了人跑了叫自救，平台没拉混不下去跑了叫回收。
+杏奴别辩了，nico和b对比油管，可以说是秒杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 30611#       发表于 2021-2-3 10:27
+
+
+
+<blockquote>Albaze 发表于 2021-2-3 10:20
+跑灯塔国平台营业，是自救，彳亍!
+
+跑冲国平台自救，是废品回收，不行!
+
+还是说是yagoo叔叔救了因为nico衰 ...</blockquote>
+油管是各国社群都有的国际平台了，倒不如说用油管的日本人还远比用nico这废物网站的多
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30612#       发表于 2021-2-3 10:29
+
+
+
+
+野兔子当然得吹404是优质平台，他们主子在nico被淘汰的的时候，还不如现在的舔泥yhm呢
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30613#       发表于 2021-2-3 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224108&amp;ptid=1969498" target="_blank">Albaze 发表于 2021-2-3 10:20</a>
+跑灯塔国平台营业，是自救，彳亍!
+跑冲国平台自救，是废品回收，不行!
+还是说是yagoo叔叔救了因为nico衰 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 但是管人一开始就叫virtual youtuber哎，说灯塔国的平台啥的你应该先问问为啥日本人，日本人就是认同404是自己平台不认同你bilibili，就是觉得你b是“外部”，在管人前日本youtuber那也是在404上活动，pxj把油管完全和灯塔国等同起来那我觉得蛮多国家和地区的人都会觉得蛮莫名的w 
+以及管人本来就是出身除了素人就是各种平台的经验者，nico t台 不人气声优地下偶像，否定这点从始皇帝就开始否定了，所以完全看不懂你是在炮轰管人这个东西本身么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Albaze  
+##### 30614#       发表于 2021-2-3 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224233&amp;ptid=1969498" target="_blank">空集 发表于 2021-2-3 10:31</a>
+但是管人一开始就叫virtual youtuber哎，说灯塔国的平台啥的你应该先问问为啥日本人，日本人就是 ...</blockquote>
+你看看谁先把平台和主播水平挂钩的?
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 30615#       发表于 2021-2-3 10:39
+
+
+
+
+你们都带着屁股汴京哪里会有结果啊，其实什么平台不重要，能赚到钱才是真道理，人从Nico离开是因为收益低，人去油管是因为油管收益高，人来b站是因为有收益，并且还可以。赚钱嘛，不寒碜。不过就像之前说的那样yhm有些真的是有钱都不想赚，有什么办法，点名红团长<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|屁股坐实是V综特色，不能丢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 30616#       发表于 2021-2-3 10:51
+
+
+
+
+我说的点是要是能在油管发展起来，没有樱花妹乐意把宝全压在b站上。
+
+赚钱是没有啥品格上的高下，做主播都是卖服务。但是对这群只会日语的厂妹来说，在404这个自家平台还确实是更舒服，不然怎么会有那么多在b站做起来了还想着反攻油管的。
+
+要是在油管有基本盘了，你来b就必须考虑不在油管播的机会成本。b站也不是来了就能火，来了就能有收益的地方，愿意百分百把宝压b站的只有在油管一点都做不出来的那群人。
+
+把人气跟能力放在一个有因果关系的等式里是我的错了，有人气不代表能力强，但能力强的人起码也不至于一直保持在不上百二位数同接吧...
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30617#       发表于 2021-2-3 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224329&amp;ptid=1969498" target="_blank">黑漆漆的漆漆 发表于 2021-2-3 10:39</a>
+你们都带着屁股汴京哪里会有结果啊，其实什么平台不重要，能赚到钱才是真道理，人从Nico离开是因为收益低， ...</blockquote>
+怕你不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holo龙兴之地是n站，空妈到现在还养着她那n站会员呢
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30618#       发表于 2021-2-3 10:52
+
+
+
+<blockquote>空集 发表于 2021-2-3 10:31
+但是管人一开始就叫virtual youtuber哎，说灯塔国的平台啥的你应该先问问为啥日本人，日本人就是 ...</blockquote>
+油管又不是个非要遵守的条件，杏奴差不多得了。任何事物又不是最初的就是最好的，都是在不断发展的。虚拟可比油管重要多了，只要还是虚拟的就没偏离主题。
+
+你比如说商人这个词，最早是指商族的首领，亥.亥驯牛去负运东西进行贸易，很快就有了财富和名声，久而久之人们就把商部落的首领亥称为商人。
+
+那么事物发展到如今，商人这个词当初的两层定义，商部落的首领和做贸易的人，都还是必要的条件吗？很明显只要做贸易便任可称为商人。这便是在食物发展过程中，词语保留了重要的根本而不是苛刻的细节。放在vtb上也是一样，重要的是虚拟而不是油管。
+
+
+
+
+
+
+
+-----
+
+####  Albaze  
+##### 30619#       发表于 2021-2-3 10:52
+
+
+
+ 本帖最后由 Albaze 于 2021-2-3 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224329&amp;ptid=1969498" target="_blank">黑漆漆的漆漆 发表于 2021-2-3 10:39</a>
+你们都带着屁股汴京哪里会有结果啊，其实什么平台不重要，能赚到钱才是真道理，人从Nico离开是因为收益低， ...</blockquote>
+是这个道理，希望某些人理解看内容而不是看平台，油xj和pxj差不多恶心人
+我也不再和你们汴了，油xj再想想个人和企业在油管获得的资源一样吗?起点不一样还放一起比赛?
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30620#       发表于 2021-2-3 10:57
+
+
+
+ 本帖最后由 winda 于 2021-2-3 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224466&amp;ptid=1969498" target="_blank">admentus 发表于 2021-2-3 10:51</a>
+我说的点是要是能在油管发展起来，没有樱花妹乐意把宝全压在b站上。
+
+赚钱是没有啥品格上的高下，做主播都是 ...</blockquote>
+这个问题，只不过是yhm思想不够进步，b站观众也不够进步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要b站v圈再进步再提纯，拉夫yhm和观众都会拥抱优秀的b站的
+
+yhm不想留在b站，只不过是伏拉夫度不够罢了，再提提纯就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+yhm不够伏拉夫，只不过是观众还不够爱伏拉夫罢了，如果观众都去看够伏拉夫的而抛弃不够伏的，还会怕yhm跑404吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30621#       发表于 2021-2-3 10:59
+
+
+
+
+确实，应该看内容评价是不是回收，那我也不是很好意思太直接的评价，人气值更高播放量蒸蒸日上d的应该认可的人很多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30622#       发表于 2021-2-3 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224295&amp;ptid=1969498" target="_blank">Albaze 发表于 2021-2-3 10:36</a>
+你看看谁先把平台和主播水平挂钩的?</blockquote>
+那我觉得要嘲散装yhm那以s1数据至上的逻辑也不用扯啥平台，就是在404数据太低完全做不下去了换个蓝海竞争力低的地方来，现实中这种事情也还挺多的，不过现实好像比较少听到“是北上广配不上我”这种说法。要类比各类管人穿皮套行为还挺难，且不说那一大堆双开的当兼职的，在当年的管人热潮下来做一做管人的人里原来直播事业做出来的也有不少，最开始404盘小的银盾都是特别难的事情那论蓝海程度倒和你b没法比，穿上皮套后很长时间都不如自己原来事业的也多的很
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 30623#       发表于 2021-2-3 11:19
+
+
+
+
+不对啊，我寻思难道不是nico生放太废了，一堆人才退的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+都1202年了！nico还是什么鸟样，你们没点b数吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Albaze  
+##### 30624#       发表于 2021-2-3 11:21
+
+
+
+ 本帖最后由 Albaze 于 2021-2-3 11:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224678&amp;ptid=1969498" target="_blank">空集 发表于 2021-2-3 11:07</a>
+那我觉得要嘲散装yhm那以s1数据至上的逻辑也不用扯啥平台，就是在404数据太低完全做不下去了换个蓝海竞争 ...</blockquote>
+来b站的基本上是混不下去油管的是共识，nico女主播不好混套皮也无所谓。至于混的好坏原因太多也没必要逐一分析。喜欢拿平台来踩捧差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+至少我个人不会把平台，粉丝群体这些外部要素作为对v本人评价的标准。就像虽然泥潭有些v的粉丝群体喜欢yygq，却也不妨碍我觉得v本人的直播挺好看。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30625#       发表于 2021-2-3 11:23
+
+
+
+
+主播是没必要看虚无飘渺的数字分高低，更重要的还是质。
+
+学中文拉120w二胡的oto，油管那帮混吃等死mc的高数字yhm，比得上？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30626#       发表于 2021-2-3 11:24
+
+
+
+
+v综kpi回来啦，好！v综数字厨欢喜。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30627#       发表于 2021-2-3 11:25
+
+
+
+ 本帖最后由 空集 于 2021-2-3 11:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224483&amp;ptid=1969498" target="_blank">Albaze 发表于 2021-2-3 10:52</a>
+是这个道理，希望某些人理解看内容而不是看平台，油xj和pxj差不多恶心人
+我也不再和你们汴了，油xj再想想 ...</blockquote>
+新名词 油xj<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 在v综能看到这词真是时代变了么
+谈企业和个人这个车轱辘的话，其实得说油管现在比较死水化不假，但就算不说hiyoko里列的那繁如星海的企业数里各种杂鱼，很多所谓前十大箱的同接也只有小几百，说起来去年堂堂武士道搞个新箱初配信同接300，这还皮找出名管人妈画的，你说有资源吧，目前来看非常杂鱼。
+所以油管实质就是个终极红海，与其说个人没法和企业比，不如说竞争确实极其激烈，新入场企业如果没有反而很多时候斗不过有自己独门优势的个人势，举个例子就是海苔男能从业界大箱不断摇各种人来联动，就比什么公司技术，资金，资源都厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 30628#       发表于 2021-2-3 11:46
+
+
+
+
+还能有平台粉吵起来的？有本事让这些“Vtuber”在自己的直播间里写上“No Superchat No Membership / スーパーチャット、メンバーシップ要らない / 不要打钱”这些大字啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。“让人快乐的vtuber在直播势登上舞台时丧钟就已经敲响了，不然现在这些数据厨都是从哪冒出来的？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30629#       发表于 2021-2-3 11:52
+
+
+
+
+直播势原罪论复兴 好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30630#       发表于 2021-2-3 11:57
+
+
+
+ 本帖最后由 十四洲 于 2021-2-3 12:02 编辑 
+
+不安です 
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30631#       发表于 2021-2-3 11:57
+
+
+
+
+论好赚钱还是一个月播十几个小时收租赚钱和手游赌狗上舰返利好赚钱
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 30632#       发表于 2021-2-3 12:05
+
+
+
+
+去油管赚完钱一个两国论甩脸上，真资都不敢留，精资倒是叫得欢。杏奴别嚷嚷了，不可能通过共情获得自家主子财库的。
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 30633#       发表于 2021-2-3 12:13
+
+
+
+
+哈哈这系y限😅
+我永远爱pilipili
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30634#       发表于 2021-2-3 12:14
+
+
+
+
+三分钟后郡道nyan首播，被评论栏的英文浓度吓到了，哪来的啊！（没有反感的意思，就是很疑惑）
+
+还有就是，感觉最近郡道英语水平确实提高了，好！
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30635#       发表于 2021-2-3 12:20
+
+
+
+
+还以为有什么大新闻，打开一看，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30636#       发表于 2021-2-3 12:23
+
+
+
+
+一段时间没大新闻看把你们给憋的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 30637#       发表于 2021-2-3 12:24
+
+
+
+
+笹木のnyancat
+[url=]https://dotup.org/uploda/dotup.org2377023.mp3[/url]
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30638#       发表于 2021-2-3 12:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本质v综团建
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30639#       发表于 2021-2-3 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224847&amp;ptid=1969498" target="_blank">Albaze 发表于 2021-2-3 11:21</a>
+来b站的基本上是混不下去油管的是共识，nico女主播不好混套皮也无所谓。至于混的好坏原因太多也没必要逐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">阿b滴观众审美还要再进步再提纯，用观众倒逼yhm进步，让优秀的阿b做大做强，威名远扬
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30640#       发表于 2021-2-3 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50224847&amp;ptid=1969498" target="_blank">Albaze 发表于 2021-2-3 11:21</a>
+来b站的基本上是混不下去油管的是共识，nico女主播不好混套皮也无所谓。至于混的好坏原因太多也没必要逐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">阿b滴观众审美还要再进步再提纯，用观众倒逼yhm进步，让优秀的阿b做大做强，威名远扬
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 30641#       发表于 2021-2-3 12:32
+
+
+
+
+不明白Nyannnyannyan怎么能突然再火起来
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30642#       发表于 2021-2-3 12:34
+
+
+
+
+看了一下夜见的这周安排在热度这么高的apexs8赛季更新周没排一班apex，看来应该是在准备转型不当fps系主播了，去年12月也是她数字最低的时候靠ark回了一大波血，这次转型不知道有没有什么其他金游给她回血了，看起来这apex热度要是不降下来的话她应该是凉定了
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30643#       发表于 2021-2-3 12:38
+
+
+
+
+得了吧，油管的社区文化别说n了，b都比不上，n和b对承载亚文化有天然优势，无论是日本还是国内二创第一都是往n或b投，嚷嚷着本社爆破的本来就是粘性用户
+
+现在最新最嗯的shinymas的社区依然还是在n呢
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30644#       发表于 2021-2-3 12:39
+
+
+
+
+前fps圈的宅圈公主不打fps了还能做什么，学t台太妹一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 30645#       发表于 2021-2-3 12:43
+
+
+
+
+一早上v综40多回复还以为发生了什么大事谁谁谁炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+点开一看在汴京扯皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 30646#       发表于 2021-2-3 12:44
+
+
+
+
+江/哥死了😭，ickr的工具人罢了
+<img src="https://p.sda1.dev/1/32eed72cd384bd3db46eeea74887b0ba/IMG_D5D5ED1274D8ABACB6D49BF1E94D2E2B.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
