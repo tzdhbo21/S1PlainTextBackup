@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 14:39** 
+> ## **本文件最后更新于2021-02-03 17:03** 
 
 
 
@@ -14246,4 +14246,467 @@ syl，草，在批站接梗互动了，姐你这样真的不好<img src="https:/
 
 
 
-                         
+
+
+-----
+
+####  kikiwalu  
+##### 30734#       发表于 2021-2-3 22:41
+
+
+
+ 本帖最后由 kikiwalu 于 2021-2-3 22:47 编辑 
+
+B博的遣词造句，怎么说，有点蔡蔡子的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl,又上首页了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30735#       发表于 2021-2-3 22:48
+
+
+
+
+恭喜1000w<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我说nijisanji现在是mansanji，但是事实上男v想要取得和女v一样的成就，需要付出比女v多几倍的努力，而且女v有可以取巧的方法，男v没有。
+
+天道酬勤都是假的，但葛king1月实实在在播了200+小时是真的，他的付出配得上他获得的成就。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30736#       发表于 2021-2-3 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按葛king这速度，食杀木口摇也就是在不远的将来了，女粉武德。
+反倒是今天这nya接力就挺莫名其妙的，本来以为都是本人正常唱，结果听了好几首，都调的不成样子了，根本听不出原本的声音是什么，这能起到宣传的作用吗？不太理解提出这个企划的人的脑回路。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 30737#       发表于 2021-2-3 22:54
+
+
+
+
+b站观众这么喜欢看虹人+原神吗？今晚鹰宫大小姐人气60w还行
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 30738#       发表于 2021-2-3 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50231757&amp;ptid=1969498" target="_blank">RedBaby 发表于 2021-2-3 22:54</a>
+
+b站观众这么喜欢看虹人+原神吗？今晚鹰宫大小姐人气60w还行</blockquote>
+大概是那个棉花糖万舰抽奖原神之后，又带人逛了一圈V区，
+
+刚好大小姐的原神名声在外，结果又来一批新观众
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 30739#       发表于 2021-2-3 23:01
+
+
+
+
+彩虹猫调得和人力V一样 狗都不听<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30740#       发表于 2021-2-3 23:07
+
+
+
+
+太King了，太King了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/440184a39b52d911835b3042a45ab529/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/4b12182a35536b0d917b797011d38d85/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/1c2451c496cbc3f8b903c7f19d39695a/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30741#       发表于 2021-2-3 23:15
+
+
+
+
+✧･ﾟ𝕞𝕒𝕞𝕒𝕝𝕠𝕟𝕚･ﾟ✦
+[https://twitter.com/CRUNCHY_MMLONI](https://twitter.com/CRUNCHY_MMLONI)
+
+
+推一下这位太太画的CP小图。
+
+<img src="https://img.saraba1st.com/forum/202102/03/231459f362ndfe2a1dndrb.png" referrerpolicy="no-referrer">
+
+
+<strong>EtO0IPaXIAA2LmS.png</strong> (60.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-3 23:14 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/231459hxdxs0t0cgmjycdx.png" referrerpolicy="no-referrer">
+
+
+<strong>EtTrVbcVoAQNIKr.png</strong> (46.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-3 23:14 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 30742#       发表于 2021-2-3 23:15
+
+
+
+
+大小姐70万人气卡没了  拉跨
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 30743#       发表于 2021-2-3 23:37
+
+
+
+
+葛叶这1000w花了86天还是v圈目前最快的纪录，真强
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 30744#       发表于 2021-2-3 23:45
+
+
+
+
+86日 ━葛葉【】KING 【】
+
+117日━ﾎﾛﾗｲﾌﾞ「おちゃめ機能」
+
+318日━ｷｽﾞﾅｱｲ「AIAIAI 」
+
+373日━ﾋﾒﾋﾅ「劣等上等」
+
+464日━ﾋﾒﾋﾅ「ヒトガタ」
+
+506日━花譜「過去を喰らう」
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 30745#       发表于 2021-2-3 23:57
+
+
+
+
+转播87w 这就是原神吗
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 30746#       发表于 2021-2-4 00:00
+
+
+
+
+大小姐今晚这原神是真的神回
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30747#       发表于 2021-2-4 00:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">木口滚了之后，越发欣欣向荣百花齐放，好时代来了啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30748#       发表于 2021-2-4 00:04
+
+
+
+
+king这个最速千万目前有可能破的就是2天百万的死神新歌了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30749#       发表于 2021-2-4 00:07
+
+
+
+
+跟你们说了原神倍率高还不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 30750#       发表于 2021-2-4 00:07
+
+
+
+
+以前转播能这么高好像就阿夸了，不过那时候阿夸没啥弹幕都能这么高
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30751#       发表于 2021-2-4 00:08
+
+
+
+
+死神新歌我觉得不行，个人觉得没rip和live again好听
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 30752#       发表于 2021-2-4 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50230916&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-2-3 21:34</a>
+
+快进到B博当成推特用
+
+
+免费要是你当年选择当月灵粉头，lga黑你的人大概会少一点 ...</blockquote>
+那么这里会多我一个<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30753#       发表于 2021-2-4 00:26
+
+
+
+
+当什么粉头，根本懒得搭理绿帽坛和批站的 煞 笔 小将们，要不是有人把这图转到绿帽坛了，都懒得在绿帽坛发言
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 30754#       发表于 2021-2-4 00:27
+
+
+
+
+7号的himehina演唱会有老哥录吗？兴冲冲买完票才发现这周日是要上班的，看不了直播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 30755#       发表于 2021-2-4 00:31
+
+
+
+
+骂超管nt的这波弹幕 人数真多啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30756#       发表于 2021-2-4 00:46
+
+
+
+
+看OO毒唯被郡道气得找不着北真是发自内心地感到舒爽，对不起惹，郡道现在是名声不好人气低迷除了钱什么都没有的女人，怎么好意思被搭话还和OO产生交集惹<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30757#       发表于 2021-2-4 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50215105&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-2 11:20</a>
+
+你这都云到天上去了…
+
+小时候有个中国朋友而已，所以有了学习契机</blockquote>
+记错了而已，谁还记的一年多前直播的细节？
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30758#       发表于 2021-2-4 00:54
+
+
+
+ 本帖最后由 蒹葭公子 于 2021-2-4 01:01 编辑 
+
+哦，是来中国之前的棉花糖里讲的……
+
+
+
+
+
+                        
