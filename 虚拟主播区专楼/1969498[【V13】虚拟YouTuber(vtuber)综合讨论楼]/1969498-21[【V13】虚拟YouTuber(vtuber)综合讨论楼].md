@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 06:41** 
+> ## **本文件最后更新于2021-02-03 10:38** 
 
 
 
@@ -13049,4 +13049,441 @@ syl，我现在像个anti ...</blockquote>
 
 
 
-                           
+
+
+-----
+
+####  winda  
+##### 30672#       发表于 2021-2-3 14:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男尊女卑团体nijisanji和大男子主义叶会被微博女拳打烂么
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 30673#       发表于 2021-2-3 14:47
+
+
+
+
+星川的英语介绍真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30674#       发表于 2021-2-3 14:57
+
+
+
+ 本帖最后由 十四洲 于 2021-2-3 16:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50226738&amp;ptid=1969498" target="_blank">黑之和 发表于 2021-2-3 14:26</a>
+
+看了葛ape最后的杂谈已经完全不生气，甚至可以跟葛一起狂笑你们v圈屁事真多.jpg ...</blockquote>
+日本人炎上的点真是令人迷惑，其实我期待他前天apex不好好打切出来搞待机画面被炎一下吃个教训的，打游戏不认真坑队友我真的受不了，结果就这<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+仔细想了想这也不算炎，不过他道歉太郑重弄得像出什么大事了一样，别的不说叶师一遇事道歉是真的快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30675#       发表于 2021-2-3 16:08
+
+
+
+
+【Steam新作】《NEEDY GIRL OVERDOSE》 
+【发售时间】今春
+【游戏简介】Vtuber养成ADV。玩家将扮演Vtuber糖糖的“阿P”（制作人和男友），塑造其可爱，任性，容易病倒的人设，成为能把宅男钱包榨干的人气主播。糖糖的精神并不稳定，表里账号表现出的人格并不相同。陪她约会、陪她做一些色色的事、让她吃点能够消除压力的药、或是让她用约会软件去和别的男人约个会什么的，以此来支撑她的精神。游戏采用多结局设计，她可能由于各种原因黑化、可能加害于阿P、有时也会磕嗨到脑子不正常。深陷现代网络黑暗之中的女孩究竟是否存在好结局，就由你来亲眼见证吧。自带中文。
+【系统】Win  http://t.cn/A65H0XHL
+
+感觉有趣
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 墨玄i| + 1|real！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30676#       发表于 2021-2-3 16:14
+
+
+
+
+モルルーナ？
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 30677#       发表于 2021-2-3 16:22
+
+
+
+
+真云P游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30678#       发表于 2021-2-3 16:29
+
+
+
+
+这是扮演staff吗？怎么感觉是个巨魔游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 30679#       发表于 2021-2-3 16:42
+
+
+
+
+能捏人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这种游戏应该不会有人正常路线来玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30680#       发表于 2021-2-3 17:07
+
+
+
+ 本帖最后由 qq845629713 于 2021-2-3 17:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> staff能看到我说话么？加一个跳槽功能更有趣！
+
+从虚拟公司2535跳槽到holelive，
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 30681#       发表于 2021-2-3 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">https://www.bilibili.com/video/BV11v411s7sH?p=1&amp;share_medium=android&amp;share_plat=android&amp;share_source=COPY&amp;share_tag=s_i&amp;timestamp=1612343115&amp;unique_k=jgCv44
+
+月灵姐姐新歌，云南民歌《小河淌水》
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30682#       发表于 2021-2-3 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转会啊 订阅等于身价。sc同接播放相当于进球助攻传球成功率。
+
+质相当于隐藏属性，大赛职业稳定啥的。
+
+一个月之摆在市场上，没7-8个bzml换不来好吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30683#       发表于 2021-2-3 17:16
+
+
+
+
+厂妹男友模拟器吗，感觉是花钱找罪受啊……
+省一楼，郡郡彼氏暴露力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">（实际上是郡道昨晚会限t台边播边雀魂，无意间把齐藤的台词录进去了，粉丝就在会限repo开玩笑说男友暴露，然后不明所以的人就跑去郡油管评论说“嘻嘻男友暴露吧”，郡截图发推：“【速報】【朗報】郡道、彼氏持ちらしい！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！”
+
+不快超级加倍<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">（说真的无论性别希望郡道赶紧找个靠谱对象）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|和齐藤是真爱了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30684#       发表于 2021-2-3 17:18
+
+
+
+
+绝了，怎么也没想到是这个，小学听的了，强
+
+
+
+
+
+
+
+-----
+
+####  WDDzzZ  
+##### 30685#       发表于 2021-2-3 17:28
+
+
+
+
+暗夜精灵们该醒了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 30686#       发表于 2021-2-3 17:34
+
+
+
+
+唔，更想听岛歌的，，，
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30687#       发表于 2021-2-3 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50227800&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-2-3 16:08</a>
+
+【Steam新作】《NEEDY GIRL OVERDOSE》 
+
+【发售时间】今春
+
+【游戏简介】Vtuber养成ADV。玩家将扮演Vtuber糖 ...</blockquote>
+制作人和男友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 30688#       发表于 2021-2-3 18:08
+
+
+
+
+“让她用约会软件去和别的男人约个会”是个什么玩意儿
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30689#       发表于 2021-2-3 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228983&amp;ptid=1969498" target="_blank">oshinoshinobu 发表于 2021-2-3 18:08</a>
+
+“让她用约会软件去和别的男人约个会”是个什么玩意儿</blockquote>
+明码标价<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 30690#       发表于 2021-2-3 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228983&amp;ptid=1969498" target="_blank">oshinoshinobu 发表于 2021-2-3 18:08</a>
+“让她用约会软件去和别的男人约个会”是个什么玩意儿</blockquote>
+s1娘模拟器啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  二次惨事  
+##### 30691#       发表于 2021-2-3 18:18
+
+
+
+
+恭喜阿葵跟前男友（？）修成正果
+
+
+
+
+
+
+
+-----
+
+####  二次惨事  
+##### 30692#       发表于 2021-2-3 18:29
+
+
+
+
+虹an发现有人上了ark服 就去查了查这段时间登录的用户  然后警觉的人发现了一个不得了的名字——rion
+<img src="https://i.loli.net/2021/02/03/rjSdONiyQqkzPUg.png" referrerpolicy="no-referrer">
+
+
+然后看看lamtadaka的好友 也有个叫rion的人
+[https://steamcommunity.com/profiles/76561198343469836/friends/](https://steamcommunity.com/profiles/76561198343469836/friends/)
+
+头像如下  就是阿葵传闻中的前男友
+<img src="https://i.loli.net/2021/02/03/7DtvuZcJWdaq1Vh.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2021/02/03/7w9gYGh1zSmPy5C.png" referrerpolicy="no-referrer">
+
+然后这位前男友最近结婚了  阿葵休止了
+<img src="https://i.loli.net/2021/02/03/aErHvf53JStnguo.png" referrerpolicy="no-referrer">
+
+
+Q.E.D.
+
+
+
+
+
+
+
+-----
+
+####  二次惨事  
+##### 30693#       发表于 2021-2-3 18:31
+
+
+
+
+阿葵是图中的T0T
+[https://steamid.uk/profile/76561198078885348](https://steamid.uk/profile/76561198078885348)
+
+
+
+
+
+                          
