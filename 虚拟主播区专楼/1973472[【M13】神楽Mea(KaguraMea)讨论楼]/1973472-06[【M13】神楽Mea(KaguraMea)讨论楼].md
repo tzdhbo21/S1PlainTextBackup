@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-02 08:47** 
+> ## **本文件最后更新于2021-02-03 12:49** 
 
 
 
@@ -13198,10 +13198,13 @@ tiktok大家不知道吗？因为是大叔不知道？又不少大叔玩的啊 �
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 10战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 黒長直姫| + 2||
+| 路人庚| + 1|“ 看AO什么的处理去 ”|
+| 秋游刃| + 1|好评加鹅|
 | LIPP| + 1|还是要洗的|
 | Dualist彩| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
@@ -13249,4 +13252,874 @@ tiktok大家不知道吗？因为是大叔不知道？又不少大叔玩的啊 �
 
 
 
-                        
+
+
+-----
+
+####  Mr.shelter  
+##### 8258#       发表于 2021-2-2 18:05
+
+
+
+
+麻 麻也正是处于欲望的季节啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 8259#       发表于 2021-2-2 19:00
+
+
+
+
+我会被小麻榨干吗？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8260#       发表于 2021-2-2 20:45
+
+
+
+
+我会被mea榨干<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8261#       发表于 2021-2-2 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">艹，好像真是小绿亲友？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8262#       发表于 2021-2-2 21:23
+
+
+
+
+如月先开播引流了都，蹲你麻塔的建议散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实质如月pro，你麻要被架空了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8263#       发表于 2021-2-2 21:25
+
+
+
+
+你们懂个屁，这是如月坡再次带领你麻走向辉煌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8264#       发表于 2021-2-2 21:26
+
+
+
+
+小麻已经是小绿的提线木偶惹
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 8265#       发表于 2021-2-2 21:36
+
+
+
+
+没有朋友的小土妹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8266#       发表于 2021-2-2 21:43
+
+
+
+
+如月强啊，可惜了，小紫发挥起来也不错，有次貌似是儿歌回什么的唱的听着好舒服，你麻摇人有一手的
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 8267#       发表于 2021-2-2 23:21
+
+
+
+
+新人必定是如月的熟人了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 8268#       发表于 2021-2-3 00:27
+
+
+
+
+梅莉好像真打算来中国留学……<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/6d2d8a2ada2097bd92092b1e70e36ab0/IMG_CMP_93597420.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8269#       发表于 2021-2-3 00:45
+
+
+
+ 本帖最后由 A2014720 于 2021-2-3 01:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+又要半夜突了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8270#       发表于 2021-2-3 07:34
+
+
+
+
+安心的深夜
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8271#       发表于 2021-2-3 10:01
+
+
+
+ 本帖最后由 笋狐 于 2021-2-3 10:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然还认真研究了3个月，虽然这疫情局势没个一年半载好不了，梅小姐能发挥你线下3回约的行动力把那只死宅羊一起拖过来吗哦内该
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8272#       发表于 2021-2-3 12:18
+
+
+
+
+把小麻拐回国内的第一步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8273#       发表于 2021-2-3 16:47
+
+
+
+
+找梅小姐要麻图
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8274#       发表于 2021-2-3 18:37
+
+
+
+
+今天十点播
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8275#       发表于 2021-2-3 18:44
+
+
+
+
+8点会在新人频道出现么？
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8276#       发表于 2021-2-3 19:42
+
+
+
+
+快进到特定新人
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 8277#       发表于 2021-2-3 20:03
+
+
+
+
+感觉新人这挺活跃的，你麻能不能来抽出张SSR新人啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8278#       发表于 2021-2-3 20:04
+
+
+
+ 本帖最后由 路人庚 于 2021-2-3 20:07 编辑 
+
+wtf？
+
+我觉得我的耳朵不太行，不能确定，就不下结论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 8279#       发表于 2021-2-3 20:04
+
+
+
+
+8点是选错了吗，还以为要正面撞新小妹直播这么猛
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 8280#       发表于 2021-2-3 20:05
+
+
+
+
+有人特出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8281#       发表于 2021-2-3 20:06
+
+
+
+
+看起来是素人？毫无小绿小麻那种久经沙场的感觉
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8282#       发表于 2021-2-3 20:07
+
+
+
+
+这也太紧张了吧。。。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 8283#       发表于 2021-2-3 20:08
+
+
+
+
+评论区英文浓度有点高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8284#       发表于 2021-2-3 20:09
+
+
+
+
+有种似曾相识的声音的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8285#       发表于 2021-2-3 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">声线有点像粽姨和狗狗混合？这么清楚的孩子是怎么和组里这几个混沌意志搭上的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|确实有些像|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8286#       发表于 2021-2-3 20:10
+
+
+
+
+九条据说是英语中级高手（消息来源：小绿）
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 8287#       发表于 2021-2-3 20:11
+
+
+
+
+捏这种声线的太多了，耳熟很正常，等哪位特定了。
+
+反正没有第一时间特出来就已经证明不符合贴贴人和暗黑贴贴人期望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望这人能多陪你麻玩一玩
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8288#       发表于 2021-2-3 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这**到底谁啊，我命你们速速特定
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 8289#       发表于 2021-2-3 20:17
+
+
+
+
+应该比较素吧，又漏音又怯生
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 8290#       发表于 2021-2-3 20:19
+
+
+
+
+越是看这种新人刚直播时的紧张和没几句话可说的样子，越是难以想象你麻当年刚出道到底是怎么搞出这么一个令人震撼的初配信直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 8291#       发表于 2021-2-3 20:20
+
+
+
+
+麻酱初配信真的可以排进史上TOP10让人震撼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 8292#       发表于 2021-2-3 20:21
+
+
+
+
+新人的声音好软 加上初配信的紧张感 单推了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+小麻寄8谁啊 真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8293#       发表于 2021-2-3 20:24
+
+
+
+
+还多陪她玩一玩，这人除了苔姨兔姨其他的就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+新人让人感觉很舒服啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8294#       发表于 2021-2-3 20:24
+
+
+
+
+万能的m楼加油啊！
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 8295#       发表于 2021-2-3 20:24
+
+
+
+
+这么素是怎么和你麻小绿混成一个圈子的，而且还想不开当个人势玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8296#       发表于 2021-2-3 20:26
+
+
+
+
+建议从小绿旁边找，你麻现在就是一个架空的组长<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8297#       发表于 2021-2-3 20:26
+
+
+
+ 本帖最后由 rosevalley46 于 2021-2-3 20:31 编辑 
+
+不会真是哪家不缺钱来玩票的大小姐吧
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8298#       发表于 2021-2-3 20:28
+
+
+
+
+小绿圈子不都是幼师吗（暴言）
+
+该众筹把你麻这个巨婴送去大阪接受再教育了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8299#       发表于 2021-2-3 20:29
+
+
+
+
+这个时候挖掘机就都不说话了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+谜语人都没<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8300#       发表于 2021-2-3 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又来一个为梦想体验生活的富婆剧本？怎么，你麻是大小姐诱捕器咋地？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8301#       发表于 2021-2-3 20:30
+
+
+
+
+三个幼师带巨婴是吧😅
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8302#       发表于 2021-2-3 20:32
+
+
+
+
+不过好像还挺讨喜的,现在订阅已经快比八乙女高了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8303#       发表于 2021-2-3 20:33
+
+
+
+
+你楼废了，半个小时空无一物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8304#       发表于 2021-2-3 20:36
+
+
+
+
+你麻和姨心心相惜的 不爱年轻yhm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8305#       发表于 2021-2-3 20:42
+
+
+
+
+特不出！根本特不出！
+
+
+我躺倒了，等一个情强哥二手料
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8306#       发表于 2021-2-3 20:43
+
+
+
+ 本帖最后由 A2014720 于 2021-2-3 20:45 编辑 
+
+别真是你麻诱骗无辜素人当个人势<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+这尼玛是英语六级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8307#       发表于 2021-2-3 20:47
+
+
+
+
+怎么出一个新人第一反应就是特定的，你们思想有问题（
+
+
+
+
+
+                       
