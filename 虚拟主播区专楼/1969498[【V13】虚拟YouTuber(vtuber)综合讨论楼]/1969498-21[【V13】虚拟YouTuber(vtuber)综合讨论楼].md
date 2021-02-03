@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 04:45** 
+> ## **本文件最后更新于2021-02-03 06:41** 
 
 
 
@@ -12570,4 +12570,483 @@ v综kpi回来啦，好！v综数字厨欢喜。
 
 
 
-                            
+
+
+-----
+
+####  帕克桑  
+##### 30647#       发表于 2021-2-3 12:47
+
+
+
+
+怎么一个男的都没有 太不虹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 30648#       发表于 2021-2-3 12:52
+
+
+
+
+没有虹男是想对标holo摇吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凯文夏特  
+##### 30649#       发表于 2021-2-3 12:55
+
+
+
+ 本帖最后由 凯文夏特 于 2021-2-3 13:31 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30650#       发表于 2021-2-3 13:00
+
+
+
+
+呜⬆️呜呜呜⬇️这都是个啥呀😭
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30651#       发表于 2021-2-3 13:07
+
+
+
+
+叫彩虹社唱彩虹猫还明目张胆歧视男性吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30652#       发表于 2021-2-3 13:13
+
+
+
+
+口了还是早几天回归就能蹭到张官方mrra同框图了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30653#       发表于 2021-2-3 13:18
+
+
+
+
+汴京，永远的kpi密码
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 30654#       发表于 2021-2-3 13:25
+
+
+
+
+Googleのにじさんじ関連急上昇ワードランキング
+<img src="https://p.sda1.dev/1/7aee6c7685de0443fd14e8922e331b83/IMG_892DF0CF3E0FB36A6D09805B3B5D6B36.jpeg" referrerpolicy="no-referrer">
+
+
+&gt; にじさんじリスナー陰湿すぎて草
+
+&gt; あんなとこ見れるお前のが陰湿だよ
+
+syl,
+田角陸😇いちからCEO / にじさんじ&amp;ユメグラ
+@riku_tazumi
+本日、25歳の誕生日を迎えました～👼
+
+20代前半で未熟ながらこれまでやってこられたのも、従業員、所属タレント、ファンの皆様、支えてくださっている方々のおかげだと思っています！
+
+20代も折り返しというところで、より一層気合いを入れていきます！！！
+下午1:02 · 2021年2月3日·Twitter Web App
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 30655#       发表于 2021-2-3 13:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/132452r2xozqs0030vza4v.png" referrerpolicy="no-referrer">
+
+
+<strong>20210203132436.png</strong> (51.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-3 13:24 上传
+
+
+
+
+
+
+ID是有男人的，都不放到本家频道也太小气了
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 墨玄i| + 1|分而治之|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 30656#       发表于 2021-2-3 13:26
+
+
+
+<blockquote>划水的B612 发表于 2021-2-3 11:46
+还能有平台粉吵起来的？有本事让这些“Vtuber”在自己的直播间里写上“No Superchat No Membership / スー ...</blockquote>
+火柴人赢了又赢
+
+
+syl free老师怎么在月灵动态被踩到最底了，，，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30657#       发表于 2021-2-3 13:28
+
+
+
+
+把前几天郡道杂谈听了一下，涉及到了人类优选、觉得自己笑声惹人不快很厉害、充满笑点的独轮车、好bora我舔、打钱等话题（玩笑），被喜感到了，
+也可以看出是真过气了，都没人剪出来炎上呃
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30658#       发表于 2021-2-3 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50225153&amp;ptid=1969498" target="_blank">划水的B612 发表于 2021-2-3 11:46</a>
+还能有平台粉吵起来的？有本事让这些“Vtuber”在自己的直播间里写上“No Superchat No Membership / スー ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那从企业势老爱开始就已经被否定了
+vtuber魂骨是我兽耳王国哒
+
+
+
+
+
+
+
+-----
+
+####  Anthony.J  
+##### 30659#       发表于 2021-2-3 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50225153&amp;ptid=1969498" target="_blank">划水的B612 发表于 2021-2-3 11:46</a>
+
+还能有平台粉吵起来的？有本事让这些“Vtuber”在自己的直播间里写上“No Superchat No Membership / スー ...</blockquote>
+鸣神裁：No Superchat No Membership
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30660#       发表于 2021-2-3 13:41
+
+
+
+
+B站还是油管上班闲着没事吵一吵也就算了，1202年怎么还有喜欢吃Nico这坨陈年老屎的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30661#       发表于 2021-2-3 13:43
+
+
+
+<blockquote>rzrbtk 发表于 2021-2-3 13:28
+把前几天郡道杂谈听了一下，涉及到了人类优选、觉得自己笑声惹人不快很厉害、充满笑点的独轮车、好bora我舔 ...</blockquote>
+凉透了，关联词连嫌い都没有
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30662#       发表于 2021-2-3 13:52
+
+
+
+
+bora组也建了，好耶
+bora是我唯一需要b站组的，真的卡
+不知道是韩国网络还是怎么的，难得不卡
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30663#       发表于 2021-2-3 13:54
+
+
+
+
+原来不是我一个人看bora卡！我还以为是我的问题
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 30664#       发表于 2021-2-3 13:55
+
+
+
+
+sc虚空联动的合作这次aic到点得挺快
+
+https://b23.tv/vVzkdF
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30665#       发表于 2021-2-3 13:59
+
+
+
+
+两个人，bora和叶，简直是梯子检测器，好不好用就看这两个台卡不卡
+相反葛叶就很顺，垃圾梯子也不卡，或者月之露露大福这种开回放的，好文明
+我看b站之前转bora的几个台也是吃不消，有时候不得不选择转bora队友来规避
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30666#       发表于 2021-2-3 14:03
+
+
+
+
+我看bora就不卡<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+但感觉我的梯子也不咋好用<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30667#       发表于 2021-2-3 14:09
+
+
+
+ 本帖最后由 十四洲 于 2021-2-3 14:22 编辑 
+
+我看叶只是很偶尔卡一下，没bora卡得那么夸张，不过上次看哈弟自定义赛还行，看运气吧
+
+syl，我现在像个anti一样一想到叶被炎这事就想笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30668#       发表于 2021-2-3 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50226310&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-2-3 13:43</a>
+凉透了，关联词连嫌い都没有</blockquote>
+没想到郡道也知道独轮车啥的，还描述了一次看别人台发现“有评论像岚（风暴）一样高速发岚（arashi）的歌词”的经历，是在谁的台啊这么喜感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 30669#       发表于 2021-2-3 14:15
+
+
+
+
+不同梯子不一样，我的要么全卡，要么谁也不卡
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 30670#       发表于 2021-2-3 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50226571&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-2-3 14:09</a>
+我看叶只是很偶尔卡一下，没bora卡得那么夸张，不过上次看哈弟自定义赛还行，看运气吧
+
+syl，我现在像个anti ...</blockquote>
+看了葛ape最后的杂谈已经完全不生气，甚至可以跟葛一起狂笑你们v圈屁事真多.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30671#       发表于 2021-2-3 14:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 希望bora组没有继承某些人口中的“老虹味”，
+
+
+
+
+
+
+
+
+                           
