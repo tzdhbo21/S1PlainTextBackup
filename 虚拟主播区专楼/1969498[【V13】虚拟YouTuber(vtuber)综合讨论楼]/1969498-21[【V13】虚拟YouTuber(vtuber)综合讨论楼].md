@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-02 15:39** 
+> ## **本文件最后更新于2021-02-03 02:08** 
 
 
 
@@ -11200,4 +11200,626 @@ Available for 1 day.
 
 
 
-                              
+
+
+-----
+
+####  真飞鸟i  
+##### 30575#       发表于 2021-2-2 23:45
+
+
+
+
+<img src="https://p.sda1.dev/1/63e0edf890d4369b4fe2074b2a17eea0/F24431F39917C595B31B883B094FB093.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30576#       发表于 2021-2-2 23:54
+
+
+
+
+你虹属于往上不能整出点好活，往下放不下身段媚宅，就卡在这里了，到哪个平台都不行的<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 30577#       发表于 2021-2-3 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50221691&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-2 23:45</a>
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2.4.3</blockquote>
+nene原来这么顶的吗？我还以为是倒数的几个。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 30578#       发表于 2021-2-3 00:06
+
+
+
+
+现在b站也不只是歌势的天下，星宫汐hirro lulu这类中文还行的都挺吃香的，皇女要能回来b限纵使一个月只有一次凭她的实力在如今的b站有一席之地不难，然而基本很难有可能了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 30579#       发表于 2021-2-3 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50221832&amp;ptid=1969498" target="_blank">Map-2 发表于 2021-2-3 00:02</a>
+
+nene原来这么顶的吗？我还以为是倒数的几个。。
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1N ...</blockquote>
+1.31新形象发布，一月也是吃了一波“迫害”人设福利。
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 30580#       发表于 2021-2-3 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那毕竟油管是高贵上流洋人社会呀，低贱亚欧大陆东方黄皮做的niconico仿造品是人下人咧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30581#       发表于 2021-2-3 00:50
+
+
+
+
+好耶！！！
+<img src="https://p.sda1.dev/1/953be11438461efe4888d3807ff39b1d/IMG_20210203_004858.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30582#       发表于 2021-2-3 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50222182&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-2-3 00:50</a>
+
+好耶！！！</blockquote>
+好家伙，希望是新歌
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30583#       发表于 2021-2-3 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50222121&amp;ptid=1969498" target="_blank">Finsty 发表于 2021-2-3 00:41</a>
+
+那毕竟油管是高贵上流洋人社会呀，低贱亚欧大陆东方黄皮做的niconico仿造品是人下人咧
+
+
+—— 来自 H ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">v这种直播形式能爬到头部就说明国外直播业发展很不完善，你批v区在国内才掀起了几个水花，真以为有多大体量啊？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30584#       发表于 2021-2-3 01:32
+
+
+
+
+露皇这如龙0评论栏本土浓度还是杠杠的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+makoto：我跟哥哥因为是战后留中日本人，所以从小被80
+
+评论栏：中国人民度低いね<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+makoto：回到日本后因为不懂日语，爷爷待我们不好，妈妈自杀了
+
+评论栏：悲しいね<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30585#       发表于 2021-2-3 01:47
+
+
+
+
+垃圾回收二次利用怎么了，你木口最多的就是nico淘汰二次利用的女主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30586#       发表于 2021-2-3 01:50
+
+
+
+
+某个弱智野兔子又在开火了，开火也开的不明不白。批站二次回收油管v，这本身就不对。车这个话题很容易就偏到如何衡量一个主播优质与否的问题了。你综车了一万回的数据，车轱辘半天谁也不服谁。平台不一样，资源不一样，受众不一样。你不能说海里的渔民出海一趟捞上一大船鱼，他就比在湖边养大闸蟹的渔民高贵，生旦净末丑，花旦武生就比小生花脸高贵吗？这没道理，唱得好一样是角。
+
+再说油管淘汰品，这个词首先就不准确，在各个箱提供的推力和资源不均衡的情况下，个人势和ccll这种小箱子即使有优质的主播也很难在404展露头角，想要火，脸皮厚榜上大箱才是硬道理，就比如之前的uto（蓝ame），一手蹭木口蹭白皮，一个月30w订阅轻轻松松，壶男最终回1w同接。但每个人都愿意去蹭放弃尊严去舔白皮吗？这自然不是的，ccll和很多底边就不愿意这么做，贫者不受嗟来之食，像小红，oto这样的女性是有着魏晋风骨的，不愿跪着把钱舔了，选择去相对不那么激烈的批站，站着把钱挣了。人小红8800舰的盛况就是对这份努力和气节的最好回报，这是舔白皮蹭木口的uto永远做不到的，uto不仅没有这份气节，甚至因为玻璃心被木口mmr炎上一波就跑路了，只能说物以类聚人以群分啊。
+
+
+最后说说二次回收这次，这个月批站前排也以自产的国v和b站出道的yhm为主了，即使两边播的yhm，也至少做到了1：1的时长。你说二次回收，别人生于斯长于斯，很难赞同这句话。批站这个月头部下滑严重但消费总数却未改变多少，呈现百花齐放的态势。反观油管几个大箱的恐怖垄断下，朱门酒肉臭，路有冻死骨。谁才是有未来有活力的直播平台，一看便知。
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 30587#       发表于 2021-2-3 01:57
+
+
+
+ 本帖最后由 admentus 于 2021-2-3 02:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50222121&amp;ptid=1969498" target="_blank">Finsty 发表于 2021-2-3 00:41</a>
+
+那毕竟油管是高贵上流洋人社会呀，低贱亚欧大陆东方黄皮做的niconico仿造品是人下人咧
+
+
+—— 来自 H ...</blockquote>
+宁佬要是说简体中文甚至是华语内容创作者b站世界第一，那我准是一百个同意
+
+要是说日语内容创作者，能在本土做出名堂来，鬼才会抛下母语环境来一个只有中文ui的平台哩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+打个比方，要是有个只会中文的中国主播去afreecatv靠学韩语吸引观众赚钱，你能怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 30588#       发表于 2021-2-3 02:53
+
+
+
+
+主播要是每天打公平的公开赛，从青铜打到黄金，大师，我就信bilibili是垃圾回收厂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+主播是要占坑的，你主子公司的坑被自己扬了，有别人填坑，你说这是垃圾坑，那你主子是不是垃圾啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30589#       发表于 2021-2-3 02:58
+
+
+
+
+舔中国人，不行！
+舔白皮，行！
+要我说，赚钱嘛，不寒颤。
+<img src="https://p.sda1.dev/1/2b7b3ea8f9945c9656dcc1e95c27275e/151D0D43C761E3C6F5DCF682C59F62C3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 30590#       发表于 2021-2-3 03:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就得看楼友觉得应该是先哭丧yhm学英语还是先哭丧国妹学韩语了
+syl 其实我更不明白另一位楼友的体量论，体量大到不给关注不给饭吃的意思吗，黄豆流汗.jpg
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 30591#       发表于 2021-2-3 03:15
+
+
+
+
+v无关
+
+歌力SSS来b站了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  gogomw  
+##### 30592#       发表于 2021-2-3 06:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30593#       发表于 2021-2-3 06:33
+
+
+
+
+苟日新，日日新，又日新的进步环境新时代b站v圈那可是提炼了千百来次精华中最硬的精华，虹这种过气不亲华非zzzq组织怎么还有想火的想法的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 30594#       发表于 2021-2-3 06:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这年头谁还看直播啊，云就完了😅
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30595#       发表于 2021-2-3 07:28
+
+
+
+
+有的人真的不会说话，淘汰品回收都出来了，明明是
+潜力无限的蓝海
+竞争不那么激烈的新贵平台
+给底边展现自我机会的慈善公司
+技术力完爆谷歌的科技企业
+没被资本污染？的伊甸园
+显示最真实数据人气值的乌托邦
+必将超越斗鱼油管的超新星
+pxj心中的应许之地
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Albaze  
+##### 30596#       发表于 2021-2-3 08:20
+
+
+
+
+你谭杏奴还是不知道你杏就是nico淘汰品回收二次利用的地方吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30597#       发表于 2021-2-3 08:43
+
+
+
+
+说的好听叫Nico淘汰品，难道不是Nico本身被淘汰了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 30598#       发表于 2021-2-3 08:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照两三年前nico的オワコン程度，离开nico应该算自救
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30599#       发表于 2021-2-3 08:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你批一个32岁中年富二代肥宅都能光速10w粉丝，要我说，某些批站拉夫妹还没有这位贵物订阅高，是不是有问题呢？
+
+
+还有，当拉夫并不可耻，你们口中的冲国特攻YHM拉夫舔批小将泥哥，和舔白皮的日V拉夫并没有本质区别，
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30600#       发表于 2021-2-3 08:50
+
+
+
+
+从垃圾平台离开叫跑路不叫淘汰，只有杏女比较傻，先从优质平台一号淘汰去垃圾平台，又从抄袭了抄袭优质平台的优质平台二号淘汰回垃圾平台。
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30601#       发表于 2021-2-3 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50223269&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-2-3 08:50</a>
+你批一个32岁中年富二代肥宅都能光速10w粉丝，要我说，某些批站拉夫妹还没有这位贵物订阅高，是不 ...</blockquote>
+体制内肥宅当然要比大部分拉夫yhm玩的转观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且专门面向特定观众的直播更受欢迎不是当然的么
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 30602#       发表于 2021-2-3 09:16
+
+
+
+
+无所谓啦，反正大家都有在赢
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 30603#       发表于 2021-2-3 09:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">野良猫真就唱了一小时彩虹猫
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30604#       发表于 2021-2-3 09:35
+
+
+
+ 本帖最后由 caupollen 于 2021-2-3 09:37 编辑 
+
+刚看完各位又在辩些老调子就刷到这个是挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+4C412DB8-67C7-44AA-B6E3-56A8FE33C408.jpeg
+(258.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-3 09:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/093535tg80g46e4484r9pq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30605#       发表于 2021-2-3 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50223269&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-2-3 08:50</a>
+
+你批一个32岁中年富二代肥宅都能光速10w粉丝，要我说，某些批站拉夫妹还没有这位贵物订阅高，是不 ...</blockquote>
+yhm要是能搞出几个堪比秦爽天的烂梗，那还用愁订阅吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再怎么舔泥哥舔那也比不上泥哥头子啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 30606#       发表于 2021-2-3 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50222454&amp;ptid=1969498" target="_blank">admentus 发表于 2021-2-3 01:57</a>
+宁佬要是说简体中文甚至是华语内容创作者b站世界第一，那我准是一百个同意
+
+要是说日语内容创作者，能在本 ...</blockquote>
+你只知其一不知其二，母语环境固然舒适，然而赚钱并不是只看是否舒适，如果我能在孟加拉视频社区卖卖萌傻笑怪叫，时薪就能达到1000刀（虚指），掏出一本佛经我都能一个月播300小时，而日本人的优越感是你有钱我都不去你那里干活，他们宁愿金钱上有一定的损失，也不会去他们认为差、低贱的环境，他们大概觉得这种精神类似于孤高、高洁之类的
+
+
+
+
+
+                             

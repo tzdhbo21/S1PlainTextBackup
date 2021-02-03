@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-31 09:57** 
+> ## **本文件最后更新于2021-02-03 02:14** 
 
 
 
@@ -25884,4 +25884,550 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 
 
 
-  
+
+
+-----
+
+####  边界循环  
+##### 14914#       发表于 2021-1-31 18:34
+
+
+
+
+确实 还是弄猪吧 反正迟早要弄的 感谢各位兄弟
+
+
+
+
+
+
+
+-----
+
+####  cowgp01  
+##### 14915#       发表于 2021-1-31 18:45
+
+
+
+
+所以上修后的老男人强度有个定位了没有
+
+
+
+
+
+
+
+-----
+
+####  a85982313  
+##### 14916#       发表于 2021-1-31 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198678&amp;ptid=1158205" target="_blank">peh 发表于 2021-1-31 16:07</a>
+
+怕不是根本不是不具合，看后台数据都没人抽吧..</blockquote>
+好像是降50和其他角色搭配能降到负数奥义获取，35就是刚好负100%没奥义了
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14917#       发表于 2021-1-31 23:14
+
+
+
+
+老男人的1明显能大幅增加在高难的输出，这光连续出2个永续buff，所以光啥时候能在低压情况针对性杀人
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 14918#       发表于 2021-2-1 00:28
+
+
+
+
+毛二力上节目了，情人节魔法少女毛二力该提到日程上了，押一手风或者光
+
+顺便问个题外话，听闻今井麻美是吃药导致长胖了，那么辻步美这身材有什么解释吗（结婚前结婚后.jpg）
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14919#       发表于 2021-2-1 00:47
+
+
+
+
+老男人武器也挺好玩的，第一个可以做绿药的奥义？
+
+
+
+
+
+
+
+-----
+
+####  pzk  
+##### 14920#       发表于 2021-2-1 01:27
+
+
+
+ 本帖最后由 pzk 于 2021-2-1 01:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202877&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-2-1 00:47</a>
+
+老男人武器也挺好玩的，第一个可以做绿药的奥义？</blockquote>
+之前万圣暗萌王的杖就能做绿药了
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14921#       发表于 2021-2-1 01:43
+
+
+
+
+原来如此 不过之前的武器也没想过拿过来用
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14922#       发表于 2021-2-1 11:11
+
+
+
+
+周年后银依代可以直接拆成品。
+
+那星号本skip或者多倍掉落这个周年能最好顺手一起实装了吗。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14923#       发表于 2021-2-1 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50205269&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-2-1 11:11</a>
+
+周年后银依代可以直接拆成品。
+
+
+那星号本skip或者多倍掉落这个周年能最好顺手一起实装了吗。 ...</blockquote>
+我只能说想多了。。。
+
+
+
+
+
+
+
+-----
+
+####  pzk  
+##### 14924#       发表于 2021-2-1 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50199194&amp;ptid=1158205" target="_blank">Aureth 发表于 2021-1-31 17:29</a>
+
+如果卖掉收件箱里面带加号的R召唤石会返回加号吗</blockquote>
+直接在邮箱里吃成狗粮是返加号的，卖还没试过……应该不会返吧
+
+
+
+
+
+
+
+-----
+
+####  yagami_cn  
+##### 14925#       发表于 2021-2-1 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202755&amp;ptid=1158205" target="_blank">Kagam1 发表于 2021-2-1 00:28</a>
+毛二力上节目了，情人节魔法少女毛二力该提到日程上了，押一手风或者光
+
+顺便问个题外话，听闻今井麻美是吃 ...</blockquote>
+生病用激素治疗才现在这样的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 14926#       发表于 2021-2-1 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50205269&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-2-1 11:11</a>
+周年后银依代可以直接拆成品。
+
+那星号本skip或者多倍掉落这个周年能最好顺手一起实装了吗。 ...</blockquote>
+拆成品能不能返10个我觉得都悬<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14927#       发表于 2021-2-1 18:37
+
+
+
+
+欠片的事我估计解决也得半年以后了，晚农免费送
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14928#       发表于 2021-2-1 18:41
+
+
+
+
+超越我自己的目标是8周年之前完成 战线拉长之后很多事情就觉得还好了
+
+（虽然是盲猜 最终怎么样要等年终150实装再说了）
+
+自建号从0到十天极也花了快2年...
+
+超越做个1年多也不是不能接受
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14929#       发表于 2021-2-1 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50206996&amp;ptid=1158205" target="_blank">pzk 发表于 2021-2-1 14:07</a>
+
+直接在邮箱里吃成狗粮是返加号的，卖还没试过……应该不会返吧</blockquote>
+刚卖了一个试试，我的一个加号打水漂了orz
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14930#       发表于 2021-2-2 10:11
+
+
+
+
+超越这个东西100变110就要那么多东西，这到150还要凸四次，鬼知道后面还要什么海量材料<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+就这次实装都这么磨叽来看，这150级加上未来可期得贤者终秃应该就是你游末末期内容了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+全员超越1次就要200钢碎10FFJ，我感觉我关服都掏不出这些玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14931#       发表于 2021-2-2 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50214340&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-2-2 10:11</a>
+
+超越这个东西100变110就要那么多东西，这到150还要凸四次，鬼知道后面还要什么海量材料
+
+就这次实装 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就怕今年的150了，到了明年就打不过季限
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14932#       发表于 2021-2-2 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50214357&amp;ptid=1158205" target="_blank">areklose 发表于 2021-2-2 10:13</a>
+就怕今年的150了，到了明年就打不过季限</blockquote>
+不如想想你游还有啥新上限杂技
+
+多段技伤自动炮
+必ta追伤破限斩
+
+目前来说就这2个方向。
+奥义撞软上限太容易被针对了。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14933#       发表于 2021-2-2 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50214404&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-2-2 10:16</a>
+
+不如想想你游还有啥新上限杂技
+
+
+多段技伤自动炮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">老男人开先河了。来个天人个个都塞个能突破世界上限的奥义
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14934#       发表于 2021-2-2 10:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年活动开始超额给玉髓了，这种东西有点心理准备好
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14935#       发表于 2021-2-2 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50214357&amp;ptid=1158205" target="_blank">areklose 发表于 2021-2-2 10:13</a>
+
+就怕今年的150了，到了明年就打不过季限</blockquote>
+别说明年的季限了，150三妹能不能打过两年前的Mao还是个问题<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+150三妹想在打拳里取代Mao得解决启动的问题（必须得做到1键形态切换）还得有1回合的斩。如果还是靠奥义切换形态哪怕是给即奥还是一样被Mao吊打的货色。单人偷跑其实对DPS也不利。
+
+当然乐观一点的情况是150之后半输出半辅助在打拳队伍取代鸡，FA除非3技能之后不消耗体力了否则多半还是上不去。至于高难不说了，云不出怎么凸才能在高难有位置给她。
+
+3/8当年都是三金做出来的，8爷终终凸我倒不是很担心，3妹我谨慎不看好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14936#       发表于 2021-2-2 10:42
+
+
+
+
+想做强太简单了，真觉得运营不知道怎么叫强吗
+
+更多的时候运营只是想膈应你，例如这次12上修，这就是gbf<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14937#       发表于 2021-2-2 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">奶一下。我觉得150大家的四技能都变成第一回合都可以用
+
+
+
+
+
+
+
+-----
+
+####  Mitka  
+##### 14938#       发表于 2021-2-2 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50214713&amp;ptid=1158205" target="_blank">areklose 发表于 2021-2-2 10:44</a>
+奶一下。我觉得150大家的四技能都变成第一回合都可以用</blockquote>
+那火属性不是砍爆，估计没那么慷慨
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 14939#       发表于 2021-2-2 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">150我也觉得要吃玉髓
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 14940#       发表于 2021-2-3 01:39
+
+
+
+
+天人和玉髓设定上八竿子打不着，可能性还是不大。这次发玉髓还是加速整体贤者进度，为以后出贤者武器终突先布好阵
+
+恶心你的方法千千万，不可再生资源反而是最无所谓的素材，毕竟你不论有还是没有都不用挣扎，而且贵重素材都是被顶层玩家控制住，不符合fkhr喜欢打压老玩家的倾向
+
+110超限的素材已经算是众生平等，甚至中层玩家更有优势。我做过了极皮，属性记忆和星晶欠片基本是从零开始刷的，光团做2是真的要吐
+
+以后超限需要的素材我觉得是大量六龙巴布fs这些冷门本的掉落物、天星器碎片、角度**钻的还有可能小巴角、大公角、超巴票，甚至有可能同步推出新的周回本让大家处在同一起跑线
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14941#       发表于 2021-2-3 07:40
+
+
+
+
+我也觉得BB和CF素材后面是跑不掉的，就看是一个人50这种比较能接受的量还是一个人200个这种飞四字母马的量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  horacio  
+##### 14942#       发表于 2021-2-3 09:49
+
+
+
+
+我是觉得fs和bb的肯定不会有，做天人靠的是时间的积累，大量的材料让所有人只要想做都能做，不会用高难本去卡人的，就看他150需不需要重新刷十天器了，毕竟这个是最好的拖延手段
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 14943#       发表于 2021-2-3 10:14
+
+
+
+
+积累无所谓。但是能不能别搞200碎x10+120*10把朽武最后合计2w次星本这种远古玩法了，要玩也给个星本跳过或者多倍掉落。我当初刷天人终突前40碎+4000光龙鳞就感觉够头大了。
+
+这次还是简单粗暴嫌刷的不够多再加个0
+
+
+
+
+
+ 
