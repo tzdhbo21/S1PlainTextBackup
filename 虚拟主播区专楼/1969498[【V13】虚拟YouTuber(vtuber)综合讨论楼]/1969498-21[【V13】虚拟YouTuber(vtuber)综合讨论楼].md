@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 17:03** 
+> ## **本文件最后更新于2021-02-04 02:39** 
 
 
 
@@ -14622,6 +14622,25 @@ king这个最速千万目前有可能破的就是2天百万的死神新歌了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Hemis| + 1|你这楼估计也要被转了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14701,12 +14720,486 @@ king这个最速千万目前有可能破的就是2天百万的死神新歌了
 
 
 
- 本帖最后由 蒹葭公子 于 2021-2-4 01:01 编辑 
+ 本帖最后由 蒹葭公子 于 2021-2-4 01:05 编辑 
 
-哦，是来中国之前的棉花糖里讲的……
+哦，是来中国之前的棉花糖里讲的……而且直播里还真说了（虽然是开玩笑）要去找那个朋友，说明我的印象是对的。
+
+之前说云的是不是可以自己学罗永浩了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
 
 
 
-                        
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30759#       发表于 2021-2-4 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50215328&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-2 11:35</a>
+
+皇女都不在B播了 可不就只能云了</blockquote>
+[https://www.bilibili.com/video/BV1hE411R7Z4](https://www.bilibili.com/video/BV1hE411R7Z4)
+
+24:35
+
+打脸吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30760#       发表于 2021-2-4 01:08
+
+
+
+
+自己云的飞起还有脸说别人云，所以V综就这德行，也别瞧不起尼哥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 30761#       发表于 2021-2-4 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50232791&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-4 00:46</a>
+
+看OO毒唯被郡道气得找不着北真是发自内心地感到舒爽，对不起惹，郡道现在是名声不好人气低迷除了钱什么都没 ...</blockquote>
+能不能求说详细点，谁的毒唯在哪儿被气到了，我这人兴趣不广泛但看毒唯吃瘪是我一大爱好了<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30762#       发表于 2021-2-4 07:48
+
+
+
+ 本帖最后由 winda 于 2021-2-4 08:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50232907&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 01:07</a>
+https://www.bilibili.com/video/BV1hE411R7Z4
+
+24:35
+
+打脸吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是上海行前说的，和学中文哪来的关系。真会混淆视听，这就是元天狗的战斗力么，恐怖如斯。
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 30763#       发表于 2021-2-4 08:04
+
+
+
+
+金憨憨昨天是她犯花痴的魈池，大家期待已久，人气高正常。还正好有皇女预热
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30764#       发表于 2021-2-4 08:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50233119&amp;ptid=1969498" target="_blank">purdre 发表于 2021-2-4 01:57</a>
+能不能求说详细点，谁的毒唯在哪儿被气到了，我这人兴趣不广泛但看毒唯吃瘪是我一大爱好了 ...</blockquote>
+放长线钓大鱼，我相信以后（大概也就一两个月）会有更精彩的表演。（其实不止一个人，不知为何昨天都疯起来了）
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30765#       发表于 2021-2-4 08:17
+
+
+
+
+我一原神狗都不玩的人昨天都跟着看完了皇女和大小姐的原神直播，确实太有意思了，把很多圈外的人拉来看了也正常，昨天我看转播间的那个弹幕量密的都快看不清直播画面了真的蛮恐怖的，所以说这圈子还是小圈子啊，稍微破一点点圈就能带来这么多的流量
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30766#       发表于 2021-2-4 08:18
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-4 08:20 编辑 
+
+虽然但是莉泽不来b站和为了找到小时候的朋友有啥关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30767#       发表于 2021-2-4 09:06
+
+
+
+ 本帖最后由 caupollen 于 2021-2-4 09:09 编辑 
+
+上次皇女那个油管学中文。还会限学
+
+学语言这种节目一般是拉夫一下方便吸其他国粉丝的嘛。关注里真有日本战狼吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30768#       发表于 2021-2-4 09:16
+
+
+
+ 本帖最后由 蒹葭公子 于 2021-2-4 09:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50233626&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-4 07:48</a>
+
+这是上海行前说的，和学中文哪来的关系。真会混淆视听，这就是元天狗的战斗力么，恐怖如斯。 ...</blockquote>
+我就知道不是转进就是打滚了
+
+傻逼oo（成分待考）名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30769#       发表于 2021-2-4 09:25
+
+
+
+ 本帖最后由 poipanchao 于 2021-2-4 09:26 编辑 
+
+人家是豆腐…
+好好理理逻辑吧…一把年纪了，上个网连事儿都盘不清吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30770#       发表于 2021-2-4 09:29
+
+
+
+ 本帖最后由 蒹葭公子 于 2021-2-4 09:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234195&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-4 09:25</a>
+
+人家是豆腐…
+
+好好理理逻辑吧…一把年纪了，上个网连事儿都盘不清吗 ...</blockquote>
+是在跟我说话？是就引用ok？
+
+这么阴湿何必？
+
+至于盘不清，我倒是觉得上来说别人云的人挺盘不清的，不知道那时候你在哪？
+
+最后，我向来不审查成分，这傻逼非要先提成分那我只好随便猜一个骂骂咯？那你又是啥成分来帮腔嗯？
+
+PS：如你所愿成分改了可以吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30771#       发表于 2021-2-4 09:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234236&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 09:29</a>
+是在跟我说话？是就引用ok？
+
+这么阴湿何必？
+
+至于盘不清，我倒是觉得上来说别人云的人挺盘不清的，不知道 ...</blockquote>
+你说的太对了，好棒棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30772#       发表于 2021-2-4 09:35
+
+
+
+
+不要再骂豆腐了，winda早就不看点了，现在处于谁打apex他看谁的apex脑状态中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30773#       发表于 2021-2-4 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234280&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-4 09:34</a>
+
+你说的太对了，好棒棒</blockquote>
+阴阳怪气的弱智
+
+拉黑不送
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30774#       发表于 2021-2-4 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234286&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-2-4 09:35</a>
+
+不要再骂豆腐了，winda早就不看点了，现在处于谁打apex他看谁的apex脑状态中
+
+
+ -- 傲娇地来自 Stage ...</blockquote>
+那你告诉我他是啥成分我我再编辑一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30775#       发表于 2021-2-4 09:37
+
+
+
+
+lize这原神档都有龙烤全熟了，播放量还不低
+真就财富密码了
+可惜原神真的没啥欲望玩啊
+主要是傻逼日厂做出来的涩情3d游戏还真不如mhy的
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30776#       发表于 2021-2-4 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234113&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 09:16</a>
+我就知道不是转进就是打滚了
+
+傻逼oo（成分待考）名不虚传</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是好滚，去上海=学中文，那皇女是不是又会限去上海了呀
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30777#       发表于 2021-2-4 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234647&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-4 10:10</a>
+
+真是好滚，去上海=学中文，那皇女是不是又会限去上海了呀</blockquote>
+你不如先把云不云的事解释清楚再来打滚吧傻逼？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30778#       发表于 2021-2-4 10:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/04/101147nvc6q8vnwzhwvzwm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210204101009.jpg</strong> (16.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 10:11 上传
+
+
+
+
+
+
+
+已经可以不用再努力了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30779#       发表于 2021-2-4 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234663&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 10:12</a>
+你不如先把云不云的事解释清楚再来打滚吧傻逼？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底谁在云先搞清楚逻辑大师，沾点cn相关就能全打包到一起，抓个救命稻草还挺努力自救洗回去呢是吧。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30780#       发表于 2021-2-4 10:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 怎么都记得lize有个冲国朋友的事情，为什么没人记得月丿美兔迪士尼事件？
+
+
+月丿连冲国元素都要被次期天皇剥夺了吗？
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30781#       发表于 2021-2-4 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234700&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-4 10:14</a>
+
+到底谁在云先搞清楚逻辑大师，沾点cn相关就能全打包到一起，抓个救命稻草还挺努力自救呢。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说我黑屁皇女还可以辩辨，自己云了之后开始打滚“你没正确复述主播的话所以你云了”真把老子逗笑了。
+
+你少嘴硬学我开始说一句记错了会死吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 30782#       发表于 2021-2-4 10:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">一来就看到2K在拉shi，一个上午都不好了
+
+
+
+
+
+                       
