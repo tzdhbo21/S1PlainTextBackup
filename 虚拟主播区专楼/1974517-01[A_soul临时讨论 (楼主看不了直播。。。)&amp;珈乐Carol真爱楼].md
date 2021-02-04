@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-31 17:12** 
+> ## **本文件最后更新于2021-02-04 15:41** 
 
 
 
@@ -2150,7 +2150,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_QVAlz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Jm6MO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -13353,7 +13353,7 @@ late to the party
 
  本帖最后由 浇砼结衣 于 2021-1-11 04:27 编辑 
 
-<img src="http://border=0" id="aimg_gukJx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
+<img src="http://border=0" id="aimg_hhkI4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
 
 
 
@@ -16490,4 +16490,537 @@ as除了珈乐没看过，其他我都好喜欢啊，这就是专业偶像的实
 
 
 
-                     
+
+
+-----
+
+####  Hchan  
+##### 845#       发表于 2021-2-1 11:23
+
+
+
+
+好喜欢乃琳和贝拉互动时那种年下小恶魔的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">啊啊我太吃年下攻这套了，比起知心姐姐果然还是爱捉弄人的妹妹更戳我
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 846#       发表于 2021-2-1 13:08
+
+
+
+
+出道2.0怎么还被删了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我还没看够呢
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 847#       发表于 2021-2-2 02:04
+
+
+
+
+应该火星了
+我才意识到五个人首字母是 abcde
+那接下来加人也好定规律啊
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 848#       发表于 2021-2-2 08:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50212682&amp;ptid=1974517" target="_blank">poipanchao 发表于 2021-2-2 02:04</a>
+应该火星了
+我才意识到五个人首字母是 abcde
+那接下来加人也好定规律啊</blockquote>
+然而以f开头的女性英文名我想了半天只能想到Fiona<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  goudante  
+##### 849#       发表于 2021-2-2 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50213280&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-2 08:18</a>
+
+然而以f开头的女性英文名我想了半天只能想到Fiona</blockquote>
+我还能想到Faye，Faye Valentine<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 850#       发表于 2021-2-2 09:23
+
+
+
+
+都是文化人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浇砼结衣  
+##### 851#       发表于 2021-2-2 09:30
+
+
+
+
+二期生都安排上了？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 852#       发表于 2021-2-2 13:51
+
+
+
+
+晚上，我在哔哩哔哩点开了我最爱看的vup a-soul。贝拉队长的身材太嗯了，我的🐮🐮要炸了！啊！受不了!我赶快关上了她的视频，去点向晚，她的吃鸡游戏环节还是那么有趣，怀着急切的心情去弹幕发了“不拉不看👋”，看完我就去看我daisuki的嘉然，看到她娇小纤弱的身躯，我不禁掉下眼泪！啊！你们真的懂被铁棍打的痛吗？唉，太难过了😭😭，此时我又看到了我sikisiki带siki的乃林，我赶紧发了一条“我也是奶淇淋啊”就在我点开了评论区就看到了对乃林的恶语相向！我顿时火冒三丈😡，回复了他一句“看不惯别看！”然后拉黑了他，呦西！瓦大喜真是太聪明了🤗！哈哈！今天又是乐子人的一天！
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 853#       发表于 2021-2-2 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50216742&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-2 13:51</a>
+
+晚上，我在哔哩哔哩点开了我最爱看的vup a-soul。贝拉队长的身材太嗯了，我的🐮🐮要炸了！啊！受不了!我赶 ...</blockquote>
+怎么什么论坛上都能看到这个定型文，谁是原创
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 854#       发表于 2021-2-2 14:23
+
+
+
+
+这是什么定型文？怎么看起来YYGQ
+的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 855#       发表于 2021-2-2 14:33
+
+
+
+
+原典是这东西吧。楼上发出来的版本一眼就是v8来的
+
+
+
+
+
+
+c203cb8065380cd75dba83a4b644ad3458828154.jpg
+(97.95 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2021-2-2 14:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/02/143240p4d45dfsftgwxfsc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 856#       发表于 2021-2-2 18:42
+
+
+
+
+QA来了，工具人居然不在一个魂群里，五人高强度黑屁工具人可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 857#       发表于 2021-2-2 19:05
+
+
+
+
+看不到珈乐直播好难受
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 858#       发表于 2021-2-2 20:09
+
+
+
+
+等QA的时间全在豆瓣看乐子。看了下周的直播计划感到很担心<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 859#       发表于 2021-2-2 21:31
+
+
+
+
+
+看不到贝拉直播好难受
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 860#       发表于 2021-2-3 12:07
+
+
+
+
+周三啥都没有好难受<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 861#       发表于 2021-2-3 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50225400&amp;ptid=1974517" target="_blank">qw945 发表于 2021-2-3 12:07</a>
+
+周三啥都没有好难受
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+可以去私信里面发病<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShiinaYuki  
+##### 862#       发表于 2021-2-3 14:06
+
+
+
+<img src="https://p.sda1.dev/1/7ce924406c91f020cd67075ae171c5d9/IMG_CMP_193634250.jpeg" referrerpolicy="no-referrer">卧槽！晚！
+原作者bid:Yy星人-https://space.bilibili.com/1997381
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 863#       发表于 2021-2-3 15:02
+
+
+
+
+没有asoul直播看好难受
+
+—— 来自 HUAWEI COR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 864#       发表于 2021-2-3 19:15
+
+
+
+
+asoul微博活了。转了官号上的视频
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 865#       发表于 2021-2-3 19:25
+
+
+
+
+恭喜杭州辰先生<img src="https://static.saraba1st.com/image/smiley/carton2017/293.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 866#       发表于 2021-2-3 22:09
+
+
+
+
+辰先生赢麻了，收到了然然亲笔贺卡，那个视频还真在自己婚礼上放了，太强了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 867#       发表于 2021-2-3 23:04
+
+
+
+
+然然求求你快直播吧😭我在床上哭了四个小时😭崩溃了16次😭撞了134次墙😭划了397次手臂😭幻觉出现两次😭幻听出现三次😭扇了自己79个巴掌😭出现濒死感一次😭刚才昏过去了现在才醒来看到外面天都黑了我顿时又崩溃了😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 868#       发表于 2021-2-3 23:30
+
+
+
+
+特大喜讯！明天就有直播啦！
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 869#       发表于 2021-2-4 20:05
+
+
+
+
+坏了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 870#       发表于 2021-2-4 20:39
+
+
+
+
+贝拉跳完了。我病全好了，帧数上来了，坏女人变好女人了。
+
+没见过这么真的人
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 871#       发表于 2021-2-4 22:37
+
+
+
+
+贝拉乃琳对我没有加成，不过两人营业挺努力的，天道酬勤吧。
+
+舞蹈教室环节没有互动的部分不好看。节奏大多是乃琳在带，如果是rp的话只能说贝拉真是太pro了。
+
+我在喜欢的舞蹈环节被设备事故毁了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+最后wb水军不管是谁买的能不能入土啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 872#       发表于 2021-2-4 22:46
+
+
+
+
+虽然整场看下来毛病不少，不过贝拉每次直播两个小时都能涨千粉，说明还是很吸路人的，团里面其他人暂时还没有到贝拉这个直播涨粉的速度。
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 873#       发表于 2021-2-4 22:53
+
+
+
+
+嘉然直播涨粉也挺多
+
+—— 来自 HUAWEI COR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                    

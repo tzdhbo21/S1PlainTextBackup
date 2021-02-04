@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 14:40** 
+> ## **本文件最后更新于2021-02-04 15:39** 
 
 
 
@@ -15248,4 +15248,546 @@ nmd整的我打游戏也一上一下的<img src="https://static.saraba1st.com/im
 
 
 
-                    
+
+
+-----
+
+####  Dualist彩  
+##### 8375#       发表于 2021-2-3 22:43
+
+
+
+
+坦又赢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 8376#       发表于 2021-2-3 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">坦总赢
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 8377#       发表于 2021-2-3 22:47
+
+
+
+
+认真唱歌了，感动啊
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8378#       发表于 2021-2-3 22:51
+
+
+
+
+rolling girl啊，貌似是第一次唱？
+
+不行，现在一听这个就想到BNKRG姐贵了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8379#       发表于 2021-2-3 22:53
+
+
+
+
+认真唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8380#       发表于 2021-2-3 22:53
+
+
+
+
+麻音都出来了，听得我好爽
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 8381#       发表于 2021-2-3 23:00
+
+
+
+
+拜托了肌肉太草了，记得19年十一假期某次直播唱过
+
+然后19年年末我跑步都是单曲循环这首的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8382#       发表于 2021-2-3 23:08
+
+
+
+
+“东京2月4日mashiro和koyori要联动了，要去看”
+
+“诶？为什么比跟我更先联动？”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8383#       发表于 2021-2-3 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">人家小绿和九条早就互关了，你麻ssmddx？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8384#       发表于 2021-2-3 23:32
+
+
+
+
+haha，mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 8385#       发表于 2021-2-3 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50231587&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-3 22:38</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这种所谓的减肥器材应该是智商税吧...
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 8386#       发表于 2021-2-3 23:44
+
+
+
+
+今晚做梦大概会有一只羊癫疯的羊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  czkt615477  
+##### 8387#       发表于 2021-2-3 23:44
+
+
+
+
+这是男友的任务吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8388#       发表于 2021-2-3 23:46
+
+
+
+ 本帖最后由 thisisaspider 于 2021-2-3 23:49 编辑 
+
+mea智商税要收收入的五成吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl,mea不是青梅位，是天降位上司位。期待一手黄毛剧情（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+1个月后
+
+mea:mashiro我们来线下联动吧
+
+mashiro:唉，好啊
+
+当天回来
+
+mashiro:Koyori酱，mea酱的手法很H啊，我已经离不开mea酱了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8389#       发表于 2021-2-4 00:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 8390#       发表于 2021-2-4 00:44
+
+
+
+
+今天是2月油管第一播 提了下新人 新人很可爱 问很多问题 但是也不会像两个小弟一样让人不耐烦 然后说到买了健身器材 即踩在上面会摇晃的机器 号称能减脂（实质不能 智商税）感觉还蛮有用的 评论让直播玩玩看 就放在手边想着直播完睡觉前锻炼下的 就拿出来玩 震的话都说不清了 然后直播边玩边唱歌 唱了三首 每首都很震撼（物理） 玩完给大家推销 真的很有用哦）感觉肚子上的肉很痛 全身都痛 不过大叔们用的话可能会震的晕头转向 我这样的少女正好） 本来是想着这么玩会有色色的感觉的 没想到过头了 更像是搞笑艺人的感觉了 不过用了之后感觉姿势？更好了 气息都更好了 
+
+正常唱完几首后提起明天如月和新人联动 好快啊 自己都还没联动 为什么呢 啊自己是大头头的意思是吧 如月是手下 noe的话是ssr啊 出现率0.001% 
+
+2月12号？左右是春节来着 会连着三天来b播 打游戏 因为是特殊的假期会和平常不一样播3 4小时左右 反正大家都是假期嘛 回家里吃了睡睡了吃和自己一样的 而且中国也有的地方不方便出去吧 正好陪着大家 虽然也有方便出去的不过总有不方便的嘛 毕竟这么大 边震边打LOL吗？ww屏幕都看不清了要 
+
+哼echo 别看我哼成这样 我可是在live里唱过两回了 
+
+说起来想去音声训练 网上也有？想去线下学 有这种想法 当然只是想法 不去 感觉很麻烦 但是身边好多人都去了 neru酱和犬山都去了 好像有变得更好的样子 就也想去 回来之后唱的好了被大家夸了承认欲求就能被满足了啊  倒也可以试试假装去了音声训练 唱歌的时候换一种唱法 然后说自己去音声锻炼了 大家也会说自己唱的变得很厉害了吧） 唱完lion之后 觉得自己现在很精神 晚上才醒的 7点左右吧 今天早上睡的 然后问有没有从lion才开始听的人 说自己其实去音声训练过了 问是不是唱的很厉害 实际上自己一个月之前就去音声训练了呢 很勤勉 然后直播演示音声训练（指健身器材）同样非常震撼（物理）
+
+然后展示了光速画出来的fanart 并且点评 坐在上面的这个比较符合实际 站着的一开始是这样的 但是坚持不了30秒 根本唱不了 而且给大家推荐坐的时候坐半边就好 全坐上去也不好唱 感觉自己的腹部被好好的锻炼了一番 
+
+唐突给大家展示了下人力mea 自己录着玩的 感觉很有意思 评论提议整一个自动mea) 第一次用那个机器的时候感觉内脏都在摇 多试了几次就习惯了 就只有肉的感觉了
+
+因为刚刚摇了之后刺激了膀胱变得想去厕所了 去厕所干嘛？当然是尿尿啊！虽然一个人唱着很辛苦 不过想听加百利堕落踢？哈？我当然能唱啊 突然嘲讽啥意思 唱就唱（然后唱完;累得不行）感觉今晚能睡的很好了 本来还好的 刚才的加百利堕落踢成了致命伤 
+
+之后觉得机器很碍事扔一边了 之后再收拾 
+
+念sc的时候念到财酱 最近好经常看到你不会工作没了吧 ww最近不是说好多人工作没了很担心大家啊 那时候保障金也会打过来吗 所以我放弃了工作~
+
+最后 阿丢了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+| シルフィエット| + 1|“摇了之后刺激了膀胱”|
+| 黒長直姫| + 2||
+| llconforever| + 1|好评加鹅|
+| A2014720| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 8391#       发表于 2021-2-4 00:48
+
+
+
+
+咩箱新人真可爱啊
+
+声音可爱，这种聊了好多复读好多全程没啥内容的虚无感也可爱，决定一个问候语就能边聊边傻笑那么长时间
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8392#       发表于 2021-2-4 00:59
+
+
+
+
+瓜娃子天天交智商税<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8393#       发表于 2021-2-4 07:37
+
+
+
+
+好TC
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8394#       发表于 2021-2-4 07:37
+
+
+
+
+TC播了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8395#       发表于 2021-2-4 07:43
+
+
+
+
+早起的狼有羊吃
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8396#       发表于 2021-2-4 10:30
+
+
+
+
+昨天她自己都笑成那样，以后和男人运动的时候真的不会突然笑出来么？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8397#       发表于 2021-2-4 11:08
+
+
+
+
+不知不觉勃了3个半小时了，下月继续生理不调预定力（悲
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8398#       发表于 2021-2-4 11:20
+
+
+
+ 本帖最后由 甘栗No.007 于 2021-2-4 11:30 编辑 
+
+题目：两位要好朋友之间吵架的原因什么？
+
+“肯定是男人”
+
+什么v什么粉，脑回路如此相似<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8399#       发表于 2021-2-4 19:29
+
+
+
+
+在你楼仅仅存在一天的女人，组内联动在你楼么得讨论度，楼友太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 8400#       发表于 2021-2-4 20:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我记得有神乐组楼来着
+个人角度上来讲我一直觉得小绿真的色
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 8401#       发表于 2021-2-4 23:30
+
+
+
+
+20210205东京0点
+
+<img src="https://img.saraba1st.com/forum/202102/04/233015fzpgk99b3b1qs81g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>18A178CA-B67A-4738-AC52-36818A167FE7.jpeg</strong> (194.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 23:30 上传
+
+
+
+
+
+
+
+
+
+
+                   

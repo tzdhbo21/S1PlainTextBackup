@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-04 02:39** 
+> ## **本文件最后更新于2021-02-04 15:38** 
 
 
 
@@ -15165,6 +15165,25 @@ lize这原神档都有龙烤全熟了，播放量还不低
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|拉屎|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15202,4 +15221,771 @@ lize这原神档都有龙烤全熟了，播放量还不低
 
 
 
-                       
+
+
+-----
+
+####  划水的B612  
+##### 30783#       发表于 2021-2-4 10:42
+
+
+
+
+原来在V综还能有小孩子级别的吵架吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30784#       发表于 2021-2-4 10:45
+
+
+
+
+不一直都有吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30785#       发表于 2021-2-4 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50234728&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 10:18</a>
+你说我黑屁皇女还可以辩辨，自己云了之后开始打滚“你没正确复述主播的话所以你云了”真把老子逗笑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便拿两内容拼一起错得这么离谱还不叫云，美其名曰记错了。然后还要用错误的内容来证明我云。元天狗战斗力实强。
+我寻思这剪辑也不冷门啊。
+https://b23.tv/2V303y
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30786#       发表于 2021-2-4 11:04
+
+
+
+ 本帖最后由 蒹葭公子 于 2021-2-4 11:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235070&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-4 10:47</a>
+
+随便拿两内容拼一起错得这么离谱还不叫云，美其名曰记错了。然后还要用错误的内容来证明我云。元 ...</blockquote>
+原来皇女说的话是古兰经一字都不能改的，我寻思虹人也没这么大官威啊？你这id我也有印象，从来撒播打滚避重就轻不说人话著称，傻x不知道什么成分的人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我还就跟你说，我原先也以为是记错了，看到你这傻逼ID就知道不对，回去一查发现果然没记错，云你妈云呢？
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30787#       发表于 2021-2-4 11:08
+
+
+
+ 本帖最后由 蒹葭公子 于 2021-2-4 11:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235046&amp;ptid=1969498" target="_blank">FCCHua 发表于 2021-2-4 10:45</a>
+
+不一直都有吗</blockquote>
+一个傻逼在前面打滚，一群傻逼不敢引用在后面摇旗呐喊，我寻思不知道什么成分的群体要不要这么阴湿？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30788#       发表于 2021-2-4 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235280&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 11:04</a>
+原来皇女说的话是古兰经一字都不能改的，我寻思虹人也没这么大官威啊？你这id我也有印象，从来撒播打滚避 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话不错，下次口胡传谣能当模板套了。
+另外咬文嚼字的语言学大师现在进步到新境界了啊，刮目相看。
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 30789#       发表于 2021-2-4 11:14
+
+
+
+
+2k拉屎已经没人围观了 v综乙烷
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30790#       发表于 2021-2-4 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235379&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-4 11:12</a>
+
+这话不错，下次口胡传谣能当模板套了。
+
+另外咬文嚼字的语言学大师现在进步到新境界了啊，刮目相看 ...</blockquote>
+传谣，我笑了，V综那不就是造谣大本营？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后黑屁，搬运，脑洞建议都举报哦，毕竟是造谣呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 30791#       发表于 2021-2-4 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235379&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-4 11:12</a>
+
+这话不错，下次口胡传谣能当模板套了。
+
+另外咬文嚼字的语言学大师现在进步到新境界了啊，刮目相看 ...</blockquote>
+没词说你就继续打滚，我看你还能滚多少圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30792#       发表于 2021-2-4 11:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 先说好阿，月之魔都迪士尼时间是她亲口说的，出租车司机说话大声也是她说的，
+
+
+这不算造谣
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|屎也是你亲自拉的吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30793#       发表于 2021-2-4 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而楼友只关心拉屎小孩是谁
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30794#       发表于 2021-2-4 12:14
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-4 12:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235323&amp;ptid=1969498" target="_blank">蒹葭公子 发表于 2021-2-4 11:08</a>
+一个傻逼在前面打滚，一群傻逼不敢引用在后面摇旗呐喊，我寻思不知道什么成分的群体要不要这么阴湿？ ...</blockquote>
+啊这，我也没特指你啊，v综小孩子级别吵架难道不是经常的事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30795#       发表于 2021-2-4 13:56
+
+
+
+
+v综怎么又是造谣大本营了，黑屁和造谣也分不清吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30796#       发表于 2021-2-4 14:05
+
+
+
+
+说起造谣还是得看b综，又有真实性又不基德，关键还有人真信了出去传播、冲人
+
+v综这方面真不行，我想来想去也就2k是那个拉屎的传出去了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30797#       发表于 2021-2-4 14:51
+
+
+
+
+这几天V综是准备倒退回一两年前找KPI密码是吧
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 30798#       发表于 2021-2-4 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">v综楼友终于造出了时光机，回到旧时代
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30799#       发表于 2021-2-4 15:05
+
+
+
+
+v综只能翻点烂芝麻冲冲kpi
+
+看看隔壁漫区，皇帝带头冲锋给大家整活，高下立判<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30800#       发表于 2021-2-4 15:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 一看新楼层数兴冲冲跑来  失望而回
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30801#       发表于 2021-2-4 17:01
+
+
+
+
+郡道现在人气低迷也没法炎上给大家助助兴啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，
+待会可能要玩会悠星新手游，又是新游戏，这几天郡道是真的被训了吧（喜悦）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30802#       发表于 2021-2-4 17:18
+
+
+
+
+这个图怎么还没人发？
+<img src="https://p.sda1.dev/1/44286a9cf23e79226ac891c396f9b84e/142025l676c6oxgu937z9c.png.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30803#       发表于 2021-2-4 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两天最大的乐子不是泥哥们连续开了锁，锁了开三贴要乐元素封杀你呆旗下fh主播星街彗星么，怎么v综一点动静都没。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 30804#       发表于 2021-2-4 18:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/04/183131s7io7b68v18shkzm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>181231qz416uqucuo8bf6t.jpg</strong> (164.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 18:31 上传
+
+
+
+
+
+
+这个图太恶意了，为什么不放最高单回同接或者单回sc的图？那才是证明一个箱上限的因素好吧！
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30805#       发表于 2021-2-4 19:10
+
+
+
+ 本帖最后由 JoelBirch 于 2021-2-4 19:19 编辑 
+
+还是月综比较和谐一点，月灵姐姐今天应该是正儿八经用批站看了视频，似乎很开心，有点快进内意思了，请务必加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+syl，注意到今天批站仓鼠那条动态10min前还在回复下面评论，好啊，好啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 30806#       发表于 2021-2-4 19:14
+
+
+
+
+还是不重视啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">播放完全没有被引流的迹象
+
+叔叔给力点啊，白捞一个足够上拜年祭或者跨年的声音素质不亏的啊来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 30807#       发表于 2021-2-4 21:00
+
+
+
+
+这个饼月是啥来头
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 30808#       发表于 2021-2-4 21:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久不来winda变成虹人了么？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 30809#       发表于 2021-2-4 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天金憨憨用3D对着魈花痴属实好玩
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 30810#       发表于 2021-2-4 21:22
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-2-4 21:25 编辑 
+
+《辣死他dance》
+
+所以暂时将你眼睛闭了起来
+
+白翼之中带着一丝无奈
+
+晃动模型映着屏幕的黑白
+
+让人拍手称快
+
+你总是带着节奏往敌人那里拐
+
+一镜到底风格自成一派
+
+amongus杀人，如此的帅
+
+键盘不停的拍
+
+
+你炒的菜      我吃的嗨
+
+人群里是一枪头  善良的冷面杀手
+
+无情暴露掏空队友铁血付筹
+
+你是天菜   美团外卖   
+
+深深的套牢了我  让我在信你一波
+
+nene带躺下播之前 左边拉满
+
+请刘欢
+
+梦就在
+
+天地之间还有真爱
+
+人生豪迈
+
+不过是再开一盘
+
+
+躺胜变险胜变对面胜搞人心态
+
+狼赢暴民也赢明不明白
+
+嘴笨脑慢心软手辣送的很快
+
+（nene：）你我古德拜
+
+
+你炒的菜   嘿民的爱
+
+狗狗也不是对手，你就是辣味お嬢
+
+大厅杀人毫不犹豫不愧是你
+
+你是阿菜   美天外卖
+
+人狼上掉过的分 同事前丢过的人
+
+做成集锦
+
+配着米饭再来一盆
+
+差点撑死人！
+
+
+请刘欢
+
+梦就在
+
+天地之间还有真爱
+
+人生豪迈
+
+不过是再开一盘
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30811#       发表于 2021-2-4 21:33
+
+
+
+
+尾宝这怎么了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 30812#       发表于 2021-2-4 21:33
+
+
+
+
+被TYBF菜到了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 30813#       发表于 2021-2-4 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50240882&amp;ptid=1969498" target="_blank">asdhai 发表于 2021-2-4 21:33</a>
+
+尾宝这怎么了</blockquote>
+我跟鱼克拉一个意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，被菜哭了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30814#       发表于 2021-2-4 21:41
+
+
+
+
+饼月有这么多人看，造梗还是挺重要的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30815#       发表于 2021-2-4 21:58
+
+
+
+[https://live.bilibili.com/22759492](https://live.bilibili.com/22759492)
+
+mkt姐贵10点b限
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30816#       发表于 2021-2-4 22:06
+
+
+
+
+露皇：关于如龙系列的直播许可，0和极的最终章禁播，7无限制<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30817#       发表于 2021-2-4 22:12
+
+
+
+
+yostar今天开的手游蓝色档案（上午炸服了），郡道现在就在播，不是很清楚设定，但里面的没基本上都称呼主人公为老师，而且露出度很高（郡道基本上看到个人都说色），各种意义都是郡道向游戏嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30818#       发表于 2021-2-4 22:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/04/223308ly8vz0zezviyeyh5.png" referrerpolicy="no-referrer">
+
+
+<strong>E8CQSTSELE~U$)MV6XCPM{A.png</strong> (13.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 22:33 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30819#       发表于 2021-2-4 22:40
+
+
+
+
+郡看了手游那个美丽op：“额，莫非我在雀魂氪的金跑到这里来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">？”（郡道一直很怨念她最爱男人齐藤一件新衣服都无）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30820#       发表于 2021-2-4 23:19
+
+
+
+
+mkt姐贵别嚎了别嚎了
+
+
+
+
+
+                      
