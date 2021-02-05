@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-01 04:49** 
+> ## **本文件最后更新于2021-02-05 11:30** 
 
 
 
@@ -6369,4 +6369,633 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 
 
 
-                                      
+
+
+-----
+
+####  yth329  
+##### 54332#       发表于 2021-2-1 13:16
+
+
+
+
+最大的不稳定因素是大妈啊，身上还有变性格的谜团没解开，说不好到时就是大妈反水围攻凯多了，那这样肯定够
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 54333#       发表于 2021-2-1 13:49
+
+
+
+
+不是有分析说九侠是指九个超新星？还会有增援吧
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54334#       发表于 2021-2-2 09:06
+
+
+
+
+啊，是御殿的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+赶到楼顶的小玉，喂凯多吃丸子让他变成忠犬，凯多一雷鸣八卦砸大妈头，大妈变回小玉的好朋友，从此双皇之上的皇上皇诞生了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Vega2017| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54335#       发表于 2021-2-2 20:23
+
+
+
+
+情报出了
+索吹过年<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54336#       发表于 2021-2-2 20:34
+
+
+
+
+这都什么时候了，四档还有副作用啊
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54337#       发表于 2021-2-2 21:06
+
+
+
+
+那之前打6子变4档怎么没脱力？难道是提前关4档没副作用？
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54338#       发表于 2021-2-2 21:10
+
+
+
+
+索隆多次救下路飞，不愧是亲儿子
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 54339#       发表于 2021-2-2 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50206837&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-2-1 13:49</a>
+
+不是有分析说九侠是指九个超新星？还会有增援吧</blockquote>
+现在顶上五个，下面恐龙阿普正干架，稻草人不知道哪儿摸鱼，再来个和凯多打过照面的怪僧就够数了（
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54340#       发表于 2021-2-2 22:30
+
+
+
+
+老套路了，总因各种原因中场休息，让其他人打消耗，等他们被揍得差不过多后回满状态收割比赛
+
+不过现在又不跟以前一样只有一个BOSS，还都是四皇级的，这才刚开场打两话就泄气了，不知道尾田图啥，「帮我撑10秒」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 54341#       发表于 2021-2-2 23:05
+
+
+
+
+喷了，五皇正值巅峰，进攻刷分，防守划水，怎么当罗杰之后公认第二人？
+
+
+水龙蝉呗两次帮五皇挡刀，第二次还顺便砍了凯多龙形态一刀（有伤，但你懂的，依然刮痧），<strong>凯多认出了是御田的刀</strong>，闹了半天还是吹御田，没有人家的大宝剑刮痧都没戏<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+估计再下一话索隆没力气了就被秒了XD 反正我是觉得索隆应该换秋水，毕竟当初龙马把这刀托付给索隆了（换了也是刮痧XD）
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 54342#       发表于 2021-2-3 03:59
+
+
+
+
+凯多果实名：鱼鱼果实幻兽种青龙形态
+
+
+
+
+
+
+
+-----
+
+####  垃垃藻  
+##### 54343#       发表于 2021-2-3 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50221396&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2021-02-02 23:05:07</a>
+喷了，五皇正值巅峰，进攻刷分，防守划水，怎么当罗杰之后公认第二人？
+
+
+水龙蝉呗两次帮五皇挡刀，第二次还 ...</blockquote>龙马当年就是拿秋水屠的龙，说不定还有buff呢<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  暗影翔  
+##### 54344#       发表于 2021-2-3 10:28
+
+
+
+
+五皇只有第一击把凯多揍地下那次招式名换了，画面也是明显不一样，肯定有流樱加持，后面几个招式还跟原来类似吧，可能没有流樱加持，或者用完了要恢复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+吹御田没问题，毕竟和之国乃至整个op都是为了吹御田而生的，可是前面辣么nb的一个人，怎么智商辣么低活活没煮死还被枪打死了，太跌份儿了，简直是差劲反派的死法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 54345#       发表于 2021-2-3 12:21
+
+
+
+
+真的很怀念这个时期的画风
+
+
+
+
+
+
+9825bc315c6034a813e6ccadc513495409237691.png
+(159.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-3 12:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/03/122133j5b52ds5rte0es5o.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 54346#       发表于 2021-2-3 15:25
+
+
+
+
+五皇轮休 皇副单独带队<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 54347#       发表于 2021-2-4 09:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">索隆：搞笑要我来，装逼要我来，耍帅要我来，现在打BOSS也要我来，草帽团全靠我凯瑞
+
+
+
+
+
+
+
+-----
+
+####  X(iaolw)S  
+##### 54348#       发表于 2021-2-4 11:26
+
+
+
+
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/04/112603f6lcvxji6v6vcp8y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>500fd9f9d72a6059e6e6dbaaa865ca9c023bba61.jpg</strong> (40.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 11:26 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54349#       发表于 2021-2-4 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235493&amp;ptid=98922" target="_blank">X(iaolw)S 发表于 2021-2-4 11:26</a>
+
+原来如此</blockquote>
+配色也和暴鲤龙一样，尾田宝可梦老粉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202102/04/133241n7gc712b72bazwg1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2344rt43t3.jpg</strong> (54.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 13:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 54350#       发表于 2021-2-4 13:40
+
+
+
+
+保皇是CP0的卧底吗？
+
+
+
+
+
+
+
+-----
+
+####  FBIwarning  
+##### 54351#       发表于 2021-2-4 14:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/04/143516smhbt78tbjbj84um.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1612418922627s.jpg</strong> (8.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-4 14:35 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54352#       发表于 2021-2-4 15:22
+
+
+
+
+cp0那段感觉无关紧要，怎么尾田还有空去画cp0
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 54353#       发表于 2021-2-4 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是，你们三船长才打了几下就气喘吁吁了？一个个都肾亏了吗？
+
+被你们打的凯多都还没什么反应呢<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 54354#       发表于 2021-2-4 16:10
+
+
+
+
+cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔡卓妍  
+##### 54355#       发表于 2021-2-5 01:43
+
+
+
+
+当boss买了锁血外挂
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 54356#       发表于 2021-2-5 11:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235493&amp;ptid=98922" target="_blank">X(iaolw)S 发表于 2021-2-4 11:26</a>
+
+原来如此</blockquote>
+我自己玩PM的改版ROM，都喜欢把暴鲤龙属性改为水+龙<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nuriko  
+##### 54357#       发表于 2021-2-5 14:10
+
+
+
+
+好久没来了
+
+得来吐槽一句
+
+新世界一篇比一篇shi，和之国真的各方面都shi到家
+
+尾田就拼命的想输出文化，大张旗鼓把两个皇都丢都这里，真的是！！……画蛇添足！弄巧成拙！适得其反！
+
+
+
+
+
+
+另外想问问网上看到“海贼王原版动画”究竟是什么<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luoyianwu  
+##### 54358#       发表于 2021-2-5 14:19
+
+
+
+
+一会刮痧一会吐血，到底是怎么样嘛。
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54359#       发表于 2021-2-5 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50247135&amp;ptid=98922" target="_blank">luoyianwu 发表于 2021-2-5 14:19</a>
+
+一会刮痧一会吐血，到底是怎么样嘛。</blockquote>
+说明刮痧是刮痧，吐血是吐血，可能是咬到舌头了。
+
+
+
+
+
+
+
+-----
+
+####  Renes  
+##### 54360#       发表于 2021-2-5 18:43
+
+
+
+
+太**了，2201年了，都打四皇了，四档还有弱点，路飞还是这么弟弟。结果就是无脑吹御田和他的刀。
+
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 54361#       发表于 2021-2-5 19:21
+
+
+
+
+现在看见御田两字就想<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 54362#       发表于 2021-2-5 19:22
+
+
+
+
+一把御田刀可斩凯多，再借一把连大妈一起斩<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
