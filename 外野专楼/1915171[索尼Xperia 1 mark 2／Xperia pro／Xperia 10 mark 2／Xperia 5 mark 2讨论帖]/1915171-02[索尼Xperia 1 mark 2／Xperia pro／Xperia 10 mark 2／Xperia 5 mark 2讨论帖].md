@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-31 09:44** 
+> ## **本文件最后更新于2021-02-05 22:35** 
 
 
 
@@ -1252,7 +1252,16 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ####  tsounaiq  
 ##### 1556#       发表于 2020-10-19 11:56
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+大法淮海路店的销售说5.2不支持移动5G，是反贼吧
+
+— from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
+
+
+
+
 
 
 
@@ -1283,7 +1292,21 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ####  tsounaiq  
 ##### 1558#       发表于 2020-10-19 13:29
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49087777&amp;ptid=1915171" target="_blank">asakura20005 发表于 2020-10-19 12:26</a>
+
+貌似5m2目前只支持联通，电信nsa，不支持三网sa，以后会通过ota推送
+
+
+—— 来自 OnePlus IN2020, Android ...</blockquote>
+我看zack的回复
+
+Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持一个移动 NSA 5G，移动 SA 5G 及另外两家 5G 都可以正常使用。
+
+
+
+
 
 
 
@@ -1862,7 +1885,16 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ####  tsounaiq  
 ##### 1585#       发表于 2020-10-20 10:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49098391&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-20 09:38</a>
+
+店里的机模是塑料背壳，实机是玻璃的哦</blockquote>
+？？？磨砂黑背板是玻璃？不是金属吗
+
+
+
+
 
 
 
@@ -8159,7 +8191,20 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ####  tsounaiq  
 ##### 1894#       发表于 2020-11-8 20:03
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49321839&amp;ptid=1915171" target="_blank">happyliuhao 发表于 2020-11-8 17:29</a>
+试了试好像华为的充电器没法给52充电？
+
+
+----发送自 HUAWEI TAS-AN00,Android 10</blockquote>
+华为USB c线的问题
+
+— from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
+
+
+
+
 
 
 
@@ -15118,6 +15163,7 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 
 
 
+ 本帖最后由 aiooia 于 2021-1-31 20:59 编辑 
 
 想问下这个强行圆化的app图标能改回去么？看着好特么蠢啊……顺带这个显示所有app的界面的背景能改么？
 
@@ -15141,26 +15187,16 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 
 
 
-捕获.JPG
-(26.64 KB, 下载次数: 0)
+
+-----
+
+####  月神侠  
+##### 2252#       发表于 2021-1-31 18:52
 
 
 
 
-下载附件
-
-
-2021-1-21 22:08 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202101/21/220836bih20iaok4d4jq2k.jpg" referrerpolicy="no-referrer">
+不能<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
 
@@ -15168,7 +15204,585 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 
 
 
+-----
+
+####  SplashCrBy  
+##### 2253#       发表于 2021-1-31 20:37
 
 
 
-                        
+
+手势有没有办法改啊，左右边划都是返回上一层，但安卓侧边栏都是左划啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  yygundam  
+##### 2254#       发表于 2021-2-1 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50200737&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-1-31 20:37</a>
+
+手势有没有办法改啊，左右边划都是返回上一层，但安卓侧边栏都是左划啊
+
+
+—— 来自 Sony XQ-AT52, A ...</blockquote>
+这个是谷歌自己没想明白，让这俩玩意冲突了，我以前刚刚升级安卓10的时候还吐槽过这事（
+
+
+现在手势操作下拉出侧边栏有两个办法：1.在屏幕左边摁住，直到侧边栏弹出一点点，然后拉出；2.沿着斜方向从左往右上或者右下滑动拉出（体感这个操作比1要难做
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2255#       发表于 2021-2-1 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202706&amp;ptid=1915171" target="_blank">yygundam 发表于 2021-2-1 00:23</a>
+这个是谷歌自己没想明白，让这俩玩意冲突了，我以前刚刚升级安卓10的时候还吐槽过这事（
+
+
+现在手势操作下 ...</blockquote>
+第二种方法学到了，第一种必须要顿一秒就很难受
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 2256#       发表于 2021-2-1 02:17
+
+
+
+
+不用全面屏手势不就行了，索尼有侧感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2257#       发表于 2021-2-1 08:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50203034&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-2-1 01:12</a>
+第二种方法学到了，第一种必须要顿一秒就很难受
+
+—— 来自 Sony XQ-AT52, Android 11上的 S1Next-鹅版 v ...</blockquote>
+还有第三个方法，翔移的侧感手势操作，先切单手模式再去拉侧边，简单好拉成功率高。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2258#       发表于 2021-2-1 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50203808&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-2-1 08:12</a>
+还有第三个方法，翔移的侧感手势操作，先切单手模式再去拉侧边，简单好拉成功率高。
+
+—— 来自 Sony XQ- ...</blockquote>
+这招不是徒增成本吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2259#       发表于 2021-2-1 14:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50206539&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-2-1 13:14</a>
+这招不是徒增成本吗
+
+—— 来自 Sony XQ-AT52, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+并不，就翔移这个21：9的带鱼比例……没有单手模式人都要疯了，有几个人能有这么大一只手能单手玩转这么长一个屏幕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有了单手模式以后反而拉侧边还方便，侧边一个上滑切单手模式，再一个右拉，一只手轻松拉开侧栏，不需要你斜上或者停顿，实际上非常流畅。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2260#       发表于 2021-2-1 15:40
+
+
+
+
+你们哪些软件需要拉侧屏的，我试了半天好像就鹅球可拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2261#       发表于 2021-2-1 15:47
+
+…
+
+
+ 本帖最后由 Cray 于 2021-2-1 15:49 编辑 
+<blockquote>引用第2259楼leyenda于2021-02-01 15:40发表的  :
+
+你们哪些软件需要拉侧屏的，我试了半天好像就鹅球可拉</blockquote>
+B站呀   云音乐呀
+其实就是个速度问题  都可以自己改
+
+
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 2262#       发表于 2021-2-1 17:08
+
+
+
+
+前几天想起来看了下EHV，才发现侧拉返回和EHV的右侧出保存搜索冲突了。之前左拉的都还觉得没什么影响，因为至少都还有个头像可以点出侧拉
+
+琢磨了一下，改回三大金刚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狂风DKC  
+##### 2263#       发表于 2021-2-1 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手势用了一天受不了还是改回三大金刚了，返回键真好啊真好
+
+
+
+
+
+
+
+-----
+
+####  hoyice  
+##### 2264#       发表于 2021-2-1 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50208809&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-2-1 17:08</a>
+前几天想起来看了下EHV，才发现侧拉返回和EHV的右侧出保存搜索冲突了。之前左拉的都还觉得没什么影响，因为 ...</blockquote>
+ehv是整个屏幕左右拉都ok，对手势很友好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  飞翔的兔子  
+##### 2265#       发表于 2021-2-2 19:11
+
+
+
+
+更新了11之后，全面手势导航怎么都拉不出应用切换界面………………试了N次都拉不出来；云音乐有问题，明明还在后台但是会自己暂停……烦躁
+
+
+
+
+
+
+
+-----
+
+####  飞翔的兔子  
+##### 2266#       发表于 2021-2-2 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184486&amp;ptid=1915171" target="_blank">Heero_Z 发表于 2021-1-29 19:59</a>
+
+国内有人升11后全面屏手势会无法切换应用管理的那个界面么，国际版经常有这bug
+
+
+—— 来自 S1Fun ...</blockquote>
+完全拉不出来…………被迫切回三按键……可是我刚刚才习惯全屏手势啊
+
+
+
+
+
+
+
+-----
+
+####  Heero_Z  
+##### 2267#       发表于 2021-2-2 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50219689&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2021-2-2 19:12</a>
+完全拉不出来…………被迫切回三按键……可是我刚刚才习惯全屏手势啊</blockquote>
+我国际版只能重启解决，要么就是上拉一点点然后延迟几秒后就能呼出<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2268#       发表于 2021-2-2 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50219679&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2021-2-2 19:11</a>
+
+更新了11之后，全面手势导航怎么都拉不出应用切换界面………………试了N次都拉不出来；云音乐有问题，明明 ...</blockquote>
+云音乐你看是不是加入电池管理器/节电优能了
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2269#       发表于 2021-2-2 20:52
+
+
+
+
+看了看无码兔的硬件被种草了啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+就是这个系统大家用下来体验怎么样，类原生压得住国内这群流氓吗<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2270#       发表于 2021-2-2 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50220427&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-2 20:52</a>
+看了看无码兔的硬件被种草了啊
+就是这个系统大家用下来体验怎么样，类原生压得住国内这群流氓吗[f:0 ...</blockquote>
+国行有个节点优能功能，类似黑阈能把软件管得死死的
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2271#       发表于 2021-2-3 04:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50221127&amp;ptid=1915171" target="_blank">猫空 发表于 2021-2-2 22:28</a>
+
+国行有个节点优能功能，类似黑阈能把软件管得死死的
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅 ...</blockquote>
+但是跟黑阈比起来，黑阈狠一点
+
+
+
+
+
+
+
+-----
+
+####  飞翔的兔子  
+##### 2272#       发表于 2021-2-3 15:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50220350&amp;ptid=1915171" target="_blank">Cray 发表于 2021-2-2 20:42</a>
+
+云音乐你看是不是加入电池管理器/节电优能了</blockquote>
+……还真是，从节电设置里移除就没问题了～
+
+
+可是之前10的时候就没这个问题啊
+
+
+
+
+
+
+
+-----
+
+####  狂风DKC  
+##### 2273#       发表于 2021-2-3 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说我B站和网抑云在播放或者暂停时候，锁屏界面和抬头里的简易播放器不见了，这个要怎么调出来？
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 2274#       发表于 2021-2-5 17:22
+
+
+
+
+升了安卓11之后感觉多任务手势明显没以前好用啊，经常呼不出来
+
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2275#       发表于 2021-2-5 20:47
+
+
+
+
+话说，5m2的闹钟总是提前一两个小时给我弹通知，这么弱智的功能怎么关掉？
+
+这到底是什么样的弱智设计的功能？
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2276#       发表于 2021-2-5 20:52
+
+
+
+<blockquote>wizardasd 发表于 2021-2-5 20:47
+话说，5m2的闹钟总是提前一两个小时给我弹通知，这么弱智的功能怎么关掉？
+
+
+这到底是什么样的弱智设计的功 ...</blockquote>
+港版还是国行？ 
+
+1m2 港版闹钟没遇到过…
+
+把闹钟的通知给关了试试？
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2277#       发表于 2021-2-5 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50250804&amp;ptid=1915171" target="_blank">leystage 发表于 2021-2-5 20:52</a>
+港版还是国行？ 
+
+1m2 港版闹钟没遇到过…
+
+把闹钟的通知给关了试试？</blockquote>
+国行
+可能是因为我设了两个闹钟的缘故？
+每次都提前两个小时弹通知，还隔半个小时或者一个小时再弹
+我定的8点闹钟，它6点给我弹通知，这不弱智吗？
+弹的通知上还有个关闭按钮，我一按，嘿，闹钟给我关了……这不更弱智了吗？
+
+想去关了通知吧，我又怕它不知道哪里脑抽直接闹钟不给我响了……
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2278#       发表于 2021-2-5 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150897&amp;ptid=1915171" target="_blank">淡定君 发表于 2021-1-26 16:51</a>
+闹钟也花Q,隔一段时间发提示声说闹钟很快响了</blockquote>
+我安卓10也遇到了啊
+不知道是不是跟我定了两个闹钟有关
+你后来解决了么……
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  烁影  
+##### 2279#       发表于 2021-2-5 23:00
+
+
+
+
+升级了11怎么感觉用电如尿崩
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2280#       发表于 2021-2-6 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50251638&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-2-5 22:24</a>
+
+国行
+
+可能是因为我设了两个闹钟的缘故？
+
+每次都提前两个小时弹通知，还隔半个小时或者一个小时再弹</blockquote>
+对我来说还挺实用的，我有的时候会熬通宵，定的七点的闹钟，然后看一眼时间发现已经5点25了。
+
+
+索性弹通知我直接就关闭了。
+
+
+
+
+
+
+
+-----
+
+####  Heero_Z  
+##### 2281#       发表于 2021-2-6 06:30
+
+
+
+
+国际版推送了11后的首个补丁，用了几天貌似是修复了全面手势拉不出应用管理的问题，其他提升不明。距11更新时隔一个半月供国行用户参考下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+                       
