@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-04 15:38** 
+> ## **本文件最后更新于2021-02-05 09:35** 
 
 
 
@@ -15988,4 +15988,475 @@ mkt姐贵别嚎了别嚎了
 
 
 
-                      
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 30821#       发表于 2021-2-5 03:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/05/030516svjo90pactatpavh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210205040452.jpg</strong> (21.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-5 03:05 上传
+
+
+
+
+
+最近在看这个
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30822#       发表于 2021-2-5 08:07
+
+
+
+
+看到月灵推特没发晚安推，一看发到b站去了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30823#       发表于 2021-2-5 08:47
+
+
+
+ 本帖最后由 JoelBirch 于 2021-2-5 08:49 编辑 
+
+不过这一波统共也才涨了1000粉，一方面说明活粉比例极高；另一方面，真滴需要一个直播<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 30824#       发表于 2021-2-5 08:58
+
+
+
+
+月灵如果趁着当时讨论最火的时候顺利进来那就是下一个小红（摸鱼前）
+但是被卡住模型版权，而且至今不知道进度
+泥哥们的热点都换了三四批了，现在再来奇迹创不上，能来个小高潮没问题
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 30825#       发表于 2021-2-5 09:47
+
+
+
+
+@NewsPicks
+「ライブ配信での投げ銭で莫大な収益を上げるVTuberが台頭する中、登録者数の伸びが鈍化し始めた先駆者はどう生き残るのか」
+
+空前の活況を呈するVTuber業界。その「市場を作ったヒト」、キズナアイ（@aichan_nel）へのガチインタビューをお届けします。
+
+本編視聴▶️https://t.co/0mDf7xmQK3 https://t.co/gKJaVnguiU
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 30826#       发表于 2021-2-5 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">nico实在太阴间了
+
+硬生生从500同接压到现在100不到
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然月灵自己也有点问题，直播前两分钟告知等同突击，谁都遭不住，本体至少还提前几小时+固定周日
+
+总之来B播了第一次就算开闸了，祝好了
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 30827#       发表于 2021-2-5 11:33
+
+
+
+<img src="https://p.sda1.dev/1/b5f12424fe49582830d4865df2bd6601/IMG_CMP_223229352.jpeg" referrerpolicy="no-referrer">
+https://twitter.com/hikosan333/status/1357529447948111875?s=19
+
+被虹找去画了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30828#       发表于 2021-2-5 12:09
+
+
+
+
+虹新音声图是我最爱女同漫画家水母老师的jk组图，我觉得很不错。
+省一楼，郡道一天三动，十五分钟之后抽手游女人，晚上月下樱，深夜播asmr，充实啊。每次听郡道asmr都会觉得她现在不去做陪酒女真是可惜了，服务精神杠杠的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30829#       发表于 2021-2-5 12:43
+
+
+
+
+月灵来批站第一次播完以后最迷惑的绝对是人气……如果运营没有提醒过这个东西的话
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 30830#       发表于 2021-2-5 12:47
+
+
+
+
+确实，俺的态度已经从狂热降到特别喜欢了，现在最想看的是情绪带模型的live
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30831#       发表于 2021-2-5 13:22
+
+
+
+
+郡道昨天抽蓝色档案的粉毛妹，中途突然维护中断了，今天继续，
+然后那个角色叫アル，中途郡道说着说着就开始玩梗搞aru结尾，说自己现在变成了怪怪的中文角色了……郡道是给宁宁补位吗（玩笑）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30832#       发表于 2021-2-5 13:30
+
+
+
+
+彩虹两个新音声都有阿菜啊，看来是没钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30833#       发表于 2021-2-5 13:35
+
+
+
+
+说不定是之前录好的
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 30834#       发表于 2021-2-5 13:37
+
+
+
+
+重点不是还有口了，什么时候口了复活
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 30835#       发表于 2021-2-5 14:57
+
+
+
+
+虚言癖的新音声不就是给口了复活铺路吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30836#       发表于 2021-2-5 16:13
+
+
+
+
+神田下周五3D，
+郡道最近经常去健身房，要是神田不小心怕不是直接被飞踢去医院啊<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">，希望他平安
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30837#       发表于 2021-2-5 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 下周五就是大年初一么？nijisanji可真会挑日子
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30838#       发表于 2021-2-5 16:36
+
+
+
+
+原来郡gachi是郡all民么，还以为会mrra民都会挺排斥的芝麻信用的，但感觉这个3d估计主要会玩卡面来打的梗的吧……
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30839#       发表于 2021-2-5 16:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按银盾顺序是小魔王吧，神田又是有什么福利提前插队了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30840#       发表于 2021-2-5 16:49
+
+
+
+ 本帖最后由 rzrbtk 于 2021-2-5 16:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50248537&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-2-5 16:36</a>
+
+原来郡gachi是郡all民么，还以为会mrra民都会挺排斥的芝麻信用的，但感觉这个3d估计主要会玩卡面来打的梗的 ...</blockquote>
+指正：是all郡。
+
+希望这回3D能一次性把两方的厄介毒唯蒸发掉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。其实挺担心神田像杏的miko那样惹到比较麻烦的骑士粉的，不过神田天天看特摄也算是诚心可鉴，应该没事，吧。
+
+省一楼，郡道刷了4小时初始，终于出了想要的角色，但目标是aru+一彩，所以又要继续刷了，苦
+
+
+下一把就出了，郡在第五层
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30841#       发表于 2021-2-5 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 来人，给这位上虹人唯一指定银盾3D顺序表
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30842#       发表于 2021-2-5 17:03
+
+
+
+
+郡：ライバーの3Dはその人が活動を頑張ったから手に入れられるものなんだから、先ずはその人におめでとうの一言くらい言いなよ。3Dお披露目なんてその人の一世一代の発表会だぞ、人の名前を出すな。
+
+
+你郡怕不是边自搜边吐惹
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30843#       发表于 2021-2-5 17:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/05/170648q9kvjj99fk1if991.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210205170607.jpg</strong> (105.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-5 17:06 上传
+
+
+
+
+
+
+
+定价真微妙阿，机台和10w家族 3000
+
+
+前夜祭和东京复仇 5000
+
+
+个人猜测，10w家族和机台都是录像，其他都有现场互动，
+
+
+
+
+
+
+
+-----
+
+####  鹦与鹉  
+##### 30844#       发表于 2021-2-5 17:16
+
+
+
+ 本帖最后由 鹦与鹉 于 2021-2-5 17:24 编辑 
+
+老爱这运营又是什么操作（编辑，已经无了
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 30845#       发表于 2021-2-5 17:28
+
+
+
+
+https://anniversaryfes.nijisanji.jp/schedule/
+
+日程表出来了，会不会成为压死虹半年最后一根稻草呢
+
+
+
+
+
+                     
