@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-03 02:14** 
+> ## **本文件最后更新于2021-02-06 07:43** 
 
 
 
@@ -26430,4 +26430,524 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 
 
 
- 
+
+
+-----
+
+####  404489039  
+##### 14944#       发表于 2021-2-3 10:20
+
+
+
+
+天人吃武器相关 贤者吃召唤相关
+这么工匠精神的fkhr肯定不会改的
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14945#       发表于 2021-2-3 11:07
+
+
+
+
+50个黑剑+50个螺丝是可以接受的量？真羡慕你们这些每天都能泡在高难本里的人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一般素材我还可以看个动画fa一下呢
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 14946#       发表于 2021-2-3 14:51
+
+
+
+
+真要高难素材是利好新人并且老人也不难搞的，总比现在高难本新人得求人带老人懒得打强
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 14947#       发表于 2021-2-3 14:56
+
+
+
+
+10个黑剑我临时抱佛脚在野队一个晚上从初见到打完前3贡献，没那么夸张吧，我主线甚至还没做到解锁自发
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14948#       发表于 2021-2-3 15:09
+
+
+
+ 本帖最后由 吾乃啊噗 于 2021-2-3 15:11 编辑 
+
+最近cf打拳都那么流行了，野车就是不熟练的也基本3分半一把，手滑出无神论的+5min
+
+今天下午试水打了几把，说实话最大的想法就是希望这运营别脑瘫给这事削了
+
+如果巴布后期也可以普及这种平民解，50螺丝50黑剑我觉得可以接受
+
+
+
+
+
+
+
+-----
+
+####  边界循环  
+##### 14949#       发表于 2021-2-3 15:16
+
+
+
+
+巴布的机制打拳肯定不行 还好solo简单 我每天打一把20分钟左右 上个月随便打打就打了40 感觉还可以接受
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14950#       发表于 2021-2-3 15:20
+
+
+
+
+一个人50黑剑50螺丝也还是多
+
+一个天人10个了不起了 不如担心路西N材料 那个搞起来麻烦而且可能会要很多 那个本是完全没收益
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14951#       发表于 2021-2-3 15:31
+
+
+
+
+对于中层玩家来说，现在75000欠片和200钢碎才是最难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这欠片 记忆 钢碎 农起来感觉就是无穷无尽的 后面天星器碎也是必然的 做完极皮的多半还要会回头在做一套 这次要50还是100就不一定了
+
+
+
+
+
+
+
+-----
+
+####  ming_tt  
+##### 14952#       发表于 2021-2-3 17:41
+
+
+
+
+其实fs没有计时器，bb没有华陀和回合限制我就随便打，现在虽然看了n次视频还是根本不敢打。
+
+素材就算是多，至少是可以进的本。。。
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14953#       发表于 2021-2-3 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50227066&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2021-2-3 14:56</a>
+
+10个黑剑我临时抱佛脚在野队一个晚上从初见到打完前3贡献，没那么夸张吧，我主线甚至还没做到解锁自发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">六个属性每个终一个人就要300黑剑了，bb这本没有固定队 不能/懒得solo 去打野房不是脑溢血吗
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 14954#       发表于 2021-2-3 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50229169&amp;ptid=1158205" target="_blank">peh 发表于 2021-2-3 18:28</a>
+
+六个属性每个终一个人就要300黑剑了，bb这本没有固定队 不能/懒得solo 去打野房不是脑溢血吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">带掉宝每日搞搞，凑合吧。我是看着那每人7500碎片就失去了兴致，看不到头的东西
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 14955#       发表于 2021-2-3 22:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">让我干啥都行，只要别刷星本。做完极皮，记忆，星晶片大破，直接摆烂了，一日不改我一日不做。摸了。
+
+
+
+
+
+
+
+-----
+
+####  faxi  
+##### 14956#       发表于 2021-2-4 01:28
+
+
+
+
+卡你的肯定是得长时间刷的东西，还肯定是一时半会住本里搞不出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑剑螺丝这种顶层玩家多少能掏出个40-50个，不行每天抱团还是比星晶简单的，不太像四字母恶心人的做法
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">至于什么东西是一时半会掏不出来很多的，应该就是属性晶和武器碎和属性龙鳞了
+
+终突一个人吃1800个属性晶和500光龙鳞，那终终突我翻个倍吃每个3600属性晶，1,2000武器碎加6属性龙鳞不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 14957#       发表于 2021-2-4 01:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是新的票本
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14958#       发表于 2021-2-4 07:31
+
+
+
+
+武器碎首先很简单，现在有沙盒了，武器碎和ssr狗粮太无脑了实在
+
+能做天人150的也该没少打团吧，那属性晶一般也不会缺，很多人手里都3 4k起底
+
+龙鳞这个是六龙副产物，之前龙武毕业我手里基本六属都上千了
+
+我想了一下比较恶心的，大马球，没有收益武器狗都不要，不过这个很多人手里都有不少；黑风妈系列球，球掉率低黑泥鳅一般没什么人打了很多；大量双子系金球，吃很多玻璃碎，问就是恶心心；六龙球，没固定蓝箱之后球掉量变少了，不过好在农过六龙的手里都有几百；世界系材料，让你再农一遍金色子弹；黑黄金球，这个极皮吃150多半也要吃；然后就是完全新本的材料了，大家都要从头搞起
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 14959#       发表于 2021-2-4 20:37
+
+
+
+
+看了隔壁水攻略推荐章鱼法武附魔进境，我手里现在是2球3琴，卡剑2lm必爆龙武和老男人都有，但是因为太懒了不想频繁换插件。
+
+
+那章鱼法武是继续浑身还是换成进境……？
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14960#       发表于 2021-2-4 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50240419&amp;ptid=1158205" target="_blank">GrandAko 发表于 2021-2-4 20:37</a>
+
+看了隔壁水攻略推荐章鱼法武附魔进境，我手里现在是2球3琴，卡剑2lm必爆龙武和老男人都有，但是因为太懒了 ...</blockquote>
+2lm必爆龙武是指弓枪龙武套吗，那进境，多一层奥义追伤很重要（属攻本身也是）
+
+
+非要咸鱼短期奥义炸的场合，打不到上限的话就把法武下了换欧枪
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 14961#       发表于 2021-2-4 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50240446&amp;ptid=1158205" target="_blank">peh 发表于 2021-2-4 20:40</a>
+
+2lm必爆龙武是指弓枪龙武套吗，那进境，多一层奥义追伤很重要（属攻本身也是）
+
+
+非要咸鱼短期奥义炸的场 ...</blockquote>
+是的弓枪龙武套，但是比较担心的是更换成进境后会导致古战AT时间黑屏打牛的效率受到影响，毕竟我只有两个球，副团的双黄龙打牛因为模拟不来所以不知道该怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">水属虽然浑身大很多但总觉得不是很安稳）
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 14962#       发表于 2021-2-4 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50240990&amp;ptid=1158205" target="_blank">GrandAko 发表于 2021-2-4 21:50</a>
+
+是的弓枪龙武套，但是比较担心的是更换成进境后会导致古战AT时间黑屏打牛的效率受到影响，毕竟我只有两个 ...</blockquote>
+做个方阵浑身法。
+
+细想一下，除了杖职手操95，150。打拳和平a牛都是浑身法优势
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 14963#       发表于 2021-2-4 22:09
+
+
+
+
+最后还是换了进境，满屏的数字看起来好快乐！
+
+不过开了老男人的1，除了古兰以外的队友也平A不上100w，我要是有水天司会这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 14964#       发表于 2021-2-4 23:22
+
+
+
+
+本来婚了二姐想第一个界突，想了一下光团也过了马上就要备战水团决定还是先弄四妹……
+
+
+就是朽武好难刷，2021年了我怎么还要刷朽武，30个也太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+记忆，欠片和银片也好难<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 14965#       发表于 2021-2-4 23:29
+
+
+
+
+34快突了，早早就刷完了朽武，银片也根本不是事儿。
+
+然而15000记忆x6刷完的欠片也就够突个12，34的一直没空刷，已经急得抓狂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14966#       发表于 2021-2-4 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50240419&amp;ptid=1158205" target="_blank">GrandAko 发表于 2021-2-4 20:37</a>
+
+看了隔壁水攻略推荐章鱼法武附魔进境，我手里现在是2球3琴，卡剑2lm必爆龙武和老男人都有，但是因为太懒了 ...</blockquote>
+水基本现在是进境了，2球老王也就是团战前两天打牛换浑身吧，后面本战了继续进境
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 14967#       发表于 2021-2-4 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50241898&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-2-4 23:41</a>
+
+水基本现在是进境了，2球老王也就是团战前两天打牛换浑身吧，后面本战了继续进境 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">懒狗有80多个素材但是连换技能都懒得换
+
+只要动手换了就会有种素材不够的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 14968#       发表于 2021-2-5 02:13
+
+
+
+
+水老王法武比较看你日常用来干什么，如果你不是精水的就无脑浑身，尽管你是必爆，毕竟打克属本身就带有50属攻加成，进境只有在无属跨属长期战效果才明显
+
+不过水老王另外一面就是打抗压极强，经常打高难本就是首选进境，群里水老王的解决这个的办法就是没事就去混野车或者给群友做慈善，刷一堆螺丝浑身进境之间换来换去
+
+我是1球1枪1弓的尝鲜水老王就一把浑身到现在都没换过
+
+
+
+
+
+
+
+-----
+
+####  qiushiweilu  
+##### 14969#       发表于 2021-2-5 17:31
+
+
+
+
+去年面具才出不久，bb就有1风5暗的打拳流程了
+
+
+
+
+
+
+
+-----
+
+####  西人  
+##### 14970#       发表于 2021-2-6 14:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">BB塔这活动感觉越往后会越垃圾，越来越恶心。
+
+虽然抄作业总能抄过，但没打完的时候总是莫名其妙的浮躁，这种感觉只有砍口呢给过我（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 14971#       发表于 2021-2-6 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50256217&amp;ptid=1158205" target="_blank">西人 发表于 2021-2-6 14:17</a>
+
+BB塔这活动感觉越往后会越垃圾，越来越恶心。
+
+虽然抄作业总能抄过，但没打完的时候总是莫名其妙的浮 ...</blockquote>
+2层给大概40抽不到
+
+还不用像古战场一样打好几天
+
+忍了！
+
+
+
+
+
