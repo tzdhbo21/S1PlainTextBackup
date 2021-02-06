@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-29 10:43** 
+> ## **本文件最后更新于2021-02-06 14:31** 
 
 
 
@@ -9497,4 +9497,559 @@ syl  这分镜有点意思啊，燃的
 
 
 
-                                
+
+
+-----
+
+####  fangjun96  
+##### 5012#       发表于 2021-1-29 19:13
+
+
+
+
+草 就你没背景音，这是本社吧
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5013#       发表于 2021-1-29 20:14
+
+
+
+ 本帖最后由 面具13 于 2021-1-29 21:04 编辑 
+
+夸宝的宝可梦对战：来，骗！来，偷袭！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+感觉只要有别的声音，夸宝的声音就会被挤碎掉，是不是什么降噪方面的问题啊。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5014#       发表于 2021-1-29 21:36
+
+
+
+
+强强暴鲤龙 151的骄傲
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5015#       发表于 2021-1-30 11:10
+
+
+
+
+她是在东京吧，凌晨吃了把鸡<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">真的吗
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5016#       发表于 2021-1-30 11:15
+
+
+
+
+不是在家吗，昨晚都露和nico那边的discord画面了
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5017#       发表于 2021-1-30 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50188832&amp;ptid=1947500" target="_blank">Maonpuyo 发表于 2021-1-30 11:15</a>
+不是在家吗，昨晚都露和nico那边的discord画面了</blockquote>
+不清楚 那今日不是还有live吗，也是家里就行？
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5018#       发表于 2021-1-30 12:22
+
+
+
+
+唱跳录播，MC部分连线开麦就好了呗
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5019#       发表于 2021-1-30 17:12
+
+
+
+ 本帖最后由 离魂仙 于 2021-1-30 18:35 编辑 
+
+这虚拟DJ怎么嫩长，尿点尿了快20分钟了啊，下面肥肥都蔫儿了
+
+把俺按在凳子上一坐两小时，去你奶奶个腿的
+
+
+
+六兆年，SSS<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">两首ホロメン合唱
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5020#       发表于 2021-1-30 18:23
+
+
+
+
+哈哈 不是很正常
+
+holo需要的只是融入大家庭燃烧自己奉献的湊阿库娅
+
+“某些人别老想着自己一个人出风头”狐这么说过的吧
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5021#       发表于 2021-1-30 18:32
+
+
+
+[https://twitter.com/ProjectAqua5/status/1355462034075213831](https://twitter.com/ProjectAqua5/status/1355462034075213831)
+<img src="http://tva1.sinaimg.cn/large/622734bdly1gn5wh317hgj20qo0zkqbt.jpg" referrerpolicy="no-referrer">
+ <blockquote>新衣装をイメージして可愛く華やかに仕上げていただきました</blockquote>
+原来这回花篮的造型是按新衣装的风格来设计的啊（不说还真没看出来
+
+
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5022#       发表于 2021-1-31 15:14
+
+
+
+
+2021年的目标，希望能成为只用睡很少时间的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我记得以前她说自己一般只睡5小时，身体被她的作息熬的不行了吗
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5023#       发表于 2021-1-31 15:43
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-1-31 16:49 编辑 
+
+提到塔科夫了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5024#       发表于 2021-1-31 15:45
+
+
+
+ 本帖最后由 面具13 于 2021-1-31 15:55 编辑 
+
+今天苦呀西预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质上是耐久杂谈
+
+提到逃离塔科夫了。感兴趣。知道可以快乐捡垃圾。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5025#       发表于 2021-1-31 16:18
+
+
+
+ 本帖最后由 离魂仙 于 2021-1-31 16:20 编辑 
+
+今晚轻音专场歌回<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">这以前是不是搞过？记岔了，可能是我太想念菜乃
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5026#       发表于 2021-1-31 22:23
+
+
+
+ 本帖最后由 离魂仙 于 2021-1-31 23:08 编辑 
+
+“滑滑蛋是优感冒时 唯唱给妹妹的歌”
+这是轻音倒背如流了吗
+俺也正病卧在床三天了，那这就是夸姐姐给俺的应援曲了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+“长大后成了面包派”
+我懂的，不是真的多喜欢面包
+只是面包吃起来方便又有嚼劲正是网瘾少年填肚子的最佳拍档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+“小时候跟同学玩过轻音的角色扮演，我是梓喵役”
+怕不是按身高来安排的（
+
+“律队摘了喀秋莎后很可爱”
+原来不止是夸原皮那个女仆头饰，新皮这个和律队一样的发带或发箍，都叫做“喀秋莎”啊
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5027#       发表于 2021-2-1 17:55
+
+
+
+
+差70分，难道终于要钻3了吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5028#       发表于 2021-2-1 19:05
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-2-1 20:55 编辑 
+
+今天的兴致真高啊 因为大量上分而情绪高涨还真有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5029#       发表于 2021-2-1 20:53
+
+
+
+
+可惜最后没打赢，不过好歹还是上了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5030#       发表于 2021-2-1 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">夸宝nb，专业打脸
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5031#       发表于 2021-2-1 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">钻三的风景
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5032#       发表于 2021-2-1 21:30
+
+
+
+ 本帖最后由 离魂仙 于 2021-2-1 21:37 编辑 
+
+虽然但是...
+<img src="http://tvax2.sinaimg.cn/large/622734bdly1gn8cttrdl1j204b02ngln.jpg" referrerpolicy="no-referrer">
+
+バレへん バレヘん 😋 
+
+只要我下播够快，掉段结算就跟不上我
+
+
+回看了下，怎么是两个鸡屁股上的钻3
+
+配信外2连鸡却没人看得到，配信之神你快回头看看夸啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5033#       发表于 2021-2-2 21:07
+
+
+
+
+最近开播前好像都要折腾一会儿，不知道是不是我的错觉
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5034#       发表于 2021-2-2 21:13
+
+
+
+ 本帖最后由 面具13 于 2021-2-3 00:36 编辑 
+
+才发现直播回放开着耶。有理由怀疑回放开着是为了让原来的视频作者方便实时纠正哪里搭错了。
+
+
+读sc的时候发现了，说自己今天忘了改这项设定了
+
+
+会员限定情人节语音官宣成为太空不可回收垃圾了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5035#       发表于 2021-2-3 01:29
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-2-3 01:43 编辑 
+
+今天直播结尾SC杂谈比前面MC正片有趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5036#       发表于 2021-2-3 19:17
+
+
+
+
+sc杂谈一般都比正片有趣<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5037#       发表于 2021-2-4 21:32
+
+
+
+
+“你是狗吧”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5038#       发表于 2021-2-4 21:34
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-2-4 22:05 编辑 
+
+嗅觉发达犬女仆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 5039#       发表于 2021-2-4 22:05
+
+
+
+
+夸宝的会限每次都能给我整点新乐子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5040#       发表于 2021-2-6 21:06
+
+
+
+
+今天又没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5041#       发表于 2021-2-6 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5042#       发表于 2021-2-6 22:09
+
+
+
+
+晒猫
+
+
+
+
+
+                               

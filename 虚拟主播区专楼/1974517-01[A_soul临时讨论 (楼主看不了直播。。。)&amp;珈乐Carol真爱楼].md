@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-04 15:41** 
+> ## **本文件最后更新于2021-02-06 14:35** 
 
 
 
@@ -2150,7 +2150,7 @@ v juan 费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/
 
  本帖最后由 与太郎 于 2020-12-16 23:42 编辑 
 
-<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_Jm6MO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ab29ec6ae84981e3fe2fb8b55b8b7f1a/ava.PNG" id="aimg_g7d97" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
  <blockquote>向晚意不适，驱车登古原。
 
 夕阳无限好，只是近黄昏。</blockquote>
@@ -13353,7 +13353,7 @@ late to the party
 
  本帖最后由 浇砼结衣 于 2021-1-11 04:27 编辑 
 
-<img src="http://border=0" id="aimg_hhkI4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
+<img src="http://border=0" id="aimg_iM5QV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)评论区看起来还正常(指评论比点赞多)
 
 
 
@@ -17023,4 +17023,602 @@ asoul微博活了。转了官号上的视频
 
 
 
-                    
+
+
+-----
+
+####  Anew620  
+##### 874#       发表于 2021-2-5 02:03
+
+
+
+
+又看了一遍昨天联动回，就是喜欢贝拉这直直的可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这直直单人有时候就不行了，就像上次心跳回一样我就直接跑路了，舞还是后来补的，感觉控不住场#申请加入贝拉控场训练
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 875#       发表于 2021-2-5 17:57
+
+
+
+
+想看贝拉solo 只想看跳舞<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 876#       发表于 2021-2-5 20:05
+
+
+
+
+5 x 5000<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 877#       发表于 2021-2-5 20:06
+
+
+
+
+手摇车刷麻了，我的贝拉！怎么倒数第二了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 878#       发表于 2021-2-5 20:06
+
+
+
+
+刷弹幕是吧，我急了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 879#       发表于 2021-2-5 20:07
+
+
+
+
+好诶*罒▽罒*，有钱真棒啊
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 880#       发表于 2021-2-5 20:10
+
+
+
+
+弹幕偶尔飘过一个“v“<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 881#       发表于 2021-2-5 20:27
+
+
+
+
+斗虫是吧，投了5000票气还没地方出呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  L-JoeW  
+##### 882#       发表于 2021-2-5 20:46
+
+
+
+
+明明看的开开心心的咋老整投票这种烂活啊，其乐融融的氛围不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 883#       发表于 2021-2-5 20:49
+
+
+
+
+我跑了直接等补录播了，这投票还留着遭不住了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 884#       发表于 2021-2-5 20:58
+
+
+
+
+遛了 有点遭不住了
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 885#       发表于 2021-2-5 21:06
+
+
+
+
+工具人被拷打就光速反转还行
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 886#       发表于 2021-2-5 21:12
+
+
+
+
+反转动态真是好图啊，喜欢yygq的网友有福了
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 887#       发表于 2021-2-5 22:18
+
+
+
+
+顶级好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工具人还是能整的
+
+
+
+
+
+
+
+-----
+
+####  蓝灯横滨  
+##### 888#       发表于 2021-2-5 22:36
+
+
+
+
+一开始不整投票这烂活就好了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 889#       发表于 2021-2-5 22:36
+
+
+
+
+团播太好看了，滤镜已经长我眼睛里面了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，过年的直播里肯定还能看到。
+
+斗虫整活，我承认我急了。直接去私信评论发病了。能不能别急着整，让我再看几个月吧。
+
+这就是年轻人的第一个女团吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，然然新衣服新舞太好看了，她做一天嘉然我就做一天嘉心糖了，Ammr不算mmr。
+
+看录播去<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  slaysleepslow  
+##### 890#       发表于 2021-2-5 22:46
+
+
+
+
+后半段真的太好了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 891#       发表于 2021-2-6 00:56
+
+
+
+
+我真的太喜欢贝拉了 我想同她结婚
+
+我有在学习韩语 我是否应该选择从事影视相关的职业以便和她接触？
+
+贝拉有可能选择嫁到上海来吗 还是我需要准备移居杭州
+
+如果可以让她来上海的话 可以加入bilibili吗
+
+我觉得贝拉对bilibili应该很有好感
+
+
+-1
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 892#       发表于 2021-2-6 01:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">最好的舞娘
+
+
+希望新的一年贝拉不会因为跳舞而受伤<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 893#       发表于 2021-2-6 01:21
+
+
+
+
+珈乐的衣服又是最丑的，太惨了，她就是SHE里面的E吗
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 894#       发表于 2021-2-6 01:39
+
+
+
+
+楼友莫慌，夹克一脱说不定里面是性感露背毛衣呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 895#       发表于 2021-2-6 18:28
+
+
+
+
+希望今天有新年装的然然看<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 896#       发表于 2021-2-6 19:34
+
+
+
+
+我记得QA说过除了打歌服节日衣装都是只有节日限定出现的，今晚大概率是钻头大战孕妇装吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 897#       发表于 2021-2-6 19:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258752&amp;ptid=1974517" target="_blank">Anew620 发表于 2021-2-6 19:34</a>
+
+我记得QA说过除了打歌服节日衣装都是只有节日限定出现的，今晚大概率是钻头大战孕妇装吧，当然QA还 ...</blockquote>
+之前嘉然贝拉的宅舞大会上就有圣诞服。
+
+新衣服昨天才穿过，今天再穿也很合理！！<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+syl 抖友害我在直播间快快快
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 898#       发表于 2021-2-6 20:32
+
+
+
+
+这弹幕任务也太重了吧，什么钩都跳上去咬。我的偶像然<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zxc5175011  
+##### 899#       发表于 2021-2-6 20:39
+
+
+
+
+乐华kpi是弹幕量？每回都要刷弹幕
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 900#       发表于 2021-2-6 21:08
+
+
+
+
+晚晚爱之诗跳起来怎么憨憨的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"> aVa
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 901#       发表于 2021-2-6 21:08
+
+
+
+
+30万人气什么情况
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 902#       发表于 2021-2-6 21:21
+
+
+
+
+这俩不是挺会骗弹幕的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我是自愿的
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 903#       发表于 2021-2-6 21:49
+
+
+
+
+台本还要再想想，这样子欺骗感太强了。虽然演员说投票只是个节目的主线，刷不刷没关系，但是没直播的时候观众就拿这个来讨论了。一句话，我相信然然。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+前半段杂谈不好，需要硬读弹幕来推进。后半段台词上线之后，两人的日常分享还不错。
+
+舞蹈在我的眼里已经不能客观评价了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+变回去之后rp还不错，可惜然然的面捕掉了。恭喜然然已经不是一米吧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 904#       发表于 2021-2-6 21:52
+
+
+
+
+这都是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 905#       发表于 2021-2-6 22:00
+
+
+
+
+突然就结束了，麻了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 906#       发表于 2021-2-6 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50260079&amp;ptid=1974517" target="_blank">Anew620 发表于 2021-2-6 22:00</a>
+
+突然就结束了，麻了</blockquote>
+因为后面乃琳还要播吧。节奏出问题就是这个结果了
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 907#       发表于 2021-2-6 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50260128&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-6 22:06</a>
+
+因为后面乃琳还要播吧。节奏出问题就是这个结果了</blockquote>
+确实，希望能看到上次嘉然出现在乃0直播里一样的客串给小剧场划上一个句号<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 908#       发表于 2021-2-6 22:31
+
+
+
+
+直播看完还能看8u发病，as真好，时刻有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
