@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-28 18:23** 
+> ## **本文件最后更新于2021-02-06 09:39** 
 
 
 
@@ -24488,4 +24488,667 @@ EsLG-06U0AAykRo.jpg
 
 
 
-    
+
+
+-----
+
+####  白金口袋  
+##### 77852#       发表于 2021-1-29 06:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50176729&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-1-28 10:55</a>
+
+偷渡失败来这里吐槽一下
+
+这次活动抽三回黑狗池了，之前都没金英灵，今天又氪了半单，在单UP池抽，先 ...</blockquote>
+同抽了三回没出，不过比你还惨点，就出了一个金的还是杀卫宫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只能安慰自己现在单体狂打手有的是，不一定非要黑狗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77853#       发表于 2021-1-29 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50177422&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-1-29 06:50</a>
+
+同抽了三回没出，不过比你还惨点，就出了一个金的还是杀卫宫
+
+只能安慰自己现在单体狂打手有的是， ...</blockquote>
+同苦同难，与君共勉<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+确实，现在不怎么用单体和红卡了，但是黑狗当初实装时带给我很大的震撼，“那小子真帅”，大概这感觉，然后某次尼禄祭卡关借的黑狗过高难，羁绊礼装“一个人的战役”也非常有意境，所以一直心存执念逢UP必抽，结果一直没有.....
+
+不过FGO投入越多越觉得亏，不少限定卡花钱抽出来现在语音都没时间听...现在只能希望自己以后尽量节制一下氪福袋好了...
+
+
+祝你下回欧起来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">FGO的卡池详情一直没公布，我就暗示自己，这是全卡池继承保底，这个池子没抽到，但砸进去的石头会变成下个五星，或下下个的欧气......（可能吗？照这么说歪的卡都是石头砸出来的，而且明明连单抽的11连都不继asdjisjkcjxajk
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77854#       发表于 2021-1-29 16:10
+
+
+
+
+看着推上都在抽抽抽，我也去来了3发11连，2宝了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77855#       发表于 2021-1-29 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50182406&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-1-29 16:10</a>
+看着推上都在抽抽抽，我也去来了3发11连，2宝了
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+最近有点欧阿，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77856#       发表于 2021-1-29 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183901&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-1-29 18:49</a>
+
+最近有点欧阿，羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大肉丸我3单才出的，哪里欧了……
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 77857#       发表于 2021-1-29 22:56
+
+
+
+
+我好想扣圣杯啊，现在杯子有十个缺口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77858#       发表于 2021-1-30 02:19
+
+
+
+
+都喂什么圣杯了，我怎么感觉完全用不完啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77859#       发表于 2021-2-2 10:30
+
+
+
+
+应该是生放接情人节吧。感觉明天无事发生
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77860#       发表于 2021-2-2 17:15
+
+
+
+
+明天竟然有维护
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  千石之钟  
+##### 77861#       发表于 2021-2-2 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159930&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-27 14:37</a>
+
+有没有高人说下 街机版现在到底是个什么情况 大爆死预定还是很热门?</blockquote>
+角色新出一直没停，对战录像也陆陆续续的有人传，从侧面看活得还挺滋润的？
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77862#       发表于 2021-2-3 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">聖杯戦線。。。 就这准备混2星期？
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77863#       发表于 2021-2-3 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228403&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-3 17:08</a>
+
+聖杯戦線。。。 就这准备混2星期？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该不会，说不定生放情人节重叠
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 77864#       发表于 2021-2-3 17:22
+
+
+
+
+是不是只有我无法在 appstore 更新？
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77865#       发表于 2021-2-3 17:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年活动怎么不停的，dw觉醒了？
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77866#       发表于 2021-2-3 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228798&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-3 17:47</a>
+
+今年活动怎么不停的，dw觉醒了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都准备打欧羡慕了 你怎么就这（
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77867#       发表于 2021-2-3 17:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这帮家伙5张船票都放着发霉吗？怎么还没有海豹？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77868#       发表于 2021-2-3 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228870&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-3 17:56</a>
+你们这帮家伙5张船票都放着发霉吗？怎么还没有海豹？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+抽了，沉了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77869#       发表于 2021-2-3 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228870&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-3 17:56</a>
+
+你们这帮家伙5张船票都放着发霉吗？怎么还没有海豹？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天都3号了你说个猫呢 当然直接丢大肉丸了啊
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77870#       发表于 2021-2-3 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50228839&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-3 17:52</a>
+
+我都准备打欧羡慕了 你怎么就这（</blockquote>
+早已经2宝的路过<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77871#       发表于 2021-2-3 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50229119&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-3 18:23</a>
+
+早已经2宝的路过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没到5就还能抽！
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77872#       发表于 2021-2-3 21:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抄作业真是轻松。等明天了
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 77873#       发表于 2021-2-4 07:29
+
+
+
+
+我宣布战棋是我第一喜欢的活动了（ai不随机的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 77874#       发表于 2021-2-5 11:17
+
+
+
+
+活動完了後就即刻有新活動
+
+太勤力了，還以為來經驗值飼料一星期後才再說
+
+而且戰棋活動太好了，千萬不要敵人隨機行動
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77875#       发表于 2021-2-6 04:04
+
+
+
+
+一个很重要的问题
+
+你们都去哪里抄作业
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77876#       发表于 2021-2-6 08:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253178&amp;ptid=1085254" target="_blank">风鸣弦十郎 发表于 2021-2-6 04:04</a>
+
+一个很重要的问题
+
+你们都去哪里抄作业</blockquote>
+APPMEDIA,有1级直接击杀对方御主攻略
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77877#       发表于 2021-2-6 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253510&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-6 08:18</a>
+
+APPMEDIA,有1级直接击杀对方御主攻略</blockquote>
+好 谢谢
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77878#       发表于 2021-2-6 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50253696&amp;ptid=1085254" target="_blank">风鸣弦十郎 发表于 2021-2-5 18:56</a>
+
+好 谢谢</blockquote>
+顺便推荐一下B站一个Up主 依莉丝Official
+[https://www.bilibili.com/video/BV1cr4y1T79P](https://www.bilibili.com/video/BV1cr4y1T79P)
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77879#       发表于 2021-2-6 17:24
+
+
+
+
+卧槽麻婆女儿比老爸先落地了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77880#       发表于 2021-2-6 17:24
+
+
+
+
+哦艹卡莲！
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77881#       发表于 2021-2-6 17:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">抽爆
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 77882#       发表于 2021-2-6 17:27
+
+
+
+
+yls是去年收入不好看被DW批评了所以今年天天出老角色来留老粉么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77883#       发表于 2021-2-6 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257662&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-2-6 17:27</a>
+
+yls是去年收入不好看被DW批评了所以今年天天出老角色来留老粉么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要被批评也不是阿叶的事，他上面的石仓先死
+
+
+
+
+
+
+
+-----
+
+####  蓮華  
+##### 77884#       发表于 2021-2-6 17:31
+
+
+
+
+这女的原名上阵？
+
+
+
+
+
+
+
+-----
+
+####  ネロ  
+##### 77885#       发表于 2021-2-6 17:32
+
+
+
+
+原名的话应该就不是套皮油管人了吧
+
+虽然肯定会参点什么神性的东西进去
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77886#       发表于 2021-2-6 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257662&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-2-6 03:27</a>
+
+yls是去年收入不好看被DW批评了所以今年天天出老角色来留老粉么</blockquote>
+这游戏事到如今还有老粉的存在吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿提拉  
+##### 77887#       发表于 2021-2-6 17:33
+
+
+
+
+哎呦卧槽糟修实装了，@卡莲，还不抽到满
+
+结果麻婆比女儿还晚实装233，至于fha名义上的主角之一巴洁特，hhhhhh
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77888#       发表于 2021-2-6 17:37
+
+
+
+
+一眼看过去就知道强度不行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+   
