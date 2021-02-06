@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-06 07:35** 
+> ## **本文件最后更新于2021-02-06 16:56** 
 
 
 
@@ -16890,4 +16890,554 @@ cover-corp.com/contact/
 
 
 
-                    
+
+
+-----
+
+####  空集  
+##### 30872#       发表于 2021-2-6 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50256588&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-6 15:08</a>
+司会搞的这个不准笑桃铁真是笑死我力，全员被塞抹布的感觉，
+而且郡道最近实在是有点可爱，是不是谈 ...</blockquote>
+我觉得新皮还是加成很大的。
+说起来之前不说话桃铁记得司会也搞过吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 30873#       发表于 2021-2-6 17:30
+
+
+
+<blockquote>空集 发表于 2021-2-6 16:35
+我觉得新皮还是加成很大的。
+
+说起来之前不说话桃铁记得司会也搞过吧
+</blockquote>
+之前是不说话 这次是不准笑 笑了其他人吹口琴然后笑的那个人被电（物理）
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30874#       发表于 2021-2-6 17:31
+
+
+
+
+我应该是火星了吧，宝石社那家背后居然是史克威尔艾尼克斯吗……那真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30875#       发表于 2021-2-6 18:15
+
+
+
+
+第6回baka战开了
+[https://www.youtube.com/watch?v=yoazYzO0E-g](https://www.youtube.com/watch?v=yoazYzO0E-g)
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 30876#       发表于 2021-2-6 19:00
+
+
+
+<blockquote>渡鸦骑士 发表于 2021-2-6 17:31
+我应该是火星了吧，宝石社那家背后居然是史克威尔艾尼克斯吗……那真是
+
+ ...</blockquote>
+叫SE比较容易看懂
+
+火星的有些年头了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 30877#       发表于 2021-2-6 19:04
+
+
+
+
+绿仙还在唱啊，嗓子还好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30878#       发表于 2021-2-6 19:24
+
+
+
+
+芙莲：我不装了，就是冲着第一名来的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30879#       发表于 2021-2-6 19:29
+
+
+
+
+同社倒嗓的那个今天还开了歌回呢……
+
+不过绿仙不是第一次了，应该没事吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30880#       发表于 2021-2-6 19:30
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gne1hfsy2xj20xr0j1agn.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gne1hmuzrwj20xv0iytfm.jpg" referrerpolicy="no-referrer">
+
+
+日本人民防疫认知写照.jpg
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 30881#       发表于 2021-2-6 19:31
+
+
+
+ 本帖最后由 katern 于 2021-2-6 20:04 编辑 
+
+这些东西普通民众根本没人关心吧，之前五小不是还被炎上过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl   草，老爱理科92，铃鸣486 0分<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30882#       发表于 2021-2-6 20:06
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gne2hteco6j20ki0slwky.jpg" referrerpolicy="no-referrer">
+
+
+人人都如龙<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30883#       发表于 2021-2-6 20:12
+
+
+
+[https://www.youtube.com/watch?v=nJBlXS8J1lA](https://www.youtube.com/watch?v=nJBlXS8J1lA)
+
+Rainy proof / HACHI 【Official MV】
+
+[https://www.youtube.com/watch?v=ltSQ3GM3MHs](https://www.youtube.com/watch?v=ltSQ3GM3MHs)
+
+caffeine - Covered by YuNi【秋山黄色】
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 30884#       发表于 2021-2-6 20:22
+
+
+
+
+2021还没一个半月，inui唱了五次歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+是什么让你变成这样的，kpi吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30885#       发表于 2021-2-6 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 椎名这订阅为啥冲不上去阿，姐妹都50w了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 30886#       发表于 2021-2-6 20:44
+
+
+
+
+明天hh演唱会值得看吗
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 30887#       发表于 2021-2-6 20:49
+
+
+
+
+HH的Live看到就是赚到
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 30888#       发表于 2021-2-6 21:06
+
+
+
+
+hachi新单曲出了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 30889#       发表于 2021-2-6 21:20
+
+
+
+ 本帖最后由 JoelBirch 于 2021-2-6 21:55 编辑 
+
+原来月灵在播，一进去就听见在说“可乐”，她讲中文的腔调真滴可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+syl，今天弹幕好混沌，嫦娥，中国航天，后羿，奥特曼……一群人在版聊，都啥跟啥啊草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+zsyl，学宇宙人说话可爱疯了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+zzsyl，没看全，弹幕有说ZZ相关问题和4V的，看不到是谁发的，也不知道是因为有坏东西还是在KY，MD
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30890#       发表于 2021-2-6 21:44
+
+
+
+ 本帖最后由 winda 于 2021-2-6 21:47 编辑 
+
+vspo的valo红白战根本就是技术处刑啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl花芽姐好凶
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30891#       发表于 2021-2-6 21:56
+
+
+
+ 本帖最后由 rzrbtk 于 2021-2-6 21:58 编辑 
+
+之前外野也发过的，通过遗传算法做涩图，已经变成郡道的每日转发任务了，如果郡道在Q群，她一定是涩图小助手吧（[https://gamingchahan.com/ecchi/](https://gamingchahan.com/ecchi/)）。
+
+大家也可以去点点看，很有成就感。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30892#       发表于 2021-2-6 22:08
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gne6306mxuj20z50ln42v.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 30893#       发表于 2021-2-6 22:18
+
+
+
+
+上次听幸运曲奇还是66回红白，阿酱和优子把南哥惹哭<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30894#       发表于 2021-2-6 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50259750&amp;ptid=1969498" target="_blank">JoelBirch 发表于 2021-2-6 21:20</a>
+
+原来月灵在播，一进去就听见在说“可乐”，她讲中文的腔调真滴可爱
+
+
+syl，今天弹幕好混沌，嫦娥，中 ...</blockquote>
+怎么话题还能偏到这么歪去的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30895#       发表于 2021-2-6 22:28
+
+
+
+
+郡道去了老板娘凸<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">（毕竟你郡不快女王一出现踩数立增希望你郡好起来之后有联动吧）
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30896#       发表于 2021-2-6 22:50
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gne773lnc2g20ds07s4qt.gif" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gne7a1cnakg20du07s000.gif" referrerpolicy="no-referrer">
+
+
+新OP
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30897#       发表于 2021-2-6 23:04
+
+
+
+
+voms的三只现在全部银盾了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30898#       发表于 2021-2-6 23:06
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gne7qzd369g20du07sqvf.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30899#       发表于 2021-2-6 23:46
+
+
+
+
+不知不觉看hari妹妹玩了一晚上lol，各种跳脸嘲讽对面强强游戏力好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，nijikr真是各种宝藏
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 30900#       发表于 2021-2-6 23:49
+
+
+
+
+bora 14号有新衣服哎 不错
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 30901#       发表于 2021-2-7 00:01
+
+
+
+ 本帖最后由 SuntoryNomu 于 2021-2-7 00:08 编辑 
+
+<img src="https://i.loli.net/2021/02/07/X6nmTIfORsKL7hJ.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
