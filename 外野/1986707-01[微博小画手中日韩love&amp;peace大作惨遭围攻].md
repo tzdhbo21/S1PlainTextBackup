@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 10:07** 
+> ## **本文件最后更新于2021-02-07 11:00** 
 
 
 
@@ -24,6 +24,26 @@ love&amp;peace
 画手圈话事人：lunar ny是正确用法！
 <img src="https://p.sda1.dev/1/6d8679591373dc08e75114c23c3f6d56/IMG_CMP_93503705.jpeg" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wwwdnwcom| + 1|欢乐多|
+| 就很菜|-1|欢乐多|
+
+
+
+查看全部评分
 
 
 
@@ -2621,10 +2641,12 @@ https://weibo.com/u/5573409278
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| heta261| + 1||
+| zcrptx| + 1|好评加鹅|
 | M_K| + 1||
 | 黄耀明| + 1||
 | twita| + 1|确实|
@@ -2886,7 +2908,7 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266252&amp;ptid=1986707" target="_blank">大喇叭花田 发表于 2021-2-7 14:59</a>
 
 更好笑的是这画手是个乌合麒麟PTSD，然后他男友是乌合麒麟粉丝，两人吵翻了哈哈哈。 ...</blockquote>
-你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_m8f2j" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
+你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_uag5I" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
 
 
 
@@ -3622,4 +3644,402 @@ lunar new year什么问题？不都是这么用的吗</blockquote>
 
 
 
-                                           
+
+
+-----
+
+####  東方仗助  
+##### 193#       发表于 2021-2-7 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267874&amp;ptid=1986707" target="_blank">月形翔 发表于 2021-2-7 17:51</a>
+
+作者是怎么样的人我不熟，我也支持作者关于这幅画的立意
+
+
+一幅画蕴含的含义表达出来就行了，至于作者什么 ...</blockquote>
+不，哪怕是看似正确的话语，放在错误的场合说出来，也会变得不正确。
+
+
+前面有个回帖说的很好，其实这就是个BLM和ALM对立的问题。All Live Matter的口号从字面上理解没有任何问题，但是在实际使用上，它实际上就是白人至上主义者对黑人抗议警察暴力活动的抗争活动的消解，“All Live Matter”的实际意思根本不是要呼吁保护生命，而是“啊呀黑人白人不都会死的吗，所以你们黑人被杀就不要大惊小怪了”。
+
+
+Love&amp;Peace也是一样，这次中韩的起源冲突（其实也不局限于网上），不去搞清楚事情的原委，矛盾的焦点，而是无视事实自我感动地喊一些道德制高点的口号，惹来一身口水，根本上就是自作自受。
+
+
+
+
+
+
+
+-----
+
+####  月形翔  
+##### 194#       发表于 2021-2-7 18:21
+
+
+
+ 本帖最后由 月形翔 于 2021-2-7 18:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268080&amp;ptid=1986707" target="_blank">東方仗助 发表于 2021-2-7 18:15</a>
+
+不，哪怕是看似正确的话语，放在错误的场合说出来，也会变得不正确。
+
+
+前面有个回帖说的很好，其实这就是 ...</blockquote>
+这样一来，就变成一种按照自己需求来过度解读，我也清楚现在环境就这样不是不知道，我无意愿去说服这类人改变他的想法。
+
+
+同时我也不想被逼着改变想法。一幅画逼着人家认可某种解读就会有反效果，“你要教我做事？”这样的情绪反抗很正常。
+
+
+我就没看出这幅画汉服哪里敷衍哪里不好，中国这个怎么就成洗脚婢，这是汉服圈不够努力一直散发恶臭导致的。我就觉得挺好看的，没看出问题。
+
+
+作者怎么无所谓，我又不是他亲戚，她被逼到自杀我也就默哀一下。
+
+
+我只是看到了就表达自己看到的想法，我看到这幅画没看出这么多东西来，就是立意挺好的，小姑娘们也不难看。就是这么简单的事情，感叹一下现在环境太复杂了，带上个圈字，就得你死我活。
+
+
+
+
+
+
+
+-----
+
+####  scourge411  
+##### 195#       发表于 2021-2-7 18:24
+
+
+
+
+一个画师一旦染上了日式萌豚画风，有35%以上的概率变成智障。
+
+
+
+
+
+
+
+-----
+
+####  天南星  
+##### 196#       发表于 2021-2-7 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268080&amp;ptid=1986707" target="_blank">東方仗助 发表于 2021-2-7 18:15</a>
+不，哪怕是看似正确的话语，放在错误的场合说出来，也会变得不正确。
+
+
+前面有个回帖说的很好，其实这就是 ...</blockquote>
+说白了就是不自量力和稀泥，也不看看自己多少斤两，就敢在民族文化这种大问题上充当和事佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  populareal  
+##### 197#         楼主| 发表于 2021-2-7 18:26
+
+
+
+ 本帖最后由 populareal 于 2021-2-7 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268118&amp;ptid=1986707" target="_blank">月形翔 发表于 2021-2-7 18:21</a>
+这样一来，就变成一种按照自己需求来过度解读，我也清楚现在环境就这样不是不知道，我无意愿去说服这类人 ...</blockquote>
+画从来不是重点啊，在文化掠夺背景下l&amp;p操作才是重点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，相信我，开局一张图，没有配文，没有回复端午争议，不会引发这么广泛的关注。
+而且恕我直言，和韩国这种人均极端民粹的国家谈和平感化，属实有点小清新了。
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  就很菜  
+##### 198#       发表于 2021-2-7 18:27
+
+
+
+
+沙文主义者都是一个吊样
+
+
+
+
+
+
+
+-----
+
+####  zxtree  
+##### 199#       发表于 2021-2-7 18:27
+
+
+
+
+画画的里面有一些不是智障
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 200#       发表于 2021-2-7 18:33
+
+
+
+ 本帖最后由 观自在 于 2021-2-7 18:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266342&amp;ptid=1986707" target="_blank">鏡鑑星影 发表于 2021-2-7 15:07</a>
+lunar翻译成“太阴”的话，lunar calendar应该翻译成“太阴历”也就是阴历
+按照【正规】名称来说，阴历是一 ...</blockquote>
+跟“阴阳和谐”没多大关系。
+
+阴历可以在没有日历的情况下大致确定日期，以及指导渔业
+阳历指导农业
+
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 201#       发表于 2021-2-7 18:37
+
+
+
+<img src="https://p.sda1.dev/1/7b284ef0dd4bbdc37b728f63edb073b9/IMG_CMP_80584452.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/daea772e8a926898e209f94f396f5329/IMG_20210207_183636_794.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  populareal  
+##### 202#         楼主| 发表于 2021-2-7 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268243&amp;ptid=1986707" target="_blank">观自在 发表于 2021-2-7 18:37</a>
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+春晚没雷母我不看！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  GrimReaper  
+##### 203#       发表于 2021-2-7 18:42
+
+
+
+
+很好奇专业考古古代服侍的对汉服圈和这类事件作何感想？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ビッチ  
+##### 204#       发表于 2021-2-7 18:43
+
+
+
+
+损着别人的牙眼,却反对报复,主张宽容的人,万勿和他接近
+
+
+
+
+
+
+
+-----
+
+####  史三问  
+##### 205#       发表于 2021-2-7 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268118&amp;ptid=1986707" target="_blank">月形翔 发表于 2021-2-7 18:21</a>
+
+这样一来，就变成一种按照自己需求来过度解读，我也清楚现在环境就这样不是不知道，我无意愿去说服这类人 ...</blockquote>
+你这短短一段话有11个我，自我意识太过剩了
+[https://weibo.com/1757197675/K0O ... t#_rnd1612694634283](https://weibo.com/1757197675/K0OTUcJsX?type=comment#_rnd1612694634283)
+
+
+看不懂来看这个
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 206#       发表于 2021-2-7 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268243&amp;ptid=1986707" target="_blank">观自在 发表于 2021-2-7 18:37</a>
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+常看常新！
+
+
+
+
+
+
+
+-----
+
+####  哩子ayil  
+##### 207#       发表于 2021-2-7 18:50
+
+
+
+
+雷宝每说十句话有八句都是回旋镖
+
+
+
+
+
+
+
+-----
+
+####  Prushka  
+##### 208#       发表于 2021-2-7 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268280&amp;ptid=1986707" target="_blank">史三问 发表于 2021-2-7 18:44</a>
+你这短短一段话有11个我，自我意识太过剩了
+
+https://weibo.com/1757197675/K0OTUcJsX?type=comment#_rnd1 ...</blockquote>
+“我”字多就代表“自我意识过过剩”，有没有考虑过对方想表达这个观点是主观的个人的，不是武断的不容置疑的呢？
+
+ps：对他的观点我没看也不评价，仅针对你的这个观点回复
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 209#       发表于 2021-2-7 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267769&amp;ptid=1986707" target="_blank">nonecat 发表于 2021-2-7 17:37</a>
+
+虽然我主观感受觉得这画师说话茶味很重
+
+但支持她的人意外的多
+
+看来大部分人对出警这种事更是积怨已久…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不上支持，只是反感出警的人更多
+
+
+
+
+
+
+
+-----
+
+####  Toki_Ai  
+##### 210#       发表于 2021-2-7 18:57
+
+
+
+
+贴一下切瓜环节<img src="https://p.sda1.dev/1/5b56bf5d4a057d3b341e79317478e1a5/IMG_CMP_91406414.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hd7856101  
+##### 211#       发表于 2021-2-7 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268371&amp;ptid=1986707" target="_blank">Toki_Ai 发表于 2021-2-7 18:57</a>
+贴一下切瓜环节</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+“新文化的领导者”
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 212#       发表于 2021-2-7 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268371&amp;ptid=1986707" target="_blank">Toki_Ai 发表于 2021-2-7 18:57</a>
+贴一下切瓜环节</blockquote>
+领导者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                                          
