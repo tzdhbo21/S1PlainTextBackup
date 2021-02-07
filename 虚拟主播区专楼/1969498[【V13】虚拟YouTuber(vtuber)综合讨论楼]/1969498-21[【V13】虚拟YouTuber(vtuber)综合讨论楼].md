@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-06 16:56** 
+> ## **本文件最后更新于2021-02-07 11:32** 
 
 
 
@@ -16929,6 +16929,25 @@ cover-corp.com/contact/
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17440,4 +17459,771 @@ bora 14号有新衣服哎 不错
 
 
 
-                   
+
+
+-----
+
+####  FCCHua  
+##### 30902#       发表于 2021-2-7 08:11
+
+
+
+
+小魔王要有大人形象了，2月10号晚9点披露，3月那个谜语有概率会是3d公布<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30903#       发表于 2021-2-7 08:56
+
+
+
+
+补图
+
+<img src="https://img.saraba1st.com/forum/202102/07/085633ndxjdfxwjw93hdzd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210207_085423.jpg</strong> (596.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 08:56 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 30904#       发表于 2021-2-7 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">赤色组织真是突出一个分配不均，耳毛到现在还没第二件衣服，其他两个人都有新衣服和第二形态了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30905#       发表于 2021-2-7 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 这次大人形象要和谁属性冲突呢？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 30906#       发表于 2021-2-7 12:11
+
+
+
+
+分配不均，是指没有单独新衣的某个长耳族吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30907#       发表于 2021-2-7 12:22
+
+
+
+
+大和魂是什么？今晚八点野猫英语凸待！（[https://youtu.be/PX_onUBlv-A](https://youtu.be/PX_onUBlv-A)），
+虽然感觉海外哥很喜欢best crazy cat，但这人英语根本不行，真有人来凸咋办啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30908#       发表于 2021-2-7 12:28
+
+
+
+
+https://youtu.be/YeZfY5lMdlI
+yyut和yomii的连弹耐久
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 30909#       发表于 2021-2-7 12:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/122849klzxw1001ppiiwh0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ホワイトデー01.jpg</strong> (199.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 12:28 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/122849a9uusi9sqv6nsnk6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ホワイトデー02.jpg</strong> (96.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 12:28 上传
+
+
+
+
+
+
+
+我现在就想看新一届CR<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30910#       发表于 2021-2-7 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264486&amp;ptid=1969498" target="_blank">asdhai 发表于 2021-2-7 12:11</a>
+分配不均，是指没有单独新衣的某个长耳族吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么，公派的大锅饭还没吃够么
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 30911#       发表于 2021-2-7 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264712&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-2-7 12:30</a>
+
+我现在就想看新一届CR</blockquote>
+行吧，ras和selly这次两个人都18，ojiji就是这么对待自家头牌的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 30912#       发表于 2021-2-7 14:13
+
+
+
+
+皇女转播人气离谱
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30913#       发表于 2021-2-7 14:31
+
+
+
+
+这个女性减2分的规则还没去掉啊😅
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30914#       发表于 2021-2-7 14:36
+
+
+
+
+不要cr不要cr
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 30915#       发表于 2021-2-7 14:57
+
+
+
+
+打枪比赛结束了会发生什么？
+
+打枪比赛要开始了。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 30916#       发表于 2021-2-7 14:59
+
+
+
+
+皇女玩的仔细，什么都会看一眼。而且时不时蹦出点中文，b站的大家最喜欢了，而且皇女声音也好听。
+看了几次直播我都想下个原神了，害人害人。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30917#       发表于 2021-2-7 15:04
+
+
+
+
+而且我预感这张图的比赛会超级难看
+地图太小，没人敢打架，一打全是渔夫
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30918#       发表于 2021-2-7 15:17
+
+
+
+
+晚7点蓝之华live，现在还可以买票，走过路过不要错过，看到就是赚到
+[https://live.bilibili.com/blackboard/activity-CFWkh8KYq.html](https://live.bilibili.com/blackboard/activity-CFWkh8KYq.html)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30919#       发表于 2021-2-7 15:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/155209x4jvomh94v95vnbe.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #051 - '【COLLAB】 Let's Draw with HoloEN!.png</strong> (196.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 15:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30920#       发表于 2021-2-7 15:53
+
+
+
+
+你圈的打枪比赛到今天基本上就是顶流V给底边打枪V和主办者送温暖，当然V自己开心就好。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30921#       发表于 2021-2-7 16:26
+
+
+
+[https://www.youtube.com/watch?v=DEdH-SEQG4Y](https://www.youtube.com/watch?v=DEdH-SEQG4Y)
+
+VTuber Fes. UnderLine powered by COMP
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30922#       发表于 2021-2-7 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 你虹今年还有春节祝福吗？
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 30923#       发表于 2021-2-7 17:16
+
+
+
+<blockquote>눈보라ヌンボラ【NIJISANJI KR】 @BoraNun2434
+
+
+【#ヌンボラ新衣装】みんなのおかげで新衣装ができました！【ヌンボラ/にじさんじKR】
+
+❄️2月14日（日）❄️
+
+💜19時から(予定)💜</blockquote>
+バレンタインデーの最高のプレゼント
+
+・・になって欲しい🐻
+
+[https://youtu.be/CNDEWPBYUwY](https://youtu.be/CNDEWPBYUwY)
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/171000a88ndds8lvy8n88u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EtjceFMVoAEJtlL.jpg</strong> (181.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 17:10 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30924#       发表于 2021-2-7 18:02
+
+
+
+[https://www.youtube.com/channel/UCFv2z4iM5vHrS8bZPq4fHQQ](https://www.youtube.com/channel/UCFv2z4iM5vHrS8bZPq4fHQQ)
+
+蓝之华油管这边开始了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 30925#       发表于 2021-2-7 18:07
+
+
+
+
+熊猫人都要回来b限了，皇女今年也不是不可能啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30926#       发表于 2021-2-7 18:18
+
+
+
+[https://www.bilibili.com/video/BV1R541177wo](https://www.bilibili.com/video/BV1R541177wo)
+
+重新弄了我们家大葵的合集，大家三连一下呀
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 30927#       发表于 2021-2-7 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267974&amp;ptid=1969498" target="_blank">free 发表于 2021-2-7 18:02</a>
+
+https://www.youtube.com/channel/UCFv2z4iM5vHrS8bZPq4fHQQ
+
+蓝之华油管这边开始了</blockquote>
+油管无料部分结束了还做了个场外效果继续播，工务店永远滴神
+
+
+
+
+
+
+
+-----
+
+####  八云橙汁  
+##### 30928#       发表于 2021-2-7 18:22
+
+
+
+
+草。HH这个。笑死我了。现在听到场外一样的效果音。很像没买票的人站在演唱会会场外面看里面一样
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 30929#       发表于 2021-2-7 18:38
+
+
+
+
+今年没买票，2020一年的歌都不太合我胃口，最新的歌试听了一下我也不咋喜欢。
+可惜专辑盘的盒子被压出一条裂缝了，现在就算想卖也卖不出去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30930#       发表于 2021-2-7 18:55
+
+
+
+
+唱到哭腔
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/185519q7rzllgfeprzzpgl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210207195437.png</strong> (195.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 18:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 30931#       发表于 2021-2-7 18:56
+
+
+
+
+https://live.bilibili.com/22671728?broadcast_type=0&amp;is_room_feed=0&amp;share_source=copy_link
+
+星巡这个运营是不是有后台的，半年就有3d了而且还投那么多广告
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 30932#       发表于 2021-2-7 19:20
+
+
+
+
+我记得安给向皇女吐槽过学中文企划就像一群人盯着着一个宝宝学说话一样(尴尬)。总之安给应该是不想来，皇女得看自身意愿。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30933#       发表于 2021-2-7 19:20
+
+
+
+ 本帖最后由 free 于 2021-2-7 19:22 编辑 
+
+“字幕服务器故障正在抢修”<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/192218hne2e9t2mnr2pr0t.png" referrerpolicy="no-referrer">
+
+
+<strong>抢修.png</strong> (62.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 19:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30934#       发表于 2021-2-7 19:22
+
+
+
+ 本帖最后由 十四洲 于 2021-2-7 19:30 编辑 
+
+
+
+bora这就跟Qu勾搭上了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+image.png
+(35.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-7 19:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/192204jv93fsc36zspduf1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 30935#       发表于 2021-2-7 19:23
+
+
+
+
+什么玩意儿啊，字幕卡住了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 30936#       发表于 2021-2-7 19:25
+
+
+
+
+延迟一小时字幕也能出问题
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30937#       发表于 2021-2-7 19:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> bora要是JP人，现在社内二姐就是她了，可惜她不是
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30938#       发表于 2021-2-7 19:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/193206g5ebxv5bkkwipkxw.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (58.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 19:32 上传
+
+
+
+
+
+
+
+
+
+                  
