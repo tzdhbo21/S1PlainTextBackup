@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 08:06** 
+> ## **本文件最后更新于2021-02-07 10:07** 
 
 
 
@@ -51,10 +51,11 @@ love&amp;peace
 
 
 
- 参与人数 4战斗力 -1
+ 参与人数 5战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| waox|-2|平衡|
 | turnyyy|-1|这画师什么货色先去了解下|
 | RE-OIL_Hen!!| + 1|不用卡 能手动出发|
 | 寒冰猫爪| + 1|这个bug怎么卡的|
@@ -2620,10 +2621,13 @@ https://weibo.com/u/5573409278
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| M_K| + 1||
+| 黄耀明| + 1||
+| twita| + 1|确实|
 | 硫儿| + 1||
 
 
@@ -2882,7 +2886,7 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266252&amp;ptid=1986707" target="_blank">大喇叭花田 发表于 2021-2-7 14:59</a>
 
 更好笑的是这画手是个乌合麒麟PTSD，然后他男友是乌合麒麟粉丝，两人吵翻了哈哈哈。 ...</blockquote>
-你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_C27ok" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
+你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_m8f2j" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
 
 
 
@@ -3300,4 +3304,322 @@ lunar翻译成“太阴”的话，lunar calendar应该翻译成“太阴历”�
 
 
 
-                                            
+
+
+-----
+
+####  killer0079  
+##### 175#       发表于 2021-2-7 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265091&amp;ptid=1986707" target="_blank">reficul 发表于 2021-2-7 12:59</a>
+
+lunar new year什么问题？不都是这么用的吗</blockquote>
+这个词本身就是错误的。因为中国一直都是阴阳合历，并没大范围用过太阴历。<strong></strong>
+
+
+
+
+
+
+
+-----
+
+####  populareal  
+##### 176#         楼主| 发表于 2021-2-7 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266878&amp;ptid=1986707" target="_blank">酒瓶止迁 发表于 2021-2-7 16:04</a>
+汉服圈本身就烂，所以这次出警有理也会被很多反汉服圈的反对，明明就是一层皮，自己考据不足，还非要强制 ...</blockquote>
+这次和汉服圈并没多大关系，本质是和稀泥行为可笑，比如blm时期，有人跑去高喊all lives matter，那肯定要被一拳头撂倒在地<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Tiger莉莉  
+##### 177#       发表于 2021-2-7 16:22
+
+
+
+
+谁要跟棒子love&amp;peace，要舔别怕被喷啊
+
+
+
+
+
+
+
+-----
+
+####  fever41  
+##### 178#       发表于 2021-2-7 16:29
+
+
+
+
+棒子就是贱
+
+
+
+
+
+
+
+-----
+
+####  纸皮  
+##### 179#       发表于 2021-2-7 16:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有本事愣说漆皮紧身衣是中华传统服饰都行
+
+自己跪舔搁这LOVE&amp;PEACE还被人照脸喷那可真是太靓仔了
+
+
+
+
+
+
+
+-----
+
+####  酒瓶止迁  
+##### 180#       发表于 2021-2-7 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267019&amp;ptid=1986707" target="_blank">populareal 发表于 2021-2-7 16:21</a>
+
+这次和汉服圈并没多大关系，本质是和稀泥行为可笑，比如blm时期，有人跑去高喊all lives matter，那肯定 ...</blockquote>
+这么想的人，屁股就坐定了，谁管是不是真的汉服警察……
+
+
+
+
+
+
+
+-----
+
+####  旺旺牛奶  
+##### 181#       发表于 2021-2-7 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264748&amp;ptid=1986707" target="_blank">ESAKA!!!! 发表于 2021-2-7 12:33</a>
+80甚至70年代美国就满地的lunar new year了，怎么就成韩国越南搞的阴谋了</blockquote>
+**原先也不是侮辱性词语啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 來自 OPPO PCCM00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  天真无鞋  
+##### 182#       发表于 2021-2-7 16:44
+
+
+
+
+确实一眼看过去，画的略敷衍。
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 183#       发表于 2021-2-7 16:51
+
+
+
+
+棒子被称为二鬼子，比大鬼子更可恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qds  
+##### 184#       发表于 2021-2-7 16:52
+
+
+
+
+棒子的女团和长条漫我都看不下去，还有啥能看的
+
+
+
+
+
+
+
+-----
+
+####  waox  
+##### 185#       发表于 2021-2-7 17:05
+
+
+
+
+你和**lp尼玛呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 186#       发表于 2021-2-7 17:05
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2021-2-7 17:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267218&amp;ptid=1986707" target="_blank">旺旺牛奶 发表于 2021-2-7 16:41</a>
+**原先也不是侮辱性词语啊
+
+—— 來自 OPPO PCCM00, Android 10上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那现在lunar new year就是侮辱性词语咯，我寻思也没见着法拉盛还是哪的华人不爽这个词啊，在英语语境下也就是merry christmas和happy holiday的区别，说前者最好，说后者也不算冒犯，谁会上赶着跟人纠正是阴阳历不是纯阴历，自己知道这个的有多少都两说呢
+
+
+
+
+
+
+
+-----
+
+####  pandaman7777  
+##### 187#       发表于 2021-2-7 17:17
+
+
+
+
+二刺螈画图圈早该管管了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nonecat  
+##### 188#       发表于 2021-2-7 17:37
+
+
+
+
+虽然我主观感受觉得这画师说话茶味很重
+
+但支持她的人意外的多
+
+看来大部分人对出警这种事更是积怨已久……
+
+
+
+
+
+
+
+-----
+
+####  韩子  
+##### 189#       发表于 2021-2-7 17:40
+
+
+
+
+还是要说句不要把雷母站位当成评判标准（虽然我是早就拉黑这个sb了
+
+
+
+
+
+
+
+-----
+
+####  kanago  
+##### 190#       发表于 2021-2-7 17:47
+
+
+
+[https://m.weibo.cn/5288444488/4567296749607116](https://m.weibo.cn/5288444488/4567296749607116)
+有一说一，汉服也有简约风和汉洋折衷
+实在画不来复杂的织金也可以简简单单的呀
+
+
+
+
+
+
+
+-----
+
+####  月形翔  
+##### 191#       发表于 2021-2-7 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267769&amp;ptid=1986707" target="_blank">nonecat 发表于 2021-2-7 17:37</a>
+
+虽然我主观感受觉得这画师说话茶味很重
+
+但支持她的人意外的多
+
+看来大部分人对出警这种事更是积怨已久…… ...</blockquote>
+作者是怎么样的人我不熟，我也支持作者关于这幅画的立意
+
+
+一幅画蕴含的含义表达出来就行了，至于作者什么目标什么心思的解读，并不影响这幅画的愿景。
+
+
+
+
+
+
+
+
+-----
+
+####  郁子MM  
+##### 192#       发表于 2021-2-7 17:58
+
+
+
+
+这套汉服还真是不管哪个次元都不好看。
+
+
+
+
+
+                                           
