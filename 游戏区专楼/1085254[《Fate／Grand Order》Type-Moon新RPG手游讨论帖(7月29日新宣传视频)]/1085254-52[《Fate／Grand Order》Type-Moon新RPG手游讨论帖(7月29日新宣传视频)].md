@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-06 09:39** 
+> ## **本文件最后更新于2021-02-07 02:00** 
 
 
 
@@ -25151,4 +25151,402 @@ yls是去年收入不好看被DW批评了所以今年天天出老角色来留老
 
 
 
-   
+
+
+-----
+
+####  清风朗月  
+##### 77889#       发表于 2021-2-6 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257721&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-6 17:33</a>
+
+这游戏事到如今还有老粉的存在吗</blockquote>
+我推特上关注的雷欧厨（大概搓出二十多张理想王圣，十几张黄昏王圣满破）的，从16年开始玩，至今还在等雷欧兄弟实装，本子那边比较长情的还是有的。
+
+
+
+
+
+
+
+-----
+
+####  eden_hazard  
+##### 77890#       发表于 2021-2-6 17:40
+
+
+
+
+好，抽爆抽爆
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77891#       发表于 2021-2-6 17:45
+
+
+
+
+卡莲的画师好像是伊斯塔的那位，质量也该不差。突然有些期待麻婆落地后父女间的特殊语音了。
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 77892#       发表于 2021-2-6 17:47
+
+
+
+
+卡莲太美了吧
+
+
+
+
+
+
+
+-----
+
+####  卡蓮  
+##### 77893#       发表于 2021-2-6 17:48
+
+
+
+
+nmb，这一个个都盯着我年终奖来
+
+
+
+
+
+
+
+-----
+
+####  ネロ  
+##### 77894#       发表于 2021-2-6 18:00
+
+
+
+
+小清水这版怎么配得这么幼
+
+跟以前她配的差别也太大了
+
+还是遗产DRAMA CD时的好
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 77895#       发表于 2021-2-6 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257862&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-6 17:48</a>
+
+nmb，这一个个都盯着我年终奖来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77896#       发表于 2021-2-6 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257862&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-6 17:48</a>
+
+nmb，这一个个都盯着我年终奖来</blockquote>
+不5宝对不起ID啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77897#       发表于 2021-2-6 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257862&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-6 17:48</a>
+
+nmb，这一个个都盯着我年终奖来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">记得抽完5宝来晒哦
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77898#       发表于 2021-2-6 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257862&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-6 17:48</a>
+
+nmb，这一个个都盯着我年终奖来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前求个好友位啊
+
+
+
+
+
+
+
+-----
+
+####  ネロ  
+##### 77899#       发表于 2021-2-6 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257862&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-6 17:48</a>
+
+nmb，这一个个都盯着我年终奖来</blockquote>
+5宝，好友位，请<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sk86  
+##### 77900#       发表于 2021-2-6 19:04
+
+
+
+
+为啥是卡莲先落地，这不公平
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  桜吹雪花小町  
+##### 77901#       发表于 2021-2-6 19:05
+
+
+
+
+看傻了，卡莲落地了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 77902#       发表于 2021-2-6 19:31
+
+
+
+
+所以FHA联动是没有了吗
+
+
+
+
+
+
+
+-----
+
+####  阿提拉  
+##### 77903#       发表于 2021-2-6 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258482&amp;ptid=1085254" target="_blank">sk86 发表于 2021-02-06 19:04:22</a>
+为啥是卡莲先落地，这不公平</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">人家是女主有H CG，你就只能吃土
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 77904#       发表于 2021-2-6 19:57
+
+
+
+
+震惊！卡莲竟然落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77905#       发表于 2021-2-6 20:25
+
+
+
+
+为啥安排情人节落地<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 77906#       发表于 2021-2-6 20:49
+
+
+
+
+卡莲大战言峰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  莫夜戎  
+##### 77907#       发表于 2021-2-6 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50257862&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-6 17:48</a>
+
+nmb，这一个个都盯着我年终奖来</blockquote>
+年终奖抽我自己<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 77908#       发表于 2021-2-6 21:34
+
+
+
+
+圣瓦伦丁/爱神附体？应该又是混了神性进去吧
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  sk86  
+##### 77909#       发表于 2021-2-7 08:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258907&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-2-6 19:50</a>
+
+人家是女主有H CG，你就只能吃土
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+八成是个废物五星角色，没啥好羡慕的
+
+
+
+
+
+
+
+-----
+
+####  克苏鲁系青骑士  
+##### 77910#       发表于 2021-2-7 09:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">红A同款圣骸布礼装，搞不好和红A类似是未来型呢
+
+
+
+
+
+
+
+-----
+
+####  阿提拉  
+##### 77911#       发表于 2021-2-7 09:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50262651&amp;ptid=1085254" target="_blank">sk86 发表于 2021-2-7 08:57</a>
+
+八成是个废物五星角色，没啥好羡慕的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  
