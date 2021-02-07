@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-31 08:45** 
+> ## **本文件最后更新于2021-02-07 13:29** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_wubaV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_IjqT8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_aXApF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_erBZC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -22252,7 +22252,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_p539V" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_jnzyk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -26721,4 +26721,522 @@ OST2的某些曲子让我想起小时候看的奥特曼</blockquote>
 
 
 
- 
+
+
+-----
+
+####  武男  
+##### 2943#       发表于 2021-1-31 16:55
+
+
+
+
+拥抱的PTSD患者不少
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 2944#       发表于 2021-1-31 17:49
+
+
+
+
+rideon装了这么多集，结果干部里面最废是你呀<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">废到被狠狠打爆都完全不爽的感觉
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2945#       发表于 2021-1-31 18:34
+
+
+
+
+爽快！<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+垃圾人长得好看的就能洗白的套路太恶心了 Q娃就该不可原谅啊
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2946#       发表于 2021-1-31 18:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不至于非得踩一捧一吧，抱q都过去两年了。话说回来这集的台词写得真不错啊，完全不鸟反派的诡辩，直戳核心。
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2947#       发表于 2021-1-31 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50199753&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2021-01-31 18:39:00</a>
+不至于非得踩一捧一吧，抱q都过去两年了。话说回来这集的台词写得真不错啊，完全不鸟反派的诡辩，直戳核心 ...</blockquote>+1，这次的台词写的很有力，不扯空话直击核心有理有据，和这个比起来去年的原谅是什么东西
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 2948#       发表于 2021-1-31 18:50
+
+
+
+
+达鲁伊森和和佳的这条线，我是觉得不如不写，去除中间恶心的部分，直接打爆不是更好。
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 2949#       发表于 2021-1-31 18:58
+
+
+
+
+当初是想把和佳与达鲁伊森写成宿敌的吧，我认为是回归了初设
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2950#       发表于 2021-1-31 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50199857&amp;ptid=1860852" target="_blank">SRyeB 发表于 2021-01-31 18:50:41</a>
+达鲁伊森和和佳的这条线，我是觉得不如不写，去除中间恶心的部分，直接打爆不是更好。 ...</blockquote>我觉得是改设定了，原本应该是有想捧成CP的念头的，但疫情问题洗白病毒是明显不符合当前价值观的，那就直接打爆完事了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2951#       发表于 2021-1-31 19:10
+
+
+
+
+不过下集应该是爱苏米要自我牺牲了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2952#       发表于 2021-1-31 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50200005&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2021-1-31 19:07</a>
+
+我觉得是改设定了，原本应该是有想捧成CP的念头的，但疫情问题洗白病毒是明显不符合当前价值观的，那就直接 ...</blockquote>
+就是这种感觉，动画之外的环境已经不允许原谅病毒了所以只能急转弯
+
+
+
+
+
+
+
+-----
+
+####  rp-1  
+##### 2953#       发表于 2021-1-31 19:45
+
+
+
+
+完全不觉得有任何改动。
+
+和佳现在这个决定有力量感，就是因为建立在之前的互动上的。
+
+如果一开始和佳就是类似的态度，那完全就没有这种力量感了，这段剧情的基础都很薄弱了。
+
+而且看这个人设，本身就很有疫苗的后续发展。
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2954#       发表于 2021-1-31 19:46
+
+
+
+<blockquote>風駿 发表于 2021-1-31 19:40
+就是这种感觉，动画之外的环境已经不允许原谅病毒了所以只能急转弯</blockquote>
+以香村阿姨的尿性我更倾向于没有急转弯
+
+
+
+
+
+
+
+-----
+
+####  sAviOr  
+##### 2955#       发表于 2021-1-31 19:50
+
+
+
+
+好！有公主的味道。
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2956#       发表于 2021-1-31 22:55
+
+
+
+
+ride on是什么梗？
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2957#       发表于 2021-1-31 23:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">达鲁伊森做过些什么我还是记得的
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2958#       发表于 2021-1-31 23:21
+
+
+
+<blockquote>灼眼的夏娜酱 发表于 2021-1-31 22:55
+ride on是什么梗？</blockquote>
+高达铁血，声优梗
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2959#       发表于 2021-2-1 09:09
+
+
+
+
+比起当面的狠话我比较喜欢房间那段对谈。。。台词写得非常合理有力，大快人心
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 2960#       发表于 2021-2-1 10:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这话主旨好评
+下一话earth是要退场了吗0 0
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 2961#       发表于 2021-2-1 10:05
+
+
+
+
+king病原neo上一个形态感觉也是动物，盲猜全力状态healing animal也有人形？
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 2962#       发表于 2021-2-1 10:13
+
+
+
+
+太好了，打得好
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2963#       发表于 2021-2-4 16:14
+
+
+
+
+与三爷的新形态。有舅舅说还有新的形态
+
+
+
+
+
+
+img-d38099682147f7b1b1fa758f92f49865.jpg
+(163.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-4 16:14 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/04/161406bdpzamaa4hmaec4d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 2964#       发表于 2021-2-4 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50201948&amp;ptid=1860852" target="_blank">灼眼的夏娜酱 发表于 2021-01-31 22:55:35</a>
+ride on是什么梗？</blockquote>田村睦心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2965#       发表于 2021-2-4 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50238350&amp;ptid=1860852" target="_blank">csolfans 发表于 2021-2-4 16:14</a>
+
+与三爷的新形态。有舅舅说还有新的形态</blockquote>
+“快给你三爷和姑奶奶磕头！”
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2966#       发表于 2021-2-5 09:49
+
+
+
+
+看新pv，三爷和和佳太强了，顺便这和佳6套衣服，历代最多？
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 2967#       发表于 2021-2-5 10:17
+
+
+
+ 本帖最后由 Cloudslin 于 2021-2-5 10:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50244281&amp;ptid=1860852" target="_blank">lydia5989 发表于 2021-2-5 09:49</a>
+看新pv，三爷和和佳太强了，顺便这和佳6套衣服，历代最多？</blockquote>
+其实这样一算三爷也六种了，另外公主组如果mode elegant算三种不同形态的话总共有十种
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2968#       发表于 2021-2-5 11:31
+
+
+
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4601120408928261?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2969#       发表于 2021-2-6 22:30
+
+
+
+
+三爷的嗓音一出，让人立刻发觉5GOGO已经是很多年前的Q娃了
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 2970#       发表于 2021-2-7 18:08
+
+
+
+
+看到反派龟儿子被吸收，大快人心，一年来被CP弹幕恶心到不想参与讨论，终于干死这个龟儿子，看说法被吸收了就失去自我，而且本身就是病毒也不用担心打完最终BOSS他们还有人间体复活，爽到
+
+
+你做得好，做得好呀
+
+
+
+
+
+
+
+-----
+
+####  twit  
+##### 2971#       发表于 2021-2-7 20:44
+
+
+
+
+所以这是女干部被艾苏米吸收了？为啥？
+
+
+
+
+

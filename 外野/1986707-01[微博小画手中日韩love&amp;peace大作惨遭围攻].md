@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 11:00** 
+> ## **本文件最后更新于2021-02-07 14:19** 
 
 
 
@@ -71,10 +71,11 @@ love&amp;peace
 
 
 
- 参与人数 5战斗力 -3
+ 参与人数 6战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 东海尖头鳗|-1|平衡点|
 | waox|-2|平衡|
 | turnyyy|-1|这画师什么货色先去了解下|
 | RE-OIL_Hen!!| + 1|不用卡 能手动出发|
@@ -862,10 +863,12 @@ Steal Korea<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 
 
 
- 参与人数 11战斗力 -13
+ 参与人数 13战斗力 -15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 东海尖头鳗|-1|棒子看到鬼子有点急|
+| spiceeeeee|-1||
 | keiichi|-1||
 | 最好不说|-1|承认棒子和本子都是傻逼很难吗.|
 | Eva|-1|哦 你是棒子|
@@ -2908,7 +2911,7 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266252&amp;ptid=1986707" target="_blank">大喇叭花田 发表于 2021-2-7 14:59</a>
 
 更好笑的是这画手是个乌合麒麟PTSD，然后他男友是乌合麒麟粉丝，两人吵翻了哈哈哈。 ...</blockquote>
-你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_uag5I" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
+你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_f0gej" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
 
 
 
@@ -4042,4 +4045,595 @@ ps：对他的观点我没看也不评价，仅针对你的这个观点回复
 
 
 
-                                          
+
+
+-----
+
+####  遥仰苍穹  
+##### 213#       发表于 2021-2-7 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特把汉服圈小姑娘夹得都说出“什么时候才能入关啊？”这类言论了。
+
+
+
+
+
+
+
+-----
+
+####  shkillone1  
+##### 214#       发表于 2021-2-7 19:02
+
+
+
+
+反感出警  ×
+
+反感对自己喜欢的人出警  √
+
+
+那个乌合麒麟PTSD的人，我可不信他会在之前乌合麒麟被攻击的时候站出来
+
+
+最有趣的是，这段时间对韩国的讨厌气氛恰恰是因为韩国人在外网四处出警掠夺中国文化所致，不知道她们有没有正义直言
+
+
+
+
+
+
+
+-----
+
+####  Humpy  
+##### 215#       发表于 2021-2-7 19:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老雷都出来了那就容易选边站了。
+
+
+
+
+
+
+
+-----
+
+####  大江户战士  
+##### 216#       发表于 2021-2-7 19:07
+
+
+
+
+这事被一群人模糊焦点了，正方反方都有
+
+
+画的潦草只是次要原因啊，出警不是作者被喷的原因
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 217#       发表于 2021-2-7 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">韩国人跟疯狗一样对东北和朝鲜半岛都有的玩意出警时她们咋不像现在这么激动？
+
+
+
+
+
+
+
+-----
+
+####  桜吹雪花小町  
+##### 218#       发表于 2021-2-7 19:10
+
+
+
+
+浪国小画家本事没多大，下跪和带节奏永远有他们<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  populareal  
+##### 219#         楼主| 发表于 2021-2-7 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268450&amp;ptid=1986707" target="_blank">大江户战士 发表于 2021-2-7 19:07</a>
+这事被一群人模糊焦点了，正方反方都有
+
+
+画的潦草只是次要原因啊，出警不是作者被喷的原因 ...</blockquote>
+我相信有一部分人是在故意带节奏模糊，转移重点<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，文化侵略的事，愣是歪到汉服警察上
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  卒业之勇  
+##### 220#       发表于 2021-2-7 19:15
+
+
+
+
+雷母咋这么喜欢凑热闹呢，最后又吸引火力到自己身上
+
+真是浪国画师最后的庇护所
+
+
+
+
+
+
+
+-----
+
+####  史三问  
+##### 221#       发表于 2021-2-7 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268335&amp;ptid=1986707" target="_blank">Prushka 发表于 2021-2-7 18:53</a>
+
+“我”字多就代表“自我意识过过剩”，有没有考虑过对方想表达这个观点是主观的个人的，不是武断的不容置 ...</blockquote>
+哪块工地抬钢筋的？明明是说的文化盗窃的硬议题，看不懂还要出来一大堆我觉得，是想感动谁？
+
+
+
+
+
+
+
+-----
+
+####  是挞不是派  
+##### 222#       发表于 2021-2-7 19:18
+
+
+
+
+得将认为汉服画得潦草和出警汉服形制分开啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  语文j教师  
+##### 223#       发表于 2021-2-7 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264326&amp;ptid=1986707" target="_blank"> 叶子轻 发表于 2021-2-7 11:55</a> 引用:populareal 发表于 2021-2-7 11:47 不是，这跟形制无关，只和完成度有关啊！怎么赖上汉服警察了，不是正常人肉眼都能看出吗？  ——  ... 对汉服衍生绘画作品稍微有了解的都知道，画汉服形制不对会发生什么可怕的事情。这恐怕也是画手费尽心思找了汉服圈鄙视链顶端的明华堂直接按店里款式画的原因。 在这个节骨眼上如果形制不小心画错了岂不是罪加一等 </blockquote>
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  wangh  
+##### 224#       发表于 2021-2-7 19:21
+
+
+
+
+“中日韩love&amp;peace”这里只要去掉韩就什么事都没有了
+
+
+你看国人做日式二次元手游，输出和服都赚多少钱了，有闹出什么来吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 225#       发表于 2021-2-7 19:27
+
+
+
+
+可以去看一下那个韩国画师的推特背景图和简介，看来是破防了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+同认为有人在故意混淆视听。
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 226#       发表于 2021-2-7 19:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，二次元韩服哪有存在感啊
+
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 227#       发表于 2021-2-7 19:30
+
+
+
+
+有雷母下场，这边就好站了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 228#       发表于 2021-2-7 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268371&amp;ptid=1986707" target="_blank">Toki_Ai 发表于 2021-2-7 18:57</a>
+贴一下切瓜环节</blockquote>
+我怀疑这群“画师”在“文化输出”上的贡献有没有碧蓝航线或者米忽悠的1%<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Eric_方歌阙  
+##### 229#       发表于 2021-2-7 19:47
+
+
+
+ 本帖最后由 Eric_方歌阙 于 2021-2-7 19:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">经典双标不要脸…妈的网上冲浪确实无聊，呼风唤雨的都是些什么玩意，快让我干活吧！
+
+
+
+
+
+
+
+-----
+
+####  鏡鑑星影  
+##### 230#       发表于 2021-2-7 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268217&amp;ptid=1986707" target="_blank">观自在 发表于 2021-2-7 18:33</a>
+跟“阴阳和谐”没多大关系。
+
+阴历可以在没有日历的情况下大致确定日期，以及指导渔业</blockquote>
+“我认为的”，纯瞎猜而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+见笑见笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 231#       发表于 2021-2-7 20:04
+
+
+
+
+乌合麒麟 
+
+今天 12:27 来自 iPhone 7
+
+我的新年愿望：
+
+希望这两天写小作文呼吁创作自由的浪国画手**们都可以把主语换成乌合麒麟再写一遍
+
+或者希望世界和平🙏 ​​​​
+<img src="https://wx1.sinaimg.cn/mw690/5d658f35ly1gneuvzgxeaj20e60amgm6.jpg" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/mw690/5d658f35ly1gneuvzgxeaj20e60amgm6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tony77065  
+##### 232#       发表于 2021-2-7 20:07
+
+
+
+
+人家抢你东西还要骂你，你还要和别人爱与和平这是一种什么精神。
+
+
+
+
+
+
+
+-----
+
+####  Aquila4869  
+##### 233#       发表于 2021-2-7 20:30
+
+
+
+
+这画手装啥白莲花呢，🍵味太重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+特别是吃到她外网各种评论，还有点赞g    d的截图瓜之后
+
+
+
+
+
+
+
+-----
+
+####  火箭布雷器  
+##### 234#       发表于 2021-2-7 20:30
+
+
+
+
+emmmmmm
+
+是不是画旗袍会被冲的更厉害
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 235#       发表于 2021-2-7 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268743&amp;ptid=1986707" target="_blank">羽桐れもん 发表于 2021-2-7 19:47</a>
+
+我怀疑这群“画师”在“文化输出”上的贡献有没有碧蓝航线或者米忽悠的1%
+
+
+—— 来自 Sony J9210, ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去掉怀疑，事实就是这样。
+
+
+
+
+
+
+
+-----
+
+####  pl0okm  
+##### 236#       发表于 2021-2-7 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">洗端午祭怎么没放进去，切瓜水平丢人啊
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 237#       发表于 2021-2-7 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268080&amp;ptid=1986707" target="_blank">東方仗助 发表于 2021-2-7 18:15</a>
+
+不，哪怕是看似正确的话语，放在错误的场合说出来，也会变得不正确。
+
+
+前面有个回帖说的很好，其实这就是 ...</blockquote>
+总结一下 就是你确实“真的找不出证据了但是我觉得这个语境下lunar就是不对” 咯 
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 238#       发表于 2021-2-7 20:50
+
+
+
+ 本帖最后由 εRemastered 于 2021-2-7 20:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268243&amp;ptid=1986707" target="_blank">观自在 发表于 2021-2-7 18:37</a>
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+啊哈哈哈哈哈哈 这个可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 239#       发表于 2021-2-7 20:52
+
+
+
+ 本帖最后由 遥仰苍穹 于 2021-2-7 21:03 编辑 
+
+虚假的文化输出：跪舔洋人，洋人还不买账
+
+真正的文化输出：让洋人心甘情愿地往司马手游卡池里大量氪金。
+
+
+
+
+
+
+
+-----
+
+####  仓鼠吃火锅  
+##### 240#       发表于 2021-2-7 21:03
+
+
+
+
+感谢乌合麒麟，为大家提供了一面照妖镜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  枭首剜心  
+##### 241#       发表于 2021-2-7 21:08
+
+
+
+
+斡旋家4000＋
+
+
+
+
+
+
+
+-----
+
+####  Joshua64  
+##### 242#       发表于 2021-2-7 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50269066&amp;ptid=1986707" target="_blank">Aquila4869 发表于 2021-2-7 20:30</a>
+这画手装啥白莲花呢，🍵味太重了
+特别是吃到她外网各种评论，还有点赞g    d的截图瓜之后 ...</blockquote>
+那啥问一下，茶味到底是啥意思啊
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 243#       发表于 2021-2-7 22:03
+
+
+
+
+明华堂的衣服是真好看也是真的贵
+
+
+
+
+
+
+
+-----
+
+####  刘清  
+##### 244#       发表于 2021-2-7 22:08
+
+
+
+<blockquote>kabusei 发表于 2021-2-7 22:03
+明华堂的衣服是真好看也是真的贵</blockquote>
+但是真的好看 钱真是好东西啊
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 245#       发表于 2021-2-7 22:13
+
+
+
+<blockquote>Joshua64 发表于 2021-2-7 21:55
+那啥问一下，茶味到底是啥意思啊</blockquote>
+当bitch立牌坊=又当又立=绿茶婊=茶味
+
+
+
+
+
+                                         
