@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-30 04:47** 
+> ## **本文件最后更新于2021-02-07 15:37** 
 
 
 
@@ -11356,4 +11356,571 @@ FAMS和OKBR怎么还有第二次联动的
 
 
 
-                            
+
+
+-----
+
+####  nian1538  
+##### 11132#       发表于 2021-1-30 16:31
+
+
+
+<img src="https://p.sda1.dev/1/84a7a9c4ccaaa17d26b4cd39241ae6e4/IMG_CMP_226831718.jpeg" referrerpolicy="no-referrer">
+https://mobile.twitter.com/bxobalice/status/1341388781958561792
+
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alexmax1  
+##### 11133#       发表于 2021-2-1 09:43
+
+
+
+
+我的2周年周边貌似到了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11134#       发表于 2021-2-1 21:34
+
+
+
+
+我的昨天到
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 11135#       发表于 2021-2-2 19:55
+
+
+
+
+我的已经卡在tokyo十天了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11136#       发表于 2021-2-2 20:24
+
+
+
+
+萝卜子的c位开台给了aki
+真会搞
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11137#       发表于 2021-2-2 21:21
+
+
+
+
+原唱曲收录没叫写歌的来吗 不会唱了都没处问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11138#       发表于 2021-2-2 21:26
+
+
+
+
+这sexy了半天我还是没get到哪里sexy<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11139#       发表于 2021-2-2 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">结束了？ 我就听了个已经公布的剪影
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11140#       发表于 2021-2-2 21:37
+
+
+
+
+这仨只管唱的里话能说出来啥玩意 唯一有点味的说原案曲名改过一次但又没说为啥要改
+挺尬的 看个乐的程度吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 11141#       发表于 2021-2-5 20:17
+
+
+
+
+不出所料的apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11142#       发表于 2021-2-5 20:19
+
+
+
+
+为什么还不把apex卸了……
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11143#       发表于 2021-2-5 20:25
+
+
+
+
+新赛季刚更新嘛
+这赛季钻石有跳伞尾气奖励 估计又能看到独食分数暴涨的奇景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11144#       发表于 2021-2-5 20:26
+
+
+
+
+等一个上钻
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11145#       发表于 2021-2-5 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刚发现开播了，竟然舍得开播
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11146#       发表于 2021-2-5 22:15
+
+
+
+
+难道下次打比赛还能看绫总吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alexmax1  
+##### 11147#       发表于 2021-2-5 22:27
+
+
+
+
+2.0占用内存很高吗？怎么换成张图了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11148#       发表于 2021-2-5 22:44
+
+
+
+
+不是，怎么比赛完了你才开始练apex。
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11149#       发表于 2021-2-5 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她网络卡疯了，似乎跟2.0没有关系，平常都还好，今天特别卡
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11150#       发表于 2021-2-6 00:47
+
+
+
+
+打了多久fps想了这么半天是不是怕暴露年龄<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11151#       发表于 2021-2-6 01:19
+
+
+
+
+不会真要再换个pc吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11152#       发表于 2021-2-7 20:44
+
+
+
+
+为什么还是apex<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11153#       发表于 2021-2-7 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复刻罢了，感觉可能还要持续一段时间之后就不怎么播apex了，直到她参加下次APEX比赛，然后又是一次轮回
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11154#       发表于 2021-2-7 21:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">对绫总这种行为只有无语。。。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11155#       发表于 2021-2-7 22:05
+
+
+
+
+是中了月读 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11156#       发表于 2021-2-7 22:40
+
+
+
+
+這種行為模式，具體上可以參考考完試之後知道自己考砸了，馬上開始預習(?)的逗逼學生
+
+通常他們隨著時間流逝逐漸不再唸者，向下一次考砸的道路飛奔。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11157#       发表于 2021-2-7 22:50
+
+
+
+
+唐突联动？
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11158#       发表于 2021-2-7 22:59
+
+
+
+
+这位怎么唐突夸起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/07/225927sipgssgduagaskla.png" referrerpolicy="no-referrer">
+
+
+<strong>20210207225831.png</strong> (10.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 22:59 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11159#       发表于 2021-2-7 23:03
+
+
+
+
+看到这双排还想说点啥来着 但绫总好像比萝卜逛街<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11160#       发表于 2021-2-7 23:06
+
+
+
+
+队友打架你逛街 还正好能碰到队友都给打残了排队枪毙收割
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11161#       发表于 2021-2-7 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">绫总的问题还是我的问题 这游戏这么卡
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11162#       发表于 2021-2-7 23:15
+
+
+
+
+游戏刚大更新不稳定吧 上赛季播还挺正常的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 11163#       发表于 2021-2-7 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50270730&amp;ptid=1914409" target="_blank">Fami水 发表于 2021-2-7 23:11</a>
+
+绫总的问题还是我的问题 这游戏这么卡</blockquote>
+游戏问题
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11164#       发表于 2021-2-7 23:33
+
+
+
+
+想去年时候还是绫总带萝卜子呢 现在爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                           
