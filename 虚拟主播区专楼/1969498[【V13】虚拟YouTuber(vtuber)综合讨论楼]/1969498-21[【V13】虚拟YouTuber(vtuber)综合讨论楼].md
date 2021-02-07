@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 11:32** 
+> ## **本文件最后更新于2021-02-07 17:43** 
 
 
 
@@ -18226,4 +18226,475 @@ image.png
 
 
 
-                  
+
+
+-----
+
+####  alcoholic1000  
+##### 30939#       发表于 2021-2-7 19:38
+
+
+
+
+泰国人和韩国人交流用日语，世界通用语言<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 30940#       发表于 2021-2-7 20:16
+
+
+
+
+草，这宇宙人狼柴卡石油王开场压胜
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30941#       发表于 2021-2-7 20:19
+
+
+
+
+野猫英语凸待开了二十分钟，一个人都没来，一句英语都没说
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30942#       发表于 2021-2-7 20:26
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gnf8qoxweej20xz0lc7ep.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 30943#       发表于 2021-2-7 20:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/07/204451dr96p7s39cjhtp9c.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210207214443.png</strong> (120.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 20:44 上传
+
+
+
+
+
+
+2ndアルバム『希織歌』特設サイトはこちら！
+[https://himehina.jp/pages/special?t=kiryca](https://himehina.jp/pages/special?t=kiryca)
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 30944#       发表于 2021-2-7 20:46
+
+
+
+
+泡沫真的是live神曲<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 30945#       发表于 2021-2-7 20:50
+
+
+
+
+さらに！6月27日（日）には希織歌を冠したライブも開催決定！
+
+HIMEHINA LIVE 2021「希織歌と時鐘」in パシフィコ横浜
+
+チケット情報など続報は3月末ごろお知らせ予定！乞うご期待！！
+<img src="https://p.sda1.dev/1/6d22fde94a14058812889e7e55417f8c/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 30946#       发表于 2021-2-7 20:57
+
+
+
+
+这场有质量比较高的新曲吗，有的话，我去买b站票看重播去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 30947#       发表于 2021-2-7 21:02
+
+
+
+ 本帖最后由 Finsty 于 2021-2-7 21:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50269259&amp;ptid=1969498" target="_blank">北山玖公 发表于 2021-2-7 20:57</a>
+
+这场有质量比较高的新曲吗，有的话，我去买b站票看重播去</blockquote>
+形式相对新颖，毕竟是第一场无人演唱会
+
+编辑一下，意思就是不太想剧透一些惊喜XD
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 30948#       发表于 2021-2-7 21:11
+
+
+
+
+哦，新曲
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 30949#       发表于 2021-2-7 21:48
+
+
+
+
+Himehina亏了，我赚了（）
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30950#       发表于 2021-2-7 21:55
+
+
+
+[https://www.youtube.com/watch?v=gH9dy_tGUA4](https://www.youtube.com/watch?v=gH9dy_tGUA4)
+
+【生歌】ゲーム部ラストライブ！みんなありがとう！！【ゲーム部プロジェクト】
+
+曾经和姬雏并称为“业界希望”的游戏部今天终于可耻的完结了
+
+
+
+另外<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/07/215518qaacvitvefxd5fvq.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (16.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-7 21:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  losm  
+##### 30951#       发表于 2021-2-7 21:56
+
+
+
+
+himehina的演唱会真好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 30952#       发表于 2021-2-7 21:56
+
+
+
+
+今晚好爽，赚翻了。希望HH6月的live能顺利，还能直播收看就更好了。
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 30953#       发表于 2021-2-7 21:57
+
+
+
+
+HH的live真不错，阿B除了字幕拉胯之外体验也还蛮好对得起票价
+
+下次live在6月，感觉现地还是没戏
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30954#       发表于 2021-2-7 21:57
+
+
+
+
+星巡有说法是中资
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30955#       发表于 2021-2-7 21:58
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-2-8 00:39 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 30956#       发表于 2021-2-7 22:06
+
+
+
+
+这全场各种合唱安可却见不到人影，只有一大片弹幕在滚的感觉…太虚拟了
+都可以直接搬到科幻片里做高潮部分了
+
+
+
+
+
+
+
+-----
+
+####  フミさん  
+##### 30957#       发表于 2021-2-7 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">HH真好，但是六月的线下演唱会怕是还做不到吧。。就日本这个拉跨程度来看，呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 30958#       发表于 2021-2-7 22:44
+
+
+
+
+游戏部二代也都毕业了，可惜了这么精良的皮和人设了
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 30959#       发表于 2021-2-7 23:30
+
+
+
+
+游戏部二代下播后，二代可可亚推上发了一小段弹唱（[https://twitter.com/cocoa_domyoji/status/1358393620097761280](https://twitter.com/cocoa_domyoji/status/1358393620097761280)）
+
+曲子是愛をこめて花束を，也就是一代可可亚的引退live三首之一
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30960#       发表于 2021-2-7 23:54
+
+
+
+
+漪月灵沉迷B站发动态了
+
+
+
+
+
+
+
+-----
+
+####  维忧用老  
+##### 30961#       发表于 2021-2-7 23:55
+
+
+
+
+这动态发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30962#       发表于 2021-2-8 00:02
+
+
+
+
+已经一个月没有看郡道会限，她玩十小时apex没有任何点进去的欲望，月之五天没动也不感到焦虑，
+真的成功不做管人痴了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 30963#       发表于 2021-2-8 00:10
+
+
+
+
+刚看管的时候看了很多游戏部视频，前段时间回去重温，却因为场外因素找不到最开始的那种心情了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 30964#       发表于 2021-2-8 00:38
+
+
+
+
+无
+
+
+
+
+
+                 
