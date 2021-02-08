@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 14:19** 
+> ## **本文件最后更新于2021-02-08 02:28** 
 
 
 
@@ -34,10 +34,12 @@ love&amp;peace
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 4战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 史三问| + 1|下面这个扣分的什么玩意？|
+| 毕方|-1|有党性没人性|
 | wwwdnwcom| + 1|欢乐多|
 | 就很菜|-1|欢乐多|
 
@@ -682,10 +684,11 @@ Steal Korea<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 
 
 
- 参与人数 2战斗力 +3
+ 参与人数 3战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 傲娇号| + 1|好评加鹅|
 | haruhiismer| + 2|太秀了|
 | 天成小次郎| + 1|我最讨厌的有两类人：种族主义者，中国人，.|
 
@@ -1758,25 +1761,7 @@ q：你怎么洗地韩国申遗端午？</blockquote>
 ####  黄耀明  
 ##### 87#       发表于 2021-2-7 12:39
 
-
-
-
-真令人恶心
-这是为了想出名想疯了吧
-
-小日本偷大唐
-南棒偷大明
-
-连文字都是窃取的中国的
-哪来的脸说是他们自己的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-盗版指摘原作<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
- -- 傲娇地来自 Stage1未知客户端
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2644,10 +2629,11 @@ https://weibo.com/u/5573409278
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Hanice| + 1|有一说一，确实|
 | heta261| + 1||
 | zcrptx| + 1|好评加鹅|
 | M_K| + 1||
@@ -2897,6 +2883,25 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dr_Raspberry|-1|您这风怒的前摇也太长了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -2911,7 +2916,7 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266252&amp;ptid=1986707" target="_blank">大喇叭花田 发表于 2021-2-7 14:59</a>
 
 更好笑的是这画手是个乌合麒麟PTSD，然后他男友是乌合麒麟粉丝，两人吵翻了哈哈哈。 ...</blockquote>
-你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_f0gej" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
+你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_jf5Qr" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
 
 
 
@@ -4636,4 +4641,580 @@ emmmmmm
 
 
 
-                                         
+
+
+-----
+
+####  澜沫  
+##### 246#       发表于 2021-2-7 23:00
+
+
+
+
+前面那谁是没画过画吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">敷衍成这样有必要解释吗
+还有推上评论区，已经五毒俱全了
+“(你也是**？，那我们是好姐妹哦)，你画的画真好看”
+不想画汉服**方方去掉没什么丢人的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  对事不对人  
+##### 247#       发表于 2021-2-7 23:07
+
+
+
+
+我大概理解了。
+
+原创的“中国服饰”由于小画手文化水平限制最后乱漆了事。也出于小画手文化水平有限，分辨不清日式浴袍与日本和服，导致和服没画好。小画手精心描画的“韩服”，更出于文化水平没画对，更因国籍血缘关系被韩国人出警。
+
+
+
+
+
+
+
+
+
+-----
+
+####  对事不对人  
+##### 248#       发表于 2021-2-7 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">画成这样发出来还容不得别人批评，这么小公举，怎么不回家找妈妈哭去
+
+
+
+
+
+
+
+-----
+
+####  Aquila4869  
+##### 249#       发表于 2021-2-7 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50269666&amp;ptid=1986707" target="_blank">Joshua64 发表于 2021-2-7 21:55</a>
+那啥问一下，茶味到底是啥意思啊</blockquote>
+就是又当又立，自己干了要立个牌坊还不让别人说。
+
+
+
+
+
+
+
+-----
+
+####  -v-  
+##### 250#       发表于 2021-2-8 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50269070&amp;ptid=1986707" target="_blank">火箭布雷器 发表于 2021-2-7 20:30</a>
+
+emmmmmm
+
+是不是画旗袍会被冲的更厉害</blockquote>
+你说的这个"冲"是哪个"冲"?<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  beeandf  
+##### 251#       发表于 2021-2-8 00:28
+
+
+
+
+来看帮日向桶画画的活菩萨太太啦
+<img src="http://i2.tiimg.com/622591/6112e60144893961.jpg" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  kichikuchan  
+##### 252#       发表于 2021-2-8 00:32
+
+
+
+
+屁股决定脑袋，屁股都坐到棒子那里了，这样的行为就不难理解。
+
+
+
+
+
+
+
+-----
+
+####  whzfjk  
+##### 253#       发表于 2021-2-8 00:39
+
+
+
+
+其实当初反感汉服运动就想过形制的大棒，到底要复兴哪个年代的。没想到现在他们自己用上了。
+
+现在想想，跟其他服饰符号相比，汉服运动一开始就是极具意识形态的，而不像其他衣服是先具有视觉吸引力进而体现其类型，所以让人感到不安和抗拒吧。
+
+
+
+
+
+
+
+-----
+
+####  ftqwer1  
+##### 254#       发表于 2021-2-8 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50271745&amp;ptid=1986707" target="_blank">whzfjk 发表于 2021-2-8 00:39</a>
+其实当初反感汉服运动就想过形制的大棒，到底要复兴哪个年代的。没想到现在他们自己用上了。
+
+现在想想，跟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">韩服和服一样意识形态，只不过和服推的早早就过了抢市场上品牌的阶段才没那么多硝烟气。
+
+
+
+
+
+
+
+-----
+
+####  ukuli  
+##### 255#       发表于 2021-2-8 01:11
+
+
+
+
+浪国二次元画师有一个算一个都是脑残
+
+
+
+
+
+
+
+-----
+
+####  澜沫  
+##### 256#       发表于 2021-2-8 01:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后续也太乐了啊
+<img src="https://p.sda1.dev/1/02c919cf0a8c903a7c9622199d4a1edf/IMG_CMP_138215845.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  elwingh  
+##### 257#       发表于 2021-2-8 01:30
+
+
+
+
+噗 不光衣服 汉服小姐姐得脸和手臂能在畸形一点嘛
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  martinium  
+##### 258#       发表于 2021-2-8 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50272249&amp;ptid=1986707" target="_blank">澜沫 发表于 2021-2-8 01:25</a>
+后续也太乐了啊</blockquote>
+这是日韩精选还是根本没有国人鸟她？
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  杉田悠一  
+##### 259#       发表于 2021-2-8 01:33
+
+
+
+
+唉，看热闹看的好好的，翻原po微博没翻几条就翻着个"国蝻恶心姐妹们快逃"，
+那还有什么好说的呢…
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 260#       发表于 2021-2-8 01:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50272317&amp;ptid=1986707" target="_blank">杉田悠一 发表于 2021-2-8 01:33</a>
+唉，看热闹看的好好的，翻原po微博没翻几条就翻着个"国蝻恶心姐妹们快逃"，
+那还有什么好说的呢… ...</blockquote>
+关键我看喷她的也就是她的姐妹啊，都是窝里斗。
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 261#       发表于 2021-2-8 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50272310&amp;ptid=1986707" target="_blank">martinium 发表于 2021-2-8 01:32</a>
+
+这是日韩精选还是根本没有国人鸟她？
+
+
+— from Google Pixel 2, Android 11 of S1 Next Goose v2.4.4.1 ...</blockquote>
+日韩精选
+
+
+
+
+
+
+
+-----
+
+####  sauron.j  
+##### 262#       发表于 2021-2-8 01:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50271745&amp;ptid=1986707" target="_blank">whzfjk 发表于 2021-2-8 00:39</a>
+
+其实当初反感汉服运动就想过形制的大棒，到底要复兴哪个年代的。没想到现在他们自己用上了。
+
+现在想想，跟 ...</blockquote>
+大正&amp;昭和的和服复兴、上世纪末的韩服复兴，都是国家牵头的极具意识形态色彩的运动，比汉服有攻击性多了，区别在于它们早早地占领了阵地
+
+
+
+
+
+
+
+-----
+
+####  yang1820  
+##### 263#       发表于 2021-2-8 02:44
+
+
+
+<blockquote>观自在 发表于 2021-2-7 02:37
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+潜行失败，逼我上浮🌿话说哪里有雷母真爱楼这种东西吗？ 肥肠想看看她历次的经典发言帖在一起🤣
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 264#       发表于 2021-2-8 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50272249&amp;ptid=1986707" target="_blank">澜沫 发表于 2021-2-8 01:25</a>
+ 后续也太乐了啊  </blockquote>
+看回复都是棒子跟爱放彩虹屁的小日本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ukuli  
+##### 265#       发表于 2021-2-8 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50272249&amp;ptid=1986707" target="_blank">澜沫 发表于 2021-2-8 01:25</a>
+后续也太乐了啊</blockquote>
+精选评论，学习人日，通共实锤
+
+
+
+
+
+
+
+-----
+
+####  pandaman7777  
+##### 266#       发表于 2021-2-8 09:33
+
+
+
+
+ 快进到作为受po hai 艺术家，ZZ庇护保送出国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 267#       发表于 2021-2-8 09:42
+
+
+
+
+围观了一会，发现了一个有趣的现象。
+
+很多转发的画师平时是女权斗士，以拳师的身份为傲，骂起人来一套一套的。
+
+结果到这件事上全选择性失明了，只抓着汉服出警这个点来抱团说love&amp;peace<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+这才是真正的对外唯唯诺诺，对内重拳出击吧。
+
+
+
+
+
+
+
+-----
+
+####  awy47  
+##### 268#       发表于 2021-2-8 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50272748&amp;ptid=1986707" target="_blank">yang1820 发表于 2021-2-8 02:44</a>
+
+潜行失败，逼我上浮🌿话说哪里有雷母真爱楼这种东西吗？ 肥肠想看看她历次的经典发言帖在一起🤣 ...</blockquote>
+以前小粉红有，现在不知道哪里有整理了。
+
+
+
+
+
+
+
+-----
+
+####  茶几上的便当  
+##### 269#       发表于 2021-2-8 09:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">加大力度
+
+
+
+
+
+
+
+-----
+
+####  kidoo  
+##### 270#       发表于 2021-2-8 09:58
+
+
+
+
+这人就是个拳师呀，还love peace 。笑死
+
+
+
+
+
+
+
+-----
+
+####  疵毛撅腚  
+##### 271#       发表于 2021-2-8 09:59
+
+
+
+ 本帖最后由 疵毛撅腚 于 2021-2-8 10:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268266&amp;ptid=1986707" target="_blank">GrimReaper 发表于 2021-2-7 18:42</a>
+很好奇专业考古古代服侍的对汉服圈和这类事件作何感想？</blockquote>
+<img src="https://p.sda1.dev/1/a93582d87bf08e03276b38e981bd0c59/IMG_CMP_106325760.jpeg" referrerpolicy="no-referrer">
+算不上**但确实是做考据的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+国内汉服在二次元领域开发滞后与和服和旗袍也是不争的实事
+虽然我觉得只是手游厂商们还没有找到汉服社保的思路，跟汉服警察么啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看碧蓝航线，唐制齐胸衫群改良配小萝莉效果蛮好嘛
+
+
+
+
+
+
+
+-----
+
+####  Dank_Memes  
+##### 272#       发表于 2021-2-8 10:01
+
+
+
+
+建议立刻画出新作report&amp;nuke<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  newshadow  
+##### 273#       发表于 2021-2-8 10:09
+
+
+
+
+觉得汉服难画，韩服也可以随便画啊？所以我不信。
+
+—— 来自 Xiaomi M2007J17C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  GrimReaper  
+##### 274#       发表于 2021-2-8 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50274584&amp;ptid=1986707" target="_blank">疵毛撅腚 发表于 2021-2-8 09:59</a>
+算不上**但确实是做考据的
+国内汉服在二次元领域开发滞后与和服和旗袍也是不争的实事
+虽然我觉得 ...</blockquote>
+看来应该把二次元画师都集中关起来，一边传授专业知识，一边给专业人士当工具人极高业务水平……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凛雪鸦  
+##### 275#       发表于 2021-2-8 10:21
+
+
+
+
+之前也有个蘑菇画不画毛吵得很大来着……闲的，最后都是借题发挥
+
+
+
+
+
+
+
+-----
+
+####  skin1204  
+##### 276#       发表于 2021-2-8 10:22
+
+
+
+
+我能洗一下吗，那句happy lunar new year是这个人回复评论说的，联系上下文应该只是介绍中国有这个农历新年，这没什么可喷的吧。
+
+
+
+
+
+
+
+-----
+
+####  钱君  
+##### 277#       发表于 2021-2-8 10:24
+
+
+
+
+都特么闲的
+
+
+
+
+
+                                        
