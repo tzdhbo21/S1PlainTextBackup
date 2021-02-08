@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 10:34** 
+> ## **本文件最后更新于2021-02-08 03:39** 
 
 
 
@@ -17413,11 +17413,546 @@ TC播了
 
 
 
+ 本帖最后由 Mr.shelter 于 2021-2-7 18:35 编辑 
 
 完了，自动脑补pasta了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
 
-                
+
+
+
+-----
+
+####  シルフィエット  
+##### 8494#       发表于 2021-2-7 18:35
+
+
+
+
+没忍住还是做了意面
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8495#       发表于 2021-2-7 19:03
+
+
+
+
+今晚联动是哪里哪位？
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 8496#       发表于 2021-2-7 19:04
+
+
+
+
+苔姨和黑鬼
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8497#       发表于 2021-2-7 19:04
+
+
+
+
+难得念了一次结束语
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8498#       发表于 2021-2-7 19:51
+
+
+
+
+看着看着昏迷了，原来有谷子嘛
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8499#       发表于 2021-2-7 22:18
+
+
+
+
+直播突然停止<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔苔你家里网断了吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8500#       发表于 2021-2-7 22:20
+
+
+
+
+呆货连人到底有没有结婚都不清楚就答应了，不愧是为整活而生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8501#       发表于 2021-2-7 22:57
+
+
+
+
+预言成功 看来苔姨也SJ你楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8502#       发表于 2021-2-7 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐为什么这么喜欢圭利孩子的原因找到了，因为那就是自己的孩子
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 8503#       发表于 2021-2-7 23:01
+
+
+
+
+看完这联动还挺不容易的，咩宝也不容易，呜
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8504#       发表于 2021-2-7 23:03
+
+
+
+ 本帖最后由 路人庚 于 2021-2-8 00:43 编辑 
+
+圭利开了个今年12月23日圣诞节联动的待机间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次带上了苔苔，3人联动，不知道还会不会一起玩吹水赛车
+
+
+时间微妙的跟圣诞节错开了2天呢（
+
+
+syl，好吧正好是我漏掉的第一个和第二个棉花糖（
+
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8505#       发表于 2021-2-7 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50270605&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-7 23:03</a>
+
+圭利开了个今年12月23日圣诞节联动的待机间这次带上了苔苔，3人联动，不知道还会不会一起玩吹水赛车 ...</blockquote>
+年年来一遍是吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8506#       发表于 2021-2-7 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50270627&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-2-7 23:05</a>
+
+年年来一遍是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不过你咩姐没开直播间（暂时），不会每次点进油管都会看到圭利的脸了（大概）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8507#       发表于 2021-2-7 23:08
+
+
+
+
+这就安排上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8508#       发表于 2021-2-7 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这回是什么男人呢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8509#       发表于 2021-2-7 23:41
+
+
+
+
+是我<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 8510#       发表于 2021-2-8 00:27
+
+
+
+
+第一个问题问相亲联动那次初见面的第一印象和gueru孩子出生的时候的反应 
+
+咩说那时候关注谢林 已经盯上他了所以没有什么印象  就是感觉难相处 犬山说是第一次看到能说会道的咩说不上话来 还说到那次gueru想找咩谈企划但是和咩关系不怎么好又没有交换discord啥的就给和咩关系好的犬山发了推特私信 犬山还跟咩吐槽这人咋回事 然后聊到去年圣诞节也是一起播了水中马车 咩提议今年也一起播 gueru说三人一起是吧 犬山说今年没空 也要搞舞元裁判 没有空 咩说自己去年都搞了两个 去年圣诞节超级忙 犬山吐槽一整天都和男人在一起过 今年也要和男人在一起吧 然后到第二个问题现在对各自的印象 gueru说很棒的人 咩说亚撒西 然后又约圣诞节的联动 当天不行 gueru要陪家人于是定在23号 犬山问咩不是有两个孩子吗不和他们过可以吗 咩：没关系的不用管他们 总之有办法的 定在gueru直播间 gueru说可能没那么早下班到家 犬山说没关系那时候就和mea两个人直播 当然还是在gueru的直播间
+
+第三个问题问到那次假泄露那次 咩吐槽为什么先找了星川 自己是第二位的嘛？gueru解释是顺序问题 优先先找了同社的 然后才去找了外社的咩 （然后掉了）回来之后gueru说咩没睡醒 咩说那时候提前一周打电话过来 还发了计划书  自己没认真看 也没问是不是真的 那时候脑袋没有转 觉得有趣就答应下来了 犬山说所以才会被炎上的啊 那时候没问清楚
+
+第四个问gueru选犬山还是咩 两人都说对方的家务不行 然后gueru问今天洗没洗澡 咩说没洗立刻表示选犬山 
+
+第五个问题问gueru之后孩子不喜欢洗澡刷牙有啥办法吗 也对mea说说  咩：在父母身边和一个人住不一样的啊 犬山：那你今天刷没刷牙 咩：刷了 犬山：绝对没有 要不赌钱 赌100 咩：好啊 犬山：等会把钱转给我吧
+
+第六个问题问咩多久清洗一次浴缸 咩说清起来太麻烦了 自己都是淋浴的 回老家才泡澡 还有刚搬过来的时候 那时候浴缸还是干净的 反正家里的浴缸不用请都挺干净的 两人吐槽那肯定父母还是清了的 然后咩说想着总有一天会洗那种比较脏的浴缸就去试着洗了 然后水面上浮着那种泡面汤上的油那样的 明明没有放入浴剂却有泡沫 把gueru说吐了 犬山吐槽是咩的天然油入浴剂 
+
+第七问说以前gueru将犬山星川咩的污物分类分析想听详细介绍 然后犬山吐槽gueru那时候说犬山和星川是污物太失礼了 gueru说也确实算 只是犬山星川只是普通等级的污物 咩是超污物 咩说才不是只是讲到洗澡而已 gueru说原来如此只是冰山一角 咩说现在有在做新娘修行 每周做两次料理 本来应该每天一次的但是要洗的东西太多只能一周两次了
+
+第八问问gueru孩子长大了想和咩结婚咋办 gueru说那时候咩都58了 最主要妻子会反对 咩说自己不是和夫人关系挺好的么 那次打麻将都问了其酷比的颜色 解释了一下来龙去脉 然后得出结论就是问了其酷比的颜色才会被夫人反对的 
+
+第九问问咩和gueru各自孩子的可爱之处 gueru说主要是笑容 咩说确实 朝着自己笑呢 犬山吐槽是在朝着父母吧 咩说其实也是对着镜头后看着照片的人啊 然后说自己的孩子 总是会在想他的时候出现呢 情绪很高涨的时候会出现 
+
+第十问让咩想象gueru受的场景 犬山表示这个棉花糖是不是没选好 下一个
+
+第十一问让咩和gueru说对方的三个优点 没记（x
+
+第十二问问三人各自觉得难合作的v有谁 咩提名gueru 而且以前说gueru难相处大家都说是啊是啊现在倒是会说其实也不是吧gueru挺好的什么的 感觉更难相处了 犬山提名心情不好的时候的咩 心情好的时候倒是挺好相处的
+
+第十三问问哪能找到gueru这么好的男性 然后说到舞元挺好人的 要不去他家吧 然后说要特定舞元家
+
+第十四问说gueru说做不来家务 两位怎么想的 对一起生活的搭档有什么要求 说到gueru被嫌弃碍事 咩也说自己也是被家人帮忙都帮不来 去倒垃圾去 
+
+第十五问问有没有想过为什么会被烧 犬山说自己没被炎上过 被咩吐槽那为什么来这里啊 然后说到gueru以前被烧现在很努力 咩说他努不努力跟好不好相处是两回事啊 别到时候又拿这个说自己
+
+第十六问说gueru有一个孩子 咩也是有孩子 这难道说.... 然后表演了一段假装两人同居的小片段（？）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+| 黒長直姫| + 1||
+| Cushaw| + 1|但是苔本真的不无聊吗？|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  muldrotha  
+##### 8511#       发表于 2021-2-8 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50270605&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-7 23:03</a>
+
+圭利开了个今年12月23日圣诞节联动的待机间这次带上了苔苔，3人联动，不知道还会不会一起玩吹水赛车 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">马车肯定不会 被苔姨第一个否了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|哪路或多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8512#       发表于 2021-2-8 00:34
+
+
+
+
+太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8513#       发表于 2021-2-8 00:40
+
+
+
+
+日复一日,年复一年,所有的都只是定式罢了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 8514#       发表于 2021-2-8 01:06
+
+
+
+
+苔姨的联动我现在是懒得看的，无他，过于既视
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8515#       发表于 2021-2-8 01:30
+
+
+
+
+喂饭的事能说是苔本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8516#       发表于 2021-2-8 02:05
+
+
+
+
+讲道理我觉得你麻还蛮喜欢苔本的,可能是觉得姨味重吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8517#       发表于 2021-2-8 06:21
+
+
+
+
+憨憨土妹被阿苔pua是这样的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8518#       发表于 2021-2-8 06:24
+
+
+
+
+明明自己有组了还是天天和兔姨苔姨混一起<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+可能自己就好这一口吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 8519#       发表于 2021-2-8 07:47
+
+
+
+
+与苔苔的联动作为解密篇来看还是有点价值的，毕竟有些话题平时完全不会提到，比如这次苔苔提到的“ 心情不好的时候的咩很难相处”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8520#       发表于 2021-2-8 08:14
+
+
+
+
+你麻心情不爽阿b都敢甩脸子，太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8521#       发表于 2021-2-8 10:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等她哪天真变圆滑那就进化成麻姨了，当然身体上的变圆不算（
+
+
+
+
+
+               
