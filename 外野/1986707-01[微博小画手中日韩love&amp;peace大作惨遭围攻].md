@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-08 02:28** 
+> ## **本文件最后更新于2021-02-08 05:53** 
 
 
 
@@ -866,10 +866,12 @@ Steal Korea<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 
 
 
- 参与人数 13战斗力 -15
+ 参与人数 15战斗力 -18
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 给我加个鹅吧|-1||
+| classa|-2|好评加鹅|
 | 东海尖头鳗|-1|棒子看到鬼子有点急|
 | spiceeeeee|-1||
 | keiichi|-1||
@@ -2916,7 +2918,7 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266252&amp;ptid=1986707" target="_blank">大喇叭花田 发表于 2021-2-7 14:59</a>
 
 更好笑的是这画手是个乌合麒麟PTSD，然后他男友是乌合麒麟粉丝，两人吵翻了哈哈哈。 ...</blockquote>
-你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_jf5Qr" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
+你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_rPSDP" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
 
 
 
@@ -5217,4 +5219,502 @@ emmmmmm
 
 
 
-                                        
+
+
+-----
+
+####  就很菜  
+##### 278#       发表于 2021-2-8 10:29
+
+
+
+
+有人觉得她挡着自己冲棒子了呗，棒子多坏啊，你居然想让大家和和气气，你也是棒子吧（软弱的语气）
+
+
+
+
+
+
+
+-----
+
+####  fuchsia  
+##### 279#       发表于 2021-2-8 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50274891&amp;ptid=1986707" target="_blank">skin1204 发表于 2021-2-8 10:22</a>
+
+我能洗一下吗，那句happy lunar new year是这个人回复评论说的，联系上下文应该只是介绍中国有这个农历新年 ...</blockquote>
+春节就是Chinese new year，Lunar new year是什么鬼，顺便因为说错话，当年木村家的二女儿来国内恰饭都被骂过，她还是中国人，不更应该骂
+
+
+
+
+
+
+
+-----
+
+####  zzyyyyppy  
+##### 280#       发表于 2021-2-8 10:43
+
+
+
+
+感觉耳朵画的太靠下，脑子画扁了。
+
+
+
+
+
+
+
+-----
+
+####  skin1204  
+##### 281#       发表于 2021-2-8 10:45
+
+
+
+<blockquote>fuchsia 发表于 2021-2-8 10:42
+春节就是Chinese new year，Lunar new year是什么鬼，顺便因为说错话，当年木村家的二女儿来国内恰饭都被 ...</blockquote>
+我的锅。知识水平不行，老师教的不好。
+
+
+
+
+
+
+
+-----
+
+####  疵毛撅腚  
+##### 282#       发表于 2021-2-8 10:47
+
+
+
+ 本帖最后由 疵毛撅腚 于 2021-2-8 10:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50274746&amp;ptid=1986707" target="_blank">GrimReaper 发表于 2021-2-8 10:12</a>
+
+看来应该把二次元画师都集中关起来，一边传授专业知识，一边给专业人士当工具人极高业务水平……[ ...</blockquote>
+哪有那么麻烦，上面不是有一个10分钟画织金的吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">历史圈吹毛求疵，但这些人一声量小二交集不大
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 283#       发表于 2021-2-8 11:33
+
+
+
+
+看了下，推上一片祥和，来闹的不超过10个。微博上面喊打喊杀的
+[https://twitter.com/hyuga_mutong/status/1357737377066741762](https://twitter.com/hyuga_mutong/status/1357737377066741762)
+
+
+
+
+
+
+
+-----
+
+####  kurihayn  
+##### 284#       发表于 2021-2-8 11:49
+
+
+
+
+我记得越南也是喊Lunar New Year的……
+
+
+
+
+
+
+
+-----
+
+####  阿乌  
+##### 285#       发表于 2021-2-8 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276136&amp;ptid=1986707" target="_blank">kurihayn 发表于 2021-2-8 11:49</a>
+我记得越南也是喊Lunar New Year的……</blockquote>
+就是越南和韩国搞出来的啊，用来替换Chinese new year
+
+
+
+
+
+
+
+-----
+
+####  哩子ayil  
+##### 286#       发表于 2021-2-8 11:55
+
+
+
+<blockquote>beeandf 发表于 2021-2-8 00:28
+来看帮日向桶画画的活菩萨太太啦
+
+
+</blockquote>
+二创被小画家群骂了，这个时候就没有love&amp;peace了
+
+
+
+
+
+
+
+-----
+
+####  kurihayn  
+##### 287#       发表于 2021-2-8 11:56
+
+
+
+ 本帖最后由 kurihayn 于 2021-2-8 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276151&amp;ptid=1986707" target="_blank">阿乌 发表于 2021-2-8 11:51</a>
+
+就是越南和韩国搞出来的啊，用来替换Chinese new year</blockquote>
+我上wiki查了一下，蒙古也这么喊（当然指的是英语说法）
+
+感觉就是因为世界上用农历过新年的国家不止中国一个所以来个国际通用的英语说法吧
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 288#       发表于 2021-2-8 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276215&amp;ptid=1986707" target="_blank">kurihayn 发表于 2021-2-8 11:56</a>
+
+我上wiki查了一下，蒙古也这么喊（当然指的是英语说法）
+
+感觉就是因为世界上用农历过新年的国家不止中国一 ...</blockquote>
+[http://www.xinhuanet.com/english/2020-01/25/c_138733435.htm](http://www.xinhuanet.com/english/2020-01/25/c_138733435.htm)
+
+
+新华社也这样用
+
+
+Xinhua Headlines: Quiet and busy -- Lunar New Year's Eve in Wuhan, center of coronavirus fight
+
+
+
+
+
+
+
+-----
+
+####  tsukatsukieiko  
+##### 289#       发表于 2021-2-8 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276289&amp;ptid=1986707" target="_blank">smy20011 发表于 2021-2-8 12:01</a>
+
+http://www.xinhuanet.com/english/2020-01/25/c_138733435.htm
+
+
+新华社也这样用</blockquote>
+其实没记错当年初中还是小学教科书，牛津版那个，就用lunar new year。
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 290#       发表于 2021-2-8 12:05
+
+
+
+<img src="https://p.sda1.dev/1/194da9f7ec92034334e24bdc44a85d33/IMG_CMP_33350260.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 291#       发表于 2021-2-8 12:19
+
+
+
+ 本帖最后由 秋月艾莉 于 2021-2-8 12:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">雷母之前身为一个美国人跑来中国的社交网络，指责中国网民在中国社交网络吃瓜大选是世界警察行为
+
+我这辈子没见过这么前卫的行为艺术
+
+从那以后我就觉得有什么事，雷母站哪边直接无脑站另一边就行了
+
+
+
+
+
+
+
+
+
+-----
+
+####  hd7856101  
+##### 292#       发表于 2021-2-8 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50275938&amp;ptid=1986707" target="_blank">smy20011 发表于 2021-2-8 11:33</a>
+
+看了下，推上一片祥和，来闹的不超过10个。微博上面喊打喊杀的
+
+https://twitter.com/hyuga_mutong/status/1 ...</blockquote>
+帮你说了，泥潭更厉害，个个都是U型锁<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  C.W.Nimitz  
+##### 293#       发表于 2021-2-8 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50275938&amp;ptid=1986707" target="_blank">smy20011 发表于 2021-2-7 19:33</a>
+
+看了下，推上一片祥和，来闹的不超过10个。微博上面喊打喊杀的
+
+https://twitter.com/hyuga_mutong/status/1 ...</blockquote>
+The following media includes potentially sensitive content.
+
+
+推特直接打成敏感信息了，都没给推送能有多少人过去看<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+不愧是自由的平台
+
+
+
+
+
+
+
+-----
+
+####  hd7856101  
+##### 294#       发表于 2021-2-8 12:56
+
+
+
+
+都2021年了还搁这说lunar new year，复读几年前的东西有意思吗？请以官方为准谢谢
+<img src="https://wx3.sinaimg.cn/mw1024/62109a22ly1gnff3om5fmj20u00gmdjs.jpg" referrerpolicy="no-referrer">
+<img src="https://wx2.sinaimg.cn/mw1024/62109a22ly1gnff3o9zc6j20ty0rsn4y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FSS  
+##### 295#       发表于 2021-2-8 13:09
+
+
+
+
+农历是阴阳合历，lunar个p
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 296#       发表于 2021-2-8 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276891&amp;ptid=1986707" target="_blank">hd7856101 发表于 2021-2-8 12:56</a>
+
+都2021年了还搁这说lunar new year，复读几年前的东西有意思吗？请以官方为准谢谢
+
+
+ ...</blockquote>
+新华社去年春节的时候还lunar new year，今年改了么？
+
+
+
+
+
+
+
+-----
+
+####  kurihayn  
+##### 297#       发表于 2021-2-8 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276870&amp;ptid=1986707" target="_blank">C.W.Nimitz 发表于 2021-2-8 12:55</a>
+
+The following media includes potentially sensitive content.
+
+
+推特直接打成敏感信息了，都没给推送能 ...</blockquote>
+是不是看人的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">我直接搜画师推特点进去，试了好几次，也没变成敏感信息啊
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 298#       发表于 2021-2-8 13:26
+
+
+
+
+lunar new year 是照顾越南人等同样过节的人产生的说法吧，人家穿得漂漂亮亮，上街过着节，敲锣打鼓热热闹闹，你非要上前说一句happy chinese new year，那不是讨打吗
+
+
+
+
+
+
+
+-----
+
+####  zwf1020  
+##### 299#       发表于 2021-2-8 13:26
+
+
+
+
+这次冲在最前的居然还是豆瓣的小姐姐……
+
+
+
+
+
+
+
+-----
+
+####  hd7856101  
+##### 300#       发表于 2021-2-8 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50277147&amp;ptid=1986707" target="_blank">smy20011 发表于 2021-2-8 13:18</a>
+
+新华社去年春节的时候还lunar new year，今年改了么？</blockquote>
+新华社去年弄个扶贫地图连中国地图都能弄错，新华社那些编辑算个屁<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tsukatsukieiko  
+##### 301#       发表于 2021-2-8 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276891&amp;ptid=1986707" target="_blank">hd7856101 发表于 2021-2-8 12:56</a>
+
+都2021年了还搁这说lunar new year，复读几年前的东西有意思吗？请以官方为准谢谢
+
+
+ ...</blockquote>
+那麻烦提供以下官方文件哈。
+
+哪怕是翻译中人名翻译，li翻译成利（男）莉（女），ri翻译成里（男）丽（女）这种无强制力的指导性原则也好。
+
+
+
+
+
+
+
+-----
+
+####  fff10tw  
+##### 302#       发表于 2021-2-8 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50277248&amp;ptid=1986707" target="_blank">24k纯帅 发表于 2021-2-8 13:26</a>
+lunar new year 是照顾越南人等同样过节的人产生的说法吧，人家穿得漂漂亮亮，上街过着节，敲锣打鼓热热闹 ...</blockquote>
+？中国人的节日中国人过得好好的，猴子自己跑来说这节我也要过，所以之后中国人就得照顾他们的情绪？
+这逻辑我是不明白的。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 303#       发表于 2021-2-8 13:47
+
+
+
+ 本帖最后由 smy20011 于 2021-2-8 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50277274&amp;ptid=1986707" target="_blank">tsukatsukieiko 发表于 2021-2-8 13:29</a>
+
+那麻烦提供以下官方文件哈。
+
+哪怕是翻译中人名翻译，li翻译成利（男）莉（女），ri翻译成里（男）丽（女） ...</blockquote>
+官方最准的应该是Spring Festival / Chinese Lunar New Year / Chinese New Year，但是语境是祝贺中国人的。
+
+
+
+
+
+                                       
