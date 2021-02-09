@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 17:43** 
+> ## **本文件最后更新于2021-02-09 17:15** 
 
 
 
@@ -2796,16 +2796,7 @@ BSYL：
 ####  飞姆托  
 ##### 30147#       发表于 2021-1-25 19:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50141116&amp;ptid=1969498" target="_blank">离心 发表于 2021-01-25 16:05:55</a>
-对啊，杏奴多，杏奴不多的话各大论坛和b站到现在还会有影响？尼姑庵的杏讨论合集都已经到多少了？杏一有什 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是说，Ｖ综天天讨论杏内容，不知道还以为杏奴大本营在s1呢
-
-[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10457,14 +10448,7 @@ https://youtu.be/wTAS4eY6tsI
 ####  飞姆托  
 ##### 30534#       发表于 2021-2-2 03:07
 
-
-
-
-鲨皇再播老头滚动条证明揍阿夸不行
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -18663,6 +18647,25 @@ HH的live真不错，阿B除了字幕拉胯之外体验也还蛮好对得起票�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 墨玄i| + 1|恭喜恭喜✌|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18697,4 +18700,877 @@ HH的live真不错，阿B除了字幕拉胯之外体验也还蛮好对得起票�
 
 
 
-                 
+
+
+-----
+
+####  JoelBirch  
+##### 30965#       发表于 2021-2-8 02:02
+
+
+
+
+多发点好，多发点好，明显练中文呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30966#       发表于 2021-2-8 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 管人现在只是我玩mtga的背景音
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30967#       发表于 2021-2-8 09:29
+
+
+
+
+bora老幺感拉满，特别受宠
+最近还苦恼长智齿
+一般来说20岁左右吧，大学生
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30968#       发表于 2021-2-8 12:33
+
+
+
+
+郡道玩碧蓝档案最爱之女是（粉）红毛有角系缎带性格差爱吃拉面年轻女性，和，郡道今天apex和推都含盐量较高，
+磕哪一个比较好呢，微妙
+
+
+
+
+
+
+
+-----
+
+####  久島鴎  
+##### 30969#       发表于 2021-2-8 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">有HH昨天的录播么，昨天上班没看成直播
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 30970#       发表于 2021-2-8 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276750&amp;ptid=1969498" target="_blank">久島鴎 发表于 2021-2-8 12:42</a>
+
+有HH昨天的录播么，昨天上班没看成直播</blockquote>
+国内现在还可以补，Bilibili购票截止日期2月17号
+[https://live.bilibili.com/blackb ... live_full_webview=1](https://live.bilibili.com/blackboard/activity-H21d1jNZ4.html?is_live_full_webview=1)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30971#       发表于 2021-2-8 14:56
+
+
+
+[https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/videos](https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/videos)
+
+去看了一下被烧了的彩虹翻唱歌曲排行榜的频道，
+
+全 删 了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30972#       发表于 2021-2-8 16:32
+
+
+
+
+狐皇什么时候点出的体力怪技能，两天播了20多小时了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 30973#       发表于 2021-2-8 16:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/08/163215cmgvc3i2eet1xtmg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C94306ED-2890-4EA9-868C-0AA5E0B2C60B.jpeg</strong> (75.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-2-8 16:32 上传
+
+
+
+
+
+
+hololive罪大恶极，V排队休息表达不满
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 30974#       发表于 2021-2-8 17:12
+
+
+
+
+目前的虚拟主播只不过是伪物罢了
+
+米忽悠的人工AI合成语音已经成熟了
+
+真物取代伪物的时刻就要到来了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30975#       发表于 2021-2-8 17:12
+
+
+
+ 本帖最后由 十四洲 于 2021-2-8 17:15 编辑 
+
+一刷推全是cr杯招人，看起来这次有好几个漫画家参与，bora被定为大师不能蹭分了；；不过看起来她找了个强猎杀
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 30976#       发表于 2021-2-8 17:13
+
+
+
+
+快进到bora届到本田翼
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 30977#       发表于 2021-2-8 17:13
+
+
+
+
+https://b23.tv/i42jWI
+太强了 真的太强了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这就是真物吗
+
+再加上gpt-3岂不是无敌来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30978#       发表于 2021-2-8 19:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/08/192014yogb9oabzo9dqqdc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EtnPaqVUcAAQjoP.jpg</strong> (258.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-8 19:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30979#       发表于 2021-2-8 20:57
+
+
+
+
+梅丽莎这游戏我读了几遍都读不出点进去才知道是age of z，假名英语真差不多得了😅
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30980#       发表于 2021-2-8 22:22
+
+
+
+
+江花要开虚拟握手会了，在爱抖露的路上狂飙啊，不知田角（或者环球）啥时候搞出个专辑配聊天卷（虽然以他的性子估计更想开总选吧）
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30981#       发表于 2021-2-8 22:24
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-9 00:07 编辑 
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gnghs3vq09j20rz038wfz.jpg" referrerpolicy="no-referrer">
+
+
+2434一块砖，哪里需要往哪儿搬
+
+
+syl
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gngkr4fqpag20ft08wnph.gif" referrerpolicy="no-referrer">
+
+
+晚安.gif
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30982#       发表于 2021-2-9 00:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/09/003717yhj88u2vtpm2uzph.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210209003600.png</strong> (33.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 00:37 上传
+
+
+
+
+
+
+10w家族复活阿，怎么搞的和最终回一样
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 30983#       发表于 2021-2-9 00:39
+
+
+
+<[img src="https://i.loli.net/2021/02/09/QlJR9b4FqYHojrw.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/abara/status/1358634740786466817](https://twitter.com/abara/status/1358634740786466817)
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 30984#       发表于 2021-2-9 02:03
+
+
+
+
+忍不住想感慨点什么又涉及中之人所以发这里算了
+
+黛灰在杂谈里说到他应该不会当太久[2434所属艺人黛灰]，因为他个人觉得艺人就是[定期高频率提供内容的人]，所以会考虑“想做什么、想展现什么、怎么表现出来比较好”之类的来进行活动。等哪天累了、只想做点自己想做的事时就到了极限，应该就会离开[2434所属艺人]这个身份，以其他的形(式?)不定期打打游戏杂谈一下，或是转去做v相关幕后工作
+
+我还是头一次看到“V做不长久”的说法理由是会做不动，而不是市场赚不到钱。怎么说呢，先不论他作为v的才能如何，至少他当v的意识真的很pro，也很自觉去回应作为大企业所属的企业势自带的光环buff，从平时各种方面都能感觉到他当V不是单纯赚钱的手段，是真的想当"内容的提供者"。虽说我并不觉得不追求赚钱的人地位就比较高，但至少我很佩服他的这一点。
+
+虽说很多人觉得v不配提“内容”，数字和事业心才叫pro(
+
+另外，考虑到他去年才(?)播了800小时差一点而且ymen就是实况主兼搞策划的，黛灰本人也干过作词、监修台本和官方企划之类的事，还经常约公司stf吃饭聊工作，感觉这未来还挺有可能的……
+
+只是不知道所谓“形”的改变是不是在暗示到时候会专心当ymen看自己心情播……
+
+我倒并不算太拘泥于“黛灰”，但我是真不太适应关西腔，而且他的音色还是不嗨的时候比较好听(演技除外)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30985#       发表于 2021-2-9 03:12
+
+
+
+
+做不动就不做了的v那可太多了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30986#       发表于 2021-2-9 16:41
+
+
+
+
+CRcup，一之濑towa还有（貌似职业哥的）wokka这三个一组，
+niru也说要参加但跟谁不知道，想再看一次菩提一之濑niru惹…
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 30987#       发表于 2021-2-9 16:43
+
+
+
+
+完全外人提问：如果要给一个2月末生日的女叶队送叶相关的礼物，送什么好啊(›´ω`‹ )，有推荐吗？
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 30988#       发表于 2021-2-9 19:32
+
+
+
+
+cpt，bora，美夜子一队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cpt推特新关注美夜子也太好懂了吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 30989#       发表于 2021-2-9 20:00
+
+
+
+
+虹一期生18线上联动，封面那个墨镜月之…
+是HAPPY呢^ ^
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 30990#       发表于 2021-2-9 21:11
+
+
+
+
+既然龙妈发comingsoon了，那葵中堂休假啥时候结束<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 30991#       发表于 2021-2-9 21:20
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-9 21:31 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202102/09/211209h5wqbn78p2muxuxp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>「にじさんじライバーマスク」 販売決定！.jpg</strong> (236.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 21:12 上传
+
+
+
+
+
+
+全8種(剣持刀也モデル、伏見ガクモデル、ジョー・力一モデル、ましろモデル、桜凛月モデル、ルイス・キャミーモデル、レヴィ・エリファモデル、メリッサ・キンレンカモデル)
+[https://prtimes.jp/main/html/rd/p/000000245.000030865.html](https://prtimes.jp/main/html/rd/p/000000245.000030865.html)
+
+
+<img src="https://img.saraba1st.com/forum/202102/09/211320rlg4yj4sssxsgsi5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2月18日23時は女神の処に集合ー.jpg</strong> (243.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 21:13 上传
+
+
+
+
+
+
+2月18日23時は女神の処に集合
+
+
+<img src="https://img.saraba1st.com/forum/202102/09/211519eb8r8wiwbnp1p88x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>白雪巴　オリジナル曲  「SHUT-OUT」.jpg</strong> (457.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 21:15 上传
+
+
+
+
+
+
+SHUT-OUT / 白雪巴【オリジナル曲】
+[https://www.youtube.com/watch?v=vFTVLk9Kh7U&amp;feature=youtu.be](https://www.youtube.com/watch?v=vFTVLk9Kh7U&amp;feature=youtu.be)
+
+<img src="https://img.saraba1st.com/forum/202102/09/212957l9jknw5yqig56e5g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>うた　「　　　　　」.jpg</strong> (886.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 21:29 上传
+
+
+
+
+
+
+「　　　」
+[https://www.youtube.com/watch?v=JoyhDWE7J-E&amp;feature=youtu.be](https://www.youtube.com/watch?v=JoyhDWE7J-E&amp;feature=youtu.be)
+
+
+<img src="https://img.saraba1st.com/forum/202102/09/211740yee7waqb3e8tqoo8.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ分布図【緑仙:ギルザレンⅢ世:ジョー・力一:でびでび・でびる】.png.png</strong> (276.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 21:17 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=1YlJWfAR2So&amp;feature=youtu.be](https://www.youtube.com/watch?v=1YlJWfAR2So&amp;feature=youtu.be)
+
+
+【『にじさんじのB級バラエティ（仮）』＃４ 今夜24:00放送！】 
+
+颯爽登場！なんだかお久しぶりの新番組 #にじバラ仮 
+
+第４回は本日＜ 2/9(火)24：00 ＞放送！ 
+
+
+あの大ヒット商品の裏側に迫る…！？お見逃しなく！ 
+
+（嘉宾是三枝和叶山）
+[https://www.youtube.com/watch?v=scqFGxMkC-g&amp;feature=youtu.be](https://www.youtube.com/watch?v=scqFGxMkC-g&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 30992#       发表于 2021-2-9 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 原创曲卫星落地罢了，人家要休到三月末，别嗦了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 30993#       发表于 2021-2-9 21:24
+
+
+
+
+苏中之人发了个fleet，明确有新规vtb和转生的字样……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 30994#       发表于 2021-2-9 21:40
+
+
+
+
+所以抽卡要来了吧。。。。最近实在没事到无聊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30995#       发表于 2021-2-9 21:57
+
+
+
+
+美兔人称小红心，真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 30996#       发表于 2021-2-9 22:20
+
+
+
+
+红心自从频道改名之后我就开始吹了，敢想敢做还有创意。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 30997#       发表于 2021-2-9 22:34
+
+
+
+
+看国V下面推荐杏切片和搬运，余だよ和拉米初登场那两个小动画竟然都10W播放了，说好的绝无回旋余地呢，真的蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 30998#       发表于 2021-2-9 23:05
+
+
+
+ 本帖最后由 十四洲 于 2021-2-9 23:07 编辑 
+
+bora届到了针不戳啊
+
+syl，看着辛烷站起来了，再看看汉洛，L-Star什么时候能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 30999#       发表于 2021-2-9 23:06
+
+
+
+
+桐生可可现在还挂着批哩批哩签约主播呢，那毕竟叔叔都给杏奴们撑腰嘛
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 31000#       发表于 2021-2-9 23:47
+
+
+
+
+常暗、丽姐和wokka组队了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31001#       发表于 2021-2-9 23:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/09/235158idhlhq2nq4kidul2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Etx2IICU0AQ_tYn.jpg</strong> (155.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 23:51 上传
+
+
+
+
+
+
+
+那么这张照片是谁拍的呢？是不是misumi啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 31002#       发表于 2021-2-9 23:56
+
+
+
+
+v12一个月不到都有950页了，这v13开了3个月有多怎么才1000页出头啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31003#       发表于 2021-2-10 00:00
+
+
+
+
+当然是因为虹亡了，杏转移了，V综就凉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 31004#       发表于 2021-2-10 00:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/10/001156lk2dfmdpfp6hkpjm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210210011129.png</strong> (3.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-10 00:11 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31005#       发表于 2021-2-10 00:57
+
+
+
+
+发现郡道喜欢的一男一女都是社长，这人也太那个了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">（不过今天看了剧情发现アルちゃん确实很可爱），
+省一楼，king有说过要参加cr吗？和美夜子一组？
+
+
+
+
+
+                
