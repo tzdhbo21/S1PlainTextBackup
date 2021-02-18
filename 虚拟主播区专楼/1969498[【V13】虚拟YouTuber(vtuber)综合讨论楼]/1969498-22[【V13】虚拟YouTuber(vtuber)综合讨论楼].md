@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 06:38** 
+> ## **本文件最后更新于2021-02-18 11:31** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_wU6cp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_IjtF6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_eCffR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_l8GYW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_jlCpl" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_lH5xp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_eq1e7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_qjpJq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -5385,6 +5385,25 @@ Syl，
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LilMemo| + 1|圣人惠既视感草|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -5437,4 +5456,411 @@ tskk终于要买ns了？<img src="https://static.saraba1st.com/image/smiley/face
 
 
 
-                                        
+
+
+-----
+
+####  Reimu853  
+##### 31782#       发表于 2021-2-18 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50365574&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-18 13:59</a>
+
+任豚今年玩啥？喷喷也要明年了啊</blockquote>
+也不是任豚，反正mhr勇气默示录圣剑传说塞尔达这些够我玩一阵子了
+
+要是还有空余时间还能摸摸忍龙和侦探俱乐部
+
+
+说实话我一年能分配给游戏的空余时间也就一千多小时，我觉得这还算是玩游戏玩的比较多的。mhr估计就得去掉五百小时，剩下的其他游戏怕还是不够分。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31783#       发表于 2021-2-18 14:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/18/144950x4l3q3mst0e4tm24.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210218144938.png</strong> (17.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-18 14:49 上传
+
+
+
+
+
+
+
+king的话应该很擅长和kr妹子聊天了，不知道bora会不会跳舞，
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31784#       发表于 2021-2-18 14:53
+
+
+
+
+king赏脸了，好耶
+不过这组合也太神秘了，谁拉的人啊
+大猩猩跟king也不熟啊
+
+bora自称很会跳舞
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31785#       发表于 2021-2-18 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 但kr妹子身高都很高，king应该只喜欢跳舞很棒，很喜欢喝酒，不超过155的鬼族妹子！
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 31786#       发表于 2021-2-18 15:49
+
+
+
+
+大猩猩和葛叶还算熟吧，之前打枪次数还挺多，线下好像也一起玩过
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31787#       发表于 2021-2-18 15:57
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-18 16:08 编辑 
+
+我比较好奇bora什么时候和kamito认识了，靠胡桃？
+
+Syl，久檻夜くぅ也7w粉了，再来一次大会、有人带一波也有希望冲银盾<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31788#       发表于 2021-2-18 16:01
+
+
+
+
+胡桃也银盾了啊，挺快的
+
+
+
+
+
+
+
+-----
+
+####  walfeds  
+##### 31789#       发表于 2021-2-18 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50365211&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-2-18 13:29</a>
+
+https://prtimes.jp/main/html/rd/p/000000156.000029654.html
+
+https://goomstudio.com/ch/?introHidden=1
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">goom studio已经是去年的事了
+
+今天看到歌姬的事正好到处看了看，这两天算是官宣转给财团b运营了 <blockquote>バーチャルライブ配信アプリ「IRIAM」などを展開する株式会社ZIZAI
+
+（本社：東京都渋谷区、代表取締役：塚本大地、以下ZIZAI）は、2017年から運営プロデュースを手がけるVTuber「ミライアカリ」について、今後の新たな運営体制を以下の通り発表します。
+
+
+■「ミライアカリ」について
+
+ミライアカリは2017年10月より主にYouTubeを中心に活動を開始したバーチャルキャラクターで、その活動はYouTubeだけでなく、楽曲リリース、イベント出演、テレビ・CM出演、グッズ展開など、「VTuber」の枠を超えたバーチャルマルチタレントとして今日まで活動を続けている。
+
+（YouTubeチャンネル登録者数は71.5万人、公式Twitterアカウントフォロワー数は約33.4万人）
+
+
+■「ミライアカリ」新体制について
+
+新体制には、ミライアカリが2020年9月から所属する音楽レーベル「GOOM STUDIO」を運営する株式会社バンダイナムコアーツを中心に、株式会社バンダイナムコライブクリエイティブ、ぴあ株式会社、株式会社ADKマーケティング・ソリューションズ、バンダイナムコエンターテインメント上海が参画。それぞれがエンターテインメント業界の一翼を担うより強固で展開力のある体制となり、株式会社ZIZAIはこの新プロジェクトをバックアップすることとなります。
+
+
+【関連会社一覧】
+
+株式会社バンダイナムコアーツ：運営窓口・レーベル運営
+
+株式会社ZIZAI：運営サポート
+
+株式会社バンダイナムコライブクリエイティブ：ライブ・イベント制作
+
+ぴあ株式会社：ライブ・イベント制作
+
+株式会社ADKマーケティング・ソリューションズ：セールスマーケティング</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  walfeds  
+##### 31790#       发表于 2021-2-18 17:01
+
+
+
+
+没想到乐元素也烧钱烧到头了，虚拟偶像死路一条<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31791#       发表于 2021-2-18 17:17
+
+
+
+
+希望兔皇能在今早ND同时视听后捡起天堂的XB2<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 31792#       发表于 2021-2-18 17:18
+
+
+
+
+vtb哪这么好赚啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  条野太狼  
+##### 31793#       发表于 2021-2-18 17:32
+
+
+
+
+兔皇连1代追加篇章都不打  不要想她会玩2代 打游戏真累啊PEKO
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31794#       发表于 2021-2-18 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 下一个破产关门的是哪个？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31795#       发表于 2021-2-18 18:28
+
+
+
+
+歌姬这企划也不知道到底赚不赚钱，她们开过什么公演live吗，反正B站活动倒是上了不少
+
+另外这个企划全员都在日本，包括设备也是用的日方，可能也是原因之一吧
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 31796#       发表于 2021-2-18 18:42
+
+
+
+
+辣鸡圆脸上了king的封面都一脸憨气，修音比其他holomen多太多了，直属的资源就是不一样
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31797#       发表于 2021-2-18 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v圈企业感觉只有虹杏有的赚。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 31798#       发表于 2021-2-18 18:50
+
+
+
+
+那ccll也是赚的 还有就是vr算不算虹
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31799#       发表于 2021-2-18 18:51
+
+
+
+
+烂货圆脸这king唱的太烂了，不过这个歌就难听，一时都没想起来谁唱的不烂，现在就希望我们家大葵和mimi可千万别唱这破歌
+
+mix这位是烂货圆脸的朋友啊，总找他弄的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31800#       发表于 2021-2-18 18:54
+
+
+
+
+单纯说不亏本能运营下去的企业那多了吧，点生活774犬山家哪个能不赚啊，一些小企业小箱运营成本也不高的，怎么都能维持下去
+
+反而是大成本大制作的像裸春，虽然背后有avex，没准哪天突然就没钱撤了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31801#       发表于 2021-2-18 19:20
+
+
+
+
+维阿就算账面上亏也无所谓的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31802#       发表于 2021-2-18 19:27
+
+
+
+
+774大部分人月均流水不到50w吧，算到手3成，基本就是刚到一般打工仔的最低工资线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
