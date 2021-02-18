@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 01:27** 
+> ## **本文件最后更新于2021-02-18 15:34** 
 
 
 
@@ -12833,7 +12833,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_N8Rlr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_xpQPh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12876,10 +12876,11 @@ mv.gif
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 若风之景| + 1||
 | stmule| + 1||
 
 
@@ -12889,4 +12890,202 @@ mv.gif
 
 
 
-                          
+
+
+-----
+
+####  一仙  
+##### 11217#       发表于 2021-2-18 11:44
+
+
+
+
+截了点喜欢的GIF<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://tvax2.sinaimg.cn/large/006xG1LQgy1gnrjdadihgg307u0ainph.gif" referrerpolicy="no-referrer">
+
+<img src="https://tvax4.sinaimg.cn/large/006xG1LQgy1gnrjdddijvg307z0b67wj.gif" referrerpolicy="no-referrer">
+
+<img src="https://tva3.sinaimg.cn/large/006xG1LQgy1gnrjdhn7tsg307o0ahx6s.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://tvax2.sinaimg.cn/large/006xG1LQgy1gnrjdlrwnig30a70c6kjo.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stedckk| + 1||
+| collasong| + 1|省流小助手|
+| Fami水| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11218#       发表于 2021-2-18 18:07
+
+
+
+<img src="https://p.sda1.dev/1/54b81255bad3126d32a2f324797786d5/IMG_CMP_196123756.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11219#       发表于 2021-2-18 22:11
+
+
+
+
+7000同接，绫总怎么这么惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11220#       发表于 2021-2-18 22:20
+
+
+
+
+姐你还掺和运营的事去了 上心过头了 木口不值得<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11221#       发表于 2021-2-18 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心被当工具人用啊 绫总
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11222#       发表于 2021-2-18 22:27
+
+
+
+
+快跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11223#       发表于 2021-2-18 22:30
+
+
+
+
+跟真主角夸宝的二周目后日谈兼歌回撞了同接低正常<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11224#       发表于 2021-2-18 23:22
+
+
+
+
+嫌舞难姐你还说出来了 活该拿不到主角团钦定<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11225#       发表于 2021-2-18 23:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">还是可惜没有solo曲表演
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11226#       发表于 2021-2-18 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">说了多少遍あくたんかわいい了
+
+
+
+
+
+                         
