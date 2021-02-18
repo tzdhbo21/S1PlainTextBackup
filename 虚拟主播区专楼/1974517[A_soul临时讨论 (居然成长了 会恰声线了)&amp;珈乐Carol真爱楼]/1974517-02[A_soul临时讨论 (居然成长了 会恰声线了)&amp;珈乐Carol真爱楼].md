@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 06:40** 
+> ## **本文件最后更新于2021-02-18 09:36** 
 
 
 
@@ -1536,4 +1536,55 @@ syl，嘉心糖感觉是还没沉淀完的问题，多来几次团播就会好�
 
 
 
-                                               
+
+
+-----
+
+####  花生酱神侃  
+##### 1590#       发表于 2021-2-18 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50365134&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-18 13:22</a>
+娱乐圈偶像有直播破防哭哭养gachi的吗，有无懂哥</blockquote>
+杨超越不算吗👀
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 1591#       发表于 2021-2-18 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50365134&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-18 13:22</a>
+娱乐圈偶像有直播破防哭哭养gachi的吗，有无懂哥</blockquote>
+杨超越不算吗👀
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 1592#       发表于 2021-2-18 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50365134&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-18 13:22</a>
+娱乐圈偶像有直播破防哭哭养gachi的吗，有无懂哥</blockquote>
+不但有，而且很常见。本身哭泣是洗粉行为，剩下的都是核心gachiz
+
+
+
+
+
+                                              
