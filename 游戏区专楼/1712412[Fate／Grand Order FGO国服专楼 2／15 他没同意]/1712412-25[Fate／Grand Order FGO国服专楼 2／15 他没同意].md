@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 02:39** 
+> ## **本文件最后更新于2021-02-18 06:47** 
 
 
 
@@ -13268,4 +13268,40 @@ S版主上个月底把自己攻略全锁隐，我建议他去把自己的置顶�
 
 
 
-                         
+
+
+-----
+
+####  atomicink  
+##### 36751#       发表于 2021-2-18 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50362122&amp;ptid=1712412" target="_blank">CrayS1 发表于 2021-2-18 09:14</a>
+
+我印象特别深就是BGO版主的大作《概率》。
+
+
+说了一大堆看起来确实没毛病，但是其实根本没法说明卡池问题的 ...</blockquote>
+手游版有人问会不会有概率欺诈，我提了一下概率圣经，被删帖禁言-300威望<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36752#       发表于 2021-2-18 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">lga只有马屁精才能混得好
+
+
+
+
+
+                        

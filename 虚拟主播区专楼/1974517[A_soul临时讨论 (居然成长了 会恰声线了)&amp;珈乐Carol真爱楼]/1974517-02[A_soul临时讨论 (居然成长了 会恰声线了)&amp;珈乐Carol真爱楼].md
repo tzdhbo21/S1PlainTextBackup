@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 02:16** 
+> ## **本文件最后更新于2021-02-18 06:40** 
 
 
 
@@ -965,4 +965,575 @@ syl，嘉心糖感觉是还没沉淀完的问题，多来几次团播就会好�
 
 
 
-                                                
+
+
+-----
+
+####  Gmanager  
+##### 1557#       发表于 2021-2-18 10:41
+
+
+
+
+神tm虚拟xz，可少扣点帽子吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 1558#       发表于 2021-2-18 10:49
+
+
+
+
+本来团宠定位，结果成了as顶流兼职污水处理厂，然然，我的然然<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 1559#       发表于 2021-2-18 10:50
+
+
+
+
+都虚拟xz了 能不能让然然上个春晚啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1560#       发表于 2021-2-18 10:53
+
+
+
+
+要是真成了虚拟肖战，那之前发散的跟王一博贴贴是不是可以推进一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 1561#       发表于 2021-2-18 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50363226&amp;ptid=1974517" target="_blank">Y_Curiosity 发表于 2021-2-18 10:49</a>
+本来团宠定位，结果成了as顶流兼职污水处理厂，然然，我的然然
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+都是运营的剧本罢了，真的是洗脚也不会找狗妈引流啊，引完了会发生什么不会不知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 1562#       发表于 2021-2-18 10:54
+
+
+
+
+卡了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1563#       发表于 2021-2-18 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50363272&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-18 10:53</a>
+要是真成了虚拟肖战，那之前发散的跟王一博贴贴是不是可以推进一下啊 ...</blockquote>
+破楼，我不想知道这些<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+不对，我好像没进b综啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1564#       发表于 2021-2-18 10:56
+
+
+
+
+不是虚拟xz, 是虚拟xz粉，我们然然是世界上最可爱的偶像<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> xz爬
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 1565#       发表于 2021-2-18 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50363278&amp;ptid=1974517" target="_blank">寒星 发表于 2021-02-18 10:53:40</a>
+都是运营的剧本罢了，真的是洗脚也不会找狗妈引流啊，引完了会发生什么不会不知道吧 ...</blockquote>运营也不知道第一批观众是v吧这样的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 1566#       发表于 2021-2-18 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两个月前还在谈AS和歌姬之间的技术差别与企划力之类的东西，觉得AS能摸着歌姬过河。
+
+这么快歌姬就沉了......<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明驱动  
+##### 1567#       发表于 2021-2-18 11:18
+
+
+
+
+一巴掌打醒歌姬变成一巴掌把歌姬打没也是谁也没想到的，过于戏剧性了。
+以后怎么在弹幕刷时刻回应爱啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1568#       发表于 2021-2-18 11:23
+
+
+
+
+时刻回应爱已经是as的了，该刷刷
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1569#       发表于 2021-2-18 11:41
+
+
+
+
+这楼怎么还有开地图炮的啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">麻了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 1570#       发表于 2021-2-18 12:02
+
+
+
+
+资方憋不住了吧看架势，明显是回炉重造。
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 1571#       发表于 2021-2-18 12:11
+
+
+
+
+主要是不知道什么成分的人就喜欢整个嘉然的id头像 而其他四个的就很少。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1572#       发表于 2021-2-18 12:26
+
+
+
+
+嘉心糖本来就是什锦味，成分多不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不同的味道，同一种快乐，我可爱死然然了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1573#       发表于 2021-2-18 12:37
+
+
+
+
+别说，没有引流动物园，还真看不到嘉然
+
+
+
+
+
+
+
+-----
+
+####  Lucinar  
+##### 1574#       发表于 2021-2-18 12:43
+
+
+
+
+嘉然的弹幕这两天算是变正常了，我觉得接下来两周最好别让嘉然单独直播，随便跟谁联动都行，只要嘉然一单独开播立马炮火轰鸣<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+而且我悲观地认为这种喊着为圣嘉然引流的名义到处ky找乐子的行为已经止不住了，在路人看来算是实锤了乐华死性难改、水军碰瓷营销<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑子就黑嘉然吧别来祸害其他四个就行
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1575#       发表于 2021-2-18 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364681&amp;ptid=1974517" target="_blank">Lucinar 发表于 2021-2-18 12:43</a>
+
+嘉然的弹幕这两天算是变正常了，我觉得接下来两周最好别让嘉然单独直播，随便跟谁联动都行，只要嘉然一单独 ...</blockquote>
+这不就跟当年孙笑川那批人类似吗，能发散到水军那说实话多多少少也带点魔怔
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1576#       发表于 2021-2-18 12:51
+
+
+
+
+只能说大家的网络生活还是太充实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 1577#       发表于 2021-2-18 13:02
+
+
+
+
+我居然刷到了这个，也太冲了www     https://b23.tv/wseLXa
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1578#       发表于 2021-2-18 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364894&amp;ptid=1974517" target="_blank">テロメア 发表于 2021-2-18 13:02</a>
+我居然刷到了这个，也太冲了www     https://b23.tv/wseLXa</blockquote>
+这个还有一个合集的https://b23.tv/yVJ7F3
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1579#       发表于 2021-2-18 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364681&amp;ptid=1974517" target="_blank">Lucinar 发表于 2021-2-18 12:43</a>
+嘉然的弹幕这两天算是变正常了，我觉得接下来两周最好别让嘉然单独直播，随便跟谁联动都行，只要嘉然一单独 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer"> 嘉然anti 是吧，一个魂一荣俱荣，一损俱损的，还没火就搞分裂了嗷
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1580#       发表于 2021-2-18 13:08
+
+
+
+ 本帖最后由 yuzu98k 于 2021-2-18 13:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364932&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-18 13:05</a>
+
+这个还有一个合集的[https://b23.tv/yVJ7F3](https://b23.tv/yVJ7F3)</blockquote>
+别发男粉的，恶心心！
+
+上面那个v是蹭明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，闸薯条都说好(？）
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 1581#       发表于 2021-2-18 13:16
+
+
+
+<blockquote>OldGlory 发表于 2021-2-18 13:05
+这个还有一个合集的[https://b23.tv/yVJ7F3](https://b23.tv/yVJ7F3)</blockquote>
+我好像也刷到过，之前听了下就关掉了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+这个女声整成了配乐朗诵体，我才听完了整段。
+
+发现写的还不错的
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1582#       发表于 2021-2-18 13:22
+
+
+
+
+娱乐圈偶像有直播破防哭哭养gachi的吗，有无懂哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 1583#       发表于 2021-2-18 13:23
+
+
+
+
+那可太多了，你v圈都是娱乐圈玩剩下的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  芸芸提不起劲  
+##### 1584#       发表于 2021-2-18 13:24
+
+
+
+
+现役不知道有没有，前偶像倒是有一个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1585#       发表于 2021-2-18 13:35
+
+
+
+
+前偶像只想打游戏，这么一说晚晚说不定也是前偶像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1586#       发表于 2021-2-18 13:48
+
+
+
+
+什么时候吻别
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1587#       发表于 2021-2-18 13:49
+
+
+
+
+可别乱说，海子姐游戏力秒杀十个晚晚还是绰绰有余的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚晚那明显rp
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1588#       发表于 2021-2-18 13:50
+
+
+
+
+晚晚不吃菠萝包，有也不承认，发散失败。
+
+原来真的只是一个纯纯练习生小偶像！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1589#       发表于 2021-2-18 14:09
+
+
+
+
+别车海子姐了，挺惨的，现在只想嗯混<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                               

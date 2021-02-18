@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 01:57** 
+> ## **本文件最后更新于2021-02-18 06:38** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_WH4V4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_wU6cp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_n9EZt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_FZkl6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_Shj3H" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_eCffR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_l8GYW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_jlCpl" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -4619,4 +4619,822 @@ https://b23.tv/xr8GqG
 
 
 
-                                          
+
+
+-----
+
+####  清枝  
+##### 31741#       发表于 2021-2-18 10:01
+
+
+
+
+后续是没有的，大概
+
+HOLO的话大概就只能做一些这样的PV了
+
+这个PV因为镜头实际上是散的所以没有问题
+
+一旦放在一起，就是大家想要的OVA首先需要解决的就是角色协调性的问题，holo的人设放在一起其实是非常违和的（不知道为什么大家看的时候没有感觉），画风都不一样，虽然这个也是动画中经常出现的问题了
+
+短的MV是MV，一旦要涉及到OVA或者番剧就算A1同意了也必须要Aniplex过一遍，点头了才能做，这个在holo之前乐元素已经碰过壁了，所以乐元素最后是liden来做。
+
+
+后来看了一遍
+
+整体感受是糊弄观众啊，倒也算是定位精确，对于粉丝而言，有就可以，好无所谓，因为这是一个新鲜的东西。
+
+整体上连贯性的问题，缺少一条经过大脑的脉络，虽然MV无所谓了，只要歌曲合拍就可以，甚至不合拍也可以，漂亮就行了
+
+角色展现上在中之人纷纷撕皮或者二次设定的情况下，做的是设定上的角色而不是大家面对的那个liver，从非画面的内容层面很难说是真的非常想做非常上心的东西。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|那不然呢，干嘛要连忙否定没有动画，hold不.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31742#       发表于 2021-2-18 10:09
+
+
+
+
+不省一楼，喷喷3出了之后可以预计小琥珀ina郡都会播爆，终于来了个拳打apex脚踢ff的好游戏<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">。
+
+其实，动画是不是跟妄想战那种差不多啊，总觉得是大型fanart合集而不是v本人，很难做出彩（马盯你后遗症），也可能是我太久不看动画片了…当然有（预定）出圈作品是很值得庆祝的好事！希望虹也有！
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 31743#       发表于 2021-2-18 10:14
+
+
+
+
+怎么都开始动画什么的，这mv之后最多就是加长到3分钟一首歌的时间，那还想ova这种事啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31744#       发表于 2021-2-18 10:22
+
+
+
+ 本帖最后由 free 于 2021-2-18 10:24 编辑 
+
+战斗吧歌姬全员毕业<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+[https://t.bilibili.com/492955773349077282?tab=2](https://t.bilibili.com/492955773349077282?tab=2)
+
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 31745#       发表于 2021-2-18 10:31
+
+
+
+ 本帖最后由 -rm7- 于 2021-2-18 10:32 编辑 
+
+。。。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">打开b站就看到这个消息。。
+
+直接没了
+<img src="https://p.sda1.dev/1/606300f1b4fcc41efe4c1920a1db3fb1/IMG_CMP_176055633.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31746#       发表于 2021-2-18 10:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚好这时间，很难相信没有a骚带来的冲击。
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 31747#       发表于 2021-2-18 10:33
+
+
+
+
+怎么又来……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31748#       发表于 2021-2-18 10:33
+
+
+
+
+很好，世上的贝拉少了一个。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 31749#       发表于 2021-2-18 11:24
+
+
+
+
+「ホロライブ・オルタナティブ」は、 VTuberグループ「ホロライブ」に所属するタレントたちの、 また別のセカイでの活躍を描く異世界創造プロジェクトとなっており、 漫画やアニメ、 ゲームといったメディアミックス作品を順次展開する予定です。 
+
+饼很大
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31750#       发表于 2021-2-18 11:27
+
+
+
+
+大概就是杏世界吧
+赶狗超原
+
+syl，今年游戏荒了啊，2020好歹有个2077可以期待一下（虽然最后拉了），今年连个饼都没有
+别说mhr，龙癌不爱的
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 31751#       发表于 2021-2-18 11:31
+
+
+
+
+别饼不饼的了，人家都还在上升期呢不好好看着么，除了少数人以外这有什么损失吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 31752#       发表于 2021-2-18 11:32
+
+
+
+
+看群里说的，这次PV给国内杏奴打了一针强心剂<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 31753#       发表于 2021-2-18 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50363755&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-18 11:27</a>
+
+大概就是杏世界吧
+
+赶狗超原</blockquote>
+不跳票的话，年末应该有个战地6
+
+狮信应该又能看狮白打战地了
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 31754#       发表于 2021-2-18 11:34
+
+
+
+
+杏世界包括杏星吗
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 31755#       发表于 2021-2-18 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">画饼你也要有能力才能画啊，就这pv饼，还有谁能画的？
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 31756#       发表于 2021-2-18 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50363849&amp;ptid=1969498" target="_blank">耻照 发表于 2021-02-18 11:34:34</a>
+杏世界包括杏星吗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">包括
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 31757#       发表于 2021-2-18 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">who are you警告
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 31758#       发表于 2021-2-18 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50363940&amp;ptid=1969498" target="_blank">雷修特 发表于 2021-2-18 11:41</a>
+ 包括    -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+这个问题问的好，目前来看不包括<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+カバー株式会社（本社：東京都千代田区、代表取締役社長：谷郷元昭）は、当社が運営する女性VTuberグループ「ホロライブ」に所属するタレントたちの、また別のセカイでの活躍を描く異世界創造プロジェクト「ホロライブ・オルタナティブ」を始動いたします。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 31759#       发表于 2021-2-18 11:57
+
+
+
+
+走美漫设定的话，分几个宇宙，然后这几个宇宙有交集。
+
+
+比如普通人一个宇宙，日本神仙（鬼神狐）一个宇宙，西方幻想一个宇宙，然后搞几个大事件和刊什么的。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31760#       发表于 2021-2-18 11:59
+
+
+
+
+想了一年多想个多元宇宙出来也太废物了
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 31761#       发表于 2021-2-18 12:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/18/120737e5ecelgnfi0ukuu5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (8.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-18 12:07 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 31762#       发表于 2021-2-18 12:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31763#       发表于 2021-2-18 12:16
+
+
+
+
+杏不好弄统一的世界观，可以照着四月一日那样搞嘛，二次扮演，圆脸不人气声优扮演的v扮演圆脸不人气声优
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 31764#       发表于 2021-2-18 12:19
+
+
+
+<blockquote>cheatdeath3 发表于 2021-2-18 11:33
+不跳票的话，年末应该有个战地6
+
+狮信应该又能看狮白打战地了</blockquote>
+战地是她数字最拉的直播，事业民不爱的。
+
+
+我也想打500rub给446威胁她播apex了
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 31765#       发表于 2021-2-18 12:22
+
+
+
+
+ttf2都播了不播apex，就像素股给硬了后不让插入一样太搞心态了
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 31766#       发表于 2021-2-18 12:32
+
+
+
+
+希望明年能看到熊猫人和友人h联机喷喷3
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 31767#       发表于 2021-2-18 12:32
+
+
+
+
+446apex带妹才是精髓
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 31768#       发表于 2021-2-18 12:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏荒那是你游戏荒，本任豚总之是过年了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 31769#       发表于 2021-2-18 12:44
+
+
+
+
+群里看到消息，歌姬怎么回事啊？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31770#       发表于 2021-2-18 12:45
+
+
+
+
+早上ND除了老婆进大乱斗确实没内容，至于喷喷，我至今没见过哪个玩喷喷的V不是同接自杀的，哪怕任任女孩都救不回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 31771#       发表于 2021-2-18 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364374&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2021-2-18 12:19</a>
+
+战地是她数字最拉的直播，事业民不爱的。
+
+
+我也想打500rub给446威胁她播apex了 ...</blockquote>
+据说改版后大师更好上了，多打点卢布，让她直播上大师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 31772#       发表于 2021-2-18 12:58
+
+
+
+
+歌姬的投入与收益实在不成比例
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 31773#       发表于 2021-2-18 13:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在挂多到哈弟bora都不怎么乐意打排位了，听说kinako，bob这些职业也不太乐意冲分了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31774#       发表于 2021-2-18 13:03
+
+
+
+
+希望明年能看到熊猫人和友人h联机喷喷3，可能会再加个谁一起打吧。
+
+syl
+
+与其说强心剂什么的，主要还是2nd之后的木口太无聊了，虽然出了九首原创曲，五期3d披露，四期偶像服，三期和ganers集体手办化，手游联动，但都没跳出固有的圈子，还破防了不少liver，休止了不少人，总的来说无大功无大过，平铺直叙，现在好不容易拿出个还不错的饼，并开始吹嘘未来，不管后面到底发展如何，变化总是会让人有所期待。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 31775#       发表于 2021-2-18 13:06
+
+
+
+
+今年不出意外应该有孤岛惊魂6 mhr 老头环 消逝的光芒2 生化危机8 福尔摩斯 霍格沃兹 
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31776#       发表于 2021-2-18 13:26
+
+
+
+ 本帖最后由 rzrbtk 于 2021-2-18 13:31 编辑 
+
+郡郡最期待的还是ns版apex（3.10就能玩）吧，说不定意外的会很强<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+省一楼，不知道口了啥时候回，小新那个绝对适合她玩，一看还是《我的暑假》的导演搞的，口了回来继续斗虫之夏吧……
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 31777#       发表于 2021-2-18 13:29
+
+
+
+[https://prtimes.jp/main/html/rd/p/000000156.000029654.html](https://prtimes.jp/main/html/rd/p/000000156.000029654.html)
+[https://goomstudio.com/ch/?introHidden=1](https://goomstudio.com/ch/?introHidden=1)
+
+未来明背后的公司有了，官网三语，下面的协力是财团b<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31778#       发表于 2021-2-18 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364615&amp;ptid=1969498" target="_blank">Reimu853 发表于 2021-2-18 12:38</a>
+游戏荒那是你游戏荒，本任豚总之是过年了</blockquote>
+任豚今年玩啥？喷喷也要明年了啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31779#       发表于 2021-2-18 14:05
+
+
+
+
+今年可以继续喷2和塞尔达
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202102/18/140423p4awehhihoiuaxew.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#にじFes2021　キービジュアル公開.jpg</strong> (802.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-18 14:04 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/18/140422tq8ycsch3b893289.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【#にじFes2021　グッズ第二弾】.jpg</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2021-2-18 14:04 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/18/140421d88i8jpxeiern8ip.jpg" referrerpolicy="no-referrer">
+
+
+<strong>鈴鹿詩子 誕生日記念グッズ・ボイス販売決定.jpg</strong> (211.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-18 14:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31780#       发表于 2021-2-18 14:10
+
+
+
+
+油管给我推的不知道哪来的底边。这什么辣鸡企划，居然还1.8万赞，真有观众爱看这个？
+<blockquote>【長時間配信】まさかの14日間配信！【Vtuber】
+897 人正在观看
+•直播开始日期：2021年2月16日
+1.8万
+74
+分享
+保存
+子狐ねねか -Neko Neneka-
+4.23万位订阅者
+最終日にスパチャとドネートの合計金額を発表する！
+I will announce the total amount of superchat and donate on the last day.
+
+アーカイブは残さないよ！！！
+
+
+I don't have money.
+↓余裕のある方お願いします↓
+Support the stream: https://streamlabs.com/-nekoneneka-</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31781#       发表于 2021-2-18 14:25
+
+
+
+
+tskk终于要买ns了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                        
