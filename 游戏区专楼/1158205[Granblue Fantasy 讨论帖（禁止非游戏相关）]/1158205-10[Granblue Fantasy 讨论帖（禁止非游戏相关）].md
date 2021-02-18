@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-06 07:43** 
+> ## **本文件最后更新于2021-02-18 02:36** 
 
 
 
@@ -119,16 +119,7 @@
 ####  poor  
 ##### 13507#       发表于 2020-6-17 07:42
 
-
-
-
-四象金碎都换完的话现在是有多少？我还有7个戒指6块金，现在278个碎，本来以为自己都不知道的时候漏了两天日常，结果一算是多了3个碎？一般换完貌似是多15个碎的吧？
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -241,16 +232,7 @@
 ####  poor  
 ##### 13514#       发表于 2020-6-17 23:52
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47838208&amp;ptid=1158205" target="_blank">DOACAON 发表于 2020-6-17 14:35</a>
-
-这次换完确实是多18个</blockquote>
-原来如此，我就说我应该没漏来着<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1152,19 +1134,7 @@ gw改回100防了</blockquote>
 ####  GrandAko  
 ##### 13565#       发表于 2020-7-18 22:02
 
-
-
-
-之前云的必爆盘用起来还行，不过1路还是有点贫弱
-
-
-这次泳欧落地我还久违的去课金了，结果并没有up路西欧（lm）最后也就没井
-
-看今年刺客强度如何再决定吧。什么时候才再uplm路啊
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2256,16 +2226,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  poor  
 ##### 13630#       发表于 2020-8-2 19:58
 
-
-
-
-日常除了6龙还有什么比较有建设性的free本吗？古代布暂时够用了
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2361,19 +2322,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  poor  
 ##### 13636#       发表于 2020-8-3 09:47
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48300642&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2020-8-3 04:40</a>
-
-有solo意向的可以多fa迈向幸福的路这个新本，就3空域光线巨兽骨3合1的那个，收益非常高。
-
-
-—— 来自 Son ...</blockquote>
-谢谢，看来要推下主线了，貌似现在只有破茶杯瓦片那个本
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2399,16 +2348,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  poor  
 ##### 13638#       发表于 2020-8-3 10:22
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48302002&amp;ptid=1158205" target="_blank">super0395 发表于 2020-8-3 10:21</a>
-
-除了这个也可以去打打士兵子弹材料本，如果要做的话水银荣华之炎甚至是铁矿都是很缺的 ...</blockquote>
-这些有的没的旧材料都1000多了，还不够的吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2529,18 +2469,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  poor  
 ##### 13643#       发表于 2020-8-3 14:35
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48303688&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2020-8-3 12:57</a>
-
-除了铁矿这种字面意思的需求很大以外，炽热矿这种因为会刷罐子特殊怪的原因也极其的精神污染，包括华荣 ...</blockquote>
-看了眼也就铁矿石水银真理土差得多，不过这是一个子弹的量吗？可怕<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
-
-不过其实主要也就想找个FREE本刷做点任务，我还是去刷兽骨吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2602,16 +2531,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  GrandAko  
 ##### 13647#       发表于 2020-8-3 23:41
 
-
-
-
-我超了仇闪
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">感觉自己脏了（至今为止基本只超角色的人）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2669,14 +2589,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  GrandAko  
 ##### 13651#       发表于 2020-8-4 10:41
 
-
-
-
-低配暗老王（一把零圈lm，一把仇闪）宇宙除了一把暗爪提供方阵粹外，放三把ex攻刃武器（暗六道主手，天秤，星幽拳）会不会太多？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2732,20 +2645,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  GrandAko  
 ##### 13655#       发表于 2020-8-4 14:37
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48312506&amp;ptid=1158205" target="_blank">Risa 发表于 2020-8-4 10:46</a>
-
-反正是1HP背水,只要背水够就无所谓</blockquote>
-吃加护的仇闪零圈和法武
-
-不吃加护的暗爪
-
-不知道怎么才算够……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2796,19 +2696,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  GrandAko  
 ##### 13658#       发表于 2020-8-4 20:36
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48316951&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2020-8-4 18:13</a>
-
-不会，这3把刚好。打拳配置不够甚至可以放4把ex开上限，1血背水就是这么自信
-
-
-—— 来自 Sony J91 ...</blockquote>
- 是指杀尼亚再用佐伊背水的玩法吗……我不是很会用很怕减员猝死
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2817,23 +2705,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  GrandAko  
 ##### 13659#       发表于 2020-8-4 20:43
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48315848&amp;ptid=1158205" target="_blank">Risa 发表于 2020-8-4 16:32</a>
-
-仇闪 0 和法武+暗爪,  克属够,跨属勉强够(有些角色摸不到上限,有些可以),这个程度. 一般推荐再有个仇闪娘 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">其实我暗方也能拿出这个程度的盘子……
-
-自身也过于广撒网而不是进境某一属性导致并不能拿出过多的资源去投资某个老王……
-
-
-突然开始对自己要做**和在农第二把椰子树这件事本身产生了怀疑……
-
-我到底是要……做什么呢……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2863,21 +2735,7 @@ nb，出了3天终于发现多人六龙比tm单人还畜生，发公告说8月�
 ####  GrandAko  
 ##### 13661#       发表于 2020-8-5 08:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48321583&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2020-8-5 07:24</a>
-
-打拳猎金玩法需要的时候再去看看视频就好，手法很简单，拼的只有网速和一个眼疾手快
-
-3ex在宇宙盘里也并不 ...</blockquote>
-我这种低配感觉也打不了拳，我本身做暗老王也不是冲着猎金去的。
-
-
-想着能比方阵有提升就好，但是现在有种继续投入下去，值得吗的想法。（我还没开始砸，只是有胚子）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3529,19 +3387,7 @@ lga只准岚龙嘲讽结果我开了个反嘲直接封4天，也是惊喜
 ####  GrandAko  
 ##### 13697#       发表于 2020-8-9 10:15
 
-
-
-
-虽然我不是风神石，但是每次看到乳风神石这个梗都觉得挺无聊的
-
-我玩了三年了，这破梗也见蛮久了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">刚开始看还觉得有点意思，但越看越觉得无聊。
-
-
-还隐忍三年，隐忍你妈呢，这大概就是蹬鼻子上脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3584,14 +3430,7 @@ lga只准岚龙嘲讽结果我开了个反嘲直接封4天，也是惊喜
 ####  GrandAko  
 ##### 13700#       发表于 2020-8-9 11:25
 
-
-
-
-今天11点没有卡池预告
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3824,20 +3663,7 @@ fkhr果然是基佬。连续终突2个男人</blockquote>
 ####  GrandAko  
 ##### 13714#       发表于 2020-8-9 21:44
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48368469&amp;ptid=1158205" target="_blank">nagitoY 发表于 2020-8-9 12:49</a>
-
-vs联动卡里奥斯特萝了。
-
-想问下他的人物背景，好像是炼金术士给自己炼了一具萝莉美少女的身体？ ...</blockquote>
-是的
-
-特别是他还是世界观里排的上号的那种强大的炼金术师
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3868,20 +3694,7 @@ vs联动卡里奥斯特萝了。
 ####  GrandAko  
 ##### 13716#       发表于 2020-8-9 22:23
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48373091&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2020-8-9 22:18</a>
-
-应该是设定上的非神魔战力天花板之一
-
-十天众？今年周年活动那批样（除了老7）说是战力天花板你信吗 ...</blockquote>
-不信（既答）
-
-当然也可以用[只是该类武器的使用者里最强的存在]来自我安慰<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4024,14 +3837,7 @@ vs联动卡里奥斯特萝了。
 ####  rxrx  
 ##### 13724#       发表于 2020-8-10 01:10
 
-
-
-
-老实说，我想将古兰和姬塔都放在队里用<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4094,14 +3900,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13728#       发表于 2020-8-10 10:49
 
-
-
-
-六龙多人菜鸡要怎么发容易有大佬来打？风土光这种倒还行，水火要等半天，特别是火，昨晚到今早刷了好久最多连我一起就3个，我都怀疑是不是只有这两个人在打了，暗还没发过
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4148,22 +3947,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13731#       发表于 2020-8-10 11:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48378091&amp;ptid=1158205" target="_blank">北極海航路 发表于 2020-8-10 10:55</a>
-
-暗水都很多人打啊
-
-光火才是真的少
-
-不过我觉得土混子最多，我共斗发土200+都整天翻车，一堆没有修车能力的 ...</blockquote>
-光昨晚发虽然来人也没很快，不过感觉跟其它几个差不多，而且几个拳皇进来一下没了，体验比较好，感觉应该多点人愿意打
-
-土是真的危险的样子，经常打到后面10几20跳出来几个胜利信，为了减少翻车率是不是限定下全义贼或者禁止义贼的好……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4172,16 +3956,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13732#       发表于 2020-8-10 11:02
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48378094&amp;ptid=1158205" target="_blank">Risa 发表于 2020-8-10 10:55</a>
-
-最好的时机是刚开那几天,放出来立刻有人杀,现在晚了,第一梯队已经毕业,剩下的只有高等级佛系6连车,只能忍受 ...</blockquote>
-唔……怎么这样……都没出多久啊，大佬们这么快耳环都农完了？<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4224,16 +3999,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13735#       发表于 2020-8-10 11:45
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48378494&amp;ptid=1158205" target="_blank">北極海航路 发表于 2020-8-10 11:32</a>
-
-反正土最好自己能修，你写个禁止贼和双剑很多人就不进了，大部分人就炸个100w走了 ...</blockquote>
-啊这……好吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4295,18 +4061,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13739#       发表于 2020-8-10 17:05
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48379895&amp;ptid=1158205" target="_blank">Niu 发表于 2020-8-10 13:18</a>
-
-土龍還是全義賊最保險 也快
-
-不然打得真是又久又累</blockquote>
-5个射程也够吗？而且万一有个摸鱼的那就完了吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4403,19 +4158,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13745#       发表于 2020-8-11 09:31
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48383803&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2020-8-10 18:24</a>
-
-现在除了土暗最好都共斗开连车，暗有时候放野依然会烂，只有团战在即的土不愁猎手……
-
-
-—— 来自 Sony J ...</blockquote>
-我不会打还等级低，开不起啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4563,16 +4306,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13754#       发表于 2020-8-16 13:17
 
-
-
-
-现在六道是不是都没有复数的必要了？以前掉了几个想拆了
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4602,16 +4336,7 @@ vs联动卡里奥斯特萝了。
 ####  poor  
 ##### 13756#       发表于 2020-8-17 09:45
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48452676&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2020-8-16 22:00</a>
-
-如果是说恶魔盘的话，去年法武落地的一瞬间就已经毫无价值了，现在也有了星幽这更优质的ex，不是为了好玩 ...</blockquote>
-OK，主要是怕光剑是不是要组剑盘用
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4620,14 +4345,7 @@ OK，主要是怕光剑是不是要组剑盘用
 ####  poor  
 ##### 13757#       发表于 2020-8-17 12:19
 
-
-
-
-最近风龙怎么都没人来的，感觉比火龙都难来，是我发的姿势不对吗
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5276,17 +4994,7 @@ OK，主要是怕光剑是不是要组剑盘用
 ####  GrandAko  
 ##### 13795#       发表于 2020-8-27 22:25
 
-
-
-
-罗密欧追加杖得意，俩被动整合到一起并取消了空英灵的伤害惩罚
-
-
-希望终突厉害一点
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5391,14 +5099,7 @@ OK，主要是怕光剑是不是要组剑盘用
 ####  rxrx  
 ##### 13802#       发表于 2020-8-29 18:24
 
-
-
-
-虽然11区反应不怎样，但我还是发现自己是喜欢有情人终成眷属的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5444,19 +5145,7 @@ OK，主要是怕光剑是不是要组剑盘用
 ####  rxrx  
 ##### 13805#       发表于 2020-8-29 20:31
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48586196&amp;ptid=1158205" target="_blank">404489039 发表于 2020-8-29 19:27</a>
-
-抽花嫁朱丽叶回来NTR自己，kmr真有你啊</blockquote>
-本来就是和中村一对，故事中还特地安排主角当两人的cp厨
-
-
-借星爷一句：人家郎才女貌，天生一对轮到你这妖怪来反对<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5859,14 +5548,7 @@ kmr的死妈联动来历
 ####  rxrx  
 ##### 13827#       发表于 2020-9-1 16:20
 
-
-
-
-人们还是很老实，梅塔和三眼哥一样死得超快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6084,24 +5766,7 @@ solo fs现在是纯做作业和自我满足了 没啥紧赶的必要
 ####  GrandAko  
 ##### 13839#       发表于 2020-9-2 19:17
 
-
-
-
-火杖感觉可以农个两把，如果以后真3.0火方有带机能性的大攻刃或者双攻刃，感觉可以尝试做纯浑身盘。不过这都是猴年马月的事了，目前一把够。
-
-水拳……我好久不玩水方了，奥义双破限看起来不错，你要是没有卡萝或者泳芬弄个当主手也不错。技能太弱了还是不考虑作为基底了吧
-
-土剑，免费的三手大和可能有点用的背水小，土比起回复能力还是防御能力更强，全程保持满血也不现实，考虑到这点感觉有一定的投入价值（虽然我看到三手大就走不动路了）
-
-风杖挺好，我再也不用一直死纠结U杖主手了，属攻方面交给进境武也可以。风的防驱散能力（弗雷和军神）以及奥义速度，让独立攻刃能维持在一定的层数。就是踢掉一把风琴的话要考虑法武到底是选择浑身还是进境
-
-梅塔那个，不管怎么说光剑盘都弱智到我跑去玩宙斯了，打死我都不会把票投给光剑的，新武器挺好，挺好
-
-暗琴……我觉得挺弱的，不想弄
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6133,17 +5798,7 @@ solo fs现在是纯做作业和自我满足了 没啥紧赶的必要
 ####  GrandAko  
 ##### 13841#       发表于 2020-9-2 19:48
 
-
-
-
-想了一下，好像就火风土农一把就够了
-
-
-好轻松
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6242,17 +5897,7 @@ solo fs现在是纯做作业和自我满足了 没啥紧赶的必要
 ####  GrandAko  
 ##### 13847#       发表于 2020-9-3 11:51
 
-
-
-<blockquote>双刀少女 发表于 2020-9-2 23:55
-突完一把火杖了，肉眼可见的火力提升啊，可惜古战还早，感觉和树枝对冲很不错，短期我没🐢，否则多杖估计也 ...</blockquote>
-盘子好挤，投入湿婆杖的话，方阵还塞哪些武器啊。
-
-感觉必爆4树枝1法武1四象就6个位置了，剩下的星幽天司四象破限随便塞塞就满了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6850,13 +6495,7 @@ lm有：火：莱茵，无限，湿婆，火牛；水：olb，真扎，卡姐；
 ####  GrandAko  
 ##### 13878#       发表于 2020-9-8 21:21
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">你游那种玩梗把脑子玩丢的二极管也是越来越多了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7449,16 +7088,7 @@ gbf很多机制很复杂，学习成本很高，玩的过程中也可以配合�
 ####  GrandAko  
 ##### 13908#       发表于 2020-9-13 23:27
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48722385&amp;ptid=1158205" target="_blank">gta345 发表于 2020-9-13 12:41</a>
-
-有预告几号开月中池吗</blockquote>
-一般是16到18号左右开
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7519,16 +7149,7 @@ gbf很多机制很复杂，学习成本很高，玩的过程中也可以配合�
 ####  GrandAko  
 ##### 13912#       发表于 2020-9-15 00:04
 
-
-
-
-美森这个buff性能真是吓人
-
-真不愧是免费属性
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7537,16 +7158,7 @@ gbf很多机制很复杂，学习成本很高，玩的过程中也可以配合�
 ####  poor  
 ##### 13913#       发表于 2020-9-15 01:30
 
-
-
-
-艹，刚才用53桐给6打银片，结算先看到下面数量没加还没反应过来怎么回事，结果跳出来个铳银片，还TM滚了个成品铳，好气啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7799,14 +7411,7 @@ gbf很多机制很复杂，学习成本很高，玩的过程中也可以配合�
 ####  jokirin  
 ##### 13928#       发表于 2020-9-15 18:03
 
-
-
-
-六龙现在自发等于solo吧，到最后5~10%才有可能有人进来舔个球，真的是天才设计
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8006,14 +7611,7 @@ gbf很多机制很复杂，学习成本很高，玩的过程中也可以配合�
 ####  poor  
 ##### 13940#       发表于 2020-9-19 02:13
 
-
-
-
-路西法HL找慈善家带是不是写主放置？放置还有什么需要做的吗？为什么我今天写了主放置有人进来还问我什么不用斯巴达？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8074,17 +7672,7 @@ gbf很多机制很复杂，学习成本很高，玩的过程中也可以配合�
 ####  poor  
 ##### 13944#       发表于 2020-9-19 21:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48786635&amp;ptid=1158205" target="_blank">初雪绫 发表于 2020-9-19 15:41</a>
-日本人好像比较在意这种   不过还是用斯巴达吧 好歹能给队友开个盾  ...</blockquote>
-用倒是无所谓，我就怕有星际玩家进来以为我也是要打的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8671,14 +8259,7 @@ M戒指比金剛還少</blockquote>
 ####  GrandAko  
 ##### 13976#       发表于 2020-9-25 11:01
 
-
-
-
-所以我2.0基本上是错峰去农，在湿婆欧罗巴up那会儿军神一般只有3到5个人打
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9019,25 +8600,7 @@ M戒指比金剛還少</blockquote>
 ####  GrandAko  
 ##### 13996#       发表于 2020-10-5 11:44
 
-
-
-
-最近在推特上看到一个段子
-
-大概是问几个团长gachi恋势喜欢古兰的哪个职业
-
-克拉莉斯喜欢炼金术师
-
-蒂安萨喜欢极乐净土
-
-阿尼拉想了一下回答到：拳皇或士兵
-
-
-想了一下觉得没有哪里不对，但是我眼里的阿尼拉什么时候变成了这种印象……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9746,17 +9309,7 @@ cy游戏都是玩得久不会弱到哪里去，氪金也就前面问题
 ####  poor  
 ##### 14036#       发表于 2020-10-19 18:15
 
-
-
-
-池子快结束了，大家给点建议要不要下井
-自闭无氪一人团，2阶法方阵，目前手握两井多几十抽，本来计划是圣诞大奶MAO，现在情况有点微妙，希望元旦能配合转盘下一井，有莉莉vn冰皇(女)，没有组长OLB卡姐，明年会抽牛跟猪，有机会歪卡姐，14快做出来了，女帝跟妈玉髓大概要轮得有点久(也不是不能插队)，平时主要fa，高难大概爬塔跟连战能过就行
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9799,18 +9352,7 @@ cy游戏都是玩得久不会弱到哪里去，氪金也就前面问题
 ####  poor  
 ##### 14039#       发表于 2020-10-19 19:43
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49092289&amp;ptid=1158205" target="_blank">zerorin 发表于 2020-10-19 18:27</a>
-我觉得想玩水老王现在有多余一井钻是可以下，毕竟组长和olb双up，bba强度虽然不是很高，但是没组长olb的情 ...</blockquote>
-虽然召唤都有，但是不是很想玩，顺便看了下我水0LM<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-其实主要纠结的点还是圣诞池不知道怎么样，14能不能代替少的这几位
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9895,19 +9437,7 @@ cy游戏都是玩得久不会弱到哪里去，氪金也就前面问题
 ####  poor  
 ##### 14044#       发表于 2020-10-19 20:50
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49093332&amp;ptid=1158205" target="_blank">Kagam1 发表于 2020-10-19 19:53</a>
-现在接下来到年末年始，会有两个圣诞新池，一个新神将池，一个或以上的新lm
-
-如果你现在拿不定主意的活我 ...</blockquote>
-好的，那我还是继续憋着吧
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9916,17 +9446,7 @@ cy游戏都是玩得久不会弱到哪里去，氪金也就前面问题
 ####  poor  
 ##### 14045#       发表于 2020-10-19 20:51
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49093883&amp;ptid=1158205" target="_blank">zerorin 发表于 2020-10-19 20:38</a>
-年末十天终终突谁也不知道怎么样，个人觉得不想玩水的话这池子没什么必要碰。 ...</blockquote>
-好的，等过年狗完一波再说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10235,18 +9755,7 @@ gf测试的是一把15%上限，和其他技伤上限的技能共享50%的上限
 ####  poor  
 ##### 14062#       发表于 2020-10-28 11:15
 
-
-
-
-妈耶，真的总池了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-情况突变，再问下要不要下井<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-大概情况[在这](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1158205&amp;pid=49092129)，概括来说就是快700抽，想抽圣诞大奶MAO，这池里有优先级高过这俩的吗？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10293,16 +9802,7 @@ gf测试的是一把15%上限，和其他技伤上限的技能共享50%的上限
 ####  poor  
 ##### 14065#       发表于 2020-10-28 11:40
 
-
-
-
-好的，继续憋
-
-圣诞快来吧，快憋死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11659,16 +11159,7 @@ fkhr年底又可以分红了，这波炒作可以<img src="https://static.saraba
 ####  GrandAko  
 ##### 14141#       发表于 2020-11-1 17:02
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">我记得以前只要有人提修佐伊就会有一群人跳出来喷利益牵扯太大想都不要想的
-
-
-二姐这麻痹利益牵扯也挺大的吧，我觉得应该不会改
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11711,15 +11202,7 @@ fkhr年底又可以分红了，这波炒作可以<img src="https://static.saraba
 ####  GrandAko  
 ##### 14144#       发表于 2020-11-1 18:17
 
-
-
-
-二姐变成多段自动炮和暴击破限（会心意味）工具人就挺符合时代潮流的。
-以前看SSRlist说四妹是黑剑上位，感觉二姐这次会修成和最近新弓职业那样打db和技伤的角色，再给光补上会心的空缺位
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12140,16 +11623,7 @@ akx和大公因为还没有弄好一拳的队伍还没怎么碰过，cb自从多
 ####  poor  
 ##### 14167#       发表于 2020-11-8 12:04
 
-
-
-
-连战武器多把完全没用（2技能不叠加）的是不是就水枪、土杖、暗拳？
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13796,14 +13270,7 @@ fa人权组就是六人偶老鼠啊 然后这boss的特动几乎都是单段伤�
 ####  GrandAko  
 ##### 14258#       发表于 2020-11-24 20:45
 
-
-
-
-今年真的是鬼灭年
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17037,16 +16504,7 @@ nmn低了 不过后面应该会调上来 小雅喇叭没问题 你把喇叭理�
 ####  poor  
 ##### 14438#       发表于 2020-12-20 18:11
 
-
-
-
-这弱智UI要怎么把普通编队复制到沙盒编队<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17099,17 +16557,7 @@ gbf这古董ui就别想了，要不是加了FA早就不玩这傻逼游戏了<img
 ####  poor  
 ##### 14441#       发表于 2020-12-21 02:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49789277&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2020-12-20 21:15</a>
-你都说弱智ui了，那必然是不能啊</blockquote>
-我想也是，，已经手动换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17118,20 +16566,7 @@ gbf这古董ui就别想了，要不是加了FA早就不玩这傻逼游戏了<img
 ####  poor  
 ##### 14442#       发表于 2020-12-21 03:01
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49789659&amp;ptid=1158205" target="_blank">404489039 发表于 2020-12-20 21:48</a>
-不看看隔壁sv照抄炉石都抄不好，那垃圾ui一看就不想玩。
-
-gbf这古董ui就别想了，要不是加了FA早就不玩这傻 ...</blockquote>
-这么巧，我也是看FA回来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-6年了，明天是不是终于可以固定mypage了终于不用在首页看到姬塔了
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17644,14 +17079,7 @@ nbnbnb，ffj和钢渣就当我没看到，朽武需求量和依代碎的数量�
 ####  poor  
 ##### 14472#       发表于 2020-12-21 16:17
 
-
-
-
-今天到底实装固定主页没有？怎么看不到地方设置？这破功能难道还得等下次更新？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17894,17 +17322,7 @@ fkhr承诺的东西统统默认往后加半年就对了<img src="https://static.
 ####  poor  
 ##### 14485#       发表于 2020-12-21 21:39
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49798578&amp;ptid=1158205" target="_blank">Mitka 发表于 2020-12-21 18:06</a>
-实装时间明年年初</blockquote>
-行吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -18971,14 +18389,7 @@ kmr来送石头了
 ####  jokirin  
 ##### 14545#       发表于 2020-12-25 23:58
 
-
-
-
-真不想打，但为了50晶还是要自发一只丢野<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19072,15 +18483,7 @@ kmr来送石头了
 ####  poor  
 ##### 14551#       发表于 2020-12-27 02:07
 
-
-
- 本帖最后由 poor 于 2020-12-27 02:11 编辑 
-
-火方日常手操现在一般用什么？就是那种，比FA快，射程比较好控制，输出比较平滑那种配置，还是用狗头吗？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19138,17 +18541,7 @@ kmr来送石头了
 ####  poor  
 ##### 14555#       发表于 2020-12-27 22:08
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49856644&amp;ptid=1158205" target="_blank">areklose 发表于 2020-12-27 07:44</a>
-有喇叭教皇就，电子狗佐伊+2打手加上面2个，没喇叭教皇就义贼十姐zeta佐伊嫖麒麟 ...</blockquote>
-就是义贼射程不好调整啊，没有喇叭用的10泽佐，按键贼多，而且几面的还是不好打
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19326,14 +18719,7 @@ fkhr真是废物
 ####  rxrx  
 ##### 14566#       发表于 2020-12-28 20:54
 
-
-
-
-这次应该是萝卜米故事大结成了吧，很赞
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19828,23 +19214,7 @@ miza做了个视频 今年抽卡全部现金
 ####  poor  
 ##### 14593#       发表于 2020-12-30 12:22
 
-
-
-
-NGA没几个人理我，帖子版面上还找不到了，于是这边也问下
-
-一井下去0LM，现在备选LM贞跟棒槌
-
-目前光方，不撕逼，FA用的兽王莉欧佐，很稳，速度不知道，网经常卡，反正都是收菜，就是偶尔瞄一眼看到个个单击怪血压飙升，LM贞井了主要怕以后再歪就亏了，貌似武器进不了盘，这池子差挺多的，以后估计还得下几井
-
-暗目前基本够用，不过有转老王的打算，目前需要狗到的除了棒槌大概就差贝跟面具姐，面具不打算超，不过两个貌似都不是没有不能玩，贝也可以黑卡换
-
-
-顺便说下其他差的，芬 黑骑 组长 欧 牛宝 金骑
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19898,18 +19268,7 @@ NGA没几个人理我，帖子版面上还找不到了，于是这边也问下
 ####  poor  
 ##### 14596#       发表于 2020-12-30 14:15
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49888035&amp;ptid=1158205" target="_blank">areklose 发表于 2020-12-30 13:34</a>
-
-这要看你长期目标和短期目标了。你井LM贞究竟是为了什么日常团战？
-
-你井棒槌转老王的目的是什么。讲真。我 ...</blockquote>
-非要说，其实作为一个咸鱼FA爱好者基本都是能用就好，现在这两个属性都处于能用的位置，你要说都不用井其实也行，然而既然在玩，那资源肯定会不断增加，总不能就这么烂手里了，我也要抽来爽爽啊，既然抽了那必然就要井了，这池里除了贞貌似也没有能提升我别的属性FA舒适度的东西。老王纯粹是因为狗得差不多了，就想砸一个玩玩，钢放着又不能生小钢，那感觉棒槌好像也不错。不过既然其实棒槌没什么用了，那果然还是贞吧……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19953,19 +19312,7 @@ NGA没几个人理我，帖子版面上还找不到了，于是这边也问下
 ####  poor  
 ##### 14599#       发表于 2020-12-30 15:19
 
-
-
- 本帖最后由 poor 于 2020-12-30 15:21 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49888509&amp;ptid=1158205" target="_blank">areklose 发表于 2020-12-30 14:19</a>
-
-想提高你的FA舒适度，又想砸钢，当然是砸微辣斧头。连击有质的飞越</blockquote>
-擦，看了下我居然有3个微辣斧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-另外并不是想砸钢，而是因为有钢+配置差不多齐了所以想搞个老王来玩玩……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19989,16 +19336,7 @@ NGA没几个人理我，帖子版面上还找不到了，于是这边也问下
 ####  poor  
 ##### 14601#       发表于 2020-12-30 15:49
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889375&amp;ptid=1158205" target="_blank">信玄誠司 发表于 2020-12-30 15:40</a>
-
-就一块钢，爽到就是赚到吧</blockquote>
-那……砸了该井啥？棒槌吗？还是最潮最IN的土芬<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">其实土也有点想走老王，不过差得有点多（肥宅嫂子金骑AK）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20046,18 +19384,7 @@ NGA没几个人理我，帖子版面上还找不到了，于是这边也问下
 ####  poor  
 ##### 14604#       发表于 2020-12-30 16:45
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889705&amp;ptid=1158205" target="_blank">404489039 发表于 2020-12-30 16:09</a>
-
-别浪费钢了，为了抬光连击我就做了把光u斧
-
-兽王主手一样爽yy</blockquote>
-没有政委，好像前排只有主角微辣能吃到啊……
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20125,20 +19452,7 @@ lm贞就1拳皇必配 2fa太舒服了 不然光方单击怪脑溢血的可以 3�
 ####  poor  
 ##### 14608#       发表于 2020-12-30 16:58
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889978&amp;ptid=1158205" target="_blank">信玄誠司 发表于 2020-12-30 16:40</a>
-
-我挺菜的，看看别人怎么说吧。
-
-就我个人来说，奶嘴FA很省心，叠满被动一发奥义600W再加300W追伤；光贞的 ...</blockquote>
-不不不，我也很菜的，6属2阶方阵仔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-暗FA人偶6鼠我感觉已经很爽了，奶嘴大概只为了武器跟高难吧，光加了佐3我感觉伤害还可以，有DB平A能打个6、70W，就是没连击，LM贞还可以提高佐3覆盖，云了下应该比只抬连击收益要大得多
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20167,21 +19481,7 @@ lm贞就1拳皇必配 2fa太舒服了 不然光方单击怪脑溢血的可以 3�
 ####  poor  
 ##### 14610#       发表于 2020-12-30 18:16
 
-
-
- 本帖最后由 poor 于 2020-12-30 18:17 编辑 
-
-谢谢大家，决定井贞了
-无氪大概玩不起暗宇宙必暴，普池差太多又不想给普池砸钢，暂时不考虑了
-芬等狗到肥宅再说吧，人物虽然强不过现在土人物也十分够用了
-贞其实歪到井的这个问题还是相当纠结（为什么武器这么菜），不过看了圈后面准备井的诺亚猪什么的完全无法替代（主要是刷新佐3），还是决定屈服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20264,20 +19564,7 @@ lm贞就1拳皇必配 2fa太舒服了 不然光方单击怪脑溢血的可以 3�
 ####  poor  
 ##### 14615#       发表于 2020-12-31 02:27
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891076&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2020-12-30 18:30</a>
-井贞没错的，虽然她的解放武器是个没什么用的辣鸡
-
-土芬很强，不过相对来说是比较后期的人物，等你需要大量 ...</blockquote>
-虽然我又菜又咸，但是其实已经开始打沙盒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-不过估计情人节还可以下一井，或者周年转盘下一井，也不差这一两个月了，团战刚过再井贞感觉实在太蠢了，还是现在先井了吧，祈祷以后永远别再歪到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20421,18 +19708,7 @@ lm贞就1拳皇必配 2fa太舒服了 不然光方单击怪脑溢血的可以 3�
 ####  poor  
 ##### 14624#       发表于 2020-12-31 11:54
 
-
-
- 本帖最后由 poor 于 2020-12-31 11:57 编辑 
-
-抽了180出牛，先收手了
-仔细想想年末这两井下得真是没必要，要不是憋了大半年我大概就能冷静了，不过白嫖1、2百抽大概也不算亏吧，反正UP都是图一乐，用最少的资源换个井出来大概才是正途<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20639,14 +19915,7 @@ fkhr作不作和新手其实没啥大关系，就是现在入坑只剩6天的转
 ####  jokirin  
 ##### 14636#       发表于 2020-12-31 16:06
 
-
-
-
-这垃圾池子还是不井了，白嫖随缘
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20691,14 +19960,7 @@ new了只有士郎 火组长  4把士郎刀qnm
 ####  rxrx  
 ##### 14639#       发表于 2020-12-31 18:30
 
-
-
-
-士郎赞，不过大哥真的老了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -22636,14 +21898,7 @@ C4职业无脑选兽王 后面盘子起来了多一个武僧
 ####  rxrx  
 ##### 14739#       发表于 2021-1-7 16:22
 
-
-
-
-管他的，这次古战场可以上演暴龙大战超级机械人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -25345,17 +24600,7 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 ####  rxrx  
 ##### 14888#       发表于 2021-1-29 22:44
 
-
-
-
-这次活动故事虽然最后有些天降神，但前面有说小哥是星晶兽的渣，所以契约达成恢复可以接受
-
-
-倒是东山和主角这两个没想到是即时没有生命联系相关，彼此都是决意和对方生死相许。你们俩不是一直劝人要珍惜生命的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -26704,17 +25949,7 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 ####  GrandAko  
 ##### 14959#       发表于 2021-2-4 20:37
 
-
-
-
-看了隔壁水攻略推荐章鱼法武附魔进境，我手里现在是2球3琴，卡剑2lm必爆龙武和老男人都有，但是因为太懒了不想频繁换插件。
-
-
-那章鱼法武是继续浑身还是换成进境……？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -26744,19 +25979,7 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 ####  GrandAko  
 ##### 14961#       发表于 2021-2-4 21:50
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50240446&amp;ptid=1158205" target="_blank">peh 发表于 2021-2-4 20:40</a>
-
-2lm必爆龙武是指弓枪龙武套吗，那进境，多一层奥义追伤很重要（属攻本身也是）
-
-
-非要咸鱼短期奥义炸的场 ...</blockquote>
-是的弓枪龙武套，但是比较担心的是更换成进境后会导致古战AT时间黑屏打牛的效率受到影响，毕竟我只有两个球，副团的双黄龙打牛因为模拟不来所以不知道该怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">水属虽然浑身大很多但总觉得不是很安稳）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -26785,16 +26008,7 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 ####  GrandAko  
 ##### 14963#       发表于 2021-2-4 22:09
 
-
-
-
-最后还是换了进境，满屏的数字看起来好快乐！
-
-不过开了老男人的1，除了古兰以外的队友也平A不上100w，我要是有水天司会这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -26803,20 +26017,7 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 ####  GrandAko  
 ##### 14964#       发表于 2021-2-4 23:22
 
-
-
-
-本来婚了二姐想第一个界突，想了一下光团也过了马上就要备战水团决定还是先弄四妹……
-
-
-就是朽武好难刷，2021年了我怎么还要刷朽武，30个也太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-记忆，欠片和银片也好难<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -26861,18 +26062,7 @@ LB被动那个效果量不同网站数值不同，也有不少网站写的是20d
 ####  GrandAko  
 ##### 14967#       发表于 2021-2-4 23:43
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50241898&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-2-4 23:41</a>
-
-水基本现在是进境了，2球老王也就是团战前两天打牛换浑身吧，后面本战了继续进境 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">懒狗有80多个素材但是连换技能都懒得换
-
-只要动手换了就会有种素材不够的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -26946,6 +26136,562 @@ BB塔这活动感觉越往后会越垃圾，越来越恶心。
 还不用像古战场一样打好几天
 
 忍了！
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 14972#       发表于 2021-2-7 08:00
+
+
+
+
+但是bb塔给box深的又几小时打完了长草一星期，这种条件限制通关的做在氪金游戏里还蛮难衡量了，只能看在奖励的份上忍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 14973#       发表于 2021-2-7 08:40
+
+
+
+
+目前除了几个玩dpt的，感觉还凑合。不过奖励丰厚的第4层难度都不高，忍忍了。
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14974#       发表于 2021-2-7 09:17
+
+
+
+
+好家伙刚说完希望运营别搞手段砍拳皇fs，这玩家就开始自我阉割炸车了，昨天去打了打翻车好几把，有搞笑到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14975#       发表于 2021-2-7 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">去年送了十天众，今年送绯绯金和玉髓？
+那两年之后会送个贤者吗（如果gbf那时候还比较滋润的话），我想要芙劳但是一来队伍（四属）差打不过hard转世，自己也没太多时间农盘子了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14976#       发表于 2021-2-7 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50262844&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-2-7 09:19</a>
+
+去年送了十天众，今年送绯绯金和玉髓？
+
+那两年之后会送个贤者吗（如果gbf那时候还比较滋润的话）， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一，就单凭送的方阵，我觉得打个HARD是绰绰有余
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14977#       发表于 2021-2-7 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265032&amp;ptid=1158205" target="_blank">areklose 发表于 2021-02-07 12:54:31</a>
+有一说一，就单凭送的方阵，我觉得打个HARD是绰绰有余</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">9-3打不过啊
+第一路的9-3真难打，我上主教也奶不住
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14978#       发表于 2021-2-7 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265967&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-2-7 14:28</a>
+
+9-3打不过啊
+
+第一路的9-3真难打，我上主教也奶不住</blockquote>
+上主教思路不对，请用无敌的黑剑。打最终关要上克制属性。让我看看盘子和人物
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14979#       发表于 2021-2-7 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266051&amp;ptid=1158205" target="_blank">areklose 发表于 2021-02-07 14:38:11</a>
+上主教思路不对，请用无敌的黑剑。打最终关要上克制属性。让我看看盘子和人物 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手机端好像不能发图
+
+盘子主手欧罗巴枪 然后4水短1欧罗巴琴1组长球 加上巴短天司杖（sr）和蔷薇琴
+
+主召波塞冬，sub没天司有龙吉
+
+角色欧罗巴组长泳装老男人，后备修罗和五花
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14980#       发表于 2021-2-7 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267227&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-2-7 16:43</a>
+
+手机端好像不能发图
+
+
+盘子主手欧罗巴枪 然后4水短1欧罗巴琴1组长球 加上巴短天司杖（sr）和蔷薇琴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这盘子怕是支撑不了，这些人物，有没有丽霞，斑比，女军师，这种极大奥义得人物，
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 14981#       发表于 2021-2-7 17:58
+
+
+
+ 本帖最后由 Sylpheed 于 2021-2-7 18:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267227&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-2-7 16:43</a>
+手机端好像不能发图
+
+盘子主手欧罗巴枪 然后4水短1欧罗巴琴1组长球 加上巴短天司杖（sr）和蔷薇琴</blockquote>
+抽空可以fa冰皇攒龙虾拳快水团了应该挺多人会打，每个月荣誉也换换龙虾拳，这游戏不农盘子还是不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+坚持自发就行了，不用撕推也能较快农出打转世的盘子的
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 14982#       发表于 2021-2-7 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267940&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-2-7 17:58</a>
+
+抽空可以fa冰皇攒龙虾拳快水团了应该挺多人会打，每个月荣誉也换换龙虾拳，这游戏不农盘子还是不太行[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">fa是我自己fa么 我感觉这种boss放出去基本见不到人打 我自己完全打不过
+
+
+省一楼，虽然我有斑比李霞，但是我盘子完全打不了奥义啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">球和欧杖都是40级，欧罗巴琴100级还不能凸，没有秘奥的词条……
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14983#       发表于 2021-2-7 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50268482&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-2-7 19:11</a>
+
+fa是我自己fa么 我感觉这种boss放出去基本见不到人打 我自己完全打不过
+
+
+省一楼，虽然我有斑比李 ...</blockquote>
+斑比是12.5倍倍率得极大奥义，丽霞第四回合开了3也是。高倍率有着高上限，而且极其容易靠着菜盘子打出极高得奥义伤害。你自己试一下，上满破甲，第四回合开丽霞3技能打奥义。看看伤害
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14984#       发表于 2021-2-8 11:01
+
+
+
+
+牛神将要怎么用啊，目前盘子还是1.0到2.0的过渡阶段，放在后排偶尔上来FA的时候完全打不出伤害……
+
+
+
+
+
+
+
+-----
+
+####  particle  
+##### 14985#       发表于 2021-2-8 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50275463&amp;ptid=1158205" target="_blank">Aureth 发表于 2021-2-8 11:01</a>
+
+牛神将要怎么用啊，目前盘子还是1.0到2.0的过渡阶段，放在后排偶尔上来FA的时候完全打不出伤害…… ...</blockquote>
+我的理解是牛神将是走特化技伤队伍的
+
+配合sub贝召唤和两把风龙刀能打出极高的技能伤害
+
+你目前过渡期的话，盘子抬不起来牛的伤害，建议先用其他的角色，反正风能打的人不要特别多
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 14986#       发表于 2021-2-8 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50275523&amp;ptid=1158205" target="_blank">particle 发表于 2021-2-8 11:05</a>
+
+我的理解是牛神将是走特化技伤队伍的
+
+配合sub贝召唤和两把风龙刀能打出极高的技能伤害
+
+你目前过渡期的话 ...</blockquote>
+谢谢，是盘子的问题的话，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">先去农琴吧。
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14987#       发表于 2021-2-8 11:44
+
+
+
+
+牛现在主要是适合长期FA。暖机之后的1,2技能十分频繁
+
+
+
+
+
+
+
+-----
+
+####  怀楠凌  
+##### 14988#       发表于 2021-2-9 20:01
+
+
+
+
+7牛情军可以半FA土龙，虽然还是很麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14989#       发表于 2021-2-9 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">风龙我现在五三，趁现在多人。农完一把跑路。
+
+
+
+
+
+
+
+-----
+
+####  jasonhyl11  
+##### 14990#       发表于 2021-2-10 05:30
+
+
+
+
+借楼问一下泥潭有没有认识或者自己想收号的，自己玩了3年的号想低价出了。256级，土暗老王带六翼称号。
+
+话说楼里发这种应该不违规吧……
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 14991#       发表于 2021-2-10 17:08
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  Humpy  
+##### 14992#       发表于 2021-2-10 19:27
+
+
+
+
+画了张牛神将的色图做牛年春节贺图……
+
+
+PIXIV指路：87667505
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/10/192519bmukrbjvsbspbbgu.png" referrerpolicy="no-referrer">
+
+
+<strong>和諧.png</strong> (29.25 KB, 下载次数: 20)
+
+下载附件
+
+2021-2-10 19:25 上传
+
+
+
+
+
+
+
+只能发猫那一部分了……
+
+灵感来源于群里聊天时看到的一张挤牛奶女工榨牛奶给猫喝的照片……
+我也不清楚我为什么会把新盖塔3也给画进去……可能画的时候脑子已经快要抽风了。硬要说的话，武藏坊弁庆和牛若丸有关系，所以新盖塔3也是牛……太牵强了吧。
+癫痫发作后身体好乏，使得背景、机械和奶水部分上色都偷懒了不少，反正不是图的重点应该没关系……
+
+
+提前祝各位春节快乐了。
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 14993#       发表于 2021-2-11 04:15
+
+
+
+
+又TM是土季限，我去年一年好不容易把4大季限补齐了又给老子出，四字母差不多可以消停了，马上水团了给水出不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我真的没钱守护屎黄色了.jpg
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 14994#       发表于 2021-2-11 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50302073&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-2-11 04:15</a>
+
+又TM是土季限，我去年一年好不容易把4大季限补齐了又给老子出，四字母差不多可以消停了，马上水团了给水出 ...</blockquote>
+这不是肯定的吗。这是会战150对策。
+
+水团对策大概要等周年出的6限什么的吧。
+
+或终终突老4。
+
+狗4新卡对策代替老男人的大概就是150国家队了？
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 14995#       发表于 2021-2-11 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">馋毛二力身子很久了，下个季限能不能把丽霞也拉来屎黄色贴贴
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 14996#       发表于 2021-2-11 11:37
+
+
+
+
+土和小美贴光和炎帝贴，其实之前看猜属性不少人就这么猜了，只是坐实了反而感觉不能接受
+
+出，都可以出，希望小美和毛二力有联动魔法少女弱智语音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 14997#       发表于 2021-2-11 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我二哥普池还没出也能贷款一个光属性了
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 14998#       发表于 2021-2-11 12:17
+
+
+
+
+公会战真的需要对策卡吗。。
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 14999#       发表于 2021-2-11 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次公会战名义上的对策卡是不是还是水bba，我打完公会战再也没用过
+
+
+
+
+
+
+
+-----
+
+####  pzk  
+##### 15000#       发表于 2021-2-11 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50298065&amp;ptid=1158205" target="_blank">Humpy 发表于 2021-2-10 19:27</a>
+
+画了张牛神将的色图做牛年春节贺图……
+
+
+PIXIV指路：87667505</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">谢谢我好了
 
 
 

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-09 18:21** 
+> ## **本文件最后更新于2021-02-18 03:55** 
 
 
 
@@ -412,14 +412,7 @@ Steal Korea<img src="https://static.saraba1st.com/image/smiley/face2017/049.png"
 ####  漫展侠  
 ##### 20#       发表于 2021-2-7 11:23
 
-
-
-
-我想知道这个理查是没有正经工作的吗，每次圈子撕逼她永远冲在第一线
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1589,20 +1582,7 @@ q：你怎么洗地韩国申遗端午？</blockquote>
 ####  C.W.Nimitz  
 ##### 77#       发表于 2021-2-7 12:20
 
-
-
- 本帖最后由 C.W.Nimitz 于 2021-2-6 20:22 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264452&amp;ptid=1986707" target="_blank">筱原重工 发表于 2021-2-6 20:08</a>
-
-国博现在有中国古代服饰文化展，好歹去一趟学习一个 套个皮儿再搞中韩亲善嘛，现在这个给棒子硬洗的样子实 ...</blockquote>
-问题就在这，现在所谓汉服不过是学了点古代服饰皮毛然后加了点子不知道什么玩意，消费民族情绪抢占所谓话语权。
-
-
-那些破玩意汉服顶天学了点明朝的皮毛，秦汉两宋的风格难找，北魏辽金的邪典风格也不会，完全的二把刀。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1647,19 +1627,7 @@ q：你怎么洗地韩国申遗端午？</blockquote>
 ####  C.W.Nimitz  
 ##### 80#       发表于 2021-2-7 12:24
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264552&amp;ptid=1986707" target="_blank">天青月白 发表于 2021-2-6 20:18</a>
-
-话说b站上那么多“古风”PV，里面的衣服经得起形制党审视吗</blockquote>
-我和你讲，现在的汉服圈本质和美帝的乡村音乐圈是一样的。
-
-
-形制、文化、传承都是虚的，最重要的是你要进他们圈得夸他们的“大佬”，用他们的衣服，让他们赚你钱，不在他们经济体系之内就打着民族旗号把你批倒斗臭逼你按他们指定的规则玩，具体是不是和传统文化有关系他们根本不在乎，就是个PR技巧。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1831,14 +1799,7 @@ q：你怎么洗地韩国申遗端午？</blockquote>
 ####  royppp  
 ##### 91#       发表于 2021-2-7 12:40
 
-
-
-
-现在这些网络小画师们看来的确是家境比较好身边关系也不复杂，脑子也比较单纯
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2293,14 +2254,7 @@ lny本身确实是不太准确的，但最主要是外网猴棒骚扰发cny的�
 ####  royppp  
 ##### 118#       发表于 2021-2-7 13:24
 
-
-
-
-只能说现在的年轻人被我国的移动互联网呵护的很好
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2922,7 +2876,7 @@ love&amp;peace （指乌克兰交出核武<img src="https://static.saraba1st.com
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50266252&amp;ptid=1986707" target="_blank">大喇叭花田 发表于 2021-2-7 14:59</a>
 
 更好笑的是这画手是个乌合麒麟PTSD，然后他男友是乌合麒麟粉丝，两人吵翻了哈哈哈。 ...</blockquote>
-你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_GHy1E" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
+你好像搞混了，是支持她的一个人是这样，这个画手的男朋友是棒子，胳膊肘向外拐的，在知乎有她骂蝈蝻的截图。<img src="https://pic1.zhimg.com/80/v2-cda9ea1207346732e19f352aa6fa2652_1440w.jpg?source=1940ef5c" height="506" id="aimg_ykW3i" onclick="zoom(this, this.src, 0, 0, 0)" width="750"/)
 
 
 
@@ -3347,16 +3301,7 @@ lunar翻译成“太阴”的话，lunar calendar应该翻译成“太阴历”�
 ####  killer0079  
 ##### 175#       发表于 2021-2-7 16:09
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265091&amp;ptid=1986707" target="_blank">reficul 发表于 2021-2-7 12:59</a>
-
-lunar new year什么问题？不都是这么用的吗</blockquote>
-这个词本身就是错误的。因为中国一直都是阴阳合历，并没大范围用过太阴历。<strong></strong>
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4570,14 +4515,7 @@ emmmmmm
 ####  枭首剜心  
 ##### 241#       发表于 2021-2-7 21:08
 
-
-
-
-斡旋家4000＋
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5514,24 +5452,7 @@ https://twitter.com/hyuga_mutong/status/1 ...</blockquote>
 ####  C.W.Nimitz  
 ##### 293#       发表于 2021-2-8 12:55
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50275938&amp;ptid=1986707" target="_blank">smy20011 发表于 2021-2-7 19:33</a>
-
-看了下，推上一片祥和，来闹的不超过10个。微博上面喊打喊杀的
-
-https://twitter.com/hyuga_mutong/status/1 ...</blockquote>
-The following media includes potentially sensitive content.
-
-
-推特直接打成敏感信息了，都没给推送能有多少人过去看<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-不愧是自由的平台
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7826,14 +7747,7 @@ lunar new year 是照顾越南人等同样过节的人产生的说法吧，人�
 ####  鸭梨很大的路人  
 ##### 420#       发表于 2021-2-9 18:54
 
-
-
-
-这些微博小圈子师，干啥啥不行，抱团第一名
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7992,19 +7906,7 @@ lunar new year 是照顾越南人等同样过节的人产生的说法吧，人�
 ####  C.W.Nimitz  
 ##### 429#       发表于 2021-2-9 20:01
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50283264&amp;ptid=1986707" target="_blank">yang1820 发表于 2021-2-8 09:34</a>
-
-攻击满族人也没攻击到点上啊，旗人不裹小脚的……实际上也反对民间裹。这事完全是汉人遗毒。 ...</blockquote>
-这事就是小圈子（汉服和微博画师）作妖，结果赶上民族情绪混合起来乱套了。
-
-
-我看互捧臭脚的微博画师和圈地自萌的汉服圈都不爽，但现在用指鼻子骂街对抗阴阳怪气不会有啥好结果。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8085,22 +7987,7 @@ lunar new year 是照顾越南人等同样过节的人产生的说法吧，人�
 ####  C.W.Nimitz  
 ##### 433#       发表于 2021-2-9 20:24
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50287909&amp;ptid=1986707" target="_blank">beeandf 发表于 2021-2-9 04:06</a>
-
-虽然我也不喜欢汉服圈，但是扣锅不是这么扣的吧？这事怎么就成了俩小圈子的事了？</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在不是了。
-
-
-我无所谓了，把画师圈两面人的皮扒光了最好。
-
-
-可惜汉服这些圈地自萌的文化二把刀，因为各种各样的原因没法狠冲逼他们丢人。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8253,16 +8140,7 @@ lunar new year 是照顾越南人等同样过节的人产生的说法吧，人�
 ####  C.W.Nimitz  
 ##### 442#       发表于 2021-2-9 21:16
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50288297&amp;ptid=1986707" target="_blank">一只优越Fa♂ 发表于 2021-2-9 04:50</a>
-
-这个吧</blockquote>
-嚎了半天不过是一群对着垃圾网游摇尾乞怜的狗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8604,4 +8482,1226 @@ yysy，确实
 
 
 
-                                  
+
+
+-----
+
+####  就很菜  
+##### 462#       发表于 2021-2-10 03:24
+
+
+
+
+毕竟清洗文化圈嘛 最解恨 最无风险 多爽啊
+
+
+
+
+
+
+
+-----
+
+####  Yinacona  
+##### 463#       发表于 2021-2-10 03:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264014&amp;ptid=1986707" target="_blank">漫展侠 发表于 2021-02-07 11:23:40</a>
+我想知道这个理查是没有正经工作的吗，每次圈子撕逼她永远冲在第一线</blockquote>老累是画圈著名的所有情商点到了才能上的人，接商稿根本不愁。要不是人画的真的好看（记得之前有次节奏是她觉得一张稿5位数很正常但是因为口气不对还是什么的又成为了众矢之的）谁没事还看傻逼说了什么
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  巨火红莲  
+##### 464#       发表于 2021-2-10 03:57
+
+
+
+
+真谜，老累、Jeanmere（这位其实也被简称JM，之前我还迷惑5s）这类肉身在国外多年浪国意见领袖弄潮儿“太太”（甚至前者都不是中国人）的火力这么猛、咬的这么死也就算了，其他人在国内甚至可能经济都未必完全独立的小画手们一个个跳的这么高想啥呢
+最搞笑的就是看着很勇很刚，收获一波老师老丝劳丝太太的赞誉后，又谎称没长眼没看清删的比谁都快，不诚恳道歉阴阳怪气后再收获同一批人的怜爱...然后下次有类似事情继续挖眼重复上述流程，怂到可怜
+
+
+
+
+
+
+
+-----
+
+####  qwas  
+##### 465#       发表于 2021-2-10 08:31
+
+
+
+
+想来想去，看废物浪国小画家画画，不如看真正的高才生咬人画的随笔。
+
+—— 来自 Xiaomi Mi Note 10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海关| + 1|赞同|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  俄国小烧饼  
+##### 466#       发表于 2021-2-10 08:59
+
+
+
+ 本帖最后由 俄国小烧饼 于 2021-2-10 09:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50288980&amp;ptid=1986707" target="_blank">不得小于三字 发表于 2021-2-9 22:07</a>
+
+钧正平 
+
+今天 15:07 来自 HUAWEI Mate30 Pro 5G
+
+【#钧评#创作自由必须要以怀有敬畏之心为前提】一幅清朝 ...</blockquote>
+绘圈不少人一直这尿性，没想到今天大伙才明白过来
+
+
+
+
+
+
+
+-----
+
+####  少年kafka  
+##### 467#       发表于 2021-2-10 09:10
+
+
+
+
+欢乐多
+
+
+
+
+
+
+
+-----
+
+####  不容易注册上  
+##### 468#       发表于 2021-2-10 10:23
+
+
+
+<blockquote>BlueDrii 发表于 2021-2-9 22:03
+说英语的国家也不止英国一个啊，但美国人也说自己讲的是English或者American English,很少说自己讲的是Am ...</blockquote>
+倒是国内有美语的说法我觉得很奇怪啊！美国人自己说的是英语，英伦腔还特别推葱。不过鄙视链中澳洲英语是五眼国家之末，之后呢是印度咖喱味英语
+
+
+
+
+
+
+
+-----
+
+####  jyky  
+##### 469#       发表于 2021-2-10 10:36
+
+
+
+<blockquote>巨火红莲 发表于 2021-2-10 03:57
+真谜，老累、Jeanmere（这位其实也被简称JM，之前我还迷惑5s）这类肉身在国外多年浪国意见领袖弄潮儿“太太 ...</blockquote>
+除了抱团有好处以外，当意见领袖是可以吃到流量红利的，浪国画手和流量明星一样都是吃流量饭的，本事不行其他凑嘛，活人粉丝多才好抬价接活
+
+
+
+
+
+
+
+-----
+
+####  Diabolosis  
+##### 470#       发表于 2021-2-10 10:43
+
+
+
+
+笑啦
+汉服juan打成一团一转全是国男的错姐妹快跑，有些人脑子里的逻辑链路是不是已经被**到拗断了，但凡脑子没有进水也不会干这种事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 471#       发表于 2021-2-10 10:45
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  羽桐れもん  
+##### 472#       发表于 2021-2-10 10:52
+
+
+
+
+我初中高中的英语老师也跟我们说过我们那时候的教材是以美式英语为准的，有个别单词还标出了英式的区别
+团团下场了，雷母又跳了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 473#       发表于 2021-2-10 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50292955&amp;ptid=1986707" target="_blank">羽桐れもん 发表于 2021-2-10 10:52</a>
+我初中高中的英语老师也跟我们说过我们那时候的教材是以美式英语为准的，有个别单词还标出了英式的区别
+团 ...</blockquote>
+哪啊，点进去又是她那一套的mbti刷屏。
+
+
+
+
+
+
+
+-----
+
+####  nightraven  
+##### 474#       发表于 2021-2-10 11:04
+
+
+
+
+喷了，糕跪的围脖画手认为人民群众太低俗看不懂它们的大作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 475#       发表于 2021-2-10 11:45
+
+
+
+
+怎么少钱的薯妈也参合这事，而且本来道个歉也就过了，硬气的一笔直接跑蓝鸟去了。。。
+
+
+
+
+
+
+
+-----
+
+####  AliceLiddell  
+##### 476#       发表于 2021-2-10 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50286398&amp;ptid=1986707" target="_blank">史三问 发表于 2021-2-9 17:43</a>
+太鸡儿弱智了，狼国画手不是人均弱智吧出身？</blockquote>
+这个神犬蹦叽我也关注了好几年了，算是人类观察吧……反正确实有抑郁症的样子，经常换工作，时常家里蹲，画画也一般。只能说38岁的人一点也不成熟<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看久了她撕逼甚至有点同情她
+
+
+
+
+
+
+
+-----
+
+####  AliceLiddell  
+##### 477#       发表于 2021-2-10 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50291065&amp;ptid=1986707" target="_blank">Yinacona 发表于 2021-2-10 03:26</a>
+老累是画圈著名的所有情商点到了才能上的人，接商稿根本不愁。要不是人画的真的好看（记得之前有次节奏是她 ...</blockquote>
+老累也算网红画手吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">主要还是接二次元单子的，感觉跟cg那种画手没法比？
+
+
+
+
+
+
+
+-----
+
+####  tianJuan  
+##### 478#       发表于 2021-2-10 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50291063&amp;ptid=1986707" target="_blank">就很菜 发表于 2021-2-10 03:24</a>
+
+毕竟清洗文化圈嘛 最解恨 最无风险 多爽啊</blockquote>
+只是让人们看清那些平日里捧上天去的画家太太们智商情商文化水平如何，给人们祛魅。
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 479#       发表于 2021-2-10 13:08
+
+
+
+ 本帖最后由 消防 于 2021-2-10 13:11 编辑 
+
+<img src="http://wx3.sinaimg.cn/mw690/6354a7degy1gnictcu3ikj21hc0u0u0p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/6354a7degy1gnictcs41gj21hc0u0are.jpg" referrerpolicy="no-referrer">
+
+
+所以美国人/日本人都没在理的国内L&amp;P个屁<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这波啊，是要气死棒子
+
+
+
+
+
+
+
+-----
+
+####  婉兮  
+##### 480#       发表于 2021-2-10 13:20
+
+
+
+<blockquote>AliceLiddell 发表于 2021-2-10 11:46
+这个神犬蹦叽我也关注了好几年了，算是人类观察吧……反正确实有抑郁症的样子，经常换工作，时常家里蹲， ...</blockquote>
+这个年龄是怎么考证的？
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 481#       发表于 2021-2-10 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50293551&amp;ptid=1986707" target="_blank">胧楼 发表于 2021-2-10 11:45</a>
+怎么少钱的薯妈也参合这事，而且本来道个歉也就过了，硬气的一笔直接跑蓝鸟去了。。。 ...</blockquote>
+真不吃国内流量？雷母都做不到。
+
+
+
+
+
+
+
+-----
+
+####  AliceLiddell  
+##### 482#       发表于 2021-2-10 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50294629&amp;ptid=1986707" target="_blank">婉兮 发表于 2021-2-10 13:20</a>
+这个年龄是怎么考证的？</blockquote>
+她自己说的啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  卒业之勇  
+##### 483#       发表于 2021-2-10 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50294702&amp;ptid=1986707" target="_blank">acejoe 发表于 2021-2-10 13:26</a>
+ 真不吃国内流量？雷母都做不到。</blockquote>
+她是散爆的吧
+
+
+
+
+
+
+
+-----
+
+####  scpmth  
+##### 484#       发表于 2021-2-10 13:53
+
+
+
+
+早日脱离微博粪坑是好事啊
+
+
+
+
+
+
+
+-----
+
+####  kaempfe  
+##### 485#       发表于 2021-2-10 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264161&amp;ptid=1986707" target="_blank">404489039 发表于 2021-2-7 11:39</a>
+
+老老实实画色图就好了，色图评论都一片和气。这人也是想蹭某陈手游翻车的热度吧
+
+
+ -- 傲娇地来自 St ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你是来搞笑的吗  E站上最垃圾的就是韩国人  连日文原版扫描都要举报的垃圾人   老漫画被举报到只剩韩文在前几年太正常了   只要韩国人聚堆那就离垃圾堆不远了 
+
+
+
+
+
+
+
+-----
+
+####  剑起苍斓  
+##### 486#       发表于 2021-2-10 13:57
+
+
+
+
+这智商吓到我了<img src="https://p.sda1.dev/1/1b916309865eb4d76abd7cc08999bec1/IMG_CMP_151483767.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  kaempfe  
+##### 487#       发表于 2021-2-10 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264937&amp;ptid=1986707" target="_blank">nanrendu 发表于 2021-2-7 12:46</a>
+
+和服画的最正，韩服画的不太传统，汉服基本看不出来，这种画不在于精美，在于画一眼能认出来的才有意义。
+
+
+ ...</blockquote>
+汉服的裙子是 马面群 还是很明显的 不过乱涂一气明显是恶心人来的  
+
+
+
+
+
+
+
+-----
+
+####  疵毛撅腚  
+##### 488#       发表于 2021-2-10 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50292857&amp;ptid=1986707" target="_blank">Diabolosis 发表于 2021-2-10 10:43</a>
+笑啦
+汉服juan打成一团一转全是国男的错姐妹快跑，有些人脑子里的逻辑链路是不是已经被**到拗断了，但凡脑 ...</blockquote>
+现在已经开始转进搞汉服就是复兴男尊女卑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  scourge411  
+##### 489#       发表于 2021-2-10 14:14
+
+
+
+<blockquote>剑起苍斓 发表于 2021-2-10 13:57
+这智商吓到我了
+
+
+—— 来自 OnePlus ONEPLUS A5010, Android 9上的 S1Next-鹅版 v2.4.4.1</blockquote>
+正常，希特勒也是画家，而且元首是真正做到了“无边无际”，丝毫不为世俗道德伦理约束的。
+
+
+
+
+
+
+
+-----
+
+####  疵毛撅腚  
+##### 490#       发表于 2021-2-10 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264947&amp;ptid=1986707" target="_blank">拣尽寒枝 发表于 2021-2-7 12:47</a>
+我想到闪耀暖暖之前韩服的事听说日服快开了，不知道到时候有没有什么新活 ...</blockquote>
+你怕是不知道叠纸又叫日叠<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过从奇迹暖暖来看日本玩家更喜欢洛丽塔小裙子<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">不太care民族服装这块儿
+
+
+
+
+
+
+
+-----
+
+####  婉兮  
+##### 491#       发表于 2021-2-10 14:18
+
+
+
+<blockquote>AliceLiddell 发表于 2021-2-10 13:38
+她自己说的啊</blockquote>
+哦。。。之前看她画的藏狐，我以为是二十多岁的小姑娘
+
+
+
+
+
+
+
+-----
+
+####  毒菇  
+##### 492#       发表于 2021-2-10 17:14
+
+
+
+<blockquote>24k纯帅 发表于 2021-2-8 13:26
+lunar new year 是照顾越南人等同样过节的人产生的说法吧，人家穿得漂漂亮亮，上街过着节，敲锣打鼓热热闹 ...</blockquote>
+真不想冒犯人直接说happy new year就完事了，跟欧美人和印度人过他们的新年都可以用。强调不是chinese是lunar就是争话语权而已，都是民族国家争口气无可厚非，但也不必总是帮着别人解释
+
+
+
+
+
+
+
+-----
+
+####  Jobtowna  
+##### 493#       发表于 2021-2-10 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50293551&amp;ptid=1986707" target="_blank">胧楼 发表于 2021-2-10 11:45</a>
+怎么少钱的薯妈也参合这事，而且本来道个歉也就过了，硬气的一笔直接跑蓝鸟去了。。。 ...</blockquote>
+微博发了澄清……emmmmmmm
+行吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  akari1864  
+##### 494#       发表于 2021-2-10 18:04
+
+
+
+<blockquote>疵毛撅腚 发表于 2021-2-10 14:05
+现在已经开始转进搞汉服就是复兴男尊女卑了我看出来这两年汉服越搞越好是戳到一些人肺管子了[f:06 ...</blockquote>
+纯粹是这事只有拿汉服圈说事好甩锅罢了。最好引起汉服圈暴怒出警她们更有理由了。老粉圈做派了。
+
+
+
+
+
+
+
+-----
+
+####  jyky  
+##### 495#       发表于 2021-2-10 18:48
+
+
+
+
+说起来浪国画手圈实际上是粉圈搞法玩得最溜的一批，抱团，双标，自己装白莲让腿毛去冲，被人指出重点就开始转移视线模糊重点，同时拉容易打的对象下水，不得不说一句流啤
+
+
+
+
+
+
+
+-----
+
+####  苑生百花  
+##### 496#       发表于 2021-2-10 18:54
+
+
+
+
+交领右衽、圆领袍大概源自内亚。朱子曰：“今世之服，大抵皆胡服，如上领衫、靴、鞋之属。先王冠服，扫地尽矣。”
+<img src="https://s3.ax1x.com/2021/02/10/y0VqYj.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Eva|-1|“管仲相桓公，霸诸侯，一匡天下，民到于今.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  纸皮  
+##### 497#       发表于 2021-2-10 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50295103&amp;ptid=1986707" target="_blank">疵毛撅腚 发表于 2021-2-10 14:05</a>
+现在已经开始转进搞汉服就是复兴男尊女卑了我看出来这两年汉服越搞越好是戳到一些人肺管子了[f:06 ...</blockquote>
+真要说都是统治阶级服饰
+和大部分劳苦群众的最大关系是象征剥削
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">文化就是挑好点的吹就完事
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">攻击别的文化才挖背景说人沾血，真是胳膊肘往外拐
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 498#       发表于 2021-2-10 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50292663&amp;ptid=1986707" target="_blank">不容易注册上 发表于 2021-2-10 10:23</a>
+倒是国内有美语的说法我觉得很奇怪啊！美国人自己说的是英语，英伦腔还特别推葱。不过鄙视链中澳洲英语是 ...</blockquote>
+美語的說法，我認為是台灣傳過來的，台灣基本都美語xx
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 499#       发表于 2021-2-10 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50295013&amp;ptid=1986707" target="_blank">kaempfe 发表于 2021-2-10 13:57</a>
+
+你是来搞笑的吗  E站上最垃圾的就是韩国人  连日文原版扫描都要举报的垃圾人   老漫画被举报到只 ...</blockquote>
+别再传了，这个问题tenboro都解答过好久了，没有假举报就能删画廊的道理。你比tenboro还懂e站咯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  青窃苍谋  
+##### 500#       发表于 2021-2-10 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50291640&amp;ptid=1986707" target="_blank">qwas 发表于 2021-2-10 08:31</a>
+想来想去，看废物浪国小画家画画，不如看真正的高才生咬人画的随笔。
+
+—— 来自 Xiaomi Mi Note 10, Andro ...</blockquote>
+咬人画的《老杨树》和《花语》，平淡的故事看得我泪流满面，镜头语言太美了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+记得咬人在微博发《花语》的时候知乎那个冻鳗大v“猫耳朵”在评论底下逼逼赖赖，说你分镜不行不够这个不够那个，我简直恶心吐了，照他的意思分镜一定要框成某个形制读者才能理解他那套镜头语言是不是<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  疵毛撅腚  
+##### 501#       发表于 2021-2-10 20:17
+
+
+
+ 本帖最后由 疵毛撅腚 于 2021-2-10 20:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50296732&amp;ptid=1986707" target="_blank">毒菇 发表于 2021-2-10 17:14</a>
+
+真不想冒犯人直接说happy new year就完事了，跟欧美人和印度人过他们的新年都可以用。强调不是chinese是l ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">关键为啥他们不搞自己的Vietnamese new year或者Korean new year，日本不就这么玩的，效果大家也看到了
+
+不然正月中韩越三个儒家文化圈一起过年，还能团建一波
+
+明明有两全其美的办法却搁这儿内斗，不值当啊
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Issue  
+##### 502#       发表于 2021-2-10 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264161&amp;ptid=1986707" target="_blank">404489039 发表于 2021-2-7 11:39</a>
+
+老老实实画色图就好了，色图评论都一片和气。这人也是想蹭某陈手游翻车的热度吧
+
+
+ -- 傲娇地来自 St ...</blockquote>
+今天看有人画了韩国正宗传统女装<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+[https://twitter.com/MianYunYiLi/status/1359393968450981893](https://twitter.com/MianYunYiLi/status/1359393968450981893)
+
+还画了非色图版本，大家可以转发起来<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  炎阳之谶  
+##### 503#       发表于 2021-2-10 22:51
+
+
+
+
+真是乐死我了，这也能赖漂亮国
+
+
+<img src="https://img.saraba1st.com/forum/202102/10/225023q7hg56hccdf3fcvw.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210210224820.png</strong> (48.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-10 22:50 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/10/225028p82vjoh8tyhhy87n.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210210224926.png</strong> (118.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-10 22:50 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">是CIA脑控甘果画出来的那么恶毒的画吗，CIA，你好强大！
+
+
+
+
+
+
+
+-----
+
+####  beeandf  
+##### 504#       发表于 2021-2-10 23:03
+
+
+
+<blockquote>引用第502楼炎阳之谶于2021-02-10 22:51发表的  :
+
+真是乐死我了，这也能赖漂亮国是CIA脑控甘果画出来的那么恶毒的画吗，CIA，你好强大！</blockquote>
+
+我粉圈见识得少，这腔调怎么跟当初肖战粉一模一样
+
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  攻守俱其土肉狐  
+##### 505#       发表于 2021-2-11 15:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这波女拳你敢说和美国没关系？
+
+
+
+
+
+
+
+-----
+
+####  有机QP  
+##### 506#       发表于 2021-2-11 18:17
+
+
+
+
+雷母之前喷whql没资格为黑人画画不是喷得起劲得很吗，怎么现在又开始说“画画还需要审查资格吗？”
+
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 507#       发表于 2021-2-11 19:05
+
+
+
+
+这傻逼谁？为什么要骂美帝？
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuanzui  
+##### 508#       发表于 2021-2-11 19:10
+
+
+
+
+听到狗哨没领到狗粮就开始咬主人了？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  …………  
+##### 509#       发表于 2021-2-12 09:49
+
+
+
+
+楼上有人提咬人画的，我也很喜欢他还有他家那位画的，我不是专业人士，不做其他点评，看起来很舒服平淡又幸福……
+
+
+
+
+
+
+
+-----
+
+####  TalesYuki  
+##### 510#       发表于 2021-2-12 10:11
+
+
+
+ 本帖最后由 TalesYuki 于 2021-2-12 10:14 编辑 
+
+所以 luna 的问题在哪里？昨天看cctv新闻，联合国秘书长的拜年也是说的luna不是很明白，纯好奇。记得以前上学的时候是有这么个说法的，现在语境变了吗？
+
+
+
+
+
+
+
+-----
+
+####  老子  
+##### 511#       发表于 2021-2-12 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50313516&amp;ptid=1986707" target="_blank">TalesYuki 发表于 2021-2-12 10:11</a>
+
+所以 luna 的问题在哪里？昨天看cctv新闻，联合国秘书长的拜年也是说的luna不是很明白，纯好奇。记得以前上 ...</blockquote>
+问题很大。lunar New Year，阴历新年。农历是阴阳合历，新年固定在春季，但阴历新年比如回历就不一定是春节了，Chinese New Year本来就非常准确。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 俄国小烧饼| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  俄国小烧饼  
+##### 512#       发表于 2021-2-12 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50313516&amp;ptid=1986707" target="_blank">TalesYuki 发表于 2021-2-12 10:11</a>
+
+所以 luna 的问题在哪里？昨天看cctv新闻，联合国秘书长的拜年也是说的luna不是很明白，纯好奇。记得以前上 ...</blockquote>
+东亚文化大融合，不这样韩国越南哪来的文化自信？
+
+
+
+
+
+
+
+-----
+
+####  black199  
+##### 513#       发表于 2021-2-12 12:35
+
+
+
+<blockquote>TalesYuki 发表于 2021-2-12 10:11
+所以 luna 的问题在哪里？昨天看cctv新闻，联合国秘书长的拜年也是说的luna不是很明白，纯好奇。记得以前上 ...</blockquote>
+民族主义抬头而我国又确实失去了境外民间交流的话语权的结果
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 粉色猛男| + 1|一句话总结|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  black199  
+##### 514#       发表于 2021-2-12 12:39
+
+
+
+<blockquote>老子 发表于 2021-2-12 12:31
+问题很大。lunar New Year，阴历新年。农历是阴阳合历，新年固定在春季，但阴历新年比如回历就不一定是春 ...</blockquote>
+虽然农历是阴阳合历 但被称为阴历为时不短
+
+而且也是官方盖章的 这个词本身没什么问题不然也不会用了这么多年
+
+这次事情的起因不是独立事件 是李子柒 油管的中国up 推特和抖音上的一些韩国文化推介等问题的一次集中爆发
+
+
+
+
+
+
+
+-----
+
+####  老子  
+##### 515#       发表于 2021-2-12 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50314689&amp;ptid=1986707" target="_blank">black199 发表于 2021-2-12 12:39</a>
+
+虽然农历是阴阳合历 但被称为阴历为时不短
+
+而且也是官方盖章的 这个词本身没什么问题不然也不会用了这么 ...</blockquote>
+虽然被称为阴历为时不短，但农历真的不是回历这种阴历。现在开始改正不行吗。
+
+
+
+
+
+
+
+-----
+
+####  Issue  
+##### 516#       发表于 2021-2-12 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50300009&amp;ptid=1986707" target="_blank">Issue 发表于 2021-2-10 22:16</a>
+
+今天看有人画了韩国正宗传统女装
+
+https://twitter.com/MianYunYiLi/status/1359393968450981893
+
+ ...</blockquote>
+甚至还发布了韩国漏ru服素材[www.pixiv.net/artworks/87674879](http://www.pixiv.net/artworks/87674879)<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 517#       发表于 2021-2-12 15:05
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2021-2-12 15:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50314588&amp;ptid=1986707" target="_blank">老子 发表于 2021-2-12 12:31</a>
+问题很大。lunar New Year，阴历新年。农历是阴阳合历，新年固定在春季，但阴历新年比如回历就不一定是春 ...</blockquote>
+其实都经不起较真，非要较真的话回历新年也不能不算Chinese new year，凑活用行了
+
+
+
+
+
+
+
+-----
+
+####  sauron.j  
+##### 518#       发表于 2021-2-12 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297744&amp;ptid=1986707" target="_blank">苑生百花 发表于 2021-2-10 18:54</a>
+
+交领右衽、圆领袍大概源自内亚。朱子曰：“今世之服，大抵皆胡服，如上领衫、靴、鞋之属。先王冠服，扫地尽 ...</blockquote>
+朱子尝试复原西周方心曲领、先秦深衣，结果闹出大笑话，在现**古学面前他大概率连民科都不如
+
+
+
+
+
+
+
+-----
+
+####  shkillone1  
+##### 519#       发表于 2021-2-12 15:25
+
+
+
+
+其他国家怎么用阴历随便，韩国不行，韩国春节还有十二生肖和干支纪年
+
+
+
+
+
+
+
+-----
+
+####  kidoo  
+##### 520#       发表于 2021-2-12 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50295013&amp;ptid=1986707" target="_blank">kaempfe 发表于 2021-2-10 13:57</a>
+你是来搞笑的吗  E站上最垃圾的就是韩国人  连日文原版扫描都要举报的垃圾人   老漫画被举报到只 ...</blockquote>
+他们就不怕别人把韩文都举报掉吗？有拳师味了。
+
+
+
+
+
+
+
+-----
+
+####  fffttt  
+##### 521#       发表于 2021-2-12 16:45
+
+
+
+
+eh我记得被删除应该是版权方举报的原因，但棒子上传的比较勤所以会出现其他语种全被橄榄只有棒子独存的情况
+
+
+
+
+
+
+
+-----
+
+####  天天座理世  
+##### 522#       发表于 2021-2-12 21:34
+
+
+
+
+怪不得中国邮政出的汉服少女邮票找的日韩画手都不给国人，真就一堆恨国党而且水平不行喜欢微博抱团
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 523#       发表于 2021-2-13 11:26
+
+
+
+
+还lunar new year呢
+棒子都开始korean new year了
+
+
+
+
+
+                                

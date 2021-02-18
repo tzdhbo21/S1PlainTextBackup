@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 13:29** 
+> ## **本文件最后更新于2021-02-18 01:11** 
 
 
 
@@ -3347,7 +3347,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_IjqT8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_Ss0h7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5126,7 +5126,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_erBZC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_woosO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -11396,14 +11396,7 @@ ED2情报
 ####  rxrx  
 ##### 2105#       发表于 2020-6-22 14:25
 
-
-
-
-这真不是小光成长后的样子？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13675,14 +13668,7 @@ doremi的联动就这个 还不如不官宣 当一个小彩蛋德了 反对dorem
 ####  rxrx  
 ##### 2227#       发表于 2020-7-20 23:30
 
-
-
-
-越看越像是长熟了的九条光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14872,14 +14858,7 @@ OP里的是正在长熟的九条光？<img src="https://static.saraba1st.com/ima
 ####  rxrx  
 ##### 2291#       发表于 2020-8-9 21:36
 
-
-
-
-三森一解除变身就是熟透了的九条光，越看越像<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -15614,14 +15593,7 @@ Q娃最小1岁——1天<img src="https://static.saraba1st.com/image/smiley/face
 ####  rxrx  
 ##### 2330#       发表于 2020-8-18 01:37
 
-
-
-
-非法御姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -22252,7 +22224,7 @@ mega parts加多了好像也没啥效果嘛<img src="https://static.saraba1st.co
 
 
 
-<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_jnzyk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ek2Q_FVVkAAmDEB?format=jpg&amp;name=medium" id="aimg_Jm5aP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 https://twitter.com/discoveryYUTA/status/1318869870675546112?s=20
 
@@ -27235,6 +27207,506 @@ ride on是什么梗？</blockquote>田村睦心<img src="https://static.saraba1s
 
 
 所以这是女干部被艾苏米吸收了？为啥？
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2972#       发表于 2021-2-7 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50269174&amp;ptid=1860852" target="_blank">twit 发表于 2021-2-7 20:44</a>
+
+所以这是女干部被艾苏米吸收了？为啥？</blockquote>
+充当灭活疫苗，看过环太平洋么？跟最后拉着只怪兽跳裂缝一道理
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2973#       发表于 2021-2-7 22:20
+
+
+
+
+舔狗舔到最后一无所有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">日向这盲拳打死老师傅把我看乐了
+
+估计接着就是あすみ进病幻王体内来个里应外合，留给病幻王的时间就半集了
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 2974#       发表于 2021-2-7 22:25
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  HGCG  
+##### 2975#       发表于 2021-2-9 22:55
+
+
+
+
+
+剧场版的角色
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gnhc5hucxaj20xc0ir76r.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gnhc5m837kj20u02m3k1j.jpg" referrerpolicy="no-referrer">
+
+
+
+这谁？
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gnhc5jhwzaj20xc0m877y.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gnhc5n781wj20xc0majwm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2976#       发表于 2021-2-14 08:54
+
+
+
+
+今年也算是平稳过渡了
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2977#       发表于 2021-2-14 12:42
+
+
+
+
+这个围观也太羞耻了吧
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 2978#       发表于 2021-2-14 13:56
+
+
+
+
+最终战缺了点力量，不过能平稳落地很不错了
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2979#       发表于 2021-2-14 14:01
+
+
+
+
+去年的女人终于有一场可以看的打戏了
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 2980#       发表于 2021-2-14 14:11
+
+
+
+
+最终战还是太仓促
+
+
+秘密的身份就莫名被BOSS实况转播出去了
+
+但是之后家里学校里街上众人的反应真暖
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2981#       发表于 2021-2-14 14:12
+
+
+
+
+平稳落地，最终战的处理方式还是以前差不多，刚告别完下周就再见<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+期待新女人
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  流浪的咸鱼  
+##### 2982#       发表于 2021-2-14 14:37
+
+
+
+
+平稳落地就好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 2983#       发表于 2021-2-14 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">完结撒....哎你们下周怎么又见面了
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2984#       发表于 2021-2-14 19:02
+
+
+
+ 本帖最后由 isa2456 于 2021-2-14 19:04 编辑 
+
+寓意挺好，为了健康的未来要全人类携手共进，而且打起来也终于有能看的了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">我还蛮期待最后会不会有实现人生梦想的样子，最后告诉我下周还有，应该是交接回了吧
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 2985#       发表于 2021-2-14 19:15
+
+
+
+
+真是非常平稳的结尾
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 2986#       发表于 2021-2-14 20:15
+
+
+
+ 本帖最后由 SRyeB 于 2021-2-14 20:30 编辑 
+
+你要说没受到疫情影响我是不信的，这最后完全变成抗疫主题了。boss：“我们都是一样的，作为地球生物都是为了生存而战斗”
+
+和佳：“你说的对，我们为了地球就是要干死你”
+
+
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2987#       发表于 2021-2-14 21:17
+
+
+
+
+下一集完结。可以对剧情盖棺论定了
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2988#       发表于 2021-2-14 21:29
+
+
+
+
+这集好棒，去年最喜欢的是拉拉，今年最喜欢和佳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2989#       发表于 2021-2-14 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50333904&amp;ptid=1860852" target="_blank">csolfans 发表于 2021-2-14 21:17</a>
+
+下一集完结。可以对剧情盖棺论定了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">下星期最后一集了，非常不舍和佳他们
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2990#       发表于 2021-2-14 22:28
+
+
+
+
+今年O兽和q娃的关系处理我觉得历代最好的一部。兔子是不是唯一一个为赋予普通女生拯救世界责任而感到愧疚的O兽
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2991#       发表于 2021-2-14 22:32
+
+
+
+
+只能说中规中矩，没啥毒点，剧情也没喂那啥，不过也没啥爆点，最后给个七分差不多了吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 2992#       发表于 2021-2-14 22:58
+
+
+
+
+剧情至少比上年说得利索，人物塑造的也挺好，在q娃里面算中间水平
+
+
+
+
+
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 2993#       发表于 2021-2-15 02:53
+
+
+
+
+虽然有疫情还是感觉今年不太行，最后这几集有点煎熬只盼着早点完，顺便这楼里有考据招式的吗，考据花的倒是见了有
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2994#       发表于 2021-2-15 09:18
+
+
+
+ 本帖最后由 leleq 于 2021-2-15 09:19 编辑 
+
+想想下一集再说吧 近几年惯例的长大环节没了 会留在下一集么？
+
+
+这集和佳的战斗到底和“还挺开心的”发言还好在最后 不然和佳的二设就要变战狂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 2995#       发表于 2021-2-16 00:13
+
+
+
+<blockquote>傲娇的章鱼 发表于 2021-2-14 22:28
+今年O兽和q娃的关系处理我觉得历代最好的一部。兔子是不是唯一一个为赋予普通女生拯救世界责任而感到愧疚的 ...</blockquote>
+今年动物地位比人高，我难受好久了，那群治愈动物提起q娃同一句话里**在q娃前面，这也是人类傲慢的一种吗，强迫人家把人类地位放本族前面，反正我是不舒服
+
+
+
+
+
+
+
+-----
+
+####  蓝色书签  
+##### 2996#       发表于 2021-2-16 09:15
+
+
+
+<blockquote>猫爪挠玻璃 发表于 2021-2-16 00:13
+今年动物地位比人高，我难受好久了，那群治愈动物提起q娃同一句话里**在q娃前面，这也是人类傲慢的一种吗 ...</blockquote>
+这。。不至于吧。。
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 2997#       发表于 2021-2-16 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50342305&amp;ptid=1860852" target="_blank">猫爪挠玻璃 发表于 2021-2-16 00:13</a>
+
+今年动物地位比人高，我难受好久了，那群治愈动物提起q娃同一句话里**在q娃前面，这也是人类傲慢的一种吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">兄弟 你想太多了
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2998#       发表于 2021-2-16 22:50
+
+
+
+
+和佳：活下去就意味着战斗……所以我要继续战斗下去。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2999#       发表于 2021-2-16 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">今年不知道是不是疫情的原因，反派死得够彻底的，没有一个留下来。
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 3000#       发表于 2021-2-16 23:46
+
+
+
+
+记不清了，以前有没有过暴露的q娃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是这个暴露后的剧情有点意思。今年的亮点就是和香干死病灶猫了那段了。
 
 
 

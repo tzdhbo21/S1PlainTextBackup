@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-02 01:24** 
+> ## **本文件最后更新于2021-02-18 02:13** 
 
 
 
@@ -8008,4 +8008,582 @@ summer cv好评q娃之牙
 
 
 
-                                  
+
+
+-----
+
+####  lhawp  
+##### 452#       发表于 2021-2-2 13:26
+
+
+
+
+后知后觉，这CV阵容好香啊，期待第一话
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 453#       发表于 2021-2-2 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50213790&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-2-2 09:19</a>
+
+人设好看警告
+
+及格警告
+
+拉拉可爱警告</blockquote>
+什么是交作业
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 454#         楼主| 发表于 2021-2-2 22:01
+
+
+
+<img src="http://wx4.sinaimg.cn/mw690/006JgHrVgy1gn9iso7g5mj30tz0uek3r.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 455#       发表于 2021-2-3 08:56
+
+
+
+ 本帖最后由 天邪鬼 于 2021-2-3 08:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50218013&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-2-2 16:10</a>
+什么是交作业</blockquote>
+作品粉丝给东映换汤不换药的开脱罢了，就好像隔壁假面特效烂剧情烂都能甩锅给疫情，整得好像日本就骑士剧组在防疫一样
+要说年货哪里都有，但没几个是年货做的烂还护成这样的
+东映：做梦都能笑醒
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 456#         楼主| 发表于 2021-2-5 11:36
+
+
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gnci6e0xncj21eo0qy1kz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 457#       发表于 2021-2-5 17:34
+
+
+
+
+人鱼这是会飞？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 458#       发表于 2021-2-6 21:46
+
+
+
+
+这水花，人鱼成坐骑了。
+抱着的话，今年光美能水下呼吸？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 459#         楼主| 发表于 2021-2-7 11:15
+
+
+
+
+还不算确定
+<img src="http://wx4.sinaimg.cn/mw690/6765fd79gy1gne8is81a1j20an08sjrp.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 460#       发表于 2021-2-7 11:15
+
+
+
+
+这发型好像没太多变化
+
+怀疑是假图
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 461#         楼主| 发表于 2021-2-7 11:17
+
+
+
+
+PV2
+[https://weibo.com/3888885364/K0MN93pzU?type=repost](https://weibo.com/3888885364/K0MN93pzU?type=repost)
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 462#       发表于 2021-2-7 11:48
+
+
+
+
+星Q蓝猫也是开播前被偷跑了，偷跑图也是跟这图接近的画质。可信度暂时存疑，毕竟不知道来源。
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 463#       发表于 2021-2-7 11:50
+
+
+
+
+这画质一看就是玩具被破解之类
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 464#       发表于 2021-2-7 18:16
+
+
+
+
+这次主角挑染有点严重啊。。。这下是不是不能叫做粉主了
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 465#         楼主| 发表于 2021-2-7 19:58
+
+
+
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4602055541850227?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 466#       发表于 2021-2-7 20:10
+
+
+
+
+这个彩虹手是什么我麻了，真就彩虹女人手.gif？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 467#         楼主| 发表于 2021-2-8 20:40
+
+
+
+<img src="http://wx3.sinaimg.cn/large/69559a0aly1gngejv8nv9j20k00do77l.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/69559a0aly1gngejvas6oj20dz0jiadp.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 468#       发表于 2021-2-8 20:43
+
+
+
+
+别的不说，人设可舔
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 469#         楼主| 发表于 2021-2-8 21:08
+
+
+
+
+食玩手办要出大友版
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gnfrrg9al0j20m893sx71.jpg" referrerpolicy="no-referrer">
+
+
+和小友版的对比
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gnfrw64fb7j21o00u0b2a.jpg" referrerpolicy="no-referrer">
+
+右边是小友版
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 470#       发表于 2021-2-8 21:57
+
+
+
+<blockquote>HGCG 发表于 2021-2-5 11:36
+</blockquote>
+这张有点崩啊
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 471#       发表于 2021-2-8 22:13
+
+
+
+
+开播前两周16页……
+你们是真能水，不知道后劲怎样
+
+今年全年也才100页啊
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 472#       发表于 2021-2-8 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50281480&amp;ptid=1963832" target="_blank">王留美 发表于 2021-02-08 22:13:45</a>
+开播前两周16页……
+你们是真能水，不知道后劲怎样
+
+今年全年也才100页啊</blockquote>不太行吧，奶Q开播前都水了二十多页，星Q就更别说了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 473#       发表于 2021-2-9 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50280922&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-2-8 21:08</a>
+
+食玩手办要出大友版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大友也不是人人都懂涂装啊。
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 474#         楼主| 发表于 2021-2-11 19:10
+
+
+
+<img src="http://wx3.sinaimg.cn/mw690/e7cbae74gy1gnfc0a470pj20vz0u01gt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/mw690/e7cbae74gy1gnfbyjspv3j21hc0srwpg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 475#       发表于 2021-2-12 00:23
+
+
+
+
+还要等到月底啊……
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 476#         楼主| 发表于 2021-2-12 18:58
+
+
+
+<img src="http://wx3.sinaimg.cn/large/69559a0aly1gnkor3p7u5j20zk1exnea.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 477#       发表于 2021-2-12 21:01
+
+
+
+
+这图的黄看上去胸好大
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 478#       发表于 2021-2-15 13:14
+
+
+
+
+这次脚本是？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 479#       发表于 2021-2-15 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50337980&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-2-15 13:14</a>
+这次脚本是？
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+主な作品
+ゴジラ・モスラ・キングギドラ　大怪獣総攻撃
+ケロロ軍曹
+REIDEEN
+デルトラクエスト
+べるぜバブ
+武装神姫
+Free!
+Re:ゼロから始める異世界生活
+青春ブタ野郎はバニーガール先輩の夢を見ない
+女子高生の無駄づかい
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 480#       发表于 2021-2-15 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50342050&amp;ptid=1963832" target="_blank">王留美 发表于 2021-2-15 23:33</a>
+主な作品
+ゴジラ・モスラ・キングギドラ　大怪獣総攻撃
+ケロロ軍曹</blockquote>
+新勇者莱汀？
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 481#       发表于 2021-2-15 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50342163&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2021-2-15 23:53</a>
+新勇者莱汀？</blockquote>
+是
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 482#         楼主| 发表于 2021-2-17 19:05
+
+
+
+<img src="http://wx1.sinaimg.cn/large/69559a0aly1gnqq3r5dh2j213813kdus.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 483#       发表于 2021-2-17 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位置，怎么感觉黄螺被人封印起来一样。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 484#       发表于 2021-2-17 22:38
+
+
+
+
+新的女人这挑染有点过分，感觉都是从其他动画来的了。。
+
+
+
+
+
+                                 

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-05 22:35** 
+> ## **本文件最后更新于2021-02-18 01:40** 
 
 
 
@@ -3156,7 +3156,20 @@ Audiopro！ 4.4！</blockquote>
 ####  auraria  
 ##### 1640#       发表于 2020-10-21 22:09
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49116982&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-21 18:54</a>
+比想象中小，算是玩上一回所谓小屏旗舰了，吃了几年三星P排抹布屏的屎眼睛瞬间舒服
+
+
+还是那个逻辑鬼才索尼 ...</blockquote>
+最大的本地化是支持微信指纹支付了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
 
 
 
@@ -4324,7 +4337,19 @@ AIDA64就可以
 ####  auraria  
 ##### 1700#       发表于 2020-10-23 18:54
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140042&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 14:02</a>
+查了一下，是12G的没错……
+
+居然有点失望</blockquote>
+同失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
 
 
 
@@ -7925,16 +7950,7 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ####  后会无期  
 ##### 1881#       发表于 2020-11-7 19:26
 
-
-
-
-5ii有办法微信分身吗？
-
-[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7982,19 +7998,7 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ####  后会无期  
 ##### 1884#       发表于 2020-11-7 22:58
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314368&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-7 22:57</a>
-
-用island啊，我就用着，2个微信
-
-
-—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
-这软件安全吗，读取第二个微信信息可能性大不大。。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8022,16 +8026,7 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ####  后会无期  
 ##### 1886#       发表于 2020-11-7 23:39
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314485&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-07 23:08:36</a>
-island的原理是工作空间，这是一个完全独立的空间，大部分ROM的分身功能都是基于这个功能，如果要是觉得 ...</blockquote>了解了，谢谢～
-
-[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8505,16 +8500,7 @@ ZACKBUKS
 ####  后会无期  
 ##### 1910#       发表于 2020-11-10 16:42
 
-
-
-
-犹豫症买前最后一问，双sim卡使用如何？能清晰分辨和调整来电、短信、上网是哪个卡吗？
-
-[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8562,16 +8548,7 @@ ZACKBUKS
 ####  后会无期  
 ##### 1913#       发表于 2020-11-10 21:14
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49350650&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-10 20:18:23</a>
-v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收到的，并对应以哪个卡回复吗？或者直接在短信界面选择哪个卡发送？
-
-[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8754,16 +8731,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ####  后会无期  
 ##### 1920#       发表于 2020-11-13 15:06
 
-
-
-
-有没有5兔会莫名其妙进飞行模式？是误触的原因吗？
-
-[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8788,17 +8756,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ####  后会无期  
 ##### 1922#       发表于 2020-11-13 15:41
 
-
-
- 本帖最后由 后会无期 于 2020-11-14 19:15 编辑 
-
-5兔通话时候前感应太灵敏了怎么办，貌似稍微一离开耳朵再蹭就能误触，设置开了口袋防误触也没什么用，电话打的时间一长就容易误触到飞行模式，犹豫要不要退了，烦
-
-[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9101,17 +9059,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ####  后会无期  
 ##### 1940#       发表于 2020-11-17 20:31
 
-
-
- 本帖最后由 后会无期 于 2020-11-17 20:33 编辑 
-
-五兔亚马逊海外淘4k4了？？有人了英亚这到国内使用有啥问题吗？
-
-[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -15785,4 +15733,877 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 
 
 
-                       
+
+
+-----
+
+####  wizardasd  
+##### 2282#       发表于 2021-2-6 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50250804&amp;ptid=1915171" target="_blank">leystage 发表于 2021-2-5 20:52</a>
+
+港版还是国行？ 
+
+1m2 港版闹钟没遇到过…
+
+把闹钟的通知给关了试试？</blockquote>
+悲伤！
+
+我把闹钟的通知关了
+
+倒是不影响闹钟本身工作
+
+但是，闹钟响的时候就不会弹出窗口了，然后闹钟就关不掉了，只能进app里去把闹钟开关给关了……
+
+我现在真想骂人了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2283#         楼主| 发表于 2021-2-6 19:18
+
+
+
+ 本帖最后由 被雨困住的城市 于 2021-2-6 19:19 编辑 
+
+对啦，从安卓9往后，通知横幅左右划去应该是关闭这个通知，上划应该是关闭这个通知且一分之内该应用不再弹通知
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2284#       发表于 2021-2-6 21:03
+
+
+
+<blockquote>引用第2281楼wizardasd于2021-02-06 19:08发表的  :
+
+引用:leystage 发表于 2021-2-5 20:52港版还是国行？ 1m2 港版闹钟没遇到过......</blockquote>
+锁屏再开应该就好了
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2285#       发表于 2021-2-6 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50259573&amp;ptid=1915171" target="_blank">Cray 发表于 2021-2-6 21:03</a>
+
+锁屏再开应该就好了
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+没有用
+
+这个闹钟在非锁屏状态和锁屏状态的功能都是靠通知实现的……
+
+闹钟的通知设置下有6个子项，对应不同功能
+
+必须分布对每个子项的“通知、提醒、允许弹出”进行设定才能实现对应的功能
+
+然后我把通知关了以后，即使再打开，默认设置也乱了，回不到当初……
+
+
+现在我是把所有子项的几个设置都允许，并把提示音设置成“无”，勉强才能用，已经要疯了……
+
+
+搜了下，这个问题历史悠久，好几年前就有，而且不限索尼……
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2286#       发表于 2021-2-7 01:50
+
+
+
+ 本帖最后由 Youszsh 于 2021-2-12 14:24 编辑 
+
+算了，买别怂
+
+
+
+
+
+
+
+-----
+
+####  z.s  
+##### 2287#       发表于 2021-2-7 02:48
+
+
+
+
+请问这手机修长的屏幕用来看漫画合适吗？
+
+
+
+
+
+
+
+-----
+
+####  Benthic  
+##### 2288#       发表于 2021-2-7 03:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261847&amp;ptid=1915171" target="_blank">z.s 发表于 2021-2-7 02:48</a>
+
+请问这手机修长的屏幕用来看漫画合适吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">极度不适合，太窄了
+
+
+
+
+
+
+
+-----
+
+####  利物浦  
+##### 2289#       发表于 2021-2-8 16:03
+
+
+
+
+问个傻逼问题，不小心把摄像大师删除了怎么恢复<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 暂时上不了谷歌商店，只能去xda么？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2290#       发表于 2021-2-8 16:42
+
+
+
+<blockquote>z.s 发表于 2021-2-7 02:48
+请问这手机修长的屏幕用来看漫画合适吗？</blockquote>
+适、适合看条漫！
+
+
+
+
+
+
+
+-----
+
+####  KayoAiko  
+##### 2291#       发表于 2021-2-8 16:47
+
+
+
+
+国行X1马克兔到手了，把Xperia 中文键盘和日文键盘折腾好用起来终于舒服了！
+
+把play商店装好我觉得和我以前用Z5P港版没差多少，更新游戏也方便
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2292#       发表于 2021-2-9 03:41
+
+
+
+<blockquote>引用第2288楼利物浦于2021-02-08 16:03发表的  :
+
+问个傻逼问题，不小心把摄像大师删除了怎么恢复 暂时上不了谷歌商店，只能去xda么？ -- 傲娇地来自......</blockquote>
+有网站可以下的呀 等下贴
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2293#       发表于 2021-2-9 16:15
+
+
+
+
+安卓11的手势判定区域是不是调高了，贴近边缘的ui经常被遮挡按不出来，感觉要换回三大金刚了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2294#       发表于 2021-2-11 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50278970&amp;ptid=1915171" target="_blank">利物浦 发表于 2021-2-8 16:03</a>
+
+问个傻逼问题，不小心把摄像大师删除了怎么恢复 暂时上不了谷歌商店，只能去xda么？
+
+
+ -- 傲娇地来 ...</blockquote>
+[https://www.apkmirror.com/apk/so ... droid-apk-download/](https://www.apkmirror.com/apk/sony-mobile-communications/photography-pro-2/photography-pro-2-1-1-a-0-21-release/photography-pro-1-1-a-0-21-android-apk-download/)
+
+
+可以收藏一下
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2295#       发表于 2021-2-11 08:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261847&amp;ptid=1915171" target="_blank">z.s 发表于 2021-2-7 02:48</a>
+请问这手机修长的屏幕用来看漫画合适吗？</blockquote>
+上下滚模式还好吧
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2296#       发表于 2021-2-11 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">昨天又遇到个连接蓝牙后照样手机播放的问题，开车三个小时可给我折磨坏了。晚上重启了一下手机就好了。
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 2297#       发表于 2021-2-11 15:34
+
+
+
+ 本帖最后由 里少 于 2021-2-11 15:35 编辑 
+
+国行1m2的致命bug，分屏时别人电话打进来直接卡死，只能听见铃 声，40s后桌面崩溃了，切回桌面找不到电话呼入界面没法接。还好是认识的人打的，打回去就行了，万一是单位那种总线电话打进来怕不是直接自闭。
+然后是蓝牙ldac连xm3，在无人的地方也疯狂杂音断断续续。以前索尼mp3的ldac到人很多的地方也只会偶然出现杂音的问题，几年过去了手机在开倒车，怀疑跟安卓11有一点关系，但我还是要说
+one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+尼潭铃 声竟然是屏蔽词，什么原理啊？
+
+
+
+
+
+
+
+-----
+
+####  利物浦  
+##### 2298#       发表于 2021-2-12 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50301878&amp;ptid=1915171" target="_blank">Cray 发表于 2021-2-11 02:24</a>
+ https://www.apkmirror.com/apk/sony-mobile-communications/photography-pro-2/photography-pro-2-1-1-a ...</blockquote>
+我那天也在apkmirror上找到，不知是不是这个，但安装好后无法打开，后来索性重置了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2299#       发表于 2021-2-12 14:29
+
+
+
+
+无码兔到手了，感觉问题有点多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+移动卡检测不出本机号码，状态栏显示网速不知道在哪调
+还有自带的那个阉割版谷歌相册能不能替换成完整的<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2300#       发表于 2021-2-12 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315637&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 14:29</a>
+无码兔到手了，感觉问题有点多
+移动卡检测不出本机号码，状态栏显示网速不知道在哪调
+还有自带的那 ...</blockquote>
+可以，play商店下载完整的就行
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  KayoAiko  
+##### 2301#       发表于 2021-2-12 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315637&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 14:29</a>
+
+无码兔到手了，感觉问题有点多
+
+移动卡检测不出本机号码，状态栏显示网速不知道在哪调
+
+还有自带的那 ...</blockquote>
+你索这原生系统是不带状态栏显示网速的
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2302#       发表于 2021-2-12 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50318252&amp;ptid=1915171" target="_blank">猫空 发表于 2021-2-12 20:52</a>
+可以，play商店下载完整的就行
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+不行啊，我下了就变成两个相册了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 2303#       发表于 2021-2-12 22:23
+
+
+
+
+我是1，刚更新的时候没在意，现在越用越觉得电池崩了，续航**降低，告诉我，我不是一个人……
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  skaar  
+##### 2304#       发表于 2021-2-12 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315637&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 14:29</a>
+无码兔到手了，感觉问题有点多
+移动卡检测不出本机号码，状态栏显示网速不知道在哪调
+还有自带的那 ...</blockquote>
+同样刚到手无码兔，敢情移动卡不识别手机号是通病啊，还以为是卡太旧了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说clash耗电怎样能稍微优化一下…
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  丈育  
+##### 2305#       发表于 2021-2-12 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50318729&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 21:46</a>
+
+不行啊，我下了就变成两个相册了
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+把原来的那个停用，默认相册就自动变成完全版的那个了
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2306#       发表于 2021-2-13 01:33
+
+
+
+ 本帖最后由 月神侠 于 2021-2-13 01:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50318729&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 21:46</a>
+
+不行啊，我下了就变成两个相册了
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+把自带的相册停用就行，不过你要选择AOD的时候要用自带的才能选
+
+不能识别号码是安卓的老问题了，找个老年机去设置里面sim号码编辑就有了
+
+
+
+
+
+
+
+
+-----
+
+####  duo_wolf  
+##### 2307#       发表于 2021-2-13 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258523&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-2-6 19:08</a>
+悲伤！
+
+我把闹钟的通知关了
+
+倒是不影响闹钟本身工作</blockquote>
+我是这么解决的：睡觉前把媒体音量调到一格，我没办法阻止你跳通知，那我就把通知音量调到最低，让我听不到就行了。反正闹钟的音量是不受媒体音量影响的，是单独的闹钟音量。
+
+— from Sony J9110, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2308#       发表于 2021-2-13 15:59
+
+
+
+
+各位求推荐一下无码兔的手机壳和保护膜<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2309#       发表于 2021-2-13 15:59
+
+
+
+ 本帖最后由 Youszsh 于 2021-2-13 16:02 编辑 
+
+风怒了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2310#       发表于 2021-2-13 16:01
+
+
+
+ 本帖最后由 Youszsh 于 2021-2-13 16:02 编辑 
+
+风怒了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  andychen  
+##### 2311#       发表于 2021-2-13 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50324700&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-13 15:59</a>
+各位求推荐一下无码兔的手机壳和保护膜
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.1 ...</blockquote>
+淘宝搜小小鱼雷，我在那买了前面板钢化和后盖软膜。膜比较贵不过确实好
+壳我没买不知道
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2312#       发表于 2021-2-13 17:41
+
+
+
+<blockquote>Youszsh 发表于 2021-2-12 14:29
+无码兔到手了，感觉问题有点多
+
+移动卡检测不出本机号码，状态栏显示网速不知道在哪调
+
+还有自带的那 ...</blockquote>
+一直都是联通卡能识别，移动卡不能。可能是移动卡比较特别吧…
+
+网速从来就不能在通知栏显示，没有开关…
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2313#       发表于 2021-2-13 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50325392&amp;ptid=1915171" target="_blank">andychen 发表于 2021-2-13 17:27</a>
+淘宝搜小小鱼雷，我在那买了前面板钢化和后盖软膜。膜比较贵不过确实好
+壳我没买不知道</blockquote>
+啊这，裸奔不怕会摔吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2314#       发表于 2021-2-13 22:24
+
+
+
+<blockquote>Youszsh 发表于 2021-2-13 22:07
+啊这，裸奔不怕会摔吗
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+看人，有的人不怎么手滑，比如我，最近十年手机摔地上的次数不超过五次，其中大概四次还是室内低空没有留下痕迹的。这时啥都不装的手感最完美。
+
+我妹一周摔几次，好几台手机屏幕被她摔碎，都是第一天就装保护壳…
+
+
+
+
+
+
+
+-----
+
+####  zjf  
+##### 2315#       发表于 2021-2-16 13:36
+
+
+
+
+问下国行5m2能解锁bootloader吗？
+twrp+magisk+google全家桶强需求
+
+另外海淘能比京东便宜多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">京东貌似优惠后5500上下？
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  zjf  
+##### 2316#       发表于 2021-2-16 13:53
+
+
+
+ 本帖最后由 zjf 于 2021-2-16 15:25 编辑 
+
+另外某宝上4800多港行带票靠谱吗？
+
+===
+
+更新：港版原来没5g，那么闲鱼上5100全新可注册的5m2靠谱吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2317#       发表于 2021-2-16 18:05
+
+
+
+
+国行X1MKⅡ更新QQ签名会卡死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+桌面icon有的时候会消失<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2318#       发表于 2021-2-16 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50345412&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-16 13:53</a>
+另外某宝上4800多港行带票靠谱吗？
+
+===</blockquote>
+谁说港版没5G的……我天天开着5G用啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  zjf  
+##### 2319#       发表于 2021-2-16 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50347733&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-2-16 19:52</a>
+谁说港版没5G的……我天天开着5G用啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
+看来我得到的情报有误啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  zjf  
+##### 2320#       发表于 2021-2-16 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50347733&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-2-16 19:52</a>
+谁说港版没5G的……我天天开着5G用啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
+ps 请问是移动的手机号吗
+
+国行和港版的rom差别在哪儿啊，有必要单手顺便刷成港版rom吗
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 2321#       发表于 2021-2-17 04:13
+
+
+
+
+今天想把马克兔的hdr视频推到索尼电视
+
+才发现没这个便捷功能了，有点懊恼
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2322#       发表于 2021-2-17 08:34
+
+
+
+ 本帖最后由 我很费纸 于 2021-2-17 08:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50347952&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-16 20:28</a>
+ps 请问是移动的手机号吗
+
+国行和港版的rom差别在哪儿啊，有必要单手顺便刷成港版rom吗</blockquote>
+移动联通双卡……移动5G没开过，毕竟没开流量套餐，纯保号<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+国行港行就是谷歌全家桶一个支持不完整和支持完整的区别，其他一些小功能的区别大差不差（国行多个节电优能）。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  KayoAiko  
+##### 2323#       发表于 2021-2-17 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50345412&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-16 13:53</a>
+
+另外某宝上4800多港行带票靠谱吗？
+
+
+===</blockquote>
+港版是不支持移动5G……联通电信5G可用
+
+另外国行自带的APP很多阉割过的，如果谷歌全家桶依赖大建议还是买港行吧
+
+
+
+
+
+                      

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 02:00** 
+> ## **本文件最后更新于2021-02-18 02:44** 
 
 
 
@@ -3395,14 +3395,7 @@ fgo设定里的外神是有寿命的，黑枪</blockquote>
 ####  rxrx  
 ##### 76687#       发表于 2020-11-16 10:46
 
-
-
-
-我喜欢克系，但更喜欢人定胜天，所以FGO的邪神吃屎是挺爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10365,14 +10358,7 @@ BV1tv411b75t
 ####  rxrx  
 ##### 77074#       发表于 2020-12-5 17:43
 
-
-
-
-道满是个合格的恶役，有能力、够邪恶、充满小物臭+死时够没有尊严。最重要是没有什么可怜的过去，所以只要不抽就很满足了。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10666,18 +10652,7 @@ BV1tv411b75t
 ####  rxrx  
 ##### 77088#       发表于 2020-12-6 11:21
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49626025&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2020-12-6 11:18</a>
-
-昨天晚上不知道哪根筋搭错，睡觉之前33连去把阿金给抽出来了，明明PU2可能会来两个五星妹子……
-
-阿金这技能 ...</blockquote>
-妹子胸没阿金大<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11000,14 +10975,7 @@ BV1tv411b75t
 ####  rxrx  
 ##### 77105#       发表于 2020-12-6 21:29
 
-
-
-
-这次最难打的是伊吹童子，道满就是渣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17528,14 +17496,7 @@ yls怎么开始学yc了变抠门了
 ####  rxrx  
 ##### 77463#       发表于 2020-12-26 20:49
 
-
-
-
-这新的访问让我觉得樱井大妈还是改外号作樱井大盾吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -17933,14 +17894,7 @@ C呆这种一堆指向性技能的点起来太麻烦了
 ####  rxrx  
 ##### 77486#       发表于 2020-12-31 19:21
 
-
-
-
-今年新年还能出什么旧神呢？现在有章鱼、泡泡、花神和火
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -23186,14 +23140,7 @@ jk狐这一身打扮好奇怪啊<img src="https://static.saraba1st.com/image/smi
 ####  rxrx  
 ##### 77781#       发表于 2021-1-17 21:31
 
-
-
-
-至少还没出成吉思汗=源义经这个段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -24209,14 +24156,7 @@ EsLG-06U0AAykRo.jpg
 ####  rxrx  
 ##### 77837#       发表于 2021-1-27 13:51
 
-
-
-
-日本不是也开始禁足了吗？这种时间还鼓励人去街机铺？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -24362,16 +24302,7 @@ EsLG-06U0AAykRo.jpg
 ####  rxrx  
 ##### 77846#       发表于 2021-1-27 16:10
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159930&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-1-27 14:37</a>
-
-有没有高人说下 街机版现在到底是个什么情况 大爆死预定还是很热门?</blockquote>
-有说街机铺和SEGA就是靠舰C和FGO混饭吃
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -24719,14 +24650,7 @@ EsLG-06U0AAykRo.jpg
 ####  rxrx  
 ##### 77864#       发表于 2021-2-3 17:22
 
-
-
-
-是不是只有我无法在 appstore 更新？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -25450,14 +25374,7 @@ nmb，这一个个都盯着我年终奖来</blockquote>
 ####  rxrx  
 ##### 77906#       发表于 2021-2-6 20:49
 
-
-
-
-卡莲大战言峰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -25549,4 +25466,1581 @@ nmb，这一个个都盯着我年终奖来</blockquote>
 
 
 
-  
+
+
+-----
+
+####  GuDaZi  
+##### 77912#       发表于 2021-2-7 10:19
+
+
+
+
+ruler职介也就村姑和始皇帝，还有金钻头，都是高难限定。宝具是蓝卡或绿卡光炮的还能期待，但可能性太小<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 77913#       发表于 2021-2-7 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50263397&amp;ptid=1085254" target="_blank">GuDaZi 发表于 2021-2-7 10:19</a>
+ruler职介也就村姑和始皇帝，还有金钻头，都是高难限定。宝具是蓝卡或绿卡光炮的还能期待，但可能性太小[f: ...</blockquote>
+卑弥呼啊 星战2平a硬打阴间本不要太舒服 虽然很大成分也是靠倍伤礼装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77914#       发表于 2021-2-7 10:50
+
+
+
+
+挺纠结的，虽然我不厨卡莲，但我目前尺子全的，不抽会多个空（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77915#       发表于 2021-2-7 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50263397&amp;ptid=1085254" target="_blank">GuDaZi 发表于 2021-2-6 20:19</a>
+
+ruler职介也就村姑和始皇帝，还有金钻头，都是高难限定。宝具是蓝卡或绿卡光炮的还能期待，但可能性太小[f: ...</blockquote>
+当年尼禄祭叱咤风云的天艹已经时泪了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77916#       发表于 2021-2-7 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264804&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-7 12:38</a>
+
+当年尼禄祭叱咤风云的天艹已经时泪了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天草?那是谁　现在还有这个人吗(
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77917#       发表于 2021-2-7 12:58
+
+
+
+
+类比泳装杀生院同样强度又不是给不了。纯粹是看愿不愿意给而已
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 77918#       发表于 2021-2-7 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50264804&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-7 12:38</a>
+当年尼禄祭叱咤风云的天艹已经时泪了吗</blockquote>
+强化解除现在在我方不就是个日常用不上高难全是框的搞笑技能吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77919#       发表于 2021-2-7 13:40
+
+
+
+
+尺阶的伤害系数可是和仇阶狂阶一样的1.1，事实上老福、天草和卑弥呼的实际攻击力在全从者中都是靠前的，奈何要么宝具没伤害，要么像天草一样自buff稀烂，要么和尺呆一样白值拉胯。要是给个宇宙凛水杀生院级别的自buff，蓝绿光炮就是周回战神，哪怕红光炮也是个泛用核弹。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 77920#       发表于 2021-2-7 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265150&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-2-7 13:05</a>
+
+强化解除现在在我方不就是个日常用不上高难全是框的搞笑技能吗</blockquote>
+你看看天草浑身上下就一个30B的自buff，还好意思说他拉胯是强解不好用的锅吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77921#       发表于 2021-2-7 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265560&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-2-7 13:44</a>
+
+你看看天草浑身上下就一个30B的自buff，还好意思说他拉胯是强解不好用的锅吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实上要不是基本全带框　　拉一点天草还是有点用的啊(
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 77922#       发表于 2021-2-7 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卡莲的话感觉atk不会高啊，不过怎么想都觉得卡莲应该是个偏辅助的角色，但如果是光炮的话那就不好说了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77923#       发表于 2021-2-7 13:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77924#       发表于 2021-2-7 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265664&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-7 13:54</a>
+天草在CBA出来之前评价还是挺高的。所以我觉得这是拐的问题</blockquote>
+快进到梅莉实装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 77925#       发表于 2021-2-7 20:26
+
+
+
+
+看卡連的寶具的動畫還是敵方全體，
+
+感覺可能會像老福那種上DEBUFF及我方上BUFF，再加男性特效那種?
+
+
+
+
+
+
+
+-----
+
+####  yzj134100  
+##### 77926#       发表于 2021-2-8 10:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">护符招待，等月姬上架情况
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 77927#       发表于 2021-2-8 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50267042&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-2-7 16:24</a>
+
+快进到梅莉实装</blockquote>
+先不说梅莉这次街机算是明说是独占角色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+就街机这种技能组看起来比梅林还弱啊
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77928#       发表于 2021-2-8 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276243&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-2-8 11:57</a>
+先不说梅莉这次街机算是明说是独占角色了
+
+
+就街机这种技能组看起来比梅林还弱啊 ...</blockquote>
+技能肯定会改动的。小芬奇不也变了。
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 77929#       发表于 2021-2-8 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276480&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-2-8 12:18</a>
+
+技能肯定会改动的。小芬奇不也变了。</blockquote>
+小芬奇官方说法是【完全不一样的卡】
+
+
+而且应该是唯一一个特例了
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77930#       发表于 2021-2-8 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50276551&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-2-7 22:24</a>
+
+小芬奇官方说法是【完全不一样的卡】
+
+
+而且应该是唯一一个特例了</blockquote>
+特例有第一次就会有第二次，就像女装
+
+哪有资本家跟钱过不去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 77931#       发表于 2021-2-8 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50277419&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-8 13:40</a>
+
+特例有第一次就会有第二次，就像女装
+
+哪有资本家跟钱过不去的</blockquote>
+但是资本家不会跟穿一条裤子的另外一个资本家过不去啊
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77932#       发表于 2021-2-9 17:56
+
+
+
+ 本帖最后由 khxooo 于 2021-2-9 17:59 编辑 
+
+绿卡光炮，估计也就是个合格的打手吧。
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77933#       发表于 2021-2-9 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50286562&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-2-9 17:56</a>
+
+绿卡光炮，估计也就是个合格的打手吧。</blockquote>
+我先来 
+
+
+绿卡？ 再见（手动狗头
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77934#       发表于 2021-2-10 11:51
+
+
+
+
+绿卡再强 C位也只能挂一个
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77935#       发表于 2021-2-10 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽到了，感觉没必要2宝，摸了
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77936#       发表于 2021-2-10 17:12
+
+
+
+
+44连出了，没跑狗我想着没戏结果被我直接按掉了，都没来得及截图（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77937#       发表于 2021-2-10 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么你们都是抽啥出啥啊 只有我毛都不出的么
+
+
+
+
+
+
+
+-----
+
+####  eden_hazard  
+##### 77938#       发表于 2021-2-10 17:29
+
+
+
+ 本帖最后由 eden_hazard 于 2021-2-10 18:07 编辑 
+
+20个11连5宝，她爱我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 77939#       发表于 2021-2-10 17:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠着刚攒出来的39石和几张呼符出货率 
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 77940#       发表于 2021-2-10 17:39
+
+
+
+
+搞定2宝，14号决战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katun  
+##### 77941#       发表于 2021-2-10 17:40
+
+
+
+
+升级是真没啥卡莲味，myroom语音还是有点的，关键是小清水是真的忘记怎么配了（
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77942#       发表于 2021-2-10 17:44
+
+
+
+
+所以卡莲里面到底是混了啥<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77943#       发表于 2021-2-10 17:46
+
+
+
+
+啊，卡莲这声音不是闪轨的绿毛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katun  
+##### 77944#       发表于 2021-2-10 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297034&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-10 17:44</a>
+
+所以卡莲里面到底是混了啥</blockquote>
+阿莫尔
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 77945#       发表于 2021-2-10 17:50
+
+
+
+
+美cry，我草
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77946#       发表于 2021-2-10 17:51
+
+
+
+
+发现这个月呼符都没换，换完就一发入魂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 77947#       发表于 2021-2-10 17:53
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  v22325  
+##### 77948#       发表于 2021-2-10 18:09
+
+
+
+
+哭了  没抽到
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 77949#       发表于 2021-2-10 18:11
+
+
+
+
+两单没出收手等复刻了
+
+
+
+
+
+
+
+-----
+
+####  KOBI  
+##### 77950#       发表于 2021-2-10 18:16
+
+
+
+ 本帖最后由 KOBI 于 2021-2-10 18:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">强度其实很微妙吧。。没宝具本，双CBA都刷不上30NP
+
+为什么不能虚空抽NP！
+
+攻击BUFF只有20绿+20防御。防御面倒是真的强
+
+
+
+
+
+
+
+-----
+
+####  yangun22  
+##### 77951#       发表于 2021-2-10 18:24
+
+
+
+
+尺子天生就有高防御和1.1攻击倍率，再给你高火力别的打白字的特殊阶级真要哭了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 77952#       发表于 2021-2-10 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卡莲这妥妥的敌方战神啊，大量的自充灭气，无敌兼嘲讽，不吃异常+神核，宝具带强化无效，还有尺阶的优势，除了没强解其他该有的全有了
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77953#       发表于 2021-2-10 18:33
+
+
+
+
+三破立绘为什么一股子朝凪的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 77954#       发表于 2021-2-10 18:41
+
+
+
+
+一发出了，求吹
+
+
+小清水是忘了卡莲的声线了吗
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77955#       发表于 2021-2-10 18:51
+
+
+
+
+240石头+20护符没出，放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77956#       发表于 2021-2-10 18:52
+
+
+
+
+喷了，这宝具动画怎么还有个傻屌版的
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77957#       发表于 2021-2-10 18:54
+
+
+
+
+4单才出，我的年终奖和豹豹记录木有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77958#       发表于 2021-2-10 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297755&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-10 18:54</a>
+
+4单才出，我的年终奖和豹豹记录木有了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不欧 但羡慕（
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77959#       发表于 2021-2-10 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297799&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-10 19:00</a>
+不欧 但羡慕（</blockquote>
+有啥羡慕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下完全用不上
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77960#       发表于 2021-2-10 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297818&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-10 19:01</a>
+
+有啥羡慕的看了下完全用不上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕的不要不要 萌新上一个5星 1 2 月 3 1 号（
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77961#       发表于 2021-2-10 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297834&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-10 19:04</a>
+羡慕的不要不要 萌新上一个5星 1 2 月 3 1 号（</blockquote>
+我也是啊，豹完村正就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 77962#       发表于 2021-2-10 20:28
+
+
+
+
+抽不到，算了算了
+
+
+
+
+
+
+
+-----
+
+####  卡蓮  
+##### 77963#       发表于 2021-2-11 01:45
+
+
+
+
+迟来的汇报
+
+
+存货600石头+20呼符+3单，5宝了。这次算是我抽卡经历里最欧的一次了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77964#       发表于 2021-2-11 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50301726&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-11 01:45</a>
+
+迟来的汇报
+
+
+存货600石头+20呼符+3单，5宝了。这次算是我抽卡经历里最欧的一次了 ...</blockquote>
+1000多石5宝，很欧了。
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 77965#       发表于 2021-2-11 07:55
+
+
+
+
+今年可以拿重复的巧克力了？我记得去年好像不行吧，要把旧的卖了
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 77966#       发表于 2021-2-11 09:18
+
+
+
+
+卡莲这个db好像带黑杯就够了
+
+可惜绿卡的时代已经过去
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 77967#       发表于 2021-2-11 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50302757&amp;ptid=1085254" target="_blank">风鸣弦十郎 发表于 2021-2-11 09:18</a>
+卡莲这个db好像带黑杯就够了
+
+可惜绿卡的时代已经过去</blockquote>
+不用带黑杯 最简单后排塞个小安就可以了
+问题还是1技能不能虚空抽np对cba体系过于不友好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77968#       发表于 2021-2-11 10:36
+
+
+
+
+说句歪楼的，卡莲池子倾家荡产也没出，心灰意冷的同时去隔壁用送的十连卷一发出了夕
+
+这就是RP守恒定律吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 77969#       发表于 2021-2-11 12:28
+
+
+
+
+同样是被爱神附体的，想问句维纳斯尼禄还有机会么
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77970#       发表于 2021-2-11 12:44
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-2-11 12:53 编辑 
+
+C呆的情人节剧情好长啊，还乱入了卡莲，物超所值，物超所值。
+
+C呆还挺有少女心的，剧情里经常用真名称呼御主（虽然语音是玛斯塔）。
+
+
+话说卡莲的声音确实比印象中幼了不少，就好像川澄用C呆的声线去配军刀......
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77971#       发表于 2021-2-11 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50304042&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-2-11 12:28</a>
+
+同样是被爱神附体的，想问句维纳斯尼禄还有机会么</blockquote>
+只要不变成街机独占，我就感觉还有机会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 77972#       发表于 2021-2-11 15:01
+
+
+
+
+又加了一单，三单一宝
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77973#       发表于 2021-2-11 22:57
+
+
+
+
+21杀，算了就这样吧。
+
+
+
+
+
+
+
+-----
+
+####  dante888  
+##### 77974#       发表于 2021-2-12 00:29
+
+
+
+
+26杀，没兴趣搞竞速配件，陈宫也不想喂杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77975#       发表于 2021-2-12 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50311619&amp;ptid=1085254" target="_blank">dante888 发表于 2021-2-12 00:29</a>
+26杀，没兴趣搞竞速配件，陈宫也不想喂杯</blockquote>
+什么阵容？我上了两个大英雄也就21杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dante888  
+##### 77976#       发表于 2021-2-12 01:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50312258&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-12 01:29</a>
+
+什么阵容？我上了两个大英雄也就21杀</blockquote>
+我的不太行，前排C呆水贞陈宫，后排卡莲兔子王豆爸，还带了2张苍玉，C呆冲陈宫，其实主手是陈宫，我才65级的
+
+
+无令咒27杀作业是1级龙娘满破宝石1技能9级，大英雄，5宝水武藏带满级宝石，后排C呆，借的满破宝石卡莲，豆爸70级10109技能
+
+1T龙娘1，武藏2，龙娘大英雄武藏宝具
+
+2TC呆全交技能给武藏，换豆爸，豆爸23，卡莲1，武藏3，然后豆爸卡莲武藏宝具，武藏回收90被吸了10NP，还需要被打2下，这里很看脸
+
+3T豆爸1，卡莲23，衣服加攻，豆爸武藏卡莲宝具
+
+
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 77977#       发表于 2021-2-12 08:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50297624&amp;ptid=1085254" target="_blank">longrider 发表于 2021-2-10 18:41</a>
+一发出了，求吹
+
+
+小清水是忘了卡莲的声线了吗</blockquote>
+她其实配的作品本来就不是很多，应该只有嘉年华，PSV版FHA和魔伊。而且除了FHA之外其它两个作品的文本量都很少。不像其他人和角色打了十几年交道而且几乎每年都有关联的新项目
+
+商店语音还是对味的，不过强化和再临语音听起来确实没内味
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77978#       发表于 2021-2-12 10:36
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-2-12 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50312979&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-2-12 08:10</a>
+
+她其实配的作品本来就不是很多，应该只有嘉年华，PSV版FHA和魔伊。而且除了FHA之外其它两个作品的文本量 ...</blockquote>
+另一方面设定上这个是少女卡莲（伊利雅三人组认证），声音听着年轻活泼一点也正常。
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77979#       发表于 2021-2-12 10:37
+
+
+
+
+话说卡莲看三破模型以为两套宝具，助战用了个发现就一种动画啊，是婴儿彩蛋做起来太费功夫了吗...
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 77980#       发表于 2021-2-12 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50313679&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-02-12 10:36:06</a>
+另一方面设定上这个是少女卡莲（伊利雅三人组认证），声音听着年轻活泼一点也正常。 ...</blockquote>应该不是，从语音来看三破变得活泼是因为爱神的力量强化了的关系，导致她变得有点放飞自我，或者说是本性暴露，可能卡莲原本就是个活泼的孩子，但原作设定里那坑人的体质和成长环境下，再活泼的人都能给你整成自闭
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77981#       发表于 2021-2-12 11:19
+
+
+
+
+话说那个杀敌任务不做是不会保留的是吗？
+
+昨天寻思最后一起做结果今天一看直接没了，这是彻底错过了一颗银苹果是吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77982#       发表于 2021-2-12 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50313996&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-12 11:19</a>
+话说那个杀敌任务不做是不会保留的是吗？
+
+昨天寻思最后一起做结果今天一看直接没了，这是彻底错过了一颗银 ...</blockquote>
+不保留，我本来也是打算一起打的。
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 77983#       发表于 2021-2-12 14:24
+
+
+
+
+第一次的是限时，复刻了就不限，也算是fgo的传统了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77984#       发表于 2021-2-12 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315598&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-12 14:24</a>
+第一次的是限时，复刻了就不限，也算是fgo的传统了</blockquote>
+问题是不复刻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77985#       发表于 2021-2-12 15:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">你们在说哪个本，昨天在外过年都懒得开游戏了
+
+
+
+
+
+
+
+-----
+
+####  ——啧  
+##### 77986#       发表于 2021-2-12 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315993&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-12 15:25</a>
+
+你们在说哪个本，昨天在外过年都懒得开游戏了</blockquote>
+有一个点数本（就跟圣诞一样有个特定的本刷材料），但是每天只能打一次，按杀怪数量的多寡来决定掉落数量，在这个本里面，你杀了一个怪就立刻补充后排的怪上来，不用等待一回合，一共27只怪来着？我忘了，有三回合的回合限制，打多少就掉多少点数
+
+
+
+
+
+
+
+-----
+
+####  katun  
+##### 77987#       发表于 2021-2-12 17:30
+
+
+
+
+一个尽可能多堆些加成的通用解（只换5号位），比堆宝石全打掉收益高不少
+
+
+<img src="https://img.saraba1st.com/forum/202102/12/172929nmlwrz6mqqtwrzoz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>AE522B05-2DE5-432C-BB20-8AAE63C42A9B.jpeg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2021-2-12 17:29 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/12/172944hexhizm5egr6mae5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8E95B074-7AAF-43F5-8710-66D157E35600.jpeg</strong> (763.79 KB, 下载次数: 1)
+
+下载附件
+
+2021-2-12 17:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77988#       发表于 2021-2-12 19:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这本啊，我本来想最后一天。。
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 77989#       发表于 2021-2-12 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50317594&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-12 19:24</a>
+
+这本啊，我本来想最后一天。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第1天的本我就是这么想的 然后第2天发现这本直接消失了 顿时感觉亏了10个亿
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 77990#       发表于 2021-2-13 18:11
+
+
+
+
+我又忘记了。。。囧
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 77991#       发表于 2021-2-13 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50317594&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-12 05:24</a>
+
+这本啊，我本来想最后一天。。</blockquote>
+不然你以为我为啥要特意发帖问一句<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 77992#       发表于 2021-2-13 22:30
+
+
+
+
+今天的本会灭气？第一炮明明看见回收满就没留意了，结果回过头一看变成了80多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 77993#       发表于 2021-2-15 18:52
+
+
+
+
+终于掉了，等明天开了阴间本就合了吧。
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 77994#       发表于 2021-2-15 19:09
+
+
+
+
+我也忘了打昨天的本了草，早上去看了眼一直看的油管UP没发攻略就放那，结果一放就放忘记了...
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77995#       发表于 2021-2-16 16:22
+
+
+
+
+水氏部的巧克力剧情太阴间了...我没注意看选项瞎选的，loop了十分钟才结束......水生院那边也是BE，再联想之前帝王花的双重结局，是不是脚本按捺不住写gal的心情了...
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 77996#       发表于 2021-2-16 17:37
+
+
+
+
+胶囊从者有做成APP在配信的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 77997#       发表于 2021-2-16 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50346266&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-16 16:22</a>
+
+水氏部的巧克力剧情太阴间了...我没注意看选项瞎选的，loop了十分钟才结束......水生院那边也是BE，再联想 ...</blockquote>
+有了伽摩的经验，杀生院那个想也知道该怎么选
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 77998#       发表于 2021-2-16 17:55
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-2-16 17:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50346806&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-16 17:46</a>
+
+有了伽摩的经验，杀生院那个想也知道该怎么选</blockquote>
+我没伽摩<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">平时是下面的选项按起来方便就一直点那个，结果情人节疯狂误入歧途......杀生院的好在最后把礼装给我了，BE就BE吧，有兴趣再去试试别的...
+
+水式部这个简直折磨，我最初以为loop是剧情设定，就任凭它重复了三四次，之后看了下剧情，再重复发现不对劲了，文本一样，就换了选项，于是剧情更新，结果没想到要连选三个上方选项才能通关...怪不得巧克力礼装上的冰淇淋有三个球...
+
+
+
+
+
+
+
+-----
+
+####  炙热之狐  
+##### 77999#       发表于 2021-2-16 18:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀生院本体不就已经有两条路线了吗
+
+水杀无齿就无齿在BE路线剧情比TE长几乎一倍，你把玩的剧情全给省略了然后问我满不满足，不满足就进BE，贱不贱啊
+
+
+
+
+
+
+
+-----
+
+####  yangun22  
+##### 78000#       发表于 2021-2-16 18:50
+
+
+
+
+居然做了婴儿卡莲专用敌人模型，最近挺闲的么<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-06 14:31** 
+> ## **本文件最后更新于2021-02-18 01:43** 
 
 
 
@@ -10052,4 +10052,1935 @@ sc杂谈一般都比正片有趣<img src="https://static.saraba1st.com/image/smi
 
 
 
-                               
+
+
+-----
+
+####  离魂仙  
+##### 5043#       发表于 2021-2-7 23:56
+
+
+
+
+啊？今儿不是周日来着？
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 5044#       发表于 2021-2-8 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50198518&amp;ptid=1947500" target="_blank">乌鸦绅士 发表于 2021-1-31 15:43</a>
+
+提到塔科夫了知道自己玩了会沉迷 所以不玩吗很感兴趣的游戏有很多，因为大人的原因……再加 ...</blockquote>
+塔科夫狮子明确提过因为大人的原因不能播了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 乌鸦绅士| + 1|情报感谢 怪不得狮子没玩|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5045#       发表于 2021-2-8 11:48
+
+
+
+
+所以最近不播是一年前的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5046#       发表于 2021-2-8 15:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然一声不吭失踪2天，是不是大的要来了
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5047#       发表于 2021-2-8 16:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5048#       发表于 2021-2-8 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5049#       发表于 2021-2-8 16:42
+
+
+
+
+日子有点巧，还谜语起来了
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 5050#       发表于 2021-2-8 16:46
+
+
+
+
+我玩失踪就是要先失踪两天再发推，这夸味太对了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5051#       发表于 2021-2-8 17:00
+
+
+
+
+结果还是亲戚忌日以外的原因吗
+
+虽然心里大概有个七七八八的底
+
+不过都是脑补发散说了也是白说
+
+休息休息也好她该给自己放个假
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5052#       发表于 2021-2-8 18:55
+
+
+
+
+反正近期是看不到直播了感觉，217必须复活<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5053#       发表于 2021-2-8 19:17
+
+
+
+
+说心情低落的话，感觉像是跟人闹矛盾了
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5054#       发表于 2021-2-8 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">所以说这鸟人老整些好让人阅读理解的事就很让人烦躁
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5055#       发表于 2021-2-9 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">大人的原因
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5056#       发表于 2021-2-11 23:07
+
+
+
+
+推动了，多了个关注
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5057#       发表于 2021-2-11 23:28
+
+
+
+
+这时候关注orangestar<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5058#       发表于 2021-2-11 23:48
+
+
+
+
+橙星好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5059#       发表于 2021-2-12 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新年快乐新年快乐
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5060#       发表于 2021-2-12 00:22
+
+
+
+ 本帖最后由 离魂仙 于 2021-2-12 00:24 编辑 
+
+听说这家伙跑东京录bloom,去了？
+
+两年来第一次没有夸宝的中国新年<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">也好，省的尴尬了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5061#       发表于 2021-2-12 01:56
+
+
+
+ 本帖最后由 面具13 于 2021-2-12 01:57 编辑 
+
+楼友新年好呀
+
+
+马自立说夸宝一起去参加舞蹈课程了。[https://youtu.be/dxjyNAMcDQM?t=348](https://youtu.be/dxjyNAMcDQM?t=348)
+
+吃便当的时候被怪蜀黍形态的马自立惊到筷子都掉了，然后换了一个不一样的鸭舌帽（挡视线用），因为马自立带了美瞳所以后面可以稍微对一下视线，稍微多聊了几句。
+
+顺便一个信息是练舞的时长一次最短是2小时，长的时候有6小时。
+
+
+另外一个是船长和阿火的联动里提了两句，也是舞蹈课的时候，被阿火摸了脚，mio香开了头然后阿火附议像夸宝讨mc的薪，说再等等（毕竟还没完成外装和调试）[https://youtu.be/b2O8RqGXxwM?t=254](https://youtu.be/b2O8RqGXxwM?t=254)，和[https://youtu.be/b2O8RqGXxwM?t=1801](https://youtu.be/b2O8RqGXxwM?t=1801)
+
+
+总结一下就是，人没事，就是没心思播。只要别跟cover的去cn化有关系就行，希望只是单纯的觉得情绪状态太低不适合直播。要是今天复播的话，除了常规复播祝贺还能多拿点压岁钱。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Medling| + 1||
+| einne| + 1||
+| 星の守| + 1||
+| mengnvpu| + 1|好评加鹅|
+| 乌鸦绅士| + 1||
+| 499| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  愛さ実  
+##### 5062#       发表于 2021-2-13 01:57
+
+
+
+
+感谢楼友repo
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5063#       发表于 2021-2-13 11:44
+
+
+
+
+动了，转了几个推<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5064#       发表于 2021-2-13 11:46
+
+
+
+
+转了几个推，至少明晚的歌回大概是有保障了。
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 5065#       发表于 2021-2-13 13:52
+
+
+
+
+动了就好
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5066#       发表于 2021-2-13 20:19
+
+
+
+
+要来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5067#       发表于 2021-2-13 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">第五次洗粉，完成了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5068#       发表于 2021-2-14 17:43
+
+
+
+
+小动画里的声音违和感好大
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5069#       发表于 2021-2-14 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你倒是认真亲啊
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5070#       发表于 2021-2-14 22:16
+
+
+
+
+就当放年假了，小别胜新婚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5071#       发表于 2021-2-14 22:40
+
+
+
+ 本帖最后由 面具13 于 2021-2-14 22:56 编辑 
+
+小动画配音就你的感觉最奇怪了，完全听不出是凑阿夸。
+
+草，鸽了一年的语音来了。骗会员走起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5072#       发表于 2021-2-14 22:57
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-2-14 23:18 编辑 
+
+不报任何希望的卫星竟然落地了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5073#       发表于 2021-2-14 22:59
+
+
+
+
+当你觉得我鸽了的时候我没有鸽，这亦是一种鸽
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5074#       发表于 2021-2-14 23:13
+
+
+
+
+刚才是不是又说谜语了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5075#       发表于 2021-2-14 23:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">一边被holosb操作弄的心情消沉，一边还进京去上舞蹈课，真是割裂呢
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5076#       发表于 2021-2-14 23:53
+
+
+
+
+听到她说看到推上粉丝因为看不到直播又不知道什么时候会复播而感到撒比西时开心得眼泪都流下来的时候，我感觉我的拳头硬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5077#       发表于 2021-2-14 23:54
+
+
+
+
+歌会还是很满足的。谜语总结一句话就是，生活总有不如意，但还是得过下去，小小洋葱也只能随波逐流啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5078#       发表于 2021-2-15 00:02
+
+
+
+
+至少会说自己难受了，比全无音讯要好一点
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5079#       发表于 2021-2-15 00:24
+
+
+
+
+情人节音声女仆要素拉满甜到掉牙了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5080#       发表于 2021-2-15 08:05
+
+
+
+
+居然不是一年前的沙雕剧情音声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+亮点就是那句傻笑了吧
+
+
+
+
+
+
+
+-----
+
+####  zpy393  
+##### 5081#       发表于 2021-2-15 08:26
+
+
+
+
+全程营业声线加直播中从来不会出现的狗秀金毫无代入感，仿佛再看爬爬的ooc同人图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5082#       发表于 2021-2-16 14:42
+
+
+
+
+“肚子饿了使不出力气”
+
+在推文下面抽了几个人回复，主要是颜文字（午饭是炒饭）。阿库碳今天也很努力的和粉丝互动了。えらい！
+
+所以今天也不播，对吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5083#       发表于 2021-2-16 16:05
+
+
+
+ 本帖最后由 Maonpuyo 于 2021-2-16 17:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">被打脸了，深夜家用3d怕是提前一天在公司住下了，不愧是爱豆中的奋斗逼，能把这份心用在直播上吗
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5084#       发表于 2021-2-16 16:45
+
+
+
+
+养老是这样的，你指望养老的人天天播么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5085#       发表于 2021-2-16 17:58
+
+
+
+ 本帖最后由 面具13 于 2021-2-16 18:16 编辑 
+
+被打脸了，11点唱歌家用3d卖票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按上次尿性，确实在本社可能性大。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5086#       发表于 2021-2-16 18:11
+
+
+
+
+多来点打脸挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5087#       发表于 2021-2-16 23:25
+
+
+
+ 本帖最后由 面具13 于 2021-2-16 23:55 编辑 
+
+为啥突然想搞过气的阿宅房间展览企划，不怕anti出来跳脸吗
+
+杂谈的几个话题基本上全被别的同事讲过了吧
+
+
+新cap，被讲过了。
+
+夏色まつりさん<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 无敌距离感。美瞳对视，原来是偷瞄被抓包，临时想出来的谎言。难道是因为马自立的不自觉身体接触？因为是半个文盲说了不雅的词语。
+
+A酱的藏头诗。
+
+明天live的看点，是你现在的谜语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+大脸猫给新的音源了，还挺会撩的嘛。人傻了，这是发给诗音的版本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">但是是新录的
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5088#       发表于 2021-2-16 23:41
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-2-16 23:58 编辑 
+
+我现在才想起自己从前是狂人A的贴贴粉<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5089#       发表于 2021-2-16 23:55
+
+
+
+ 本帖最后由 离魂仙 于 2021-2-17 00:00 编辑 
+
+当面NTR，我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+您这剪辑质量也太次了
+舆论操纵大失败
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5090#       发表于 2021-2-16 23:57
+
+
+
+ 本帖最后由 面具13 于 2021-2-16 23:58 编辑 
+
+来了来了，要把音源替换了。这就是新式音源NTR吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 5091#       发表于 2021-2-17 00:02
+
+
+
+
+编辑手法还蛮熟练的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+以前肯定没少干吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5092#       发表于 2021-2-17 00:06
+
+
+
+
+“赢了”<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/014.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5093#       发表于 2021-2-17 00:07
+
+
+
+
+好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5094#       发表于 2021-2-17 00:08
+
+
+
+
+完美，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，天才脚本家夸宝
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5095#       发表于 2021-2-17 00:08
+
+
+
+
+结尾的偷袭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活整的不错
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5096#       发表于 2021-2-17 00:08
+
+
+
+
+耻辱下播 完美结局<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5097#       发表于 2021-2-17 00:09
+
+
+
+
+难得的整活，不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5098#       发表于 2021-2-17 18:17
+
+
+
+
+近景特写原地踏步<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该给夸宝剪个peko.gif级别的传世经典了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 5099#       发表于 2021-2-17 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么还是上次那个水平，麻了
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5100#       发表于 2021-2-17 18:34
+
+
+
+
+中间那段 阿火→萝卜 的特写僵硬摇摆已经可以剪GIF了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5101#       发表于 2021-2-17 18:45
+
+
+
+
+这歌算不算外交事故
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5102#       发表于 2021-2-17 18:46
+
+
+
+ 本帖最后由 mengnvpu 于 2021-2-17 18:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">怎么有这首
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这狐坦给我整吐了
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5103#       发表于 2021-2-17 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 5104#       发表于 2021-2-17 18:50
+
+
+
+
+¿
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5105#       发表于 2021-2-17 18:57
+
+
+
+
+有不是也很正常，又不会有人和尼哥一样当“战歌”
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5106#       发表于 2021-2-17 18:57
+
+
+
+
+▼Vocal　湊あくあ 
+
+▼作詞・作曲・編曲　Neko Hacker
+
+▼Recording &amp; Mixing Engineer　NNZN
+
+▼Movie　LAIN-0v0
+
+▼Illustration　绊、いど、耀_unripe、虚蒔times
+
+
+本動画は、『League of Legends　2020 World Championship』応援ソングです。
+
+This video is a cheering song for "League of Legends 2020 World Championship".
+
+
+企画：bilibili
+
+
+呵呵
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5107#       发表于 2021-2-17 19:10
+
+
+
+
+b企划也没写明版权具体归属，cover这边旗下艺人有个演唱权没特别约定的话很正常。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 5108#       发表于 2021-2-17 19:12
+
+
+
+
+？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5109#       发表于 2021-2-17 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50356592&amp;ptid=1947500" target="_blank">空集 发表于 2021-2-17 19:10</a>
+
+b企划也没写明版权具体归属，cover这边旗下艺人有个演唱权没特别约定的话很正常。
+
+
+—— 来自 Xiaomi Mi 10 ...</blockquote>
+抛弃中国市场，切割中国元素，引导粉丝甩锅攻击中国人
+
+然后现在有脸穿中国送的L2D唱中国给做的歌是吧？
+
+FTW后面接的狐婊CM在那喊你妈FTW呢 你配吗
+
+傻逼cover 我**ma
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 8战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|啊这|
+| 米酒马路| + 1|思路广|
+| 星の守| + 1||
+| 若风之景| + 1|……|
+| 蜜瓜包| + 1|不必|
+| UnhappyTails| + 1|回血|
+| yuezhi| + 1||
+| opersuper|-1|看着感觉真可怜，哈哈哈|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 5110#       发表于 2021-2-17 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50356640&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-2-17 19:16</a>
+
+抛弃中国市场，切割中国元素，引导粉丝甩锅攻击中国人
+
+然后现在有脸穿中国送的L2D唱中国给做的歌是吧？
+
+F ...</blockquote>
+说的好像阿夸不是hololive的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 5111#       发表于 2021-2-17 19:19
+
+
+
+
+“中国送的”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 5112#       发表于 2021-2-17 19:21
+
+
+
+<blockquote>抛弃中国市场</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个 是我们中国人赶出去的
+
+不要修改历史
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5113#       发表于 2021-2-17 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50356640&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-2-17 19:16</a>
+
+抛弃中国市场，切割中国元素，引导粉丝甩锅攻击中国人
+
+然后现在有脸穿中国送的L2D唱中国给做的歌是吧？
+
+F ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">bloom上唱FTW，这选曲谁选的啊，太巨魔了，不是么
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5114#       发表于 2021-2-17 19:25
+
+
+
+
+原来4期妹妹们都穿上团服了啊，果然挺好看的这身设计，百搭，也是夸宝平衡性最好的一套衣服
+
+
+PS：杏人朋友们怎么高强度刷夸楼的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 5115#       发表于 2021-2-17 19:25
+
+
+
+
+好家伙，真的好家伙，你cover真有脸现在在BOOM演唱会上放For the win出来唱。Boom拉跨不算什么，这么不要脸我是真的没想到​
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5116#       发表于 2021-2-17 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50356693&amp;ptid=1947500" target="_blank">屑屑代沟尼亚 发表于 2021-2-17 19:21</a>
+
+那个 是我们中国人赶出去的
+
+不要修改历史</blockquote>
+呵呵 10.03就已经开会大撤退运营通知字幕组解除合作了
+
+就是liver说轮流开会的那天
+
+国内大规模抵制删稿清空官号是10.18 fk u之后了
+
+到底谁在修改历史
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 66367749| + 1|早有预谋了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5117#       发表于 2021-2-17 19:28
+
+
+
+
+ftw是不是凑阿夸的歌-是
+
+凑阿夸是不是hololive的一员-是
+
+bloom是不是hololive的live-是
+
+不爽就去起诉，爱你们哟，crew<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 5118#       发表于 2021-2-17 19:32
+
+
+
+ 本帖最后由 nowaki 于 2021-2-17 20:09 编辑 
+
+阿夸的号又没被封，打sc让她给你b限不就完事了。
+
+想让她唱几回ftw都行，takeover不知道能不能唱，问题不是阿夸愿不愿意来么
+
+这么喜欢扣鹅那我再说一点，你说的那次轮流开会后，阿夸说的不是像春游一样开心嘛。
+
+而且桐生可可组，9月就开始删稿件了，cover还看不出来能不能挽回么？
+
+不过夸楼你们也可以锁来呢
+
+
+我看凑阿夸四首歌不是solo就是c位啊，cover今年对凑阿夸及其粉丝到底哪里不好了啊，是马车杯没禁止星街彗星上场吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 19战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GToojer| + 1|天下苦X久矣|
+| fangjun96| + 1|野兔子回你们兔楼吧，没必要|
+| 米酒马路|-1|好评加鹅|
+| Unlimited290| + 1|crew是不是傻逼啊，支持正义野兔子，嘻嘻 k.|
+| Map-2| + 1|好评加鹅|
+| 某穆克拉| + 1|好评加鹅|
+| 过不了审| + 1|嚯↑↓|
+| Zhudhh| + 1|nowaki滚回QQ群|
+| Mr.shelter| + 1|平衡|
+| yuezhi|-1|去别处发吧|
+| 99726182@qq.com|-1|思路广|
+| qesto| + 1|支持披露|
+| gogomw| + 1|什么野怪,速速锁4天|
+| deadinside666|-1|乐了|
+| 空集| + 1|扣分坏文明|
+| 66367749|-1|真可怜|
+| UnhappyTails| + 1|回血|
+| OldGlory| + 1|没必要|
+| 星の守|-1|野兔子跳你🐎呢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 5119#       发表于 2021-2-17 19:44
+
+
+
+
+愈发的觉得大家都很可怜呢
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5120#       发表于 2021-2-17 19:49
+
+
+
+
+好家伙，听了半天同事们唱K，突然意识到好像没夸宝什么事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+刚打完↑ 就调色盘4回放送，我都会跳了，我跟你说
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5121#       发表于 2021-2-17 19:49
+
+
+
+
+嚯，今儿檩子小姐的状态真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5122#       发表于 2021-2-17 19:49
+
+
+
+
+第二首solo了  这不是待遇挺好的 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5123#       发表于 2021-2-17 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50356961&amp;ptid=1947500" target="_blank">空集 发表于 2021-2-17 19:49</a>
+第二首solo了  这不是待遇挺好的 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+听lga的老哥说，还以为阿夸被霸凌的都上不了live了呢！现在看来还是有不少歌......不对！这一定是压榨！是fh企业对爱华liver的压榨！！！
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5124#       发表于 2021-2-17 19:58
+
+
+
+
+感觉这调色盘唱的和2nd那一遍好像啊
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5125#       发表于 2021-2-17 19:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这也变成尾宝的舞台了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5126#       发表于 2021-2-17 20:05
+
+
+
+
+九人集体曲 c位哎 没你们最讨厌的狐皇 这总开心了吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5127#       发表于 2021-2-17 20:05
+
+
+
+
+mioママ在播片里还编弹幕，好敬业啊（
+
+
+这口水歌还行，能听第二遍
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5128#       发表于 2021-2-17 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50357108&amp;ptid=1947500" target="_blank">空集 发表于 2021-2-17 20:05</a>
+
+九人集体曲 c位哎 没你们最讨厌的狐皇 这总开心了吧
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Ne ...</blockquote>
+啊？等会儿还有和白姐姐船姐姐的after talk啊，树宝不看，你也不看了？
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 5129#       发表于 2021-2-17 20:07
+
+
+
+
+夸宝可是为了跳舞直播都停了，这么上心c位很正常<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5130#       发表于 2021-2-17 20:10
+
+
+
+
+最近没看别人外面发生什么事了，怎么感觉有受刺激的冲进来了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 5131#       发表于 2021-2-17 20:11
+
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-2-17 20:14 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5132#       发表于 2021-2-17 20:13
+
+
+
+
+给Bloom加上逗号的夸宝发出宣言：俺们火剌莱芜还要继续当偶像
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">好耶，2021要努力加把劲，争取洗掉厄介粉
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5133#       发表于 2021-2-17 20:13
+
+
+
+ 本帖最后由 星の守 于 2021-2-17 20:23 编辑 
+
+尾宝就算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 回复：我可从没到别的专楼跳人脸过啊，可别吧别人的帐算在我身上哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 1|彼此彼此|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 5134#       发表于 2021-2-17 20:15
+
+
+
+
+咬舌头挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5135#       发表于 2021-2-17 20:23
+
+
+
+
+不是，到底是什么
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5136#       发表于 2021-2-17 20:24
+
+
+
+
+mv
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5137#       发表于 2021-2-17 20:25
+
+
+
+ 本帖最后由 离魂仙 于 2021-2-17 20:27 编辑 
+
+我说怎么有即视感，这画饼方式，不正是梦想夏乡嘛。不对，是幻想万华镜
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5138#       发表于 2021-2-17 20:33
+
+
+
+
+正好幻想万华镜也是有比木口严重很多倍的fh事件的 联想合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5139#       发表于 2021-2-17 21:43
+
+
+
+ 本帖最后由 离魂仙 于 2021-2-17 21:44 编辑 
+
+<img src="http://tva2.sinaimg.cn/large/622734bdly1gnquxuomxpj209707k0ud.jpg" referrerpolicy="no-referrer">
+
+咻咻咻看得真细，毛估估至少50个盘子，15公斤了，深藏不露啊
+
+
+
+夸这一卡是[中山直哉](https://twitter.com/naota0048)画的，怪不得和千花舞一个味道，不错啊
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5140#       发表于 2021-2-17 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kilty  
+##### 5141#       发表于 2021-2-18 02:00
+
+
+
+ 本帖最后由 kilty 于 2021-2-18 02:01 编辑 
+
+怎么2021年了还是杏奴版本啊，小半年没瓜吃还是这些东西
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 5142#       发表于 2021-2-18 04:56
+
+
+
+
+还以为出啥事了呢这么多楼<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            

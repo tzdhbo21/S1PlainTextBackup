@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-07 15:37** 
+> ## **本文件最后更新于2021-02-18 01:27** 
 
 
 
@@ -9536,15 +9536,7 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 ####  飞姆托  
 ##### 11024#       发表于 2021-1-23 22:43
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">该哭了该哭了，傻紫，我的傻紫
-
-[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11923,4 +11915,978 @@ https://mobile.twitter.com/bxobalice/status/1341388781958561792
 
 
 
-                           
+
+
+-----
+
+####  寺川愛美  
+##### 11165#       发表于 2021-2-8 03:09
+
+
+
+
+銀牌跑步機，笑死
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11166#       发表于 2021-2-8 07:40
+
+
+
+
+草 这时长惊到了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11167#       发表于 2021-2-8 07:57
+
+
+
+
+日本人日常搬家<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11168#       发表于 2021-2-8 08:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">昨天居然播了6小时
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 11169#       发表于 2021-2-8 09:03
+
+
+
+
+其实不是游戏问题，绫总的声音是没卡顿的。
+
+应该是obs设置问题，而且绫总的码率一向是偏低的。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11170#       发表于 2021-2-8 09:17
+
+
+
+
+补录播ing<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 11171#       发表于 2021-2-8 10:04
+
+
+
+[https://www.bilibili.com/video/BV1WK4y1p7jr](https://www.bilibili.com/video/BV1WK4y1p7jr)
+
+可爱
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11172#       发表于 2021-2-8 10:30
+
+
+
+
+然而霓虹人都已经打了一大堆的pc代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说是要买的话得过几天搬家之后再看 不知道是不是她自己也觉得没必要
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11173#       发表于 2021-2-8 22:53
+
+
+
+
+总是奇怪的话题能聊的这么起劲<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11174#       发表于 2021-2-8 23:05
+
+
+
+
+这大保健谁介绍去的啊 第一次做就从头到脚做了全套怎么听着像被宰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11175#       发表于 2021-2-8 23:06
+
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-2-8 23:11 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11176#       发表于 2021-2-8 23:06
+
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-2-8 23:11 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11177#       发表于 2021-2-9 17:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看cold楼绫总貌似又混到一首新曲？
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11178#       发表于 2021-2-9 17:28
+
+
+
+
+昨天杂谈还尬吹了一下木口的大家越来越爱抖露step了 只能说她比起那几个小学生踏步来讲确实有点天赋才能这么感觉良好吧<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11179#       发表于 2021-2-9 17:59
+
+
+
+
+这个明利酒的恰饭也太舒服了 可惜一开始的联动没找上她
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11180#       发表于 2021-2-9 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一次见绫总那么积极转发工商
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11181#       发表于 2021-2-9 19:02
+
+
+
+ 本帖最后由 cctvyt1 于 2021-2-9 19:04 编辑 
+
+不会真成固定组合了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+改：萝卜把绫总名字拿掉了
+
+<img src="https://img.saraba1st.com/forum/202102/09/190104fclkjcc0ryrlay7d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>擷取.JPG</strong> (64.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-9 19:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11182#       发表于 2021-2-10 12:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就硬混
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11183#       发表于 2021-2-10 20:52
+
+
+
+
+有段时间没看V了，楼里的大家都没变，小肥绫也没变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11184#       发表于 2021-2-10 22:02
+
+
+
+
+魂号上这句かわよ的回复就过分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11185#       发表于 2021-2-10 22:03
+
+
+
+
+你有段时间没看结果回来就看这么劲爆的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11186#       发表于 2021-2-10 22:30
+
+
+
+
+嗯要说的话kawayo是本来就有的说法 正好跟余同音而已 而已...<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yujincheng08  
+##### 11187#         楼主| 发表于 2021-2-11 01:27
+
+
+
+
+酸了酸了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11188#       发表于 2021-2-11 21:27
+
+
+
+
+等一个来自拆腻子的长文<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11189#       发表于 2021-2-11 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海外女粉
+
+
+
+
+
+
+
+-----
+
+####  collasong  
+##### 11190#       发表于 2021-2-12 01:44
+
+
+
+
+已经扛不住了（
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 11191#       发表于 2021-2-12 16:37
+
+
+
+<img src="https://p.sda1.dev/1/8344b52b691ef0210210e518b15a0033/IMG_CMP_177719573.jpeg" referrerpolicy="no-referrer">
+年年有余！
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 百鬼绫目| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11192#       发表于 2021-2-12 19:09
+
+
+
+
+补个链接https://www.youtube.com/watch?v=0nBTiAt2kbc&amp;t=0s
+https://b23.tv/K85BnX
+她真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11193#       发表于 2021-2-12 19:47
+
+
+
+
+真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nitro901  
+##### 11194#       发表于 2021-2-13 02:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">年年有余
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11195#       发表于 2021-2-13 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">年年有余
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11196#       发表于 2021-2-13 19:07
+
+
+
+
+这么尬的问答姐姐你能这么高分 不会真把这些流水线的屑曲当宝了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11197#       发表于 2021-2-14 21:39
+
+
+
+
+大伙都出来直播了宁就画个饼 肯定是玩的太累了吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11198#       发表于 2021-2-14 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">有饼吃就不错了
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11199#       发表于 2021-2-14 22:44
+
+
+
+
+和船长聊了啥啊
+
+离老阿姨得手还剩微妙的几步的样子🤔
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11200#       发表于 2021-2-15 13:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百鬼众早就学会了画饼充饥
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11201#       发表于 2021-2-15 16:52
+
+
+
+
+好家伙 明利联动又没捞到<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11202#       发表于 2021-2-15 22:53
+
+
+
+
+怎么海贼团都唱起来了
+
+进展比我想象的要快<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11203#       发表于 2021-2-15 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙，还唱起老阿姨的歌来了。
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11204#       发表于 2021-2-15 22:55
+
+
+
+
+唱得很熟练嘛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+今天歌回同接有点高
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11205#       发表于 2021-2-15 22:56
+
+
+
+
+别尬黑 是你绫总先a上去的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11206#       发表于 2021-2-15 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">姐姐 别念了 别念了 
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11207#       发表于 2021-2-15 23:39
+
+
+
+
+姐姐你应该勇一点去找一个行一点的后期<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11208#       发表于 2021-2-16 00:29
+
+
+
+
+她不说这评论栏的事我都快忘了润姨的事了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11209#       发表于 2021-2-16 00:54
+
+
+
+
+看呆了 白姨那的禁止事项只用英文写了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11210#       发表于 2021-2-17 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">这段唐突的动画是啥 游戏吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stedckk| + 1|是MV|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11211#       发表于 2021-2-17 20:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">余帅气的拔刀动画片段
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11212#       发表于 2021-2-17 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实被绫总的拔刀帅到了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11213#       发表于 2021-2-17 20:34
+
+
+
+
+ふざけるな<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">到头来还是啥资源都没捞到  c位还是白姨在自己主场让出来的
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11214#       发表于 2021-2-17 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">吃的是草，但是也没被挤奶 
+
+绫总本身就是条懒狗 你就放平心态吧
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11215#       发表于 2021-2-17 20:56
+
+
+
+
+同样九首上三首的佐藤希和芙蕾雅都进了最后的首发曲 心态崩了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11216#       发表于 2021-2-17 22:06
+
+
+
+ 本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
+
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_N8Rlr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+mv.gif
+(462.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-17 22:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/17/222650wr7j7zd7dzdjadjl.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stmule| + 1||
+
+
+
+查看全部评分
+
+
+
+
+                          
