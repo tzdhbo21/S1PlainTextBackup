@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 15:43** 
+> ## **本文件最后更新于2021-02-18 17:02** 
 
 
 
@@ -3260,4 +3260,719 @@ v圈加速了，这是好事？坏事？  乐观主义者，悲观主义者，
 
 
 
-                                           
+
+
+-----
+
+####  EnbuRiAs  
+##### 1688#       发表于 2021-2-18 23:45
+
+
+
+
+怎么到处都在打仗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 哈人
+
+
+
+
+
+
+
+-----
+
+####  躺赢局局长CJH  
+##### 1689#       发表于 2021-2-18 23:51
+
+
+
+
+刚引流过来看v没多久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话，我有丶害怕了
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 1690#       发表于 2021-2-18 23:51
+
+
+
+
+没懂，不是然然的梗也是嘉心糖的梗，然然自己不用也不代表外人就可以随便用吧
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1691#       发表于 2021-2-18 23:51
+
+
+
+
+我看你们是不想让我睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一整晚高强度整活
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1692#       发表于 2021-2-18 23:52
+
+
+
+
+随手记一下小组的事情，ASOUL太精彩了。
+
+豆瓣组长位置从张保护(原组长)传给了8字母最后给了摩宝，原组员不服空降组长，准备流浪豆瓣。同时摩宝在Asoul吧的发言被挂到了组内，加速了新小组建立。
+
+在新小组建立之后，有原组组员在新组反应被踢出了原组，随后摩宝在Asoul吧挂出后台记录，证明是张保护在无差别踢人。
+
+现在新组有人挂出和张保护的私信。张保护觉得摩宝不会交出组长位置，所以手动清空小组。
+
+
+鲁路修能不能选上管人粉丝最喜爱的人物？
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 1693#       发表于 2021-2-18 23:53
+
+
+
+
+看不明白豆友饭圈这一套，不过看着比全肯定mmr推粉头、眼熟热评好玩，持续关注一下<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 1694#       发表于 2021-2-18 23:54
+
+
+
+ 本帖最后由 Umichika 于 2021-2-18 23:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了，历史上泥哥有什么集体操作能比得上这个的？又当又立还蠢还内斗
+
+印象里类似的事情基本都是贴吧出来的
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 1695#       发表于 2021-2-19 00:04
+
+
+
+
+全网大乱斗，乐华这波流量赢麻了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1696#       发表于 2021-2-19 00:05
+
+
+
+
+现在是嘉心糖和原生豆友受伤的世界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 1697#       发表于 2021-2-19 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371596&amp;ptid=1974517" target="_blank">躺赢局局长CJH 发表于 2021-02-18 23:51:27</a>
+刚引流过来看v没多久 v2.4.4.1</blockquote>饭圈味挺好，这是我盼望好久的洗粉操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+把那群魔怔人赶走，安心当个mmr推v不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 1698#       发表于 2021-2-19 00:09
+
+
+
+
+这两三个小时，我一直在纠结自己是不是个mmr观众，是不是该取关跑路。现在得出答案了，取个寄吧关啊，v圈加速的好活不是乐华字节这样的大手怎么可能看得到呢？多亏这一茬，我理解了自己之前唯恐避之不及的饭圈女孩，也与自己事实上是个饭圈男孩这一身份达成了和解，大家一样是韭菜.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+现在只想坐等周六团播群魔乱舞，更想看这波是asoul这个企划先半途夭折还是v圈真的要加速<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 1699#       发表于 2021-2-19 00:09
+
+
+
+
+越来越看不懂了，总觉得你们在重新定义饭圈，我怎么没在别的饭圈见过这些……
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1700#       发表于 2021-2-19 00:12
+
+
+
+
+我一个牌子没领，没打钱，没发过评论和弹幕，我应该是纯观众吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再怎么搞也恶心不到我
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 1701#       发表于 2021-2-19 00:14
+
+
+
+
+Asoul粉丝社群提供的乐子已经超过了Asoul原企划提供的乐子
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1702#       发表于 2021-2-19 00:14
+
+
+
+
+这么有趣的戏vr都打不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1703#       发表于 2021-2-19 00:20
+
+
+
+
+8u们权利欲也太强了吧，这还怎么骂泥哥
+
+
+
+
+
+
+
+-----
+
+####  nanami贴贴  
+##### 1704#       发表于 2021-2-19 00:20
+
+
+
+
+不得不说搞大新闻上面饭圈完爆下三路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+asoul你好有本领
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1705#       发表于 2021-2-19 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371793&amp;ptid=1974517" target="_blank">回旋球忧郁 发表于 2021-2-19 00:09</a>
+
+越来越看不懂了，总觉得你们在重新定义饭圈，我怎么没在别的饭圈见过这些…… ...</blockquote>
+你是正常的。管人观众的魔怔味太冲，小组里指导的职粉(?)之前都因为看不懂管人粉而写出来跑路宣言。
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 1706#       发表于 2021-2-19 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371877&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-19 00:20</a>
+8u们权利欲也太强了吧，这还怎么骂泥哥</blockquote>
+摩尔庄园是战姬吧的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">昨天还来v8搬救兵来着
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1707#       发表于 2021-2-19 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371900&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-2-19 00:22</a>
+
+摩尔庄园是战姬吧的昨天还来v8搬救兵来着</blockquote>
+我知道，v8姬吧都是贴吧嘛，摩宝还是v8小吧
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1708#       发表于 2021-2-19 00:28
+
+
+
+ 本帖最后由 yuzu98k 于 2021-2-19 00:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又来了
+
+然然账号上的生日被改到了4.11，联动小年回生日出单曲。你们发散吧，我去当mmr了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl 其他4人账号上都看不到生日，不排除运营在报复粉丝
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 1709#       发表于 2021-2-19 00:28
+
+
+
+
+A骚有
+主播萌萌和粉丝缝缝的矛盾
+v圈原生主播与A骚这个后来企划的矛盾
+运营和粉丝的矛盾
+8u泥哥mmr的矛盾
+贴吧男孩与豆瓣女粉的矛盾
+男孩无法直面已经柔情化的自己的矛盾
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 1710#       发表于 2021-2-19 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371953&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-19 00:28</a>
+怎么又来了
+
+然然账号上的生日被改到了4.11，联动小年回生日出单曲。你们发散吧，我去当mmr了 ...</blockquote>
+自我介绍没改啊。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 1711#       发表于 2021-2-19 00:30
+
+
+
+ 本帖最后由 齐桓公 于 2021-2-19 00:55 编辑 
+
+补充一下豆瓣asoul组的政变细节：
+
+①原组长张保护无意管理豆瓣asoul组，擅自将组长传给8字母
+
+
+②然后8字母自己本身不想太出名或者不想当粉头（之前有过相关表态），不想当组长，然后就在没有告知张保护和其他组员的情况下，又将组长位置传给摩宝（歌姬吧的吧主，因为歌姬吧管理得较好，有一定声誉）
+
+
+③豆瓣组员反对空降的摩宝当组长（摩宝之前在豆瓣很少活动），然后摩宝在豆瓣发了篇“各论坛粉丝平等”的帖子，被组员认为是摩宝不想交出组长的权力
+
+
+④张保护得知摩宝成了组长，在没有和摩宝沟通的情况下，把组里所有的组员都踢了出去，打算架空摩宝的组长权力
+
+
+总结：这是一场以张保护，8字母，摩宝，为始作俑者的，因为领导层之间缺乏沟通导致的闹剧
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 是谁的书画| + 1|八字母给爷死|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 1712#       发表于 2021-2-19 00:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不把运营冲烂？
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1713#       发表于 2021-2-19 00:34
+
+
+
+
+生日都能改 什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 1714#       发表于 2021-2-19 00:34
+
+
+
+
+为什么你们觉得提纯是件很轻松的事啊。。
+引流来的不谈，魔怔v8蛆真被运营搞破防了可不是跑路这么简单，怕不是无休止的报复<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+还是当乐子人最安全<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1715#       发表于 2021-2-19 00:36
+
+
+
+
+bb空间上的生日多半是运营手滑吧。
+
+我没有关注过账号资料上是不是一直有这个4.11。不过然然生日3.7单曲记忆修改不了的
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 1716#       发表于 2021-2-19 00:36
+
+
+
+
+我就等着周六团播看戏了<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1717#       发表于 2021-2-19 00:37
+
+
+
+
+明天不给个交代很难收场
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1718#       发表于 2021-2-19 00:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能有什么戏。嘉心糖flbk，被顶碗人和贝极星拖出团播直播间
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 1719#       发表于 2021-2-19 00:38
+
+
+
+
+得知单曲完成时间延期，运营把然然塞回肚子里又再重生一遍
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1720#       发表于 2021-2-19 00:39
+
+
+
+
+复刻一次宅舞20连跟小作文？还有这种好事？我当场失忆
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 1721#       发表于 2021-2-19 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">吧里还有人口嗨说团播要引赵弹炸直播间的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 1722#       发表于 2021-2-19 00:42
+
+
+
+
+只求直播间可以刷一下：
+
+1、给王一博换摄影师
+
+2、给朱正廷换经纪人
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 1723#       发表于 2021-2-19 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">赵弹有那么好引的话 早就被各种魔怔傻狗应用在各种地方了 
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1724#       发表于 2021-2-19 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372117&amp;ptid=1974517" target="_blank">Badwoman 发表于 2021-2-19 00:47</a>
+
+赵弹有那么好引的话 早就被各种魔怔傻狗应用在各种地方了</blockquote>
+前不久还在炸呢，男女炸弹人互扔，不敢钦点了，第二个账号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1725#       发表于 2021-2-19 00:55
+
+
+
+
+ASOUL不是还有第一个原罪吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">爆破应该是最不可能的结局吧
+
+
+
+
+
+
+
+-----
+
+####  cheerioTab  
+##### 1726#       发表于 2021-2-19 01:00
+
+
+
+
+外面群魔乱舞，不过我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          
