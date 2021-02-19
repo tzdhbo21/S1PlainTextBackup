@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 04:26** 
+> ## **本文件最后更新于2021-02-19 03:18** 
 
 
 
@@ -2622,4 +2622,402 @@ intel都不敢吹比11代ipc强30%
 
 
 
-                                             
+
+
+-----
+
+####  bestword  
+##### 133#       发表于 2021-2-18 22:38
+
+
+
+
+那么打游戏现在该买九代还是十代呢？或者再等等桌面十一代？
+
+—— 来自 Xiaomi MI PAD 4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  hgfdsa  
+##### 134#       发表于 2021-2-18 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50341979&amp;ptid=1987815" target="_blank">startraveller 发表于 2021-2-15 23:25</a>
+
+TSMC那个N7P密度和Intel的10nm差不多，可是I家10 esf频率应该会更高</blockquote>
+intel那个100m是自己搞了个算法算出来的密度，别家用的不是这个算法，按传统的原件大小算的话，intel 10nm比n7稍弱，远不如n7p
+
+
+
+
+
+
+
+-----
+
+####  hgfdsa  
+##### 135#       发表于 2021-2-18 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50370866&amp;ptid=1987815" target="_blank">bestword 发表于 2021-2-18 22:38</a>
+
+那么打游戏现在该买九代还是十代呢？或者再等等桌面十一代？
+
+
+—— 来自 Xiaomi MI PAD 4, Android 8.1.0上 ...</blockquote>
+11代不用等，最多就是zen3水平，功耗高的多，有钱zen3，没钱10代i5，想支持intel等12代吧。就算win10的调度器拉胯了，还可以手动分配核心啊。
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 136#       发表于 2021-2-18 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50359347&amp;ptid=1987815" target="_blank">囧囧囧 发表于 2021-2-18 00:46</a>
+
+现在说gdc的ipc比wlc提升20%。我觉得这里是农农的天下了，intc无论做什么都是铁倒闭的命。 ...</blockquote>
+农企属于政治正确，多核性能是生产力的唯一代名词
+
+
+
+
+
+
+
+-----
+
+####  albertfu  
+##### 137#       发表于 2021-2-18 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50370866&amp;ptid=1987815" target="_blank">bestword 发表于 2021-2-18 22:38</a>
+
+那么打游戏现在该买九代还是十代呢？或者再等等桌面十一代？
+
+
+—— 来自 Xiaomi MI PAD 4, Android 8.1.0上 ...</blockquote>
+11代不值得等，perf/GHz应该和移动11代willow cove一样，得5.3-5.8GHz才能单线程性能赶上zen3
+
+
+打游戏的在12代、Zen4出来前请认准Zen3
+
+
+
+
+
+
+
+-----
+
+####  Sheny  
+##### 138#       发表于 2021-2-19 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371122&amp;ptid=1987815" target="_blank">john 发表于 2021-2-18 23:02</a>
+农企属于政治正确，多核性能是生产力的唯一代名词</blockquote>
+那也没办法，amd用1/5 1/6的价格赔本赚吆喝，打翻了intel的hedt金饭碗。换了我有那生产力需求，遇到这样的“大善人”，肯定也amd yes。但是yes到连桌面zen zen+也得道升天，这魔怔程度我是料不到。
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 139#       发表于 2021-2-19 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371952&amp;ptid=1987815" target="_blank">Sheny 发表于 2021-2-19 00:28</a>
+
+那也没办法，amd用1/5 1/6的价格赔本赚吆喝，打翻了intel的hedt金饭碗。换了我有那生产力需求，遇到这样 ...</blockquote>
+你膏对HEDT的定义是扩展性，但是市场需求是多核性能，Kabylake-X的出现和失败就是证明
+
+
+
+
+
+
+
+-----
+
+####  囧囧囧  
+##### 140#       发表于 2021-2-19 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372136&amp;ptid=1987815" target="_blank">john 发表于 2021-2-19 00:50</a>
+
+你膏对HEDT的定义是扩展性，但是市场需求是多核性能，Kabylake-X的出现和失败就是证明 ...</blockquote>
+还有那所谓的simd
+
+
+
+
+
+
+
+-----
+
+####  KOGmk2  
+##### 141#       发表于 2021-2-19 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50337027&amp;ptid=1987815" target="_blank">startraveller 发表于 2021-2-15 11:02</a>
+
+12代ADL的IPC超过Zen3应该没什么问题，再加上5Ghz，感觉还是可以等等</blockquote>
+可是ADL的对手又不是ZEN3......至少是ZEN3+甚至稍微拖一下可能就要战ZEN4了
+
+
+
+
+
+
+
+-----
+
+####  KOGmk2  
+##### 142#       发表于 2021-2-19 01:38
+
+
+
+ 本帖最后由 KOGmk2 于 2021-2-19 01:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50341078&amp;ptid=1987815" target="_blank">Rarity5 发表于 2021-2-15 21:10</a>
+
+zen和zen+平台没有if总线，所以也不存在分频。
+
+
+从zen2 matisse（3000系列CPU)到最新的zen3 cezanne(5000 ...</blockquote>
+越来越离谱了......上一楼说ZEN/ZEN+没有DDR4,我就要看看谁他喵能在AM4的板子上用DDR3的内存点亮,这一楼说ZEN/ZEN+没IF总线......ZEN/ZEN+的IF总线只是FCLK/UCLK没有解绑,直接锁定的内存频率的一半而已,因为FCLK/UCLK绑定导致内存连3600都过不去,而也是因为这个绑定~~~在ZEN/ZEN+平台超内存的收益极高,到了ZEN2才解绑~~~这儿其实有个坑,ZEN2的FCLK频率是农企强行控制的,这才有ZEN2的FCLK基本能亮就能稳,ZEN3的IOdie相对ZEN2只有极小改进,但是农企放弃了控制,导致各种能开2066/2100的稳不住,WHEA19错误满天飞,目前看来ZEN3的FCLK普遍也就1933/1966,就算是5900X/5950X略微挑过的情况也只是大范围2000,真的能2066/2100稳不出WHEA19的IOdie照样是凤毛麟角
+
+
+
+
+
+
+
+-----
+
+####  startraveller  
+##### 143#       发表于 2021-2-19 01:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50370962&amp;ptid=1987815" target="_blank">hgfdsa 发表于 2021-2-18 22:47</a>
+intel那个100m是自己搞了个算法算出来的密度，别家用的不是这个算法，按传统的原件大小算的话，intel 10n ...</blockquote>
+基本上是同一级别 而且Intel工艺不是密度优化，N7P的7.5T库密度也一样低不少的。
+
+
+
+
+
+
+
+-----
+
+####  startraveller  
+##### 144#       发表于 2021-2-19 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372418&amp;ptid=1987815" target="_blank">KOGmk2 发表于 2021-2-19 01:32</a>
+可是ADL的对手又不是ZEN3......至少是ZEN3+甚至稍微拖一下可能就要战ZEN4了</blockquote>
+参考Zen+，Zen3+最多也就提个2、300Mhz频吧，不要期望太高。Zen4消费级得2022下半年。ADL现在已经ES2了，Q3能出来的话Intel至少有半年窗口期。
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 145#       发表于 2021-2-19 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50359347&amp;ptid=1987815" target="_blank">囧囧囧 发表于 2021-2-18 00:46</a>
+现在说gdc的ipc比wlc提升20%。我觉得这里是农农的天下了，intc无论做什么都是铁倒闭的命。 ...</blockquote>
+价高没货说什么都是屁啊。。
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 146#       发表于 2021-2-19 06:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50358023&amp;ptid=1987815" target="_blank">sblnrrk 发表于 2021-2-17 21:46</a>
+理论上应该跑在大核为主，就像现在应该跑在不同物理核心上（不是超线程的逻辑核）
+
+实际windows一泡污</blockquote>
+如果Intel在硬件定义了四个atom组成一个cluster（小核簇），那我猜测Windows会把cluster识别为1C4t，或是4C4t？
+
+
+
+
+
+
+
+-----
+
+####  hgfdsa  
+##### 147#       发表于 2021-2-19 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372450&amp;ptid=1987815" target="_blank">startraveller 发表于 2021-2-19 01:40</a>
+
+基本上是同一级别 而且Intel工艺不是密度优化，N7P的7.5T库密度也一样低不少的。 ...</blockquote>
+Intel的100M就是最高密度理论值，到实际产品，Zen3密度52M，可以4.95G，lakefield密度49M，只有3G，用高密度库的Zen2密度62M，4.4G。
+
+
+
+
+
+
+
+-----
+
+####  hgfdsa  
+##### 148#       发表于 2021-2-19 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372952&amp;ptid=1987815" target="_blank">cmyk1234 发表于 2021-2-19 06:59</a>
+
+如果Intel在硬件定义了四个atom组成一个cluster（小核簇），那我猜测Windows会把cluster识别为1C4t，或是 ...</blockquote>
+不，就是物理核心，所以不存在调度问题，大不了手动分配任务到大核上
+
+
+
+
+
+
+
+-----
+
+####  银光闪耀  
+##### 149#       发表于 2021-2-19 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50373550&amp;ptid=1987815" target="_blank">hgfdsa 发表于 2021-2-19 09:11</a>
+Intel的100M就是最高密度理论值，到实际产品，Zen3密度52M，可以4.95G，lakefield密度49M，只有3G，用高 ...</blockquote>
+apu cezanne倒是高密度库吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我说怎么高频表现差一截
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 150#       发表于 2021-2-19 10:34
+
+
+
+ 本帖最后由 cmyk1234 于 2021-2-19 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50373574&amp;ptid=1987815" target="_blank">hgfdsa 发表于 2021-2-19 09:13</a>
+不，就是物理核心，所以不存在调度问题，大不了手动分配任务到大核上</blockquote>
+我在猜测Intel会不会让4个atom定义为一个逻辑核心。我在楼上提及的1C4t的C是逻辑定义。
+任务分派到两个小核簇，再由小核簇二次分配给内部的atom。
+
+
+
+
+
+
+
+-----
+
+####  BallanceHZ  
+##### 151#       发表于 2021-2-19 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50373550&amp;ptid=1987815" target="_blank">hgfdsa 发表于 2021-2-19 09:11</a>
+Intel的100M就是最高密度理论值，到实际产品，Zen3密度52M，可以4.95G，lakefield密度49M，只有3G，用高 ...</blockquote>
+讲道理lakefield频率低是被功耗卡死的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hgfdsa  
+##### 152#       发表于 2021-2-19 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374630&amp;ptid=1987815" target="_blank">BallanceHZ 发表于 2021-2-19 10:45</a>
+
+讲道理lakefield频率低是被功耗卡死的</blockquote>
+h35 4C跑满4G的时候功耗35W，单个核心也就8W，连AVX都砍掉的lakefield 7W才能3G，只怕连14+++都不如
+
+
+
+
+
+
+
+-----
+
+####  dllplayer  
+##### 153#       发表于 2021-2-19 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50331073&amp;ptid=1987815" target="_blank">albertfu 发表于 2021-2-14 14:00</a>
+
+不急的话等DDR5，现在的zen3和还没上市的rkl-s都只有DDR4</blockquote>
+额......不是说明年要出DDR5了么...
+
+结果又跳了?
+
+我是在DDR3尾盘买的如今这台...
+
+然后现在不想再玩一次DDR4尾盘了..
+
+所以想直接等DDR5
+
+
+
+
+
+                                            

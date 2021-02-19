@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 17:02** 
+> ## **本文件最后更新于2021-02-19 02:45** 
 
 
 
@@ -3650,6 +3650,25 @@ v圈原生主播与A骚这个后来企划的矛盾
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 裁决之光| + 1|真情实感|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3975,4 +3994,471 @@ ASOUL不是还有第一个原罪吗<img src="https://static.saraba1st.com/image/
 
 
 
-                                          
+
+
+-----
+
+####  弈秋  
+##### 1727#       发表于 2021-2-19 01:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1728#       发表于 2021-2-19 03:08
+
+
+
+
+这个被集火的pd竟然被车了600条<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">网暴真可怕，nga的懂哥怎么都不去救一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 1729#       发表于 2021-2-19 04:04
+
+
+
+
+难顶，这几天真没消停过，可能这就是开年大戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 1730#       发表于 2021-2-19 04:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">哪都在发病 好害怕。属实有点被吓到了
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 1731#       发表于 2021-2-19 06:37
+
+
+
+
+草一觉醒来版本又变了<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 1732#       发表于 2021-2-19 06:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">年轻人的第一个饭圈，很难绷得住
+这饭圈运营确实是降维打击
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1733#       发表于 2021-2-19 08:05
+
+
+
+
+一觉醒来各大平台多了好多乐子，本来看碗指导都快入脑了，这下我只想回归初心当乐子人了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 1734#       发表于 2021-2-19 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50373137&amp;ptid=1974517" target="_blank">Gmanager 发表于 2021-2-19 08:05</a>
+一觉醒来各大平台多了好多乐子，本来看碗指导都快入脑了，这下我只想回归初心当乐子人了
+
+—— 来自 ...</blockquote>
+骚操作太多了，几天前看的心态已经找不回来了，建议as跟歌姬一起死了算了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 1735#       发表于 2021-2-19 09:33
+
+
+
+
+这波真不用太入脑，有不少8U在那RP炒作呢，在豆瓣、AS吧义愤填膺喷运营，回V吧黄豆流汗。真去weibo喷的不少也为了破圈给as喷出点知名度的，都知道喷杜华没用，就当他们魔障了就行<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+不过这波真受伤的估计就是被脏号的豆友和刚引进来的纯良人了，被带了一波节奏怼运营，8U想洗粉固粉想疯了
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 1736#       发表于 2021-2-19 09:38
+
+
+
+
+都是小问题，虽然这几天有些骚操作，但还是比其他国V强太多<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">先观察明天团播和下周QA
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1737#       发表于 2021-2-19 09:40
+
+
+
+
+没有直播看我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1738#       发表于 2021-2-19 09:42
+
+
+
+
+我然瘾犯了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1739#       发表于 2021-2-19 09:44
+
+
+
+
+还是多关心直播质量吧，感觉然然和乃琳的问题都比较大，然然没有新的增长点，乃琳风格固化后期就要垫底了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 这几天只能说是粉丝练兵，怎么处理外事和内战算是达成初步共识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1740#       发表于 2021-2-19 09:53
+
+
+
+
+如果这一切都在运营的计划之中，那这一套操作看的我还挺热血沸腾的（一切看似是意外，但全都在运营的计划之中）。
+
+如果运营真的是铁nt，发生的事已经要超过他的可控范围了，那当我没说。
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 1741#       发表于 2021-2-19 10:06
+
+
+
+
+是不是在计划中，看下周二的QA就知道了啊。上次的弹幕斗虫的问题就回避了啊。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 1742#       发表于 2021-2-19 10:07
+
+
+
+
+如果下周二回避这些问题说明是故意的吧。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1743#       发表于 2021-2-19 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374155&amp;ptid=1974517" target="_blank">连清人 发表于 2021-2-19 10:07</a>
+
+如果下周二回避这些问题说明是故意的吧。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+个人认为上周二回避斗虫问题，是因为他们（指运营）认为关于斗虫的问题之前已经回答过了（斗舞回之后的那次qa），而且从每次团播的剧本来看，小年夜那次应该真不是斗虫（好像是为了配合抖音那边发弹幕抽奖的活动）。而且投票栏撤的那么慢应该也是导播在请示上级，导播自己应该是没有权力撤的
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1744#       发表于 2021-2-19 10:22
+
+
+
+
+运营哪有那么神，我倾向于不懂圈子文化加上反应速度慢。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 1745#       发表于 2021-2-19 10:25
+
+
+
+
+一觉过去，vjuan千年<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+一共发生了多少事情啊。
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1746#       发表于 2021-2-19 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374334&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-19 10:22</a>
+
+运营哪有那么神，我倾向于不懂圈子文化加上反应速度慢。</blockquote>
+当然都是我脑补的，如果最后能跟上节奏，既把场子稳下来，又实现一波炒作涨粉，最后还能洗粉固粉。也算个半神吧，反正我是操作不来。（高风险高回报？）
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 1747#       发表于 2021-2-19 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374397&amp;ptid=1974517" target="_blank">J8pl4 发表于 2021-2-19 10:27</a>
+当然都是我脑补的，如果最后能跟上节奏，既把场子稳下来，又实现一波炒作涨粉，最后还能洗粉固粉。也算个 ...</blockquote>
+问题是也妹涨啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1748#       发表于 2021-2-19 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374368&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-19 10:25</a>
+
+一觉过去，vjuan千年
+
+一共发生了多少事情啊。</blockquote>
+所以说我觉得运营其实还是有点东西的，这两个月asoul话题的热度，比我18年看v以来关注的任何一个主播都高。
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1749#       发表于 2021-2-19 10:32
+
+
+
+
+评论区都给冲烂了，路人哪敢来啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么我追个星这么多破事
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1750#       发表于 2021-2-19 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374413&amp;ptid=1974517" target="_blank">人別離苦 发表于 2021-2-19 10:29</a>
+
+问题是也妹涨啊</blockquote>
+嘉然不是十万多了？
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1751#       发表于 2021-2-19 10:35
+
+
+
+
+当然也没有下定义，只是先观望一下。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1752#       发表于 2021-2-19 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374454&amp;ptid=1974517" target="_blank">J8pl4 发表于 2021-2-19 10:33</a>
+嘉然不是十万多了？</blockquote>
+嘉然和新月岚在昨天动态之后粉丝增长曲线有明显的下落，当时是黄金时间下落说明对两个人的涨粉都有影响，这波炒作都没落到好处，纯属脑瘫
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1753#       发表于 2021-2-19 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374518&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-19 10:37</a>
+
+嘉然和新月岚在昨天动态之后粉丝增长曲线有明显的下落，当时是黄金时间下落说明对两个人的涨粉都有影响， ...</blockquote>
+那也好，让他吃一次亏长长记性，看看最后能不能玩明白。
+
+
+
+
+
+                                         
