@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 05:37** 
+> ## **本文件最后更新于2021-02-19 06:48** 
 
 
 
@@ -4992,4 +4992,361 @@ ASOUL不是还有第一个原罪吗<img src="https://static.saraba1st.com/image/
 
 
 
-                                        
+
+
+-----
+
+####  asd225588  
+##### 1785#       发表于 2021-2-19 13:38
+
+
+
+
+我没炒作
+
+我已经说不出话了，我已经失去语言能力了
+
+昨天到4点，我满脑子还是在想着嘉然
+
+点开录播与切片，看着动起来的嘉然我心像刀绞一样难受
+
+像胸口憋着一团火，想爬起来做点什么，打开csp大脑一片空白
+
+嘉然在做什么？ 开心吗？ 难受吗？
+
+她的梦想实现了吗？ 这样的形式让她成为偶像了吗？
+
+我害怕嘉然开播，我害怕看到嘉然
+
+我为她创作一些什么，浇灭心中的无名之火
+
+最终我睡着了
+
+
+今天，我醒了抽了一支烟
+
+我已经没法开口说话了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1786#       发表于 2021-2-19 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376654&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-19 13:38</a>
+我没炒作
+
+我已经说不出话了，我已经失去语言能力了
+
+昨天到4点，我满脑子还是在想着嘉然</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">原来我不是一个糖在战斗
+之前我也病得不轻，但是直播的时候届到了几次一下子就正常了。现在还在评论区臊皮等团播<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 1787#       发表于 2021-2-19 13:44
+
+
+
+
+我现在比较好奇勒夫，岚贵物的运营和as的运营是不是都串通好的还是说前面两个联合起来把as的运营耍得团团转<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1788#       发表于 2021-2-19 13:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">楼友rp的好哈人啊
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 1789#       发表于 2021-2-19 13:52
+
+
+
+
+事实证明圈外人运营靠不住的，这还不如维啊呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1790#       发表于 2021-2-19 13:57
+
+
+
+
+这运营，要是这条动态之后下午出个QA，我就相信钓的真有一手，要是周二出，那基本可以入土了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 1791#       发表于 2021-2-19 13:58
+
+
+
+
+糖宝是真发病还是rp的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 1792#       发表于 2021-2-19 13:59
+
+
+
+
+真等到周二发明天说不定能看到可爱小asoul呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 1793#       发表于 2021-2-19 14:00
+
+
+
+
+这......还拖到周二？现在就该危机公关了吧
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1794#       发表于 2021-2-19 14:03
+
+
+
+
+asd真是糖宝？怎么能这样呀<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1795#       发表于 2021-2-19 14:13
+
+
+
+ 本帖最后由 王一唯不傲娇 于 2021-2-19 14:19 编辑 
+
+我现在相信运营就是nt了按照草台班子论推演大概是这样的：
+
+1.运营坐办公室玩玩手机，看到有人@了一看是个40w粉大v那得赶紧贴贴。
+
+2.发完以后，关了手机干别的活。
+
+3.回来一看，原来出事了，但是今天已经快下班了，明天再说吧。
+
+4.闯了祸不好意思跟领导讲，先随便回点什么应付一下吧。
+
+5.对了，不是还有嘉然的号吗？就决定是你了。
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 1796#       发表于 2021-2-19 14:15
+
+
+
+
+嘉然现在陷入最严重的信任危机，就算真是本人发动态也会被认为是假的，如果她直播继续RP元气女孩观众对她的戒备只会继续加深
+
+除了直播zqsg的哭一场拉着观众一起破防，否则救不回来了
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 1797#       发表于 2021-2-19 14:18
+
+
+
+
+我想破头也想不出来为什么要在直播的时候转动态，转了也没事，大不了就说手滑删掉，偏偏还要置顶嘴硬，第二天还要搞个所谓“伐木”，意义在哪？
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1798#       发表于 2021-2-19 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50377078&amp;ptid=1974517" target="_blank">寒星 发表于 2021-2-19 14:18</a>
+
+我想破头也想不出来为什么要在直播的时候转动态，转了也没事，大不了就说手滑删掉，偏偏还要置顶嘴硬，第二 ...</blockquote>
+办公室政治罢了，运营不愿认错，把责任推给嘉然。
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 1799#       发表于 2021-2-19 14:26
+
+
+
+
+嘉然的号已经废了，连带着其他四个人都废了，我已经看不出有什么伐木空间了，快进到学习歌姬，五个号删号，只留一个官号互动<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1800#       发表于 2021-2-19 14:30
+
+
+
+
+有这么严重吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 1801#       发表于 2021-2-19 14:33
+
+
+
+
+还周二呢，是不是觉得有个QA环节很牛逼很有仪式感啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 1802#       发表于 2021-2-19 14:37
+
+
+
+
+别提纯了，现在脑补nt运营的操作不如等团播看好戏
+我不要嘉然恰饱饱，运营炒饱饱，只有嘉心糖受伤的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+谁怎么知道运营这套操作是不是要虐入脑人的，但我感觉以后没毒唯的话炒作会很难进行下去<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1803#       发表于 2021-2-19 14:39
+
+
+
+
+晚晚抖音营业了一波，有希望了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 11:31** 
+> ## **本文件最后更新于2021-02-19 06:42** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_IjtF6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_YH6kW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_lH5xp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_eq1e7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_qjpJq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_ByqO9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_N2RlK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_I2Mom" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -5863,4 +5863,617 @@ mix这位是烂货圆脸的朋友啊，总找他弄的
 
 
 
-                                       
+
+
+-----
+
+####  Suzutsuki  
+##### 31803#       发表于 2021-2-18 19:34
+
+
+
+
+bora十万人了 kr第一个银盾！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 31804#       发表于 2021-2-18 19:41
+
+
+
+
+king我就只喜欢阿尔法唱的
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31805#       发表于 2021-2-18 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">774和点真的赚吗，苔苔倒是肯定赚麻了，不过感觉她那种情况更像剥削liver肥了自己。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31806#       发表于 2021-2-18 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> bora好自为之吧，说不定哪天黑料就被人放出来了，第二天因为发现bora左脚迈入公司疑似80开除kr
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31807#       发表于 2021-2-18 19:48
+
+
+
+
+my bora5555
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 31808#       发表于 2021-2-18 20:15
+
+
+
+
+774母公司又不缺钱，vtuber企划亏了就亏了，再怎么亏也就广告业务的零头而已。而且母公司现在专门研究AR广告，就算vtuber企划凉了，做3D的技术成员还能转去做广告，权当是积累经验了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 31809#       发表于 2021-2-18 20:25
+
+
+
+
+坏比小熊猫 [https://www.youtube.com/watch?v=nk3yjh6KmoI](https://www.youtube.com/watch?v=nk3yjh6KmoI)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31810#       发表于 2021-2-18 20:45
+
+
+
+
+774这一茬一茬的出人，这么快安排3D，还能没钱啊。
+
+点以前肯定是大赚特赚的，现在不好说了。
+
+犬山哥就别给人家操心了，谁赔了犬山哥都不带赔的。
+
+倒是一些老视频势不知道咋赚钱，像上边说的明天王，一个视频就一两万的播放，同接1000上下还没啥SC，咋赚钱啊，前几天小鞠三周年看样过的也不咋样的。
+
+再就几个偶像团像调色板GEMSまりなす啥的，歌姬都这样了这几个不知道能不能回本，avex去年财报都是赔的，别一不高兴给V这块业务砍了。
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 31811#       发表于 2021-2-18 21:07
+
+
+
+
+赤坂好忙，rage和cr杯都参加了
+
+这次rage司还上了，你去了干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 31812#       发表于 2021-2-18 21:07
+
+
+
+ 本帖最后由 依然荏苒 于 2021-2-18 21:08 编辑 
+
+打错了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 31813#       发表于 2021-2-18 21:40
+
+
+
+ 本帖最后由 thisisaspider 于 2021-2-18 21:44 编辑 
+
+<img src="https://ae01.alicdn.com/kf/U209205b53e5341c68d9e582671b3eaf3D.jpg" referrerpolicy="no-referrer">
+[twitter](https://twitter.com/momoshiki/status/1362012586061877250)[404](https://www.youtube.com/watch?v=ygGXbrfBbFk&amp;feature=youtu.be&amp;ab_channel=%E3%82%B7%E3%82%B9%E3%82%BF%E3%83%BC%E3%83%BB%E3%82%AF%E3%83%AC%E3%82%A2-SisterClaire-)
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31814#       发表于 2021-2-18 22:09
+
+
+
+
+如何看待免费“现场”歌力斗虫榜榜首公然宣称唱歌就必须修音？
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 31815#       发表于 2021-2-18 22:26
+
+
+
+
+明晚有银憨憨live啊，很可以<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31816#       发表于 2021-2-18 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50370622&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-2-18 22:09</a>
+
+如何看待免费“现场”歌力斗虫榜榜首公然宣称唱歌就必须修音？</blockquote>
+啥
+
+
+
+
+
+
+
+-----
+
+####  蓬莱广告  
+##### 31817#       发表于 2021-2-18 23:17
+
+
+
+
+贝叔这麦也太差了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">换个好的麦奥术回我必到场
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31818#       发表于 2021-2-18 23:38
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gns42xhwi3j20qz0a8407.jpg" referrerpolicy="no-referrer">
+
+
+一周一播的手机妹
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31819#       发表于 2021-2-18 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371060&amp;ptid=1969498" target="_blank">free 发表于 2021-2-18 22:57</a>
+啥</blockquote>
+https://twitter.com/AT_Crescentia/status/1362400486272339970?s=20<blockquote>我认为修音等于化妆。不化妆你好意思出门吗？</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 31820#       发表于 2021-2-19 00:33
+
+
+
+
+555可怜的yuya
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31821#       发表于 2021-2-19 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50371691&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-2-18 23:59</a>
+
+https://twitter.com/AT_Crescentia/status/1362400486272339970?s=20</blockquote>
+美女说我不化妆没法看，唱歌的说我不修音没法听，这就是谦虚一下你怎么这么认真的。
+
+
+再说人家是唱音乐剧的，现场怎么修啊？其实就我听过几次她在nico的歌回里，她基本不开很大的混响或者什么乱七八糟的效果器，歌回差不多就纯干声了。
+[https://www.bilibili.com/video/BV1wJ411v7u2](https://www.bilibili.com/video/BV1wJ411v7u2)
+
+这个歌回水平你有兴趣就听听
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|多谢免费哥|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 31822#       发表于 2021-2-19 01:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那五个男朋友是不是也是一种自谦。
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 31823#       发表于 2021-2-19 02:12
+
+
+
+
+狐组0点发了个公告表示：我们又炸了
+
+一系列操作实在太巨婴了 看得满头省略号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31824#       发表于 2021-2-19 02:27
+
+
+
+
+这个组都根本不海盗狐皇的也要管自己叫狐组吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 31825#       发表于 2021-2-19 02:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">证明狐坦有先见之明，喜欢我来油土鳖，
+b站不行
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 31826#       发表于 2021-2-19 07:35
+
+
+
+
+狐皇有2~3个海盗搬+补旧番的，狐组属实败事有余<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+初期b限的狐皇好萌啊，能不能让老阿姨穷一点逼她再掐一会<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 31827#       发表于 2021-2-19 07:46
+
+
+
+
+重温经典不就好了，现在看狐坦只有梁木
+
+或者打点rub让狮姨掐一掐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31828#       发表于 2021-2-19 10:04
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-2-19 10:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372187&amp;ptid=1969498" target="_blank">free 发表于 2021-2-19 00:57</a>
+美女说我不化妆没法看，唱歌的说我不修音没法听，这就是谦虚一下你怎么这么认真的。
+
+
+再说人家是唱音乐剧 ...</blockquote>
+顶多听得出开没开混响，难道你还能听出调没调均衡？你要是线下面对面听过那当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+---
+不对好像跑题了，原话说的是“pitch调整”……直播的时候确实没法调音高啥的……
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 31829#       发表于 2021-2-19 11:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谦虚两句还当真了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31830#       发表于 2021-2-19 12:36
+
+
+
+<img src="https://p.sda1.dev/1/688b75f5adfc16ca2358e4d45a4d01b5/IMG_CMP_254877919.jpeg" referrerpolicy="no-referrer">
+在业界还蛮新鲜的？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31831#       发表于 2021-2-19 14:16
+
+
+
+ 本帖最后由 free 于 2021-2-19 14:18 编辑 
+
+[https://twitter.com/GYARI_/status/1362643122593783810](https://twitter.com/GYARI_/status/1362643122593783810)
+
+VOMS Project「磁富モノエ」活動終了のお知らせ
+
+
+都银盾了，昨天还在播呢，刚才一看频道已经清空了
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/141633ae2442242422gqpp.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (142.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 14:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31832#       发表于 2021-2-19 14:18
+
+
+
+
+是不是吞楼了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 31833#       发表于 2021-2-19 14:19
+
+
+
+
+这都毕业了，到底啥事儿啊，有楼友了解的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 31834#       发表于 2021-2-19 14:23
+
+
+
+
+写的原因是违反契约，看样子不是小事
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31835#       发表于 2021-2-19 14:25
+
+
+
+
+不要牵连pikamee就行
+
+
+
+
+
+                                      
