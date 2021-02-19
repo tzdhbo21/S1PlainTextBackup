@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 06:42** 
+> ## **本文件最后更新于2021-02-19 13:31** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_YH6kW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_IdA5q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_ByqO9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_N2RlK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_I2Mom" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_B3yU7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Y9033" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_u2382" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -6236,10 +6236,11 @@ https://twitter.com/AT_Crescentia/status/1362400486272339970?s=20</blockquote>
 
 
 
+ 本帖最后由 biye 于 2021-2-19 20:22 编辑 
 
-狐组0点发了个公告表示：我们又炸了
+狐组0点发个公告表示：我们又炸了
 
-一系列操作实在太巨婴了 看得满头省略号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+一系列操作实在太巨婴 看得满头省略号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -6476,4 +6477,543 @@ VOMS Project「磁富モノエ」活動終了のお知らせ
 
 
 
-                                      
+
+
+-----
+
+####  katern  
+##### 31836#       发表于 2021-2-19 14:44
+
+
+
+
+这没得也太快了吧。 不知道犯了什么事
+
+
+
+
+
+
+
+-----
+
+####  伊悠  
+##### 31837#       发表于 2021-2-19 14:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50339511&amp;ptid=1969498" target="_blank">sgssk 发表于 2021-2-15 17:21</a>
+
+天音又是身体老病，以后每周一固定歌回取消，其他歌回安排也将大幅减少
+
+
+虽然不大喜欢听她唱歌，不 ...</blockquote>
+她这个病  除非有神医
+
+
+
+
+
+
+
+-----
+
+####  pockee  
+##### 31838#       发表于 2021-2-19 15:16
+
+
+
+
+pikamee都哭了，到底发生了啥
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 31839#       发表于 2021-2-19 15:39
+
+
+
+
+roha 3w啦，好起来了
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 31840#       发表于 2021-2-19 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50375957&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-19 12:36</a>
+
+在业界还蛮新鲜的？
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+B小鬼不震怒啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 31841#       发表于 2021-2-19 16:04
+
+
+
+
+频道没清空，视频都在，那只是点进去频道首页没有内容而已
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31842#       发表于 2021-2-19 16:07
+
+
+
+
+看了下你楼前两天提的企业势little nightmares 2，老爱播了的
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 31843#       发表于 2021-2-19 17:01
+
+
+
+
+德龙这次的live应该能确定是真唱吧
+但怎么好像唱得还不如KANA-DERO…那么问题来了，KANA-DERO到底是不是真唱…
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31844#       发表于 2021-2-19 17:34
+
+
+
+
+契约违反。是不是私联粉丝pua金主了（掏出隔壁的剧本）
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 31845#       发表于 2021-2-19 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50378215&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-2-19 16:07</a>
+
+看了下你楼前两天提的企业势little nightmares 2，老爱播了的</blockquote>
+是的，我问之前特地稍微查了一圈管人有没有播，看到老爱播了，还是第一时间播的，但是虹杏没看到人播，怕查漏了才在楼问的，弄得我还以为老爱算个人势<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31846#       发表于 2021-2-19 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50379561&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-2-19 18:09</a>
+
+是的，我问之前特地稍微查了一圈管人有没有播，看到老爱播了，还是第一时间播的，但是虹杏没看到人播，怕 ...</blockquote>
+一堆人都在播1却没看到一个人开2确实很诡异<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 31847#       发表于 2021-2-19 18:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/181308w7k23mm635jxx96m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A405C40F-0D94-4C36-9883-F92FA6B976D8.jpeg</strong> (316.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-2-19 18:13 上传
+
+
+
+
+
+
+上版本贴贴人可以站起来了
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 31848#       发表于 2021-2-19 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50379603&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-2-19 18:13</a>
+一堆人都在播1却没看到一个人开2确实很诡异</blockquote>
+这不就是staff给liver画饼:
+版权在谈了在谈了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们先播1
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 31849#       发表于 2021-2-19 18:36
+
+
+
+
+烂铁亲女儿要唱7月番op了，虽然是个暴死番，老爱之后第二人？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 31850#       发表于 2021-2-19 18:38
+
+
+
+
+烂铁亲女儿还是不得不服的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 31851#       发表于 2021-2-19 19:52
+
+
+
+
+害得老王首单爆死的辣鸡动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31852#       发表于 2021-2-19 20:06
+
+
+
+
+彩虹主流进出唯一成功代表
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 31853#       发表于 2021-2-19 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50380479&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2021-2-19 19:52</a>
+
+害得老王首单爆死的辣鸡动画</blockquote>
+那歌明明超帅的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31854#       发表于 2021-2-19 20:31
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-19 20:37 编辑 
+
+绝了，好帅，你谁啊
+
+<img src="https://img.saraba1st.com/forum/202102/19/203128zmhsh3msshcfhtz4.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目】三十路の禊（激ウマギャグ）【にじさんじ:舞元啓介】.png.png</strong> (223.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 20:31 上传
+
+
+
+
+
+
+草
+
+<img src="https://img.saraba1st.com/forum/202102/19/203718gemfne83m8eh3jee.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目】三十路の禊（激ウマギャグ）【にじさんじ:舞元啓介】-2.png.png</strong> (190.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 20:37 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=bgNq7oqc6I4&amp;feature=emb_logo](https://www.youtube.com/watch?v=bgNq7oqc6I4&amp;feature=emb_logo)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31855#       发表于 2021-2-19 20:35
+
+
+
+
+怎么发型都换了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 31856#       发表于 2021-2-19 20:36
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-19 21:10 编辑 
+
+原来真的弄了光头发型，是jk组那个节目里的惩罚吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 31857#       发表于 2021-2-19 20:49
+
+
+
+
+眼一花我还以为看到白石了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 31858#       发表于 2021-2-19 20:53
+
+
+
+
+我日<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 31859#       发表于 2021-2-19 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31860#       发表于 2021-2-19 21:12
+
+
+
+
+这光头，酒肉和尚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 31861#       发表于 2021-2-19 21:19
+
+
+
+
+星川也要玩小小梦魇1了……不得不怀疑是不是真的社内团购
+
+等2版权下来不知道会不会半个彩虹都在播，ickr倒是搞快点啊
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31862#       发表于 2021-2-19 21:19
+
+
+
+<blockquote>鈴原るる
+
+@lulu_suzuhara
+
+少しの間お休みになりそうです、、号泣!!マーク楽しみにしてくださってたみんな本当にごめんね泣き顔汗マーク</blockquote>
+
+你虹必完<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31863#       发表于 2021-2-19 21:19
+
+
+
+
+海坊主マイマイ更适合做被迫害役了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 31864#       发表于 2021-2-19 21:31
+
+
+
+
+力一这个新衣服披露等的我好急<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 10:34** 
+> ## **本文件最后更新于2021-02-19 13:32** 
 
 
 
@@ -1249,10 +1249,11 @@ tocope
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| thisisaspider|-1|弱智差不多得了|
 | Cushaw|-1|太真了太真了|
 
 
@@ -1359,4 +1360,259 @@ syl，你咩姐干啥都跟凑阿夸有关的连体婴思维还是省省罢
 
 
 
-                                               
+
+
+-----
+
+####  A2014720  
+##### 9079#       发表于 2021-2-19 18:35
+
+
+
+
+拿诺或多，不过不至于吧，yhm真是难以理解啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再怎么论证小麻也只是个被pua的可伶人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shanyao1  
+##### 9080#       发表于 2021-2-19 18:47
+
+
+
+
+取关不回关自己的多正常。
+
+我以前和一个小游戏作者聊的不错就关注了，结果他几年都没回关我。好几次都想取关他，还好他有次遇到麻烦，我立刻凑了上去，他立刻关注我了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9081#       发表于 2021-2-19 19:00
+
+
+
+
+清个关注屁大点事都能发散，楼友也是yhm思维<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 9082#       发表于 2021-2-19 19:08
+
+
+
+<img src="https://p.sda1.dev/1/afa7fa9591f0da09d81cdbdd3d5d910d/IMG_20210219_190530_446.jpg" referrerpolicy="no-referrer">
+看到张图 仔细看发现这不就是天狗透小麻吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9083#       发表于 2021-2-19 19:10
+
+
+
+ 本帖最后由 rosevalley46 于 2021-2-19 19:14 编辑 
+
+这吊人找人准备下个pv大概是真的
+
+其他我觉得扯淡<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+你麻的体型现在得和天狗差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9084#       发表于 2021-2-19 19:18
+
+
+
+
+放屁，天狗里面一堆池面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9085#       发表于 2021-2-19 19:34
+
+
+
+
+放屁，还有苗条女天狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 9086#       发表于 2021-2-19 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不信，哪有女天狗
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9087#       发表于 2021-2-19 20:49
+
+
+
+
+🐱党差不多得了😅
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9088#       发表于 2021-2-19 20:54
+
+
+
+
+亭子不算的话,fafa肯定算女粉了
+
+不过应该也就那么几个<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9089#       发表于 2021-2-19 21:00
+
+
+
+
+我要创造一个没有男人的世界👊🏻
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9090#       发表于 2021-2-19 21:11
+
+
+
+
+光是你麻舔过的女粉都比我关注的v要多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuyuyuyu  
+##### 9091#       发表于 2021-2-19 21:12
+
+
+
+
+.....
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9092#       发表于 2021-2-19 21:12
+
+
+
+ 本帖最后由 Dualist彩 于 2021-2-19 21:15 编辑 
+
+竟然还有人觉得你麻女粉没几个的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9093#       发表于 2021-2-19 21:20
+
+
+
+
+我记得她自己说过百分之多少来着?反正肯定是绝对少数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
