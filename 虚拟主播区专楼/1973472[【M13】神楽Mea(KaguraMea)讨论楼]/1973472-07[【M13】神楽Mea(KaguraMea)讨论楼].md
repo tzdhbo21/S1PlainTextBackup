@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 13:32** 
+> ## **本文件最后更新于2021-02-19 16:59** 
 
 
 
@@ -1615,4 +1615,513 @@ syl，你咩姐干啥都跟凑阿夸有关的连体婴思维还是省省罢
 
 
 
-                                              
+
+
+-----
+
+####  Shiromeshi  
+##### 9094#       发表于 2021-2-19 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你麻女粉各各武德充沛，看看男粉费拉不堪
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9095#       发表于 2021-2-19 22:21
+
+
+
+
+苔苔你再这样我就点差评喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9096#       发表于 2021-2-19 22:23
+
+
+
+ 本帖最后由 Dualist彩 于 2021-2-19 22:24 编辑 
+
+烂活，就是有点烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+smjb，👴🏻不看了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9097#       发表于 2021-2-19 22:33
+
+
+
+
+你咩姐的等级比梦乃还是低了太多了（悲
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9098#       发表于 2021-2-19 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9099#       发表于 2021-2-19 22:44
+
+
+
+
+rp的我蚌埠住了都，看不来看不来
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9100#       发表于 2021-2-19 22:47
+
+
+
+
+感觉苔箱新人声音又尖又姨,,,对耳朵很不友好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9101#       发表于 2021-2-19 22:48
+
+
+
+ 本帖最后由 路人庚 于 2021-2-19 22:52 编辑 
+
+苔苔：mea收益化没通过的那半年是我最喜欢的那半年，因为mea一直心情不好，而且肯定会直播骂人
+
+
+mea还聊到了当时跟爹妈吵架的内容啊（mea：因为决定了活在网上，不想出去打工而跟爹妈吵架）
+
+
+（解密篇都藏在这种直播里（悲
+
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9102#       发表于 2021-2-19 22:52
+
+
+
+
+她那被炒了好几次的简历如果是真的，那要去打工还真是蛮难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9103#       发表于 2021-2-19 22:53
+
+
+
+
+bsyl，不过麻last（还是哪次来着）倒是自称过打工战士来着（所以可能还是姑且出去打过工
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9104#       发表于 2021-2-19 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说打工几个月就被炒了，然后再找，又被炒，陷入绝望循环
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9105#       发表于 2021-2-19 22:55
+
+
+
+
+很想听她讲故事,但苔本+车轱辘下三路实在有点接不住
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9106#       发表于 2021-2-19 22:57
+
+
+
+
+主动出去打工和被逼着去打工还是稍微有点区别的（
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9107#       发表于 2021-2-19 22:57
+
+
+
+
+还是我我也选兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9108#       发表于 2021-2-19 22:59
+
+
+
+
+苔苔把男人的屁股放在了你咩姐的嘴巴下面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（虽然是兔菊的
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9109#       发表于 2021-2-19 23:00
+
+
+
+
+老女人<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9110#       发表于 2021-2-19 23:00
+
+
+
+
+什么毒 龙😅
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9111#       发表于 2021-2-19 23:06
+
+
+
+
+有一说一，兔鞠确实sao
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9112#       发表于 2021-2-19 23:07
+
+
+
+ 本帖最后由 thisisaspider 于 2021-2-19 23:10 编辑 
+
+有点偏差吧 没说和父母吵架了
+
+而且完全不算解密篇啊 都是些挺基本的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还有和梦乃合不来的感觉，估计没下次了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9113#       发表于 2021-2-19 23:13
+
+
+
+
+看起来不要补录播的样子，无聊，睡了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 9114#       发表于 2021-2-19 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还以为大家都不看呢，怎么还会有人看苔姨搞的这种纯粹公式化联动顺带给人引流的东西
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9115#       发表于 2021-2-19 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50381891&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-19 23:07</a>
+
+有点偏差吧 没说和父母吵架了
+
+而且完全不算解密篇啊 都是些挺基本的东西
+
+还有和梦乃合不来的感觉， ...</blockquote>
+确实没直接提到吵架，只是说了“跟家里也是那么说的（绝对不出去打工）”（只是我自己听着感觉像是会跟家里吵起来的样子和语气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9116#       发表于 2021-2-20 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50381977&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-19 23:20</a>
+
+确实没直接提到吵架，只是说了“跟家里也是那么说的（绝对不出去打工）”（只是我自己听着感觉像是会跟家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想想后来发生了什么 就知道当时这个决定和家里的冲突完全没有那么简单但现在她已经可以轻描淡写地说出来啊 说是一场豪赌也不为过
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9117#       发表于 2021-2-20 00:21
+
+
+
+
+网上的一切都是老娘玩剩下的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9118#       发表于 2021-2-20 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50382281&amp;ptid=1973472" target="_blank">ashero 发表于 2021-2-20 00:04</a>
+
+想想后来发生了什么 就知道当时这个决定和家里的冲突完全没有那么简单但现在她已经可以轻描淡写地 ...</blockquote>
+是这样的，结合时间线来看18年的幕后故事确实是波澜万丈
+
+
+目前已经很大程度的明确了当时很多冲突的原因（以下是推测）
+
+减少直播时间出去打工应该是她被允许在家里做直播的条件之一，产生这个条件的原因是直播赚不到什么钱，而且她也确实没怎么赚到钱，所以也没底气跟家里顶嘴只能去打工。
+
+而那个圣诞节之后她相比之前获得了相当多的收入，但因为一直以来的观念影响，她还是被要求出去打工，但这时候她已经有了纪念回的收入成绩，所以她有了底气顶嘴但最终还是闹掰，最后在元旦节搬了家。这大概也是后来提到的“因为我想直播”的幕后原因。
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9119#       发表于 2021-2-20 00:35
+
+
+
+
+她当时'吃豆芽菜'那段时间肯定是和家里非常紧张的,要么是家里不管要么是想帮她不要
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9120#       发表于 2021-2-20 00:36
+
+
+
+
+很多时候会这样想但总觉得是阅读理解
+
+问题儿童欢乐多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还是好好看直播得了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9121#       发表于 2021-2-20 00:47
+
+
+
+
+那时候真的锐气，现在跟做了绝育手术一样，我说的是猫<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 9122#       发表于 2021-2-20 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">她高一就出去打工了啊，有些日本高中确实禁止打工不过她那学校肯定没这乱七八糟事，最开始无非赚点零花钱罢了
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 9123#       发表于 2021-2-20 00:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">成年了，棱角都被磨碎了
+
+
+
+
+
+                                             
