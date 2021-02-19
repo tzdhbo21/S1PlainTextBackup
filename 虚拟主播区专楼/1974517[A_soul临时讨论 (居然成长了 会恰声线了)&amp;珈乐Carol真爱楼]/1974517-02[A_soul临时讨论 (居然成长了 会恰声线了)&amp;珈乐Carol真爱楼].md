@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 02:45** 
+> ## **本文件最后更新于2021-02-19 05:37** 
 
 
 
@@ -4461,4 +4461,535 @@ ASOUL不是还有第一个原罪吗<img src="https://static.saraba1st.com/image/
 
 
 
-                                         
+
+
+-----
+
+####  不想闭嘴  
+##### 1754#       发表于 2021-2-19 10:48
+
+
+
+
+观望一下QA
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1755#       发表于 2021-2-19 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 1756#       发表于 2021-2-19 11:30
+
+
+
+ 本帖最后由 寒星 于 2021-2-19 11:31 编辑 
+
+我对引流没什么梁木，运营QA骗人直播转动态事后还嘴硬，还有一个疑似改生日这些才是重点
+
+
+多少有点不把人放在眼里的意思了
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 1757#       发表于 2021-2-19 11:48
+
+
+
+
+说不定然然真的20岁，4月11日生日。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 1758#       发表于 2021-2-19 11:49
+
+
+
+
+不过这不算改生日啊，自我介绍的生日还没改啊。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1759#       发表于 2021-2-19 11:54
+
+
+
+
+虚虚实实，有点V了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1760#       发表于 2021-2-19 11:57
+
+
+
+
+不觉得运营有什么长期规划，字节跳动也没有强社区运营的产品。
+
+
+
+
+
+
+
+-----
+
+####  花生酱神侃  
+##### 1761#       发表于 2021-2-19 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50375491&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-19 11:57</a>
+不觉得运营有什么长期规划，字节跳动也没有强社区运营的产品。</blockquote>
+这波真的没懂，但年前还是能做好基本的危机公关的，年后只会装死了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1762#       发表于 2021-2-19 12:23
+
+
+
+
+节奏停了没事情干，运营下午不整个活可太无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1763#       发表于 2021-2-19 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50375786&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-19 12:23</a>
+
+节奏停了没事情干，运营下午不整个活可太无聊了
+
+
+—— 来自 S1Fun</blockquote>
+看看二创，写写小作文
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 1764#       发表于 2021-2-19 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50375786&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-19 12:23</a>
+节奏停了没事情干，运营下午不整个活可太无聊了
+
+—— 来自 S1Fun</blockquote>
+快去欣赏全国方言版《嘉然小姐的狗》深情诗朗诵<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 1765#       发表于 2021-2-19 12:43
+
+
+
+
+去贴吧玩啊，糖宝说是在as的华润大厦楼下。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1766#       发表于 2021-2-19 12:52
+
+
+
+
+运营动了，新家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1767#       发表于 2021-2-19 12:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还要战斗到周二吗。
+
+
+
+
+
+
+
+-----
+
+####  光明驱动  
+##### 1768#       发表于 2021-2-19 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50374368&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-02-19 10:25:16</a>
+一觉过去，vjuan千年
+一共发生了多少事情啊。</blockquote>昨天又去被nga专楼里的尼哥嘲讽了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1769#       发表于 2021-2-19 13:06
+
+
+
+
+虽然知道是演的，但能不能换个稍微演的好点的啊，这运营的演的我都替他着急，实在不行去找个语c外包都比你运营rp得好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1770#       发表于 2021-2-19 13:06
+
+
+
+
+硬拖周二，我看明晚啊有大活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1771#       发表于 2021-2-19 13:07
+
+
+
+
+明天的团播岂不是会非常精彩？
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1772#       发表于 2021-2-19 13:11
+
+
+
+
+这不是整出了评论最多的回复吗，嘉人们人人有病发天天有病发。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 1773#       发表于 2021-2-19 13:19
+
+
+
+
+这运营最好先闭嘴两天，嘉然号也别拿出来伐木了，现在越伐木仇恨值越高，每天发点日常的混混吧，动态营业稍微安排下也不难的事最后整成这样
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1774#       发表于 2021-2-19 13:26
+
+
+
+
+有匿名帐号给我发AS塔了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 1775#       发表于 2021-2-19 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376509&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-19 13:26</a>
+
+有匿名帐号给我发AS塔了</blockquote>
+细锁<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 1776#       发表于 2021-2-19 13:26
+
+
+
+
+那你放出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1777#       发表于 2021-2-19 13:27
+
+
+
+
+明明每天发两条动态营业分数就能天天开心了，非要搁评论区臊皮玩梗，次次都要被冲，只有嘉然受伤的世界<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 1778#       发表于 2021-2-19 13:27
+
+
+
+
+艹，比糖宝蹲守的速度还猛，能不能来点私信<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 1779#       发表于 2021-2-19 13:28
+
+
+
+
+细说塔<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1780#       发表于 2021-2-19 13:28
+
+
+
+
+一定是指定中之人，我才不信真能挖出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1781#       发表于 2021-2-19 13:29
+
+
+
+
+糖宝不要炒作了，你除了吧主就没说对过别的中之人信息<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sybaseliu  
+##### 1782#       发表于 2021-2-19 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也不太相信有的
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1783#       发表于 2021-2-19 13:35
+
+
+
+
+肯定是假的啊，信贴吧私信脑子才有问题
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1784#       发表于 2021-2-19 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376509&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-02-19 13:26:12</a>
+有匿名帐号给我发AS塔了</blockquote>“有话就直说，不用通过打谜语的方式让别人猜你是不是”<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                        
