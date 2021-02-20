@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 13:33** 
+> ## **本文件最后更新于2021-02-20 14:35** 
 
 
 
@@ -8137,4 +8137,1198 @@ asoul这直播间的氛围太哈人了，点进去一堆sc直接劝退了
 
 
 
-                                  
+
+
+-----
+
+####  Y_Curiosity  
+##### 1966#       发表于 2021-2-20 21:33
+
+
+
+
+我只要能看到嘉然直播，我就满意了，我一直是mmr啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1967#       发表于 2021-2-20 21:34
+
+
+
+
+这届8u属实有点泥
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1968#       发表于 2021-2-20 21:35
+
+
+
+
+roki确实行，贝拉我的贝拉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1969#       发表于 2021-2-20 21:36
+
+
+
+
+贝拉面部表情跟上了啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1970#       发表于 2021-2-20 21:37
+
+
+
+
+泥巴不都是指导<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我哪怕是骂新月岚，也是说你受得了这人这么玩想看就看呗，上来就又是说要炸弹炸直播间，又是搞出什么向晚二魔王的迷之理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还不魔怔
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 1971#       发表于 2021-2-20 21:37
+
+
+
+
+运营qa今天直播前放出来就没事了，当然周二继续摆烂当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1972#       发表于 2021-2-20 21:38
+
+
+
+
+泥巴种事情也太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">能不能先去把高中上完再来上网冲浪啊
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 1973#       发表于 2021-2-20 21:38
+
+
+
+
+宅舞对贝拉还是太简单了，但这加花加得也不太好看
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 1974#       发表于 2021-2-20 21:38
+
+
+
+
+吧友太魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer"> 今天冲是想干嘛 。讨说法吗
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1975#       发表于 2021-2-20 21:38
+
+
+
+
+作为贝极星今天满足了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1976#       发表于 2021-2-20 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390848&amp;ptid=1974517" target="_blank">人別離苦 发表于 2021-2-20 21:38</a>
+
+吧友太魔怔了 今天冲是想干嘛 。讨说法吗</blockquote>
+类似优幸示威？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1977#       发表于 2021-2-20 21:40
+
+
+
+
+还是乃0会控场，你就打野吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 1978#       发表于 2021-2-20 21:42
+
+
+
+
+舆论危机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才啥风浪。
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 1979#       发表于 2021-2-20 21:43
+
+
+
+
+不是，就剩20分钟了，珈乐还要上跑步机，这神秘嘉宾是个鬼啊，不会说是前面五个阿草吧
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1980#       发表于 2021-2-20 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390888&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-20 21:43</a>
+
+不是，就剩20分钟了，珈乐还要上跑步机，这神秘嘉宾是个鬼啊，不会说是前面五个阿草吧 ...</blockquote>
+那估计就是了
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 1981#       发表于 2021-2-20 21:44
+
+
+
+
+嘉然：都已经按到5了，她还在走
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 1982#       发表于 2021-2-20 21:44
+
+
+
+
+当然是为了满足自己内心的正义幻象。这两天出的谣言有19年初nga天狗楼内味了
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 1983#       发表于 2021-2-20 21:44
+
+
+
+ 本帖最后由 Umichika 于 2021-2-20 21:45 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 1984#       发表于 2021-2-20 21:45
+
+
+
+
+开了抖音居然有1400同接,  看来B站掉的同接有不少跑抖音了,  跑的人没有一千那么多
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 1985#       发表于 2021-2-20 21:45
+
+
+
+
+坏了不会加布的录播被这弹幕搞得上不了架吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1986#       发表于 2021-2-20 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390911&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-20 21:45</a>
+
+开了抖音居然有1400同接,  看来B站掉的同接有不少跑抖音了,  跑的人没有一千那么多 ...</blockquote>
+怕你不知道跟你说一声，抖音最高到过4000同接
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1987#       发表于 2021-2-20 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390912&amp;ptid=1974517" target="_blank">luoy 发表于 2021-2-20 21:45</a>
+
+坏了不会加布的录播被这弹幕搞得上不了架吧
+
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 S ...</blockquote>
+估计这期就上传无弹幕版了
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1988#       发表于 2021-2-20 21:47
+
+
+
+
+嘉然眼都睁不开了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1989#       发表于 2021-2-20 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mmr浓度上升了，v8浓度下降了。
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 1990#       发表于 2021-2-20 21:49
+
+
+
+
+啊这，原来神秘嘉宾就是阿草吗，有点无聊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1991#       发表于 2021-2-20 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390956&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-20 21:49</a>
+
+mmr浓度上升了，v8浓度下降了。</blockquote>
+应该是放弃了run了
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1992#       发表于 2021-2-20 21:51
+
+
+
+
+看了一下，应该是有不少取关了
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1993#       发表于 2021-2-20 21:51
+
+
+
+
+右下角有点像带小孩串门那种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1994#       发表于 2021-2-20 21:52
+
+
+
+
+贝拉四川人？？？
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1995#       发表于 2021-2-20 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么四川妹
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1996#       发表于 2021-2-20 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1997#       发表于 2021-2-20 21:53
+
+
+
+
+感觉正常人都在抖音了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1998#       发表于 2021-2-20 21:53
+
+
+
+
+官话喜欢，我直接转生贝极星<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1999#       发表于 2021-2-20 21:54
+
+
+
+
+70度洗脚水，这就是洗脚婢的尊严吗
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2000#       发表于 2021-2-20 21:54
+
+
+
+
+蚌埠住了，珈乐不懂洗脚这个梗吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2001#       发表于 2021-2-20 21:55
+
+
+
+
+恰完火锅回来，今天团播如何有无repo哥，b综评论和官号切片评论空气差距有点大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2002#       发表于 2021-2-20 21:55
+
+
+
+
+暴击
+
+
+
+
+
+
+tmp.jpg
+(46.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-20 21:55 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/20/215503nhh2hvjxhf0hpenc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 2003#       发表于 2021-2-20 21:56
+
+
+
+
+说四川话张嘴就骂人还行
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2004#       发表于 2021-2-20 21:57
+
+
+
+
+四川话只会骂人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2005#       发表于 2021-2-20 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391020&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2021-2-20 21:55</a>
+
+恰完火锅回来，今天团播如何有无repo哥，b综评论和官号切片评论空气差距有点大 ...</blockquote>
+开播前独轮车
+
+开播前几分钟投降
+
+直播中间sc对线
+
+现在b直播间正常了，因为受不了的都run去评论区
+
+
+syl 我要循环贝拉这趴一晚上<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 2006#       发表于 2021-2-20 21:58
+
+
+
+
+拉胯 好！
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2007#       发表于 2021-2-20 22:02
+
+
+
+
+
+
+roki
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2008#       发表于 2021-2-20 22:02
+
+
+
+
+等一个骂人小贝拉，很急<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 2009#       发表于 2021-2-20 22:02
+
+
+
+
+乃琳是东北人吧，嘚这种话都知道
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2010#       发表于 2021-2-20 22:05
+
+
+
+
+然然今天是不是没有表演？我看漏了？
+
+嘉心糖真不好当，心疼我的然然<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 2011#       发表于 2021-2-20 22:07
+
+
+
+
+然然要好好休息啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2012#       发表于 2021-2-20 22:08
+
+
+
+
+果然有回马枪
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2013#       发表于 2021-2-20 22:09
+
+
+
+
+反转了，都是羊驼精<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">都是假的
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2014#       发表于 2021-2-20 22:13
+
+
+
+
+说起来又丢人又好笑，嘉然说再见的时候我哭了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2015#       发表于 2021-2-20 22:13
+
+
+
+
+糖宝差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2016#       发表于 2021-2-20 22:17
+
+
+
+
+评论区怎么还有要去公司真人快打的，太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2017#       发表于 2021-2-20 22:19
+
+
+
+<blockquote>EnbuRiAs 发表于 2021-2-20 06:17
+评论区怎么还有要去公司真人快打的，太哈人了</blockquote>
+我在女运营号下整活给她干破防了，然后被贴吧人偷了
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2018#       发表于 2021-2-20 22:19
+
+
+
+
+线下太魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 2019#       发表于 2021-2-20 22:21
+
+
+
+
+那今天的神秘嘉宾呢？？
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 2020#       发表于 2021-2-20 22:22
+
+
+
+
+糖宝是版主养着恶心vt用的么？
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2021#       发表于 2021-2-20 22:24
+
+
+
+
+神秘嘉宾就是羊驼啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2022#       发表于 2021-2-20 22:24
+
+
+
+
+艹，nga专楼今天晚上典中典了，有去gwy网站递交举报信的，有把不喷的人比作是因为沉默被迫害的犹太人的
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2023#       发表于 2021-2-20 22:26
+
+
+
+
+小品刚刚开场呢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2024#       发表于 2021-2-20 22:27
+
+
+
+
+泥哥扣帽子是一等一的，这到提醒我今天还没看泥哥笑话楼了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2025#       发表于 2021-2-20 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391268&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-20 22:19</a>
+
+我在女运营号下整活给她干破防了，然后被贴吧人偷了</blockquote>
+有没有贴吧开盒地址 急急急
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 2026#       发表于 2021-2-20 22:28
+
+
+
+
+今天真掉了不少粉，不过还是看周二吧，周二没处理好那是真完了
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2027#       发表于 2021-2-20 22:28
+
+
+
+
+然然今天没跳，不会是被前两天那个区乐华楼下的给打了吧！带着伤还来团播，难怪跑步机环节就无言看弹幕，看着满屏的污言秽语，**难**，你的心一定在流泪吧，你一定庆幸着今天是这一身只会微笑的虚拟皮囊吧，魔楞人我鲨了你！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 2028#       发表于 2021-2-20 22:29
+
+
+
+
+贝拉新动态底下有发病了，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2029#       发表于 2021-2-20 22:29
+
+
+
+
+去线下的要是被保安赶走了，记得有困难找110<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2030#       发表于 2021-2-20 22:29
+
+
+
+
+差不多得了，我就全景地图钓点萌萌人，不过看起来真有人要去华润了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2031#       发表于 2021-2-20 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391368&amp;ptid=1974517" target="_blank">Anew620 发表于 2021-2-20 22:29</a>
+
+贝拉新动态底下有发病了，害怕之前只是其他人动态底下有发病的没感觉什么到了贝拉我就害怕了。入脑 ...</blockquote>
+把然然当处理厂你们会遭报应的！好好体会一下嘉心糖的痛苦吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2032#       发表于 2021-2-20 22:31
+
+
+
+
+今天是真掉粉了，后半段连车都不想车直接跑了一批
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2033#       发表于 2021-2-20 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">节目粉表示今晚很不错，安心睡觉。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2034#       发表于 2021-2-20 22:32
+
+
+
+
+这直播质量就算玩控评禁言那一套也不会凉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阿梓反复横跳那么多次也没事，还不是自己有能力；就算是新月岚这种，恶俗引流一提纯不还是混的风声水起
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2035#       发表于 2021-2-20 22:32
+
+
+
+
+不被进局子就是胜利！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                
