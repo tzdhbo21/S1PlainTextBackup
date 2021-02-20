@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 13:31** 
+> ## **本文件最后更新于2021-02-20 10:37** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_IdA5q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_fi3X3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_B3yU7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Y9033" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_u2382" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_z7wKr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Gx4NK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_t95fp" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -7009,11 +7009,659 @@ B小鬼不震怒啊？<img src="https://static.saraba1st.com/image/smiley/face20
 
 
 
+ 本帖最后由 FCCHua 于 2021-2-19 21:32 编辑 
 
-力一这个新衣服披露等的我好急<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+力一这个新衣服披露等的我好急<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 说完就出来了，草
+熟悉的拖鞋
 
 
 
 
 
-                                     
+
+
+-----
+
+####  alcoholic1000  
+##### 31865#       发表于 2021-2-19 21:34
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-19 21:59 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/213406rpmb6vm0jz3kae43.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目】1年9か月ぶりの新衣装 飲み友達もいるよ【にじさんじ:ジョー・力一.png</strong> (277.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 21:34 上传
+
+
+
+
+
+好糊，感觉会在死喷中出现的衣服
+
+<img src="https://img.saraba1st.com/forum/202102/19/215842ctgp22ee92x0tpze.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目】1年9か月ぶりの新衣装 飲み友達もいるよ【にじさんじ:ジョー・力一.png</strong> (148.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 21:58 上传
+
+
+
+
+
+
+还是好糊，但这两身都很时髦啊
+[https://www.youtube.com/watch?v=9qSJNAMuw_Y&amp;feature=emb_logo](https://www.youtube.com/watch?v=9qSJNAMuw_Y&amp;feature=emb_logo)
+
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31866#       发表于 2021-2-19 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹哪里要完啊，lize有原神玩，椎名也回归了，一片欣欣向荣
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 31867#       发表于 2021-2-19 21:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有无敌原神转播，葛蝗apex，熊猫人百万b限，真的会完嘛，新时代虹人已经高呼不可战胜了。
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 31868#       发表于 2021-2-19 22:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/220928v6bxf2s36mofufjm.png" referrerpolicy="no-referrer">
+
+
+<strong>20210219220833.png</strong> (16.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 22:09 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31869#       发表于 2021-2-19 22:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/224138nteeunrreg22euea.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EumI55IVEAQYTMl.jpg</strong> (50.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 22:41 上传
+
+
+
+
+
+
+好休
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 31870#       发表于 2021-2-19 22:45
+
+
+
+
+郡道开asmr了？ 之前的是每次都删档了吗 怎么搜不到最近的
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 31871#       发表于 2021-2-19 22:46
+
+
+
+
+号泣，你虹已近乎完了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">。
+
+
+今天晚上真白和叶山要玩生化5，不过只玩15分钟是什么意思，就这么不想播吗！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31872#       发表于 2021-2-19 23:01
+
+
+
+
+力一好潮啊，小丑人设真好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。
+省一楼，774的西园寺mary正在播小小噩梦2的最终回了，大家有兴趣…
+再省一楼，郡道asmr太色了怕被油管ban掉，公开播完存档转会限（自从搞asmr之后连续四次直播bug真的给看笑了）
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 31873#       发表于 2021-2-19 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50381436&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-2-19 22:10</a></blockquote>
+……？
+57秒？
+这个是现有的外放过的模型嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 31874#       发表于 2021-2-19 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50381874&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-2-19 23:05</a>
+
+……？
+
+57秒？
+
+这个是现有的外放过的模型嘛？</blockquote>
+正是
+<[img src="https://i.loli.net/2021/02/19/xTfRWcpus8PHz7Q.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31875#       发表于 2021-2-20 00:00
+
+
+
+
+郡道的ASMR就是技术不够，服务精神来顶，心音和耳かき像假的一样，
+
+但态度很好，很会演，不错，希望未来能更进一步<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 31876#       发表于 2021-2-20 01:38
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-2-20 01:40 编辑 
+
+说起来holo真的不打算把三期及之后的模型放出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 31877#       发表于 2021-2-20 02:09
+
+
+
+ 本帖最后由 バーチャルS1er 于 2021-2-20 02:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50382798&amp;ptid=1969498" target="_blank">乌鸦绅士 发表于 2021-2-20 01:38</a>
+
+说起来holo真的不打算把三期及之后的模型放出来吗我看见的一个去年入坑holo变成船长gachi的nico老MM ...</blockquote>
+以前是木口人气不咋地，什么力都想借点、而且还有四天王影响的传统、所以才把模型发出来，三期之后人气大爆发,mmd圈也是早就衰退不断，木口已经看不上这点二创宣传力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 31878#       发表于 2021-2-20 08:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50382250&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-20 00:00</a>
+郡道的ASMR就是技术不够，服务精神来顶，心音和耳かき像假的一样，
+
+但态度很好，很会演，不错，希望未来能 ...</blockquote>
+虽然演一会就要休息一会但是确实服务精神很好，上次新衣装绿幕asmr读sc我惊了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 31879#       发表于 2021-2-20 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">赤坂Selly的VIP位最后给了雨宫向日葵小姐，你是哪来的人脉啊
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 31880#       发表于 2021-2-20 11:56
+
+
+
+
+找一个分不高的翻译位工具人还挺难找的，她本来没打算参加说不定是cr老板去找她帮忙的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31881#       发表于 2021-2-20 12:06
+
+
+
+
+446这直播真是一股退休老人自得其乐扑面而来，啥时候去隔壁找阿凛联动阿
+
+
+
+
+
+
+
+-----
+
+####  望月のあ推し  
+##### 31882#       发表于 2021-2-20 12:09
+
+
+
+
+sugar昨天油管首播
+<img src="https://p.sda1.dev/1/831da4e8c482c4b0b5f720d678f56718/IMG_CMP_23561690.jpeg" referrerpolicy="no-referrer">
+到这的时候我乍一看目标一百万，以为说粉丝
+右上角一看，再生，微妙
+一偏头看到后面藏了个円字
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 31883#       发表于 2021-2-20 12:24
+
+
+
+<blockquote>winda 发表于 2021-2-20 11:53
+赤坂Selly的VIP位最后给了雨宫向日葵小姐，你是哪来的人脉啊</blockquote>
+Selly是真不会日语，我看他直播开黑从来都没有找过日本职业哥一起玩，都是t1，fendo 那帮人，还有aka,ras这些，要是bora不强估计铁定找bora的，剩下的不就只有hero懂点了么
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 31884#       发表于 2021-2-20 13:00
+
+
+
+ 本帖最后由 十四洲 于 2021-2-20 13:02 编辑 
+
+bora这耐久钻三真是勇啊，还めうめう的，能不能学点好的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 31885#       发表于 2021-2-20 13:07
+
+
+
+<blockquote>乌鸦绅士 发表于 2021-2-20 01:38
+说起来holo真的不打算把三期及之后的模型放出来吗我看见的一个去年入坑holo变成船长gachi的nico老MM ...</blockquote>
+以前宣传带来的好处大于r18小动画的坏处，现在mmd圈只不过回到了它们应有的位置而已。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 31886#       发表于 2021-2-20 13:24
+
+
+
+
+STUDY ENGLISH after a long time!!
+
+4,786 人正在观看•直播开始时间：83分钟 前
+
+
+1.5万
+
+
+88
+
+
+分享
+
+
+保存
+
+
+
+天使うと / Amatsuka Uto
+
+36.7万位订阅者
+
+
+
+说好的炎上呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 31887#       发表于 2021-2-20 14:23
+
+
+
+
+ame都人称黄天使了，还搁这炎上呢。
+
+
+
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 31888#       发表于 2021-2-20 16:39
+
+
+
+
+彩虹什么时候也搞个pv 我要看在各种妄想里都是最终boss的美大生<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 31889#       发表于 2021-2-20 16:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/20/164257m9m6xmg1c6oodxzo.png" referrerpolicy="no-referrer">
+
+
+<strong>GY{I1])[~WQT4@@6]8P1J$M.png</strong> (53.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 16:42 上传
+
+
+
+
+
+？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31890#       发表于 2021-2-20 17:27
+
+
+
+
+从虹fes谷开团情况可以稍稍看出liver在这边的人气差别，c组gamers可以说是一骑绝尘啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31891#       发表于 2021-2-20 17:49
+
+
+
+
+难道还需要看谷子才知道gamers的人气吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31892#       发表于 2021-2-20 17:53
+
+
+
+
+虹女粉武德充沛，男粉费拉不堪
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31893#       发表于 2021-2-20 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周边一直是女粉战斗力强。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31894#       发表于 2021-2-20 17:55
+
+
+
+
+最近虹楼根本看不懂，全是谷圈术语，一脸懵逼
+这东西真的太难为男粉了，不像女粉沉浸多年
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31895#       发表于 2021-2-20 18:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹现在的发展结果是不是也和盈利方式有一定原因呢，一直都说虹靠周边赚钱，周边购买力上确实女粉远强于男粉，反馈到一吃卡那就是女粉支持的v更能盈利，之后也就会向这方面发展，并给相关liver资源倾斜，不断作用到现在，虹的女粉数量及男v的战斗力也越来越强，人气高的女v一般也会有较多女粉。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31896#       发表于 2021-2-20 18:14
+
+
+
+
+倒不只是gamers人气啦，们郡郡在的g组，开五卖出了三个地缚灵还不是同捆的，诧异，
+如果不是地缚灵我也可以考虑抱盒了，g组出了郡道老板娘口了就收着，美夜子送人，3bk出了肯定回本，唉…对抽卡运没有信心
+
+
+
+
+
+                                    
