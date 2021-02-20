@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 14:35** 
+> ## **本文件最后更新于2021-02-20 17:01** 
 
 
 
@@ -9331,4 +9331,2359 @@ roki
 
 
 
-                                
+
+
+-----
+
+####  是谁的书画  
+##### 2036#       发表于 2021-2-20 22:38
+
+
+
+
+有没有as吧降下大手的可能性?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大时候一定又是一场绝美的狂欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2037#       发表于 2021-2-20 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391405&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-20 22:32</a>
+
+不被进局子就是胜利！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 其实几个人偷偷摸摸随便就混进去了 抱团不就是找抓吗
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2038#       发表于 2021-2-20 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391400&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-20 22:32</a>
+
+这直播质量就算玩控评禁言那一套也不会凉啊 阿梓反复横跳那么多次也没事，还不是自己有能力；就算是 ...</blockquote>
+类似的剧本在娱乐圈和饭圈上演了很多遍，现在发生的事情甚至不需要额外的处理。
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2039#       发表于 2021-2-20 22:42
+
+
+
+
+As找的托智商太低了，以后要换个好点的拖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2040#       发表于 2021-2-20 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391474&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-20 22:40</a>
+
+其实几个人偷偷摸摸随便就混进去了 抱团不就是找抓吗</blockquote>
+能刷门禁的工卡都没有混个鸡儿（估计电梯都上不了），最终就是搞狗仔队一样蹲路边草丛的套路么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2041#       发表于 2021-2-20 22:44
+
+
+
+
+关注5000不到的贴吧有什么控评的必要吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2042#       发表于 2021-2-20 22:44
+
+
+
+
+这个托是拉出来当沙包的吧。。
+
+今晚又是打成一团
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2043#       发表于 2021-2-20 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391499&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-20 22:42</a>
+
+As找的托智商太低了，以后要换个好点的拖
+
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 S1Next-鹅版  ...</blockquote>
+估计不是托（指不是因为下指令才打钱的），不过这1000也是不会还给你的peko<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2044#       发表于 2021-2-20 22:45
+
+
+
+<blockquote>音稻 发表于 2021-2-20 06:27
+有没有贴吧开盒地址 急急急</blockquote>
+华润大厦啊
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2045#       发表于 2021-2-20 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391521&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-20 22:44</a>
+估计不是托（指不是因为下指令才打钱的），不过这1000也是不会还给你的peko ...</blockquote>
+从被扒的各个信息来看是铁托，还想当as吧吧主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过他已经把动态锁起来了
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  zuperer  
+##### 2046#       发表于 2021-2-20 22:48
+
+
+
+
+开始掉粉了。
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2047#       发表于 2021-2-20 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391554&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-20 22:47</a>
+从被扒的各个信息来看是铁托，还想当as吧吧主不过他已经把动态锁起来了
+
+—— 来自 HUAWEI BLA-AL ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当as吧吧主还行，那活该被开盒。
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2048#       发表于 2021-2-20 22:49
+
+
+
+
+掉粉是好事，如果这就是切割v8的直播我希望多来
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2049#       发表于 2021-2-20 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">饭圈有过这种官方粉头托被开盒的吗。很乐了
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2050#       发表于 2021-2-20 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391575&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-20 22:49</a>
+想当as吧吧主还行，那活该被开盒。</blockquote>
+这不算开盒吧，就是贴吧发言、b站直播间发言、动态发言对照而已。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2051#       发表于 2021-2-20 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391575&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-20 22:49</a>
+想当as吧吧主还行，那活该被开盒。</blockquote>
+还没到开盒地步，有人把他贴吧号和以前的弹幕找出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 2052#       发表于 2021-2-20 22:55
+
+
+
+
+魔怔成那样的人会主动走吗？不是想正常看直播的人被吓走？
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2053#       发表于 2021-2-20 22:57
+
+
+
+
+麻了，as团号评论区开验证码了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 2054#       发表于 2021-2-20 22:57
+
+
+
+
+魔怔人，魔怔魂，魔怔都是人上人！
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2055#       发表于 2021-2-20 22:59
+
+
+
+
+能不能一波全切完啊 我有点急<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2056#       发表于 2021-2-20 22:59
+
+
+
+
+真切割了你们以为魔怔人会就此跑路吗？你直播以后都不要想有一个好环境了，至少得给出一个还算看得过去的解释
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2057#       发表于 2021-2-20 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391633&amp;ptid=1974517" target="_blank">岛田开 发表于 2021-2-20 22:57</a>
+
+麻了，as团号评论区开验证码了我都怀疑春节上来是不是运营团队换了，冲直播可能有点粗暴，你官号的 ...</blockquote>
+没啊，被你忽悠过去发了条test，应该是你刷多了系统自动检测了吧
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2058#       发表于 2021-2-20 23:01
+
+
+
+
+这么魔怔，我都想不出能有什么说法能让大家满意了，只能说可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2059#       发表于 2021-2-20 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391675&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-20 23:00</a>
+
+没啊，被你忽悠过去发了条test，应该是你刷多了系统自动检测了吧</blockquote>
+啊这，我冲多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果咩，第一次遇到这情况
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2060#       发表于 2021-2-20 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391683&amp;ptid=1974517" target="_blank">人別離苦 发表于 2021-2-20 23:01</a>
+
+这么魔怔，我都想不出能有什么说法能让大家满意了，只能说可惜了</blockquote>
+还行吧，我觉得只要运营承认自己滥用嘉然账号，并对此道歉且承诺以后按照之前的约定标注好运营代发就行啊。
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 2061#       发表于 2021-2-20 23:06
+
+
+
+
+运营但凡这两天道个歉今天直播间都不会冲成这样，就嗯等周二<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2062#       发表于 2021-2-20 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391736&amp;ptid=1974517" target="_blank">沙华 发表于 2021-2-20 23:06</a>
+
+运营但凡这两天道个歉今天直播间都不会冲成这样，就嗯等周二</blockquote>
+除了s1，好像全平台的舆论一边倒<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2063#       发表于 2021-2-20 23:07
+
+
+
+
+不骂的全扣帽子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这味也太冲了
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2064#       发表于 2021-2-20 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391719&amp;ptid=1974517" target="_blank">岛田开 发表于 2021-2-20 23:04</a>
+还行吧，我觉得只要运营承认自己滥用嘉然账号，并对此道歉且承诺以后按照之前的约定标注好运营代发就行啊 ...</blockquote>
+你看下面不就有人发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2065#       发表于 2021-2-20 23:10
+
+
+
+
+直播冲真的好影响观感   我看半小时就关了直播间去等录播
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2066#       发表于 2021-2-20 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只是魔怔人说话声音更大而已
+
+
+看个直播被魔怔人恶心到了 魔怔人赢了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2067#       发表于 2021-2-20 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391736&amp;ptid=1974517" target="_blank">沙华 发表于 2021-2-20 23:06</a>
+运营但凡这两天道个歉今天直播间都不会冲成这样，就嗯等周二</blockquote>
+只能解释为提纯，或者运营不专业自己号被冲了，有了脾气；可以参考维阿的运营光驱，混迹论坛这么多年该上头还是上头
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2068#       发表于 2021-2-20 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391744&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-20 23:07</a>
+
+除了s1，好像全平台的舆论一边倒</blockquote>
+少数人嗓门大而已，as的粉丝还是节目粉为主的。
+
+当然s1什么时候都不起作用<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2069#       发表于 2021-2-20 23:18
+
+
+
+
+运营给我的感觉就像是他和asoul五个人有仇一样。就像是以前看维阿运营发个公关文，liver转了之后，官号又顺手删了。我估计中之人内心也多多少少有疑惑这司马运营是不是想让观众转火我啊？
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  折木奉太郎Q  
+##### 2070#       发表于 2021-2-20 23:18
+
+
+
+
+刚刚看到一个贴
+说这几天的事会不会可能是场误会呢
+首先嘉然直播转发，有没有可能是奶琳发的呢，然后看见评论区不对劲赶紧让然然解释，结果越描越黑
+然后就是画头像，听说奶琳在那时候进了乐府直播间被看到了
+在然后就是嘉然和新月岚炒作，有可能是嘉然自己玩梗，虽然她说这个不是她的梗，可能她意思是要自己做原创梗，而这个梗她也没说要不要自己玩。
+
+— from Xiaomi MI MAX 2, Android 7.1.1 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2071#       发表于 2021-2-20 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391842&amp;ptid=1974517" target="_blank">折木奉太郎Q 发表于 2021-2-20 23:18</a>
+
+刚刚看到一个贴
+
+说这几天的事会不会可能是场误会呢
+
+首先嘉然直播转发，有没有可能是奶琳发的呢，然后看见评 ...</blockquote>
+按照s1外野著名名言万物草台论，这有可能，但我不希望啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2072#       发表于 2021-2-20 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391783&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-20 23:12</a>
+
+少数人嗓门大而已，as的粉丝还是节目粉为主的。
+
+当然s1什么时候都不起作用 ...</blockquote>
+节目粉嗓门小，被恶心到不就跑了吗。不知道今天破防的人魔怔到了什么程度，能留在ASOUL社区里发病多久<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+运营这一刀切得是不是太狠了，直播间清理、水军全上了，嗓门大的是不是能记他一辈子了。
+
+
+节后流水又涨了<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2073#       发表于 2021-2-20 23:21
+
+
+
+
+这味太大了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2074#       发表于 2021-2-20 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391842&amp;ptid=1974517" target="_blank">折木奉太郎Q 发表于 2021-2-20 23:18</a>
+刚刚看到一个贴
+说这几天的事会不会可能是场误会呢
+首先嘉然直播转发，有没有可能是奶琳发的呢，然后看见评 ...</blockquote>
+那官托怎么解释？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2075#       发表于 2021-2-20 23:23
+
+
+
+
+现在回想一下弹幕魔怔其实还好    主要那个sc太显眼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2076#       发表于 2021-2-20 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391842&amp;ptid=1974517" target="_blank">折木奉太郎Q 发表于 2021-2-20 23:18</a>
+刚刚看到一个贴
+说这几天的事会不会可能是场误会呢
+首先嘉然直播转发，有没有可能是奶琳发的呢，然后看见评 ...</blockquote>
+你太能误会了，晚晚都说了发动态的手机被收上去了。还有新月岚是谁啊，然然和她很熟？他发动态的时候连关注都没关注，看到运营回复才关注，看评论情况不对删动态取关一气呵成。岚狗也就差再来一句你几把谁啊
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2077#       发表于 2021-2-20 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391842&amp;ptid=1974517" target="_blank">折木奉太郎Q 发表于 2021-2-20 23:18</a>
+
+刚刚看到一个贴
+
+说这几天的事会不会可能是场误会呢
+
+首先嘉然直播转发，有没有可能是奶琳发的呢，然后看见评 ...</blockquote>
+连续发生的奇迹就是我们的日常？
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2078#       发表于 2021-2-20 23:28
+
+
+
+
+然然没关注过新月岚，想象要有逻辑性。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2079#       发表于 2021-2-20 23:29
+
+
+
+
+这个官托应该是运营团队里面某个工具人在无授权的情况下自己水，自己rp，自己被开盒。
+
+不然没法解释为啥这么蠢，吃力不讨好。
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2080#       发表于 2021-2-20 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">字节和乐华也这么草台吗。
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 2081#       发表于 2021-2-20 23:31
+
+
+
+
+浑水摸鱼带节奏的太多，各种懂哥群魔乱舞，不知道在这钓谁呢，正常人这会真多余看节目以外的东西
+
+<img src="https://img.saraba1st.com/forum/202102/20/233109w69r3099955fe0zf.png" referrerpolicy="no-referrer">
+
+
+<strong>AS.PNG</strong> (65.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 23:31 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2082#       发表于 2021-2-20 23:33
+
+
+
+
+其实不可能存在8u梦想中的v，术业有专攻，要实力强就没有时间混社区学梗，要懂梗就没时间练习，之前已经透露过贝拉晚上要去做理疗了，这不明摆着白天高强度训练才需要在晚上做理疗么，还车她不转二创，我觉得就是那时候运营开始替转替回了。
+
+我还以为v圈观众天然能接受一个皮是由集体创作而成的概念，结果是要求一个人就能做出一个团队的效果。
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2083#       发表于 2021-2-20 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> pd好像回应了 有人扒了个截图。
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2084#       发表于 2021-2-20 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391973&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-20 23:33</a>
+
+其实不可能存在8u梦想中的v，术业有专攻，要实力强就没有时间混社区学梗，要懂梗就没时间练习，之前已经透 ...</blockquote>
+可是他一个团队也没做出一个人的效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2085#       发表于 2021-2-20 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想起然然情人节直播我还看得挺开心的 元气满满 除了有点炸麦以外都还好
+
+
+结果打开社区一看 全在车节目效果
+
+
+那晚开始 我就决定只当个mmr了 mmr真香<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2086#       发表于 2021-2-20 23:38
+
+
+
+
+李子柒也是个皮<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">确实一个团队做出一个人的效果，好强！
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2087#       发表于 2021-2-20 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391997&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-20 23:37</a>
+可是他一个团队也没做出一个人的效果啊</blockquote>
+有一个人的全身3D？一个人动捕服都穿不好
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2088#       发表于 2021-2-20 23:45
+
+
+
+
+额，不太明白再吵什么，有无懂哥解释一波啊，几乎所有论坛关于这个团队的V的评论都太混乱了，尤其是这几天，但是我看他们的直播感觉挺好的，至于什么账号代管被刺什么的很重要？
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2089#       发表于 2021-2-20 23:45
+
+
+
+
+看了几个地方的发言，突然感觉好像都不是啥大事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+魔怔人自己越洗越黑，到头来过段时间错肯定也是在部分用户身上(当然他们确实也有错)。稍微让liver带下节奏，运营承认有一部分操作存在失误，风向自然就变了。
+我不知道饭圈是咋样，但正常的媒体应该不想要有魔怔人在节目上和自己地盘里拉💩吧，影响节目效果又不好吸新粉;所以淘汰一部分粉丝可能是他们确实会做的，应该
+
+其实从头到尾我都没觉得能抓住运营什么把柄，人家话也没说全，解读有一万种可能。另外一边魔怔人恨不得把自己底裤掏出来当底牌，能打的都打了，优劣势已经很明显了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我倾向下周魔怔人被干碎
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2090#       发表于 2021-2-20 23:45
+
+
+
+
+我觉得技术和美术这块还是给力的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 2091#       发表于 2021-2-20 23:48
+
+
+
+
+请水军也太弱智了，这运营是不是自从小年夜过后彻底由了滑稽接手了啊，看来倪哥当初说对了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2092#       发表于 2021-2-20 23:50
+
+
+
+
+看见楼友还是正常的我放心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2093#       发表于 2021-2-20 23:50
+
+
+
+
+真是信息差问题
+
+总结下问题就是，很多人把AS女孩当成自己虚拟妻子了
+
+然后前几天突然发现，跟自己聊天的虚拟妻子实际上是岳父装的
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2094#       发表于 2021-2-20 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392050&amp;ptid=1974517" target="_blank">是谁的书画 发表于 2021-2-20 23:45</a>
+
+看了几个地方的发言，突然感觉好像都不是啥大事了
+
+魔怔人自己越洗越黑，到头来过段时间错肯定也是在 ...</blockquote>
+之前看的时候以为都是钓鱼，怎么现在有些人是真的魔怔，疯狂加速<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2095#       发表于 2021-2-20 23:51
+
+
+
+
+其实大部分8u就是想看见这傻逼运营道个歉 其他都是细枝末节谁叫你嗯拖呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2096#       发表于 2021-2-20 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392034&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-20 23:41</a>
+
+有一个人的全身3D？一个人动捕服都穿不好</blockquote>
+ASOUL团队皮套号的运营不看直播安排就转动态、转了动态又拿皮套上去顶着、去拜嘉门手撕皮套设定、完全不管舆论发酵、只会制裁冲锋粉丝。说他没做出效果应该没问题吧
+
+说这个团队烂，跟3D势全是团队有什么关系。
+
+少怪观众了吧。入脑粉直呼破防，节目粉离开直播间，怪谁呢。
+
+
+我们可能有点误解，不想净土坛也成其他地方的样子，我先对不起吧
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2097#       发表于 2021-2-20 23:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我也觉得不是啥大事。怎么看起来这么大
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2098#       发表于 2021-2-20 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392080&amp;ptid=1974517" target="_blank">虚无缥缈的光阴 发表于 2021-2-20 23:48</a>
+
+请水军也太弱智了，这运营是不是自从小年夜过后彻底由了滑稽接手了啊，看来倪哥当初说对了
+
+
+  -- 来自 能手 ...</blockquote>
+由什么接手？
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2099#       发表于 2021-2-20 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392102&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-20 23:51</a>
+
+ASOUL团队皮套号的运营不看直播安排就转动态、转了动态又拿皮套上去顶着、去拜嘉门手撕皮套设定、完全不 ...</blockquote>
+我是真没觉得你说这几点算什么大事，估计运营现在和我应该是一个想法，所以QA要说些什么都要先拖到周二（因为不知道说什么）
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2100#       发表于 2021-2-20 23:55
+
+
+
+
+我天天在评论区刷怪话，劝退路人，但我是为了asoul好
+我引流神抗带兔动，搞得直播间乌烟瘴气，主播失态破防，但我是为了asoul好
+我在直播间引赵丹，刷垃圾评论，还妄想主播可以和我互动。虽然没几条能回的，但我是为了asoul好
+我关心这个企划能否长久胜过关心自己爹妈，关心中之人情况胜过关心自己，然后说别人是入脑mmr全肯定，我为了反抗这种全肯定去做全否定，但我是为了asoul好
+我虽然是v圈的边缘群体，但我有理啊，我魔怔了，我破防了，我取关了，as没了我一定会变成歌姬，变成千鸟，我以v界独一家的粪坑评论区为豪，我们核心粉的作用真的是太大啦！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 12战斗力 +12
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 抄袭炉石的垃圾| + 1|很难不支持|
+| zero_death| + 1|很难不笑嘻|
+| 某甲245| + 1|好评加鹅|
+| 海底铁锚| + 1|好评加鹅|
+| Umichika| + 1|v8引流怎么能叫炒作狗，都是为了你好！.|
+| 不想闭嘴| + 1|好|
+| FCCHua| + 1|好总结|
+| kularken| + 1|欢乐多|
+| mmbk| + 1|好！|
+| 裁决之光| + 1|好评加鹅|
+| 小小雪空| + 1|好评加鹅|
+| marlun| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2101#       发表于 2021-2-20 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392139&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-2-20 23:55</a>
+
+我天天在评论区刷怪话，劝退路人，但我是为了asoul好
+
+我引流神抗带兔动，搞得直播间乌烟瘴气，主播失态破防 ...</blockquote>
+懂了，本质还是巴不得死了来体现“谁让你们不守我们V圈的规矩”的优越感
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2102#       发表于 2021-2-20 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392097&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-20 23:50</a>
+
+真是信息差问题
+
+总结下问题就是，很多人把AS女孩当成自己虚拟妻子了
+
+然后前几天突然发现，跟自己聊天的虚拟 ...</blockquote>
+讲真没几个人会觉得是本人经营账号，都看破不说破而已，主要还是集中在刚刚本人直播看了私信转头虚拟岳父就乱操作了，你多少也要装一下吧，冲其实也就是要一个道歉而已，它团播之前稍微解释一下v8马上就/ff了
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2103#       发表于 2021-2-20 23:59
+
+
+
+
+AS吧使徒来袭
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2104#       发表于 2021-2-20 23:59
+
+
+
+
+其实就是屁大点事本来回私信转二创也不是强制的，主要是运营一开始回的私信太多，还让嘉然说什么每条私信都回（完全不理解为什么这么做）可是运营又rp不好嘉然，被发现了。我觉得要么就别回私信，二转和以前一样标上代发，要么就别被发现呗。运营最大的问题是出了事装死，让我想起了以前看过的各种恶心人的运营
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2105#       发表于 2021-2-21 00:02
+
+
+
+
+反观阿梓每天私信都亲自回
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2106#       发表于 2021-2-21 00:03
+
+
+
+
+当初v8还有一堆人逼着贝拉转二创我感觉也可以上vjuan迷惑行为大赏，逼得运营走火入魔rp失败也有这群逆天的功劳
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2107#       发表于 2021-2-21 00:03
+
+
+
+
+运营道过歉再车观众吧，他要是昨天或者今天就能服软，今天直播8u再闹现在骂的就是v8了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 2108#       发表于 2021-2-21 00:03
+
+
+
+
+魔怔人在饭圈里一律打成黑装粉，把意图说的再好干的也都是黑干的活
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2109#       发表于 2021-2-21 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392193&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 00:03</a>
+当初v8还有一堆人逼着贝拉转二创我感觉也可以上vjuan迷惑行为大赏，逼得运营走火入魔rp失败也有这群逆天的 ...</blockquote>
+可能真的rp走火入魔了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不然确实做不出这么脑瘫的操作
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2110#       发表于 2021-2-21 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392139&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-02-20 23:55:59</a>
+我天天在评论区刷怪话，劝退路人，但我是为了asoul好
+我引流神抗带兔动，搞得直播间乌烟瘴气，主播失态破防 ...</blockquote>很难不支持你
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2111#       发表于 2021-2-21 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392134&amp;ptid=1974517" target="_blank">marlun 发表于 2021-2-20 23:55</a>
+
+我是真没觉得你说这几点算什么大事，估计运营现在和我应该是一个想法，所以QA要说些什么都要先拖到周二（ ...</blockquote>
+这能说明你是正常观众。
+
+不过运营也这么想就不正常了，ASOUL粉丝构成从评论区能反应出来一点？今天直播前版本还是早期粉丝。运营装死，把这几天的节奏晾在旁边结果就是今晚的直播间状况和论坛混战。
+
+
+
+
+
+
+
+-----
+
+####  kularken  
+##### 2112#       发表于 2021-2-21 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50391744&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-20 23:07</a>
+除了s1，好像全平台的舆论一边倒</blockquote>
+除了s1的其他平台，指v8和被8u占领的nga阿骚楼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2113#       发表于 2021-2-21 00:04
+
+
+
+
+我根本就不相信8u的"只想要"，运营要是做啥都要和8u解释那就属实是想要淌屎过河了。
+毕竟8u是什么人啊，无脑开贝拉节奏，嗯批嘉然德不配位，脑补向晚分身。事都做全了，要运营未来一一解释，那运营就真成撒谎画饼bot了。
+不解释问题就要被8u狂轰滥炸，那这种霸道的行为真的和胖虎差不多了。但问题是8u都是什么人啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是老鼠拔猫胡子吗，按他们的话说"你寄吧谁啊"
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Umichika| + 2|实话，这几个真的太离谱了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cheerioTab  
+##### 2114#       发表于 2021-2-21 00:06
+
+
+
+
+期待周二QA下面的评论区<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kularken  
+##### 2115#       发表于 2021-2-21 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392139&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-2-20 23:55</a>
+我天天在评论区刷怪话，劝退路人，但我是为了asoul好
+我引流神抗带兔动，搞得直播间乌烟瘴气，主播失态破防 ...</blockquote>
+我万象天引，带着嘉然头像到处冲锋，给主播带带大师兄一样的待遇，但我不是炒作狗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+卧槽，主播怎么和岚皇互动?你这炒作狗!
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2116#       发表于 2021-2-21 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392139&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-2-20 23:55</a>
+我天天在评论区刷怪话，劝退路人，但我是为了asoul好
+我引流神抗带兔动，搞得直播间乌烟瘴气，主播失态破防 ...</blockquote>
+感觉也挺可怜的，看个v把自己看进去了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2117#       发表于 2021-2-21 00:08
+
+
+
+
+8u：嘉然首播我在场，珈乐公测我指挥...后边忘了
+
+天天嘴上念叨着“我寄吧谁啊”，结果8u一个都没记住这句话捏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2118#       发表于 2021-2-21 00:08
+
+
+
+
+8u里有些人脑补是在玩梗   还有一批脑补入魔的是真的有毛病
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2119#       发表于 2021-2-21 00:10
+
+
+
+
+粉丝成建制出征确实挺容易出事，早点打散比较好，不知道贴吧人为什么在什么平台发言都是贴吧味<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 2120#       发表于 2021-2-21 00:10
+
+
+
+
+楼友们觉得这次以后嘉然直播间弹幕环境能不能好一点啊，如果可以的话就是好事了。好想再看一次14号那天那么活泼的她啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 2121#       发表于 2021-2-21 00:10
+
+
+
+
+最爱说“我寄巴谁啊”的人最不懂得“我寄巴谁啊”。8指导我看指导得比泥指导狠多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2122#       发表于 2021-2-21 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392215&amp;ptid=1974517" target="_blank">kularken 发表于 2021-2-21 00:04</a>
+
+除了s1的其他平台，指v8和被8u占领的nga阿骚楼</blockquote>
+现在使徒乱战的A吧、骂运营等QA的豆友，这俩算是在夸这次直播吗？还有哪儿啊，不会是小团体吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kularken| + 1|这不是压根没啥地方看asoul吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2123#       发表于 2021-2-21 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392259&amp;ptid=1974517" target="_blank">万花筒 发表于 2021-2-21 00:10</a>
+楼友们觉得这次以后嘉然直播间弹幕环境能不能好一点啊，如果可以的话就是好事了。好想再看一次14号那天那么 ...</blockquote>
+我觉得有戏，今天团播的弹幕好很多了，加上运营已经舍弃自由放任了，再怎么让步，房管估计是不会下了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2124#       发表于 2021-2-21 00:13
+
+
+
+ 本帖最后由 OldGlory 于 2021-2-21 00:16 编辑 
+
+as吧满屏使徒，爷的青春回来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">该让引流贵物感受一下正宗8味了
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2125#       发表于 2021-2-21 00:14
+
+
+
+
+麻了，as吧被炸了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 2126#       发表于 2021-2-21 00:16
+
+
+
+
+我以前一直以为只有圣嘉然
+
+今天我才发现其实还有圣A-SOUL
+
+
+
+
+
+
+
+-----
+
+####  mystletainn  
+##### 2127#       发表于 2021-2-21 00:17
+
+
+
+
+看来一圈热闹  貌似就最路人的S1楼外加豆组追过星的用户 还没魔怔 剩下全疯了
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2128#       发表于 2021-2-21 00:19
+
+
+
+
+QA非得拖到下周二发其实我也能理解。
+大企业行政管理一般都臃肿的很，管理层定的每周二是QA环节。如果想提前发的话必须得向上层层报批，上面不批的话，运营想发也没用。反正我们这是这样的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2129#       发表于 2021-2-21 00:19
+
+
+
+
+这鹅加得我破防了。小糊团我的小糊团，我要陪你成为最强偶像<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2130#       发表于 2021-2-21 00:19
+
+
+
+
+有没有哪个yhm被国内的魔怔人高强度指示的？
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2131#       发表于 2021-2-21 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> “虚拟偶像企划” 追过星的还能没点经验吗，我觉得当过葱厨的都不会魔怔成这样
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2132#       发表于 2021-2-21 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392329&amp;ptid=1974517" target="_blank">marlun 发表于 2021-2-21 00:19</a>
+
+有没有哪个yhm被国内的魔怔人高强度指示的？</blockquote>
+绯赤艾利欧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2133#       发表于 2021-2-21 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392340&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-21 00:21</a>
+
+绯赤艾利欧</blockquote>
+懂了，都是一个套路
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2134#       发表于 2021-2-21 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">睡前说个无关紧要的东西。
+
+以后要是再有“懂哥”出来，可以直接问“消消乐的声音到底是啥。”
+
+这个问题答不上来一定不是懂哥。
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2135#       发表于 2021-2-21 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392371&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-21 00:26</a>
+
+睡前说个无关紧要的东西。
+
+以后要是再有“懂哥”出来，可以直接问“消消乐的声音到底是啥。”
+
+这个 ...</blockquote>
+是合成大嘉然！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+难道是什么现场设备？
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2136#       发表于 2021-2-21 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392338&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-21 00:20</a>
+“虚拟偶像企划” 追过星的还能没点经验吗，我觉得当过葱厨的都不会魔怔成这样 ...</blockquote>
+估计就是过年在家闲出p了，每天高强度浏览论坛自我催眠，很难不魔怔。但凡这两天是工作日也不至于这样。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2137#       发表于 2021-2-21 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392371&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-21 00:26</a>
+睡前说个无关紧要的东西。
+
+以后要是再有“懂哥”出来，可以直接问“消消乐的声音到底是啥。”
+
+这个 ...</blockquote>
+破产吧夜鹿自称是字节其他部门的员工，只在食堂打饭见过五位，然后公司里听点八卦，这种直播细节他确实可以直接说不知道<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2138#       发表于 2021-2-21 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392383&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-21 00:28</a>
+破产吧夜鹿自称是字节其他部门的员工，只在食堂打饭见过五位，然后公司里听点八卦，这种直播细节他确实可 ...</blockquote>
+破产吧夜鹿 是谁来着？
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2139#       发表于 2021-2-21 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">下播了还能有这么多乐子，管人观众果然好玩
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2140#       发表于 2021-2-21 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392371&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-21 00:26</a>
+睡前说个无关紧要的东西。
+
+以后要是再有“懂哥”出来，可以直接问“消消乐的声音到底是啥。”
+
+这个 ...</blockquote>
+所有懂哥一律当乐子看。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2141#       发表于 2021-2-21 00:35
+
+
+
+
+其实大多数冲锋的人，运营磕头就能回旋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2142#       发表于 2021-2-21 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392441&amp;ptid=1974517" target="_blank">Y_Curiosity 发表于 2021-2-21 00:35</a>
+其实大多数冲锋的人，运营磕头就能回旋只是非要周二才磕头
+
+  -- 来自 能看大图的 Stage1官 ...</blockquote>
+延 迟 满 足 感  
+
+
+
+
+
+
+
+-----
+
+####  躺赢局局长CJH  
+##### 2143#       发表于 2021-2-21 00:36
+
+
+
+
+魔怔人这几天把我逗乐了，不知道的以为这五个女孩整了啥伤天害理的活，搞了半天原来就屁大点事，在哪里要死要活的。
+这事骂运营我是赞成的，业务水平低，该骂。但上升到有组织的冲直播间，我只能说我确实不懂v圈。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+无论什么时候，有组织的冲塔都是最后手段，结果运营发个表情魔怔人冲了三四天，我不得不怀疑魔怔人，其实并没有严肃地考虑过这种理由能否支撑起一次冲塔，能否让大家跟着冲锋。
+能把这种手段常态化，我只能说魔怔人跟路人有着根本认识上的区别––不仅是对情况的认识不同，也是对处理方法的认识不同。
+
+即使这样，我还是得说:哪有打牌上来就扔炸弹的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2144#       发表于 2021-2-21 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392441&amp;ptid=1974517" target="_blank">Y_Curiosity 发表于 2021-2-21 00:35</a>
+
+其实大多数冲锋的人，运营磕头就能回旋只是非要周二才磕头
+
+
+  -- 来自 能看大图的 Stage1官 ...</blockquote>
+看到出运营和我一样根本不理解这些粉丝所谓的痛点在哪里
+
+
+
+
+
+
+
+-----
+
+####  海原穹乃  
+##### 2145#       发表于 2021-2-21 00:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天这节奏一开，我才发现这个企划居然真的有入迷破防的粉丝，我还以为都是抽象玩梗的神抗带兔缝合怪呢……
+
+—— 来自 HUAWEI DUK-AL20, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  marlun  
+##### 2146#       发表于 2021-2-21 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392448&amp;ptid=1974517" target="_blank">躺赢局局长CJH 发表于 2021-2-21 00:36</a>
+
+魔怔人这几天把我逗乐了，不知道的以为这五个女孩整了啥伤天害理的活，搞了半天原来就屁大点事，在哪里要死 ...</blockquote>
+本质还是早期饭圈，或者说是无组织的饭圈，一上来就是招式出尽
+
+
+
+
+
+
+
+-----
+
+####  kularken  
+##### 2147#       发表于 2021-2-21 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392448&amp;ptid=1974517" target="_blank">躺赢局局长CJH 发表于 2021-2-21 00:36</a>
+魔怔人这几天把我逗乐了，不知道的以为这五个女孩整了啥伤天害理的活，搞了半天原来就屁大点事，在哪里要死 ...</blockquote>
+战无不胜，未尝一败的v8<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">当然要起手扔炸弹开路啦
+
+
+
+
+
+
+
+-----
+
+####  泡吧_  
+##### 2148#       发表于 2021-2-21 00:41
+
+
+
+
+这么点事，运营早早跪了哪会搞的这么大
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 2149#       发表于 2021-2-21 00:41
+
+
+
+ 本帖最后由 RedBaby 于 2021-2-21 00:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然呢？圣嘉然说着玩的吗？我看是真的有不少虔诚的信徒，女孩们有一点差池就绑到火刑架上了。当然还有一群只会跟着起哄的狗煽风点火
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2150#       发表于 2021-2-21 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392481&amp;ptid=1974517" target="_blank">kularken 发表于 2021-2-21 00:40</a>
+
+战无不胜，未尝一败的v8当然要起手扔炸弹开路啦</blockquote>
+起手扔炸弹不是没赢过？
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2151#       发表于 2021-2-21 00:41
+
+
+
+
+看到有二创都删视频跑路惹<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  1165wm989845  
+##### 2152#       发表于 2021-2-21 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392448&amp;ptid=1974517" target="_blank">躺赢局局长CJH 发表于 2021-2-21 00:36</a>
+
+魔怔人这几天把我逗乐了，不知道的以为这五个女孩整了啥伤天害理的活，搞了半天原来就屁大点事，在哪里要死 ...</blockquote>
+能从这帮人送钱打ZD就看得出来思路确实清奇<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kularken  
+##### 2153#       发表于 2021-2-21 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392492&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-21 00:41</a>
+起手扔炸弹不是没赢过？</blockquote>
+横行霸道惯了嘛，本质不还是网暴那一套
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2154#       发表于 2021-2-21 00:46
+
+
+
+<blockquote>1165wm989845 发表于 2021-2-21 00:41
+能从这帮人送钱打ZD就看得出来思路确实清奇</blockquote>
+其他魔怔人可能是蠢   打zd的绝对是坏
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2155#       发表于 2021-2-21 00:51
+
+
+
+
+as吧什么情况？冲锋不成改集体自爆了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2156#       发表于 2021-2-21 00:53
+
+
+
+
+今天正好有事就一开始开弹幕看了会儿
+
+剩下的时候基本都是没弹幕情况下看的
+
+节目效果挺不错的
+
+我觉着只要团队正常运作下去，似乎其他人冲不冲锋对我个人观看节目影响不大……
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2157#       发表于 2021-2-21 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392565&amp;ptid=1974517" target="_blank">poipanchao 发表于 2021-2-21 00:53</a>
+今天正好有事就一开始开弹幕看了会儿
+
+剩下的时候基本都是没弹幕情况下看的
+
+节目效果挺不错的</blockquote>
+就跟一群小孩一样，满足不了就又哭又闹，过会儿自己就老实了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2158#       发表于 2021-2-21 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392565&amp;ptid=1974517" target="_blank">poipanchao 发表于 2021-02-21 00:53:09</a>
+今天正好有事就一开始开弹幕看了会儿
+
+剩下的时候基本都是没弹幕情况下看的
+
+节目效果挺不错的
+
+我觉着只要团 ...</blockquote>有一说一确实，不过弹幕环境也是现在直播的重要部分，如果环境好会更好看捏，liver也会更积极<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 2159#       发表于 2021-2-21 00:56
+
+
+
+
+大概有的v8蛆把乐华生的，v8养的当真了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+syl其实今天还不算有组织的集体冲吧 本来就有不少意思一下就投降的鸽派，那些冲不动的到处喊我破防了你们提纯了嗓门比较大而已
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2160#       发表于 2021-2-21 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392587&amp;ptid=1974517" target="_blank">zero_death 发表于 2021-2-21 00:56</a>
+大概有的v8蛆把乐华生的，v8养的当真了
+syl其实今天还不算有组织的集体冲吧 本来就有不少意思一下就 ...</blockquote>
+那可真是太逗乐了，什么虚拟童养媳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+                            

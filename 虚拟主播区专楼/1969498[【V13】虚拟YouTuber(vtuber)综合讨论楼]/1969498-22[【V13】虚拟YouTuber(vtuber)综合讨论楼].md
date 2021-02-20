@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 10:37** 
+> ## **本文件最后更新于2021-02-20 16:58** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_fi3X3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_Sl1u2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_z7wKr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Gx4NK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_t95fp" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_Pz4nk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_I6242" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_shzuR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -7664,4 +7664,642 @@ ame都人称黄天使了，还搁这炎上呢。
 
 
 
-                                    
+
+
+-----
+
+####  白金口袋  
+##### 31897#       发表于 2021-2-20 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50388870&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-20 04:14</a>
+
+倒不只是gamers人气啦，们郡郡在的g组，开五卖出了三个地缚灵还不是同捆的，诧异，
+
+如果不是地缚灵我也可以 ...</blockquote>
+地缚灵还在出周边是不是侧面表示至少还活着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31898#       发表于 2021-2-20 19:07
+
+
+
+
+看了一下，感觉阿菜人气和地缚灵差不多嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31899#       发表于 2021-2-20 20:10
+
+
+
+
+歌力图做了一个新的带名字的版本，有兴趣的可以对着名字去找来听一听
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/20/200956i7uro7bbq0zj0nqf.png" referrerpolicy="no-referrer">
+
+
+<strong>vsinger名字.png</strong> (555.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 20:09 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LilMemo| + 1|帮大忙了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31900#       发表于 2021-2-20 20:48
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/20/204807h3xvv3348o6v7yoe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>gems.jpg</strong> (87.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 20:48 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 31901#       发表于 2021-2-20 21:17
+
+
+
+
+？？？？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31902#       发表于 2021-2-20 21:18
+
+
+
+
+免费你这C，D一大堆又是随便塞的吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 31903#       发表于 2021-2-20 21:20
+
+
+
+
+今天的雀魂不行啊 怎么东3郡道就是5w点了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31904#       发表于 2021-2-20 21:20
+
+
+
+
+月之也太会选怪怪游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">～
+省一楼，完全没见人开a组团是否证明一期生（在中国）全员过气
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 31905#       发表于 2021-2-20 21:47
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-2-20 23:02 编辑 
+
+看见宝石社，想起来之前看到的那个选拔企划，一查，刚好沙夏搬运了……
+
+宝石社你真有钱，就算这丢人模型也给新人一人一个玩现场选拔的？
+[https://www.bilibili.com/video/BV14T4y1F7zL](https://www.bilibili.com/video/BV14T4y1F7zL)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31906#       发表于 2021-2-20 21:48
+
+
+
+
+喷了，现在进来连唯一的3d质量优势都没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31907#       发表于 2021-2-20 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390653&amp;ptid=1969498" target="_blank">katern 发表于 2021-2-20 21:18</a>
+
+免费你这C，D一大堆又是随便塞的吗</blockquote>
+C就是稍微能唱点但是一听就拉的，D就是安慰鼓励奖...比如团长这种就典型的D
+
+你们就不能关注下A里边新加的那几位吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+今年Z5的年货马上就要发啦，嫌我这个不专业到时候务必去看那个
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 31908#       发表于 2021-2-20 21:57
+
+
+
+
+D下面三人每次看到，都很喜感。
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 31909#       发表于 2021-2-20 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390653&amp;ptid=1969498" target="_blank">katern 发表于 2021-2-20 21:18</a>
+
+免费你这C，D一大堆又是随便塞的吗</blockquote>
+免费那点小心思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 31910#       发表于 2021-2-20 22:16
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-21 00:21 编辑 
+
+这D<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 算了吧，打扰了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 31911#       发表于 2021-2-20 22:44
+
+
+
+
+chronoir
+新曲
+honeyworks
+medley
+另  零点小小黑黑动画新一期公开
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31912#       发表于 2021-2-20 22:51
+
+
+
+
+A里边新增这俩：
+
+
+みかんとボーカルノート（频道名就叫这个......）
+[https://www.bilibili.com/video/BV1np4y1a7kp](https://www.bilibili.com/video/BV1np4y1a7kp)
+
+micosmic
+[https://www.youtube.com/watch?v=IO1QJwFp9cY](https://www.youtube.com/watch?v=IO1QJwFp9cY)
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 31913#       发表于 2021-2-20 23:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">大家只是拿免费最早的榜单造梗，并没有人真正关注里面又加了谁
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 31914#       发表于 2021-2-20 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"为什么同一个人在榜上排名不同"
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 31915#       发表于 2021-2-20 23:09
+
+
+
+
+主要D的标准降得太厉害了，免费干脆把安慰鼓励的部分拿出来做一张新表得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 31916#       发表于 2021-2-20 23:26
+
+
+
+
+异世界情绪大幅加强
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31917#       发表于 2021-2-20 23:31
+
+
+
+
+郡道连续两次麻将top了吧，最后还把组长打飞了，坏的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31918#       发表于 2021-2-20 23:31
+
+
+
+
+看到了pph才意识到毕业的v被p成黑白了...
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 31919#       发表于 2021-2-20 23:36
+
+
+
+
+松鼠进b了么
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31920#       发表于 2021-2-20 23:37
+
+
+
+
+D就是酬勤奖嘛，就那些特爱唱，啥歌势节目都要上，但是真的挺菜的就放D了.......
+
+你们就不能多看看AB新加的那几个，比如hachi的小姐妹，瀬戸乃とと刚唱完的歌回，就这歌力不把杏全家秒几个来回啊
+[https://www.youtube.com/watch?v=EWc6ftHrO-M](https://www.youtube.com/watch?v=EWc6ftHrO-M)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 31921#       发表于 2021-2-21 00:03
+
+
+
+ 本帖最后由 CAserlumos 于 2021-2-21 00:10 编辑 
+
+阿菜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31922#       发表于 2021-2-21 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392000&amp;ptid=1969498" target="_blank">free 发表于 2021-2-20 23:37</a>
+
+D就是酬勤奖嘛，就那些特爱唱，啥歌势节目都要上，但是真的挺菜的就放D了.......
+
+你们就不能多看看AB新加的 ...</blockquote>
+不知道A+和A怎么分的，micosmic好像比A其他人都要强一点吧，声线广外语发音也好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+蜜柑嗓子不太好，但是我有哑嗓滤镜所以觉得也差不多
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 31923#       发表于 2021-2-21 00:17
+
+
+
+
+总感觉吐槽免费就输了……
+
+虽然双叶做v的时候只是随便翻唱了几首歌，
+
+但是座长在舞台剧上的唱功也不至于在那个位置吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+槽点太多了，把这表丢一边更简单点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31924#       发表于 2021-2-21 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392226&amp;ptid=1969498" target="_blank">katern 发表于 2021-2-21 00:05</a>
+
+不知道A+和A怎么分的，micosmic好像比A其他人都要强一点吧，声线广外语发音也好
+
+蜜柑嗓子不太好， ...</blockquote>
+A+是我的个人喜好，不表示一定比A强，再说micosmic那高音多拉啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+mikan姐姐真是又姨又好，而且还自爆32岁，简直太喜欢了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31925#       发表于 2021-2-21 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392324&amp;ptid=1969498" target="_blank">free 发表于 2021-2-21 00:19</a>
+
+A+是我的个人喜好，不表示一定比A强，再说micosmic那高音多拉啊
+
+mikan姐姐真是又姨又好，而且还自 ...</blockquote>
+那只能说每个人性癖不一样了，就像我喜欢azami和Ci是因为他们写的歌有活力，micosmic除了高音扯嗓子以外都是我好球<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31926#       发表于 2021-2-21 00:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么u社这么nb，游戏部爆炸了，没死还搞出了无数新企划，新企划都废了还有丑闻都能骗到8e投资，然后还真搞出了有点水声的音乐企划，然后这企划明明数字还比较一般，却要开1stlive了，只谈公司运营能力，和它一比，虹杏还真差不少……
+<img src="https://p.sda1.dev/1/44ca941637be519ac114625b27ce002a/IMG_CMP_1509755.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/6ecd511186a6f5c30aec222a54be744e/IMG_CMP_185133700.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/c61a87c1e7b36fd94a7e2e153c31358b/IMG_CMP_97051933.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31927#       发表于 2021-2-21 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392428&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-21 00:35</a>
+
+为什么u社这么nb，游戏部爆炸了，没死还搞出了无数新企划，新企划都废了还有丑闻都能骗到8e投资，然 ...</blockquote>
+瘦死的骆驼比马大啊，《人脉》
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31928#       发表于 2021-2-21 00:43
+
+
+
+
+也不知道大舅子还会不会转生<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31929#       发表于 2021-2-21 00:47
+
+
+
+
+unlimited也就剩下riot和英语老师克蕾尔了，二代游戏部毕业，柊彩香朝仓日向毕业，青桐也要毕业一个
+
+而且这五位除了二代可可亚和芦泽之外混的也不好啊，那三位才1万多粉
+
+
+
+
+
+                                   
