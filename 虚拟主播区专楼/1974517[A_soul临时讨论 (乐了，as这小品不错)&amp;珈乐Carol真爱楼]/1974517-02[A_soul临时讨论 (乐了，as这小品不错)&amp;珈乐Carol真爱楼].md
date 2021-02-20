@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 01:10** 
+> ## **本文件最后更新于2021-02-20 07:33** 
 
 
 
@@ -5872,4 +5872,539 @@ asd真是糖宝？怎么能这样呀<img src="https://static.saraba1st.com/image
 
 
 
-                                      
+
+
+-----
+
+####  yuzu98k  
+##### 1833#       发表于 2021-2-20 09:17
+
+
+
+
+我一直感觉嘉心糖和适合跟赛博朋克联动一下，内战外战钓鱼反串。很早就看到类似“2021年我所在的粉丝群体被评为v圈最魔怔观众“
+
+可惜那个宣传片的热度已经过了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1834#       发表于 2021-2-20 09:36
+
+
+
+
+今天晚上能看到嘉然和贝拉的magnet完整版吗，期待<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1835#       发表于 2021-2-20 11:24
+
+
+
+
+这抓单身狗怎么什么时候都有人看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，估计明天就成为百万播放的代表作了了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1836#       发表于 2021-2-20 11:52
+
+
+
+
+发错
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1837#       发表于 2021-2-20 12:01
+
+
+
+
+有没有人预估一下今晚的节奏？
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1838#       发表于 2021-2-20 12:02
+
+
+
+
+ASOUL粉是不是只要能说话就好？
+运营拉跨，冲锋 发病 zqsg 回旋 自肃，全给说完了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 1839#       发表于 2021-2-20 12:03
+
+
+
+
+测试发言通过没<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1840#       发表于 2021-2-20 12:04
+
+
+
+
+奶一口无事发生等QA反转。因为扮小丑比冲锋更好玩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 1841#       发表于 2021-2-20 12:10
+
+
+
+
+肯定要撒撒气的，今天被冲没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冲完之后再来点小作文真情实感一下，大头是周二的QA
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1842#       发表于 2021-2-20 12:31
+
+
+
+
+as吧的人为啥这么搞笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1843#       发表于 2021-2-20 12:36
+
+
+
+
+抖音那边向晚一代目说漏嘴了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 1844#       发表于 2021-2-20 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385763&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-20 12:36</a>
+
+抖音那边向晚一代目说漏嘴了</blockquote>
+细说<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  初雪绫  
+##### 1845#       发表于 2021-2-20 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">细说呀
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1846#       发表于 2021-2-20 12:47
+
+
+
+
+我觉得顶碗人太离谱，大致梳理一下我眼里的时间线。
+节奏开始是在接力直播第二天，嘉然皮套号在嘉然直播的时候转了一个动态。这个节奏在第三天向晚直播最后又成了“向晚说漏了嘴”这个新节奏。第四天向晚鸽了直播中说过的特别企划（被关小黑屋<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">）。到现在是联动嘉然的信任危机，结合抖音互动露馅的发散，成了向晚二魔王。
+到底是哪一环出了问题，可以这么离谱的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1847#       发表于 2021-2-20 12:50
+
+
+
+
+抖音互动大概是这样
+Q: 晚晚我好想你
+A: 不就是过年放了几天假吗
+
+顶碗人:二魔王差不多得了，换人了我跟你急
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1848#       发表于 2021-2-20 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385858&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-02-20 12:47:43</a>
+我觉得顶碗人太离谱，大致梳理一下我眼里的时间线。
+节奏开始是在接力直播第二天，嘉然皮套号在嘉然直播的 ...</blockquote>就是发病的人太多了个个在那rp，有的一般观众真信了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1849#       发表于 2021-2-20 12:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/205056ozu91aa3szaoi8si.png" referrerpolicy="no-referrer">
+
+
+<strong>{4FOASMV2USS3GG]XS$RW(2.png</strong> (34.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 12:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1850#       发表于 2021-2-20 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385891&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-02-20 12:51:22</a></blockquote>很难不😅
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 1851#       发表于 2021-2-20 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385891&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-20 12:51</a></blockquote>
+没懂啊，过年不是确实放了好几天假么，那几天抖音都断更的，这帮人是rp还是真魔怔
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1852#       发表于 2021-2-20 13:02
+
+
+
+
+所以说顶碗人攻高防低<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">写得出来“贝拉的一切都很假”，也能被两句留言就带歪。
+大家来当嘉心糖吧，老作文《猫狗鼠》好评炒作中，发挥自己的才艺，缝进最潮最in的梗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1853#       发表于 2021-2-20 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385910&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-20 12:53</a>
+
+没懂啊，过年不是确实放了好几天假么，那几天抖音都断更的，这帮人是rp还是真魔怔 ...</blockquote>
+最近哪都挺魔怔的，不知道是rp还是真的。
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 1854#       发表于 2021-2-20 13:13
+
+
+
+
+As吧里都分不清是不是rp的了，多多少少有点魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 1855#       发表于 2021-2-20 13:22
+
+
+
+
+二十几岁的大好青春就该投入虚无的网络炒作，而不需要什么虚伪的自我反思<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 1856#       发表于 2021-2-20 13:26
+
+
+
+
+asoul吧里那堆rp政委的是真有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1857#       发表于 2021-2-20 13:34
+
+
+
+
+看你们说的好像碗晚中之人已经换了似的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1858#       发表于 2021-2-20 13:54
+
+
+
+
+不说嘉然，最近向晚相关不全是rp?真有人觉得晚晚会直接被ktv扫地出门啊?<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 1859#       发表于 2021-2-20 14:12
+
+
+
+
+观众开始加戏了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1860#       发表于 2021-2-20 14:17
+
+
+
+
+可不能闲着。想看团播<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1861#       发表于 2021-2-20 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50386266&amp;ptid=1974517" target="_blank">恒温死神 发表于 2021-2-20 13:34</a>
+
+看你们说的好像碗晚中之人已经换了似的</blockquote>
+看不到直播发病了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1862#       发表于 2021-2-20 15:17
+
+
+
+
+卡页了？test test
+
+syl
+
+发完就翻页了
+
+
+
+
+
+
+
+                                     
