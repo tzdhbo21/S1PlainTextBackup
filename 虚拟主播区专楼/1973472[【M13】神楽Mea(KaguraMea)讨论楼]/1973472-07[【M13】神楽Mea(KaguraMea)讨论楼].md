@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-19 16:59** 
+> ## **本文件最后更新于2021-02-20 12:44** 
 
 
 
@@ -2124,4 +2124,840 @@ bsyl，不过麻last（还是哪次来着）倒是自称过打工战士来着（
 
 
 
-                                             
+
+
+-----
+
+####  A2014720  
+##### 9124#       发表于 2021-2-20 01:17
+
+
+
+
+特殊的日子到了，大家又发病了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9125#       发表于 2021-2-20 07:10
+
+
+
+
+明天或者今天，会播么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 9126#       发表于 2021-2-20 07:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天播，明天必不播，今天摸，明天也不播
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9127#       发表于 2021-2-20 07:27
+
+
+
+
+呐小麻，现在开播一定有人打厄介sc吧，赚钱的好机会啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9128#       发表于 2021-2-20 11:50
+
+
+
+
+后天播吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9129#       发表于 2021-2-20 12:18
+
+
+
+
+晚上不是有盒限么我记得？这点儿也够巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9130#       发表于 2021-2-20 12:47
+
+
+
+
+明天希望有爱小姐一日限定复活
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9131#       发表于 2021-2-20 12:57
+
+
+
+
+梦里什么都有
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 9132#       发表于 2021-2-20 13:11
+
+
+
+
+苔苔是真过气了
+
+追着苔苔来b站的日本人最后成了亭子的gachi恋。
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9133#       发表于 2021-2-20 13:48
+
+
+
+
+肉体厨都有幻灭的一天<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+然后去追逐下一具新鲜的肉体<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9134#       发表于 2021-2-20 16:33
+
+
+
+
+小麻的肉体厨什么时候能幻灭呢 让我看看脸
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 9135#       发表于 2021-2-20 17:02
+
+
+
+ 本帖最后由 Shiromeshi 于 2021-2-20 17:03 编辑 
+
+小麻的野男人什么时候能幻灭呢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9136#       发表于 2021-2-20 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">肉体厨求幻灭，用坦克照压死我吧
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9137#       发表于 2021-2-20 17:40
+
+
+
+
+小麻可以把整栋楼所有人一起压吗！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShyCrazydog  
+##### 9138#       发表于 2021-2-20 17:42
+
+
+
+
+有没有人说一下这种会员限定先行的商品一般是怎么买的，用什么网站，我莫名其妙的开始担心手速慢了没买到了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9139#       发表于 2021-2-20 17:44
+
+
+
+ 本帖最后由 路人庚 于 2021-2-20 17:50 编辑 
+
+等正式开售了她会在饭盒里放链接的吧
+
+syl，她好像把饭盒各档（除了万档之外）的名称改了，现在的是：钱包档、生活保护费档、与死宅同居档、租赁女友阿咩档
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9140#       发表于 2021-2-20 18:01
+
+
+
+
+她还是在意今年的生日啊，我好爱她<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9141#       发表于 2021-2-20 18:12
+
+
+
+
+啊啊啊，是成年前一夜的不安
+
+               
+
+小麻把一生中最好最好的年华献给了我啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 9142#       发表于 2021-2-20 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">まぁちゃんの最後
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9143#       发表于 2021-2-20 18:32
+
+
+
+
+姨化第一步<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不知道为什么好感慨
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9144#       发表于 2021-2-20 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50388609&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-20 17:44</a>
+
+等正式开售了她会在饭盒里放链接的吧
+
+syl，她好像把饭盒各档（除了万档之外）的名称改了，现在的是：钱包档 ...</blockquote>
+万档也改了吧 “いつもめあめあだいすきだよありがとう代金プラン”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">默认万档都是mixi？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9145#       发表于 2021-2-20 18:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50389092&amp;ptid=1973472" target="_blank">ashero 发表于 2021-2-20 18:36</a>
+
+万档也改了吧 “いつもめあめあだいすきだよありがとう代金プラン”默认万档都是mixi？ ...</blockquote>
+我印象中之前好像就是这个来着，所以“meamea”这个称呼也是官方认可的（）
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9146#       发表于 2021-2-20 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50389106&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-20 18:37</a>
+
+我印象中之前好像就是这个来着，所以“meamea”这个称呼也是官方认可的（）
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">问了下其他留意的人 一个月前改的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|情报代|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9147#       发表于 2021-2-20 18:47
+
+
+
+
+蝙蝠妹最喜欢meamea的叫了，呜呜呜
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9148#       发表于 2021-2-20 18:58
+
+
+
+
+之前一直觉得这曲子可以结合你咩姐玩个梗来着，现在终于有人做这个曲子的mmd了（
+
+ps1：羊党战歌（？）
+
+ps2：30秒后突然就色了起来（？）
+
+
+
+[https://b23.tv/T3g5Op](https://b23.tv/T3g5Op)
+
+<img src="https://img.saraba1st.com/forum/202102/20/185640qpnpeek3bmpermcr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C6C1D77C-7FC9-4040-A0A8-0403590199AF.jpeg</strong> (173.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 18:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 9149#       发表于 2021-2-20 18:59
+
+
+
+
+  要变成人主播了，跑了跑了。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9150#       发表于 2021-2-20 19:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/20/191331b7l75xhpp61az8l1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>115A4F44-3FCB-41CB-AA77-03040AFC3F04.jpeg</strong> (277.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-20 19:13 上传
+
+
+
+
+
+
+
+（跑之前能先办张信用卡吗？
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 9151#       发表于 2021-2-20 19:37
+
+
+
+
+**节到了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9152#       发表于 2021-2-20 19:43
+
+
+
+
+20210221这数字好工整<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9153#       发表于 2021-2-20 19:43
+
+
+
+
+8点播
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9154#       发表于 2021-2-20 19:43
+
+
+
+
+8点播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9155#       发表于 2021-2-20 19:44
+
+
+
+
+麻 麻…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9156#       发表于 2021-2-20 19:44
+
+
+
+
+惊了，居然会播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9157#       发表于 2021-2-20 19:46
+
+
+
+
+我明天就要过生日了 咩咩能提前祝福我吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9158#       发表于 2021-2-20 19:48
+
+
+
+
+谁点一首happy birthday<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9159#       发表于 2021-2-20 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诶呀，诶呀
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9160#       发表于 2021-2-20 19:55
+
+
+
+
+你们都过生日是吧
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9161#       发表于 2021-2-20 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论巨魔还是主播比较巨魔 等一首振袖和服
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9162#       发表于 2021-2-20 19:57
+
+
+
+
+那必点哈他七走一波，直播封面都是和服了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9163#       发表于 2021-2-20 19:58
+
+
+
+
+振袖和服好呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9164#       发表于 2021-2-20 19:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨魔觉醒
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9165#       发表于 2021-2-20 20:02
+
+
+
+ 本帖最后由 clvan_ 于 2021-2-20 20:03 编辑 
+
+这人其实也没多在意这种事吧，除非直球跳脸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们脑袋里想什么还不心知肚明
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9166#       发表于 2021-2-20 20:14
+
+
+
+
+今天要唱帅气的曲子，感觉振袖和服走远了（
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 9167#       发表于 2021-2-20 20:15
+
+
+
+
+这是准备直播庆生吗（
+
+有本事你就播到23点（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9168#       发表于 2021-2-20 20:17
+
+
+
+
+东京23点前肯定要下的，因为有盒限
+
+
+（盒限跟阿宅玩一小时直接到0点，感觉今天的盒限又要挤破头了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9169#       发表于 2021-2-20 20:20
+
+
+
+
+建议鸽了盒限
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9170#       发表于 2021-2-20 20:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            

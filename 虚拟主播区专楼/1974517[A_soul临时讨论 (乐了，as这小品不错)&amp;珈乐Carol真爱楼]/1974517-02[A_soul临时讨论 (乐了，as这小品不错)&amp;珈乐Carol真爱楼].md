@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 07:33** 
+> ## **本文件最后更新于2021-02-20 12:45** 
 
 
 
@@ -6407,4 +6407,1243 @@ syl
 
 
 
-                                     
+
+
+-----
+
+####  情字何解  
+##### 1863#       发表于 2021-2-20 15:44
+
+
+
+
+山雨欲来风满楼，这就是暴风雨前的宁静吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1864#       发表于 2021-2-20 15:50
+
+
+
+
+乃0动态下面的评论是在演习吗
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1865#       发表于 2021-2-20 15:56
+
+
+
+
+连一如既往平静的乃琳评论区都这么风雨飘摇，看来今晚这波确实不会小<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 1866#       发表于 2021-2-20 16:04
+
+
+
+
+不如先预测一下今天晚上会不会正面回应这个问题
+
+
+我的看法是多少还是会在侧面回应下的，要不然今晚直播没法办了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1867#       发表于 2021-2-20 16:14
+
+
+
+
+打死也不要回！首播的时候我没看直播，想体验体验<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 1868#       发表于 2021-2-20 16:30
+
+
+
+
+至少乃琳动态下有个提督入魔了😥
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1869#       发表于 2021-2-20 16:32
+
+
+
+
+奶0这么稳的也能入魔？
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1870#       发表于 2021-2-20 16:34
+
+
+
+
+你是说It那个？他一直就那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 1871#       发表于 2021-2-20 16:52
+
+
+
+
+我好像逐渐理解了，任何梁木都是rp的一环？
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 1872#       发表于 2021-2-20 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">说明新观众还是多，这套发散你圈已经发生过无数遍了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1873#       发表于 2021-2-20 17:22
+
+
+
+
+抖音官号预告：“今晚8点除了小姐姐们，原来还有神秘嘉宾一起直播，快来直播间一探究竟吧！”
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 1874#       发表于 2021-2-20 17:24
+
+
+
+
+懂了，是向晚二号机
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1875#       发表于 2021-2-20 17:32
+
+
+
+
+直接快进到神秘嘉宾勒夫出场
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 1876#       发表于 2021-2-20 17:35
+
+
+
+
+是新月岚，勒夫和孙笑川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三位一体，嘉门🙏
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1877#       发表于 2021-2-20 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">是申小雅突击联动吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 1878#       发表于 2021-2-20 17:54
+
+
+
+
+是杜华
+
+
+
+
+
+
+
+-----
+
+####  zzs2338645  
+##### 1879#       发表于 2021-2-20 18:01
+
+
+
+
+为什么不能是王一博呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1880#       发表于 2021-2-20 18:03
+
+
+
+
+想点好的，啊草工伤复出首播，改生日就是它干的，想盗号篡位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完美
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Alienation  
+##### 1881#       发表于 2021-2-20 18:05
+
+
+
+
+小伙伴们大家好，我们收到了大家在评论里提出的有小伙伴们投票竞争上岗的意见，今天晚上登场的神秘嘉宾其实是asoul二期生哦~~
+为了给大家带来更好的表演和直播，给大家带来双份的爱，所以我们为asoul里的每一位成员都多招募了一位中之人哦~~接下来的一个月即将开启接替直播，我们杜妈说的24小时不间断直播其实不是开玩笑哦~~在一个月后，我们将举行特别节目，由小伙伴们投票决定中之人的去留哦~~
+在本次试运行结束后，我们将开启a-soul中之人擂台赛鼓励计划，欢迎小伙伴们踊跃报名参与a-soul中之人海选，接下来的每个月，我们都会为小伙伴们带来崭新出厂的中之人，与原中之人展开精彩角逐与激烈较量，把最好的a-soul带给大家。欢迎小伙伴们投出自己的神圣一票哦~~
+请期待a-soul大家新的出道视频哦~~
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 1882#       发表于 2021-2-20 18:11
+
+
+
+
+歌姬再就业是吧
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1883#       发表于 2021-2-20 18:15
+
+
+
+
+粉丝投票看腻了。
+能不能让粉丝给偶像集元气，元气换投票权限跟权重，再让偶像来一场学级裁判？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1884#       发表于 2021-2-20 18:16
+
+
+
+
+1.勒夫
+2.新月岚
+3.阿梓
+4.罗伊马斯坦
+
+好吧，其实我觉得90％是申小雅
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  sybaseliu  
+##### 1885#       发表于 2021-2-20 18:16
+
+
+
+
+这要是歌姬再就业我以后心中剧本策划只有乐华一个神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 1886#       发表于 2021-2-20 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50388888&amp;ptid=1974517" target="_blank">Gmanager 发表于 2021-2-20 18:16</a>
+1.勒夫
+2.新月岚
+3.阿梓</blockquote>
+你的90%已经寄了，小雅粉丝群说不是她了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1887#       发表于 2021-2-20 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50388933&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-20 18:20</a>
+你的90%已经寄了，小雅粉丝群说不是她了</blockquote>
+刚看到了，那四选一吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1888#       发表于 2021-2-20 18:24
+
+
+
+
+嘉然在不动一下我真的活不下去了
+
+
+
+
+
+
+
+-----
+
+####  zuperer  
+##### 1889#       发表于 2021-2-20 18:30
+
+
+
+
+只在抖音发了，应该是抖音红人吧。
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 1890#       发表于 2021-2-20 18:36
+
+
+
+
+我日，我同学群里都有人发嘉然狗朗诵视频了，什么病毒传播<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1891#       发表于 2021-2-20 19:34
+
+
+
+
+直播间评论区已经开始战斗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1892#       发表于 2021-2-20 19:35
+
+
+
+
+不太可能是孟美岐
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1893#       发表于 2021-2-20 19:37
+
+
+
+
+只能说把自己看魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1894#       发表于 2021-2-20 19:37
+
+
+
+
+泥哥热车？真是什么三次元大物联动早就宣传了吧，我好急
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 1895#       发表于 2021-2-20 19:52
+
+
+
+
+太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1896#       发表于 2021-2-20 19:53
+
+
+
+
+感觉今晚得化身抖友了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 1897#       发表于 2021-2-20 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 1898#       发表于 2021-2-20 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">不想下抖音怎么办
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1899#       发表于 2021-2-20 19:54
+
+
+
+
+？？？这是请了杨超越？杨超越又不是他们家的啊
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1900#       发表于 2021-2-20 19:55
+
+
+
+
+抖音是不会提前开直播吗？有没有资深抖友<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1901#       发表于 2021-2-20 19:55
+
+
+
+
+楼友们没饭过吧，国内大物提携的都很少宣传。。
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1902#       发表于 2021-2-20 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50389799&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-20 19:55</a>
+
+楼友们没饭过吧，国内大物提携的都很少宣传。。</blockquote>
+燃烧吧卡路里这标题。。。
+
+问题是没人想到会有大物啊
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 1903#       发表于 2021-2-20 19:57
+
+
+
+
+能请啥嘉宾不可能是三次元的，有活动人后援会有消息的
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1904#       发表于 2021-2-20 20:00
+
+
+
+
+as被删除，第一次冲击
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1905#       发表于 2021-2-20 20:02
+
+
+
+
+抖音评论区也在战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1906#       发表于 2021-2-20 20:03
+
+
+
+
+然宝你躺着播我都看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1907#       发表于 2021-2-20 20:04
+
+
+
+
+战斗力就这，五分钟就投是吧，很难不😅
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1908#       发表于 2021-2-20 20:04
+
+
+
+
+今天不会是投票变身吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1909#       发表于 2021-2-20 20:05
+
+
+
+
+标题就这意思吗，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1910#       发表于 2021-2-20 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50388765&amp;ptid=1974517" target="_blank">qw945 发表于 2021-2-20 18:03</a>
+
+想点好的，啊草工伤复出首播，改生日就是它干的，想盗号篡位完美
+
+
+—— 来自 Sony J9110, Android 1 ...</blockquote>
+全成阿草了，四舍五入我也算蒙对了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1911#       发表于 2021-2-20 20:05
+
+
+
+
+整烂活是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 1912#       发表于 2021-2-20 20:05
+
+
+
+
+这真把我看迷惑了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1913#       发表于 2021-2-20 20:06
+
+
+
+
+抖音看去了
+
+
+
+
+
+
+
+-----
+
+####  Alfie劉  
+##### 1914#       发表于 2021-2-20 20:07
+
+
+
+
+多少有点滑稽剧的意思了
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1915#       发表于 2021-2-20 20:09
+
+
+
+
+是晚晚<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这声音一定是大魔王吧
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1916#       发表于 2021-2-20 20:10
+
+
+
+
+我做错了什么，为什么要这样骗我，然然我的然然<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 1917#       发表于 2021-2-20 20:10
+
+
+
+
+晚指导没换！我投了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1918#       发表于 2021-2-20 20:11
+
+
+
+
+大家都投了？嗯战斗力啊真是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  齐桓公  
+##### 1919#       发表于 2021-2-20 20:14
+
+
+
+
+😅动员了两天，最后所谓的冲直播间就这？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1920#       发表于 2021-2-20 20:15
+
+
+
+
+好欢乐
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1921#       发表于 2021-2-20 20:15
+
+
+
+
+这头发bug吓我一跳<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">进厂吧
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1922#       发表于 2021-2-20 20:16
+
+
+
+
+一开播魔怔人就都净化成mmr惹<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">都是好事儿
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1923#       发表于 2021-2-20 20:17
+
+
+
+
+扮小丑不比冲锋好玩？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1924#       发表于 2021-2-20 20:18
+
+
+
+
+队友呢，队友呢救一下啊
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1925#       发表于 2021-2-20 20:18
+
+
+
+
+可怜的嘉然只能站在侧面<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1926#       发表于 2021-2-20 20:24
+
+
+
+
+又是搞创的舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好耶
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 1927#       发表于 2021-2-20 20:25
+
+
+
+
+什么法国直播间？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 1928#       发表于 2021-2-20 20:25
+
+
+
+
+嘿嘿嘿嘿嘿，嘿嘿嘿耶哎耶哎耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1929#       发表于 2021-2-20 20:25
+
+
+
+
+晚晚选的舞我都还挺喜欢，上次睡衣回那个也不错
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1930#       发表于 2021-2-20 20:27
+
+
+
+
+向晚这舞力真的要多练练
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 1931#       发表于 2021-2-20 20:27
+
+
+
+
+晚晚能不能不要这种裙子，贴身一点的裙子跳舞更好看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 1932#       发表于 2021-2-20 20:31
+
+
+
+
+怎么官号发切片了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么快的吗
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1933#       发表于 2021-2-20 20:32
+
+
+
+
+这算戒断反应吗，晚晚上次不请假的话应该投得没这么快吧，至少不会一屏幕的二魔王弹幕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1934#       发表于 2021-2-20 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390227&amp;ptid=1974517" target="_blank">qw945 发表于 2021-2-20 20:31</a>
+
+怎么官号发切片了？？？这么快的吗</blockquote>
+小年斗虫的时候就是这样了。嗯？怎么有点熟悉
+
+
+
+
+
+
+
+-----
+
+####  zzs2338645  
+##### 1935#       发表于 2021-2-20 20:36
+
+
+
+
+只能说能见到晚晚就算成功
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  L-JoeW  
+##### 1936#       发表于 2021-2-20 20:44
+
+
+
+
+看来是想演者盾一直拖到周二了
+
+
+
+
+
+                                   
