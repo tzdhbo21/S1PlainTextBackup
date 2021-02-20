@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 12:45** 
+> ## **本文件最后更新于2021-02-20 13:33** 
 
 
 
@@ -7646,4 +7646,495 @@ as被删除，第一次冲击
 
 
 
-                                   
+
+
+-----
+
+####  yuzu98k  
+##### 1937#       发表于 2021-2-20 20:46
+
+
+
+
+曾经做过二班学委
+
+￥1000（100万金瓜子）
+
+乃琳！嘉然！贝拉！向晚！珈乐！冲鸭！
+
+
+这人我记得是开播前被房管禁了一次言？大使馆里面有人截图，可不敢乱发散
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1938#       发表于 2021-2-20 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390353&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-20 20:46</a>
+
+曾经做过二班学委
+
+￥1000（100万金瓜子）
+
+乃琳！嘉然！贝拉！向晚！珈乐！冲鸭！</blockquote>
+这人被杀莫名其妙，你仔细看那图就知道了
+
+
+
+
+
+
+
+-----
+
+####  Alfie劉  
+##### 1939#       发表于 2021-2-20 20:50
+
+
+
+
+这弹幕是运营刷的吗
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1940#       发表于 2021-2-20 20:51
+
+
+
+
+3月7日<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 1941#       发表于 2021-2-20 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> 都魔怔了啊,乱炸
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1942#       发表于 2021-2-20 20:52
+
+
+
+
+真带节奏还得从liver嘴巴里来啊
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1943#       发表于 2021-2-20 20:54
+
+
+
+
+我还以为战斗力有多强呢，无非发些低端神曲梗，真以为这能引来啥啊？顶多让深深自我高潮罢了。
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 1944#       发表于 2021-2-20 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390426&amp;ptid=1974517" target="_blank">J8pl4 发表于 2021-2-20 20:54</a>
+
+我还以为战斗力有多强呢，无非发些低端神曲梗，真以为这能引来啥啊？顶多让深深自我高潮罢了。 ...</blockquote>
+新月岚都冲不死，去冲乐华<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">差不多得了
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 1945#       发表于 2021-2-20 21:06
+
+
+
+
+各位8u  打几百sc冲锋被秒删的样子，真的好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 1946#       发表于 2021-2-20 21:12
+
+
+
+
+直播略显无聊，冲运营也是肉包子打狗，等切片了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 1947#       发表于 2021-2-20 21:14
+
+
+
+
+直播挺有趣的，弹幕也挺有趣的。两倍的快乐。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1948#       发表于 2021-2-20 21:14
+
+
+
+
+这不挺有意思的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1949#       发表于 2021-2-20 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ASOUL给我的感觉就是一切都很假，但是直播间弹幕和sc却很真
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 1950#       发表于 2021-2-20 21:18
+
+
+
+
+都投降了啊，不过应该也有鹰派run了吧
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 1951#       发表于 2021-2-20 21:18
+
+
+
+
+我发现了，我就是嘉然毒唯
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 1952#       发表于 2021-2-20 21:19
+
+
+
+
+不会觉得自己冲了，运营就行了吧，该不行还是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 1953#       发表于 2021-2-20 21:19
+
+
+
+
+数据跌了好多, 从以前的两千掉到现在的一千出头,  看来影响的确很大
+
+
+
+
+
+
+
+-----
+
+####  towns  
+##### 1954#       发表于 2021-2-20 21:21
+
+
+
+
+asoul这直播间的氛围太哈人了，点进去一堆sc直接劝退了
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1955#       发表于 2021-2-20 21:21
+
+
+
+
+这弹幕看的我怀疑这帮魔怔人心理年龄超不过20.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 1956#       发表于 2021-2-20 21:21
+
+
+
+
+能开的节奏不是变得更多了？
+
+等级屏蔽、关键字屏蔽、删sc、水军。
+
+指定团建地点至少有 切片评论、2个房管、曾经做过二班学委
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 1957#       发表于 2021-2-20 21:23
+
+
+
+
+然然肚子疼了，呜呜呜我的然然<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 1958#       发表于 2021-2-20 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">网络暴力这一块抓的死死的
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 1959#       发表于 2021-2-20 21:24
+
+
+
+
+今天的直播挺好看的呀，就是弹幕观感太差我都没开，弹幕也没发
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1960#       发表于 2021-2-20 21:25
+
+
+
+
+贝拉放海是吧
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1961#       发表于 2021-2-20 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50390705&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-20 21:24</a>
+
+网络暴力这一块抓的死死的</blockquote>
+这波是V泥一家<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 1962#       发表于 2021-2-20 21:28
+
+
+
+ 本帖最后由 是谁的书画 于 2021-2-20 21:29 编辑 
+
+后面不开背的无袖毛衣算什么！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+哇，力量感不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 1963#       发表于 2021-2-20 21:28
+
+
+
+
+外套居然能脱了
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 1964#       发表于 2021-2-20 21:31
+
+
+
+
+剧本写的拉王力口乐是吧
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 1965#       发表于 2021-2-20 21:32
+
+
+
+
+珈乐还是强啊<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
