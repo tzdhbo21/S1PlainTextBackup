@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 06:37** 
+> ## **本文件最后更新于2021-02-21 07:34** 
 
 
 
@@ -10471,13 +10471,14 @@ ASOUL团队皮套号的运营不看直播安排就转动态、转了动态又拿
 
 
 
+ 本帖最后由 岛田开 于 2021-2-21 15:04 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392080&amp;ptid=1974517" target="_blank">虚无缥缈的光阴 发表于 2021-2-20 23:48</a>
 
 请水军也太弱智了，这运营是不是自从小年夜过后彻底由了滑稽接手了啊，看来倪哥当初说对了
 
 
   -- 来自 能手 ...</blockquote>
-由什么接手？
+编辑
 
 
 
@@ -11029,8 +11030,9 @@ as吧满屏使徒，爷的青春回来了<img src="https://static.saraba1st.com/
 
 
 
+ 本帖最后由 岛田开 于 2021-2-21 15:04 编辑 
 
-麻了，as吧被炸了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+编辑
 
 
 
@@ -13084,4 +13086,888 @@ h ttps://www.douban.com/group/topic/212153071/是这个道理，这位总结的�
 
 
 
-                         
+
+
+-----
+
+####  岛田开  
+##### 2237#       发表于 2021-2-21 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395745&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:35</a>
+
+豆瓣这个帖子是我写的意不意外
+
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 S1Next-鹅版 v ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精神加鹅
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2238#       发表于 2021-2-21 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395748&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:35</a>
+
+鸡胸肉那位也玩贴吧
+
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+我知道，所以身份政治不可取，神回离不开有创意的人而不是V吧蛆
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2239#       发表于 2021-2-21 14:40
+
+
+
+
+我寻思着直播也妹不和观众互动啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是我对距离感这个理解有问题
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2240#       发表于 2021-2-21 14:40
+
+
+
+
+有活的人在哪都有活，不是贴吧用户这个身份给的
+
+
+
+
+
+
+
+-----
+
+####  mystletainn  
+##### 2241#       发表于 2021-2-21 14:42
+
+
+
+
+V8是有什么思想钢印么 看一眼厕所一辈子当蛆？
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2242#       发表于 2021-2-21 14:42
+
+
+
+
+羊驼小短腿踢来踢去还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">什么时候能用羊驼的模型跳一段天线宝宝的舞呀
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 2243#       发表于 2021-2-21 14:44
+
+
+
+
+为什么玩v吧的归属感那么强额，他们是因为自己有能力，而不是因为上了v吧才有能力的吧。。。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2244#       发表于 2021-2-21 14:45
+
+
+
+
+很喜欢8u的一句话，玩论坛能玩出归属感的都是xx<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2245#       发表于 2021-2-21 14:46
+
+
+
+
+有能力的人能代表V吧那么引赵丹的能不能代表V吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2246#       发表于 2021-2-21 14:48
+
+
+
+
+v8和泥哥都是一类人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2247#       发表于 2021-2-21 14:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说V8是蛆也没啥错 昨晚还在使徒行者呢
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2248#       发表于 2021-2-21 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395748&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:35</a>
+
+鸡胸肉那位也玩贴吧
+
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+求求别身份政治了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我nga注册时间还比s1早呢
+
+
+syl看见这么多人缅怀小作文回，我不禁有种我坏事做尽的感觉，要是那天我没有选择摸鱼写打工日记而是加班做产品，现在的破防人是不是都有美好的未来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在大家这么zqsg，怎么到头来我自己反倒是那个看上去最薄凉的人啊
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2249#       发表于 2021-2-21 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395792&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 14:40</a>
+我知道，所以身份政治不可取，神回离不开有创意的人而不是V吧蛆</blockquote>
+在这专楼里我是as事业粉，所以我发那层楼是为了说明一下历史
+As发展到今天这地步确实离不开V吧蛆，不管是好的方面还是坏的方面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2250#       发表于 2021-2-21 14:51
+
+
+
+
+没见过使徒梅毒的算个屁8u<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2251#       发表于 2021-2-21 14:51
+
+
+
+
+草，闲着没事去听汪峰早期作品，《小鸟》的歌词几乎完美描述v8人士现状<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2252#       发表于 2021-2-21 14:52
+
+
+
+
+感觉现在的风向是v8蛆你坏事做尽。
+
+楼友不让v8切割赵丹nt，那v8里喜欢看ASOUL的人也不该被切割呀
+
+
+syl 冲进战场分享羊驼小短腿戳到我笑点了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2253#       发表于 2021-2-21 14:53
+
+
+
+
+不管8u是支持还是不支持，他们觉得自己能掌控雷电的样子是真的很迷惑
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2254#       发表于 2021-2-21 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395882&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-02-21 14:52:36</a>
+感觉现在的风向是v8蛆你坏事做尽。
+
+楼友不让v8切割赵丹nt，那v8里喜欢看ASOUL的人也不该被切割呀
+
+
+syl 冲进 ...</blockquote>真喜欢的早跑路了，没跑路的就入脑成现在的魔怔人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2255#       发表于 2021-2-21 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395886&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-21 14:53</a>
+不管8u是支持还是不支持，他们觉得自己能掌控雷电的样子是真的很迷惑
+
+  -- 来自 能手机投票的 Stage1官方  ...</blockquote>
+V吧蛆现在跟尼哥组成了泥巴二极管，as已经成了反泥工具，这也是我跑路的原因<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在还喜欢as的V吧蛆基本上都跑到as吧里去了
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2256#       发表于 2021-2-21 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395890&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-21 14:54</a>
+真喜欢的早跑路了，没跑路的就入脑成现在的魔怔人
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+真喜欢的根本不care，还觉得魔怔粉聒噪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2257#       发表于 2021-2-21 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395867&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:50</a>
+
+在这专楼里我是as事业粉，所以我发那层楼是为了说明一下历史
+
+As发展到今天这地步确实离不开V吧蛆，不管是 ...</blockquote>
+真事业粉应该早就明白偶像与观众的距离会越来越远了吧
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2258#       发表于 2021-2-21 14:57
+
+
+
+
+早就去当抖友了，批站处不来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2259#       发表于 2021-2-21 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395904&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-02-21 14:56:13</a>
+V吧蛆现在跟尼哥组成了泥巴二极管，as已经成了反泥工具，这也是我跑路的原因 v2.4.3 ...</blockquote>差不多得了，as吧不也全是独轮车司机吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">很难理解他们冲直播间讨说法的脑回路
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2260#       发表于 2021-2-21 15:01
+
+
+
+
+差不多得了，人是企业，根本不归属于任何论坛，只对kpi负责<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+v吧，s1，nga说实话，也就那回事，一群月活不到2w的论坛打来打去，是否有点真把自己当回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+如果现在还在纠结as归属，建议早日退管，你发病一两天，不如混进人群中跳会广场舞舒服的多。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2261#       发表于 2021-2-21 15:01
+
+
+
+
+有一说一车的剧情和话术都跟5月去车兔田一摸一样。V老嗨估计都看笑了，魔怔人还以为自己在干大事呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2262#       发表于 2021-2-21 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395909&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 14:57</a>
+真事业粉应该早就明白偶像与观众的距离会越来越远了吧</blockquote>
+因为as现在做不到偶像这个地步。
+官号从一开始到底QA一直都在强调又强调“个人号都是中之人在用，运营用会表明运营代发”早期他们做到了，rp的不错，没有出问题，营造出了一种我们从策划到中之人都是肯与粉丝交流的错觉。
+现在情况就是运营的几波nt操作搞出了粉丝与五个个人号的信任危机，再加上背刺中之人，各种情况下来她们五个人甚至连最普通的vtb都做不到而是成了五个直播员
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2263#       发表于 2021-2-21 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395618&amp;ptid=1974517" target="_blank">有优越感的人mk2 发表于 2021-2-20 22:18</a>
+
+疑似运营回应了两句，但没什么内容</blockquote>
+纯客套话不听也罢,开会估计也是星期一上午才开
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2264#       发表于 2021-2-21 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395921&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-21 14:58</a>
+差不多得了，as吧不也全是独轮车司机吗很难理解他们冲直播间讨说法的脑回路
+
+  -- 来自 有消息提醒 ...</blockquote>
+因为as吧没有墙
+而且冲和不冲，贴吧投票比例是**开，豆瓣是五五开，半斤八两
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2265#       发表于 2021-2-21 15:04
+
+
+
+ 本帖最后由 asd225588 于 2021-2-20 23:06 编辑 
+
+玩过一段时间贴吧的我
+
+以为自己是离去之原的男主,嘉然是女主
+
+现在想想,入脑真可怕BSYL还是把嘉然关注点回来了,小小一只真的好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2266#       发表于 2021-2-21 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395968&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 15:04</a>
+因为as吧没有墙
+而且冲和不冲，贴吧投票比例是**开，豆瓣是五五开，半斤八两</blockquote>
+6，4开也能成敏感词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2267#       发表于 2021-2-21 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395968&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-02-21 15:04:12</a>
+因为as吧没有墙
+而且冲和不冲，贴吧投票比例是**开，豆瓣是五五开，半斤八两
+
+—— 来自 HUAWEI BLA-AL00 ...</blockquote>你觉得冲直播要道歉是可行的方法吗，反正我觉得挺魔怔的
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">那这社区有一半我觉得魔怔的人我能呆的下去？
+大概投票的两波人都互相看不明白吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2268#       发表于 2021-2-21 15:08
+
+
+
+
+泥潭连踏踏开都落后版本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2269#       发表于 2021-2-21 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395958&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 15:03</a>
+
+因为as现在做不到偶像这个地步。
+
+官号从一开始到底QA一直都在强调又强调“个人号都是中之人在用，运营用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真事业粉不在乎号谁在用的，如果企划能好起来，别说直播员了，配音员都可以。
+
+
+
+
+
+
+
+-----
+
+####  逸yi  
+##### 2270#       发表于 2021-2-21 15:12
+
+
+
+
+所以直播员会想回魔怔人私信吗.jpg  就是丝芭握手女奴早就不伸手了噜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 2271#       发表于 2021-2-21 15:13
+
+
+
+
+想想感觉B站评论车车运营挺好的，之前版本路人点进评论基本上直接麻着出来，看不懂也不想懂。这回好歹明白都在干什么，想辩论的也可以参与进来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2272#       发表于 2021-2-21 15:14
+
+
+
+
+所以现在企划是不是没有朝着破圈的方向发展，反而关注点已经落入传统vtuber的叙事窠臼里了。
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 2273#       发表于 2021-2-21 15:15
+
+
+
+
+嘉然已经三天没发动态了，日子还能不能过了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2274#       发表于 2021-2-21 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396049&amp;ptid=1974517" target="_blank">阿萨德飞过去 发表于 2021-2-20 23:15</a>
+
+嘉然已经三天没发动态了，日子还能不能过了</blockquote>
+也没回复私信了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2275#       发表于 2021-2-21 15:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396048&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-21 15:14</a>
+所以现在企划是不是没有朝着破圈的方向发展，反而关注点已经落入传统vtuber的叙事窠臼里了。 ...</blockquote>
+这才是运营需要警醒的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+虽说如此，也不过是饭圈下位投影vjuan经常发生的事情。
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 2276#       发表于 2021-2-21 15:18
+
+
+
+ 本帖最后由 テロメア 于 2021-2-21 15:20 编辑 
+
+A-Soul就是往前十步，又往后退了五步。
+
+要真是经营内容，把套皮主播们秒完了。也憋不出这么多事
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2277#       发表于 2021-2-21 15:22
+
+
+
+[【ASOUL/向晚】迎向未来](https://www.bilibili.com/video/BV1Zp4y1n7H3)
+
+这怎么剪得跟纪录片一样。难怪顶碗人这么魔怔，谁来骂醒我<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2278#       发表于 2021-2-21 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396048&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-21 15:14</a>
+所以现在企划是不是没有朝着破圈的方向发展，反而关注点已经落入传统vtuber的叙事窠臼里了。 ...</blockquote>
+所有我才觉得不能切割v8最多你说切割神兔这些，把v8这粪坑甩出去看似不错，实际上又走回去vjuan老路了，我不知道运营本身有没有其他破圈思路，反正走老路就是歌姬的下场
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kularken  
+##### 2279#       发表于 2021-2-21 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395623&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:18</a>
+看有些人不知道跟你们提一嘴，as确实算是v吧蛆养大的一个月前嘉然三万粉都不到，其他人有的还没破万 ...</blockquote>
+这企划才几把多久就有“老粉”出来秀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2280#       发表于 2021-2-21 15:25
+
+
+
+
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1终于要发挥点作用了吗，好起来了
+
+SYL贴吧黄牌啥意思？以前犯过事被挂过？
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2281#       发表于 2021-2-21 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396013&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 15:10</a>
+真事业粉不在乎号谁在用的，如果企划能好起来，别说直播员了，配音员都可以。 ...</blockquote>
+那我当个魔怔粉也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2282#       发表于 2021-2-21 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396126&amp;ptid=1974517" target="_blank">kularken 发表于 2021-2-21 15:24</a>
+这企划才几把多久就有“老粉”出来秀了我关注五个人的时候每个人都还没100粉丝，asoul发第一条微 ...</blockquote>
+哈哈说一句关注的早就成了人上人，不错，原来净土宗也流行扣帽子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kularken  
+##### 2283#       发表于 2021-2-21 15:31
+
+
+
+
+别扯什么运营及时道歉批事没有，这点破事在正常人眼里看来就跟v8日常发病没事找茬一样，没有错就强逼人按头道歉那也得给人时间组织一套安抚小学男生的语言吧？跑了几个神经病就大喊asoul完了企划要倒了，真以为一个有实力的企划在出这么大点破事之后吸不到新粉?你寄吧谁啊这么自信?
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2284#       发表于 2021-2-21 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396106&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-20 23:22</a>
+
+【ASOUL/向晚】迎向未来
+
+这怎么剪得跟纪录片一样。难怪顶碗人这么魔怔，谁来骂醒我 ...</blockquote>
+这不比010的成为偶像真
+
+
+
+
+
+                       
