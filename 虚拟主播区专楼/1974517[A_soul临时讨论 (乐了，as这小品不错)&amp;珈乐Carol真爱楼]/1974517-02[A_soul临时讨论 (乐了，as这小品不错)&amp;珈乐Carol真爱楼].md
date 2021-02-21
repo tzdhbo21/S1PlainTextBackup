@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 03:35** 
+> ## **本文件最后更新于2021-02-21 06:37** 
 
 
 
@@ -10527,10 +10527,11 @@ ASOUL团队皮套号的运营不看直播安排就转动态、转了动态又拿
 
 
 
- 参与人数 14战斗力 +14
+ 参与人数 15战斗力 +15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 鳳凰院クレア| + 1|好评加鹅|
 | Blaze626| + 1|欢乐多|
 | 是谁的书画| + 1|欢乐多|
 | 抄袭炉石的垃圾| + 1|很难不支持|
@@ -12322,4 +12323,765 @@ syl其实今天还不算有组织的集体冲吧 本来就有不少意思一下�
 
 
 
-                          
+
+
+-----
+
+####  张元英  
+##### 2196#       发表于 2021-2-21 11:43
+
+
+
+
+这个项目能不能活看的还是策划而不是运营，就算运营做到了v8心目中的完美，做到了v圈顶流，v圈顶流也不一定能支撑一个拿着字节平均水平的团队，就算勉强支撑住了，还是不能活，字节不会要一个做到上限后体量还这么小的项目。
+
+
+之前团队表达出的不差钱态度，还有一个角度“不差你们这点钱”，v圈打的钱对as基本就是无关紧要的程度。
+
+
+类比一下我觉得就是韩式女团和日式女团的运营思路的区别，v8想要的是日式女团的那种没距离感，懂粉丝梗，没有中间人的零距离接触，求所谓的“真”。而韩式女团如果只做本国那一亩三分地就是死路一条，这点不仅公司知道，连粉丝都心知肚明，所以就造成了两种完全不同的粉丝文化， 韩式女团的粉丝讨厌偶像对粉丝有过多关注, 对粉丝关注过多算黑点,  会被骂"视奸粉圈",  因为粉丝会觉得你对粉圈关注过多整天在网上冲浪, 那哪里来的时间练习? 你对粉圈关注过多玩粉丝梗, 虽然能让现有的粉丝打鸡血给你拼命打钱,  但是粉圈太小, 终究走不远,  会被认为短视.  粉丝也不在意偶像的sns是不是运营代发的,  甚至很多粉丝希望公司没收刚出道偶像的手机,  没收手机的公司不仅不会被认为没人性,  反而会被认为有事业心有前途能让偶像走得更远.  对于国外粉丝来说, 因为语言障碍, 天然就无法进行零距离接触运营, 所以要想出海扩圈,  一开始就没法走日式女团的运营路线.  这时策划就远比运营重要了,  现在的人生活节奏太快, 时间完全碎片化,  越能将精华集中展现出来,  看的人就越多, 比如lol直播里, 几年前还都是无剪辑录播, 例如B站日均播放三十万的大司马录播,  但是现在都流行将30分钟一把的游戏剪辑成10分钟以内甚至是6分钟左右的浓缩, 就算是大司马, 在热度越来越低之后, 靠着传菜员的一手下饭精华剪辑无心插柳,  又重新火了起来.
+
+如果是完全自由随性地直播, 以现在vtb的平均水平, 唱歌以外可能播十个小时都剪不出一分钟让非圈内粉丝觉得有意思的片段,  这种情况就没有破圈的可能,  不靠策划剧本台本,  基本就是死路一条, as越到后面,  综艺感只会越强.
+
+
+以国内整个偶像团体圈的大环境来说, 韩式女团已经彻底赢了,  日式女团的龙头SNH都把自己的主力全部派出去搞韩式女团选秀了,  说明以目前国内的人均收入水平,  还是韩式女团的运营模式更合适.
+
+
+这里就有一个悖论了,  v8梦想中的运营支撑不起一个这样规模这样水平的团队,  想要支撑这个规模水平的团队就不可能用v8梦里的运营.  你不仅要养一个技术和幕后团队, 还要花大价钱买好歌买好的编舞.  目前看, 甚至一个负责和粉丝互动的专职运营都不堪重负了,  要回五个人的私信, 看五个人的二创,  还要跟进粉圈最新动态的同时,  五个人的直播一秒钟都不能走神,  专职运营都处理不过来的时候, 还想要中之人自己来处理, 结果只能是业务水平原地踏步甚至退步.  讲真, 真正的韩国女团都做不到as现在这么密集地输出,  正常的韩国女团是一个月表演, 两个月休息兼筹备,  这两个月休息兼筹备只能完成两支舞和六七首歌而已,  然后在一个月中重复,  就这种程度的输出都已经压榨得偶像和公司苦不堪言了,  剩下的直播连公司都已经没精力筹备剧本台本了,  只能放任偶像自己虚无直播,  结果往往是两个小时的直播里连粉丝都剪不出一分钟有意思的片段.
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| XSH97| + 1||
+| 海底铁锚| + 1|好评加鹅|
+| Anew620| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2197#       发表于 2021-2-21 11:44
+
+
+
+
+娱乐的东西，当个感兴趣的路人就好了，一旦进了某些圈子（nga,v8之类的）肯定要乱。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2198#       发表于 2021-2-21 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394540&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-21 11:43</a>
+
+这个项目能不能活看的还是策划而不是运营，就算运营做到了v8心目中的完美，做到了v圈顶流，v圈顶流也不一定 ...</blockquote>
+有个疑问，如果综艺化那不如干脆不直播了不是吗？
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2199#       发表于 2021-2-21 12:05
+
+
+
+
+团播秀才艺，单播养gachi<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 老是像一月那样输出中之人很快就见底了
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2200#       发表于 2021-2-21 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394540&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-21 11:43</a>
+这个项目能不能活看的还是策划而不是运营，就算运营做到了v8心目中的完美，做到了v圈顶流，v圈顶流也不一定 ...</blockquote>
+现在感觉策划的野心挺大的，但是以后能发展成什么样也不好说，毕竟目前在这个领域还没有什么成功案例。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2201#       发表于 2021-2-21 12:14
+
+
+
+ 本帖最后由 张元英 于 2021-2-21 12:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394667&amp;ptid=1974517" target="_blank">有优越感的人mk2 发表于 2021-2-21 12:00</a>
+
+有个疑问，如果综艺化那不如干脆不直播了不是吗？</blockquote>
+电视综艺也要有现场观众,  没有现场观众的都是户外大型综艺, 目前3d做不了户外.  没有观众的话, 孤独感就太强烈了, 所以现在电视综艺也要加上大量文字吐槽特效, 其实就是起到弹幕的效果,  以前大司马录播为啥最火, 很大原因也有弹幕演员的作用,  不少人志愿当弹幕演员, 还原直播时的重要弹幕,  假装正在和主播互动. 
+
+
+
+对我个人而言,  最享受的观看环境就是当年有弹幕演员的大司马录播了,  每天连看三个小时都不带停的,  录播不会满屏弹幕,  让我抓不到重点,  而弹幕演员的存在又能让我get到主播的所有互动,  录播也看不到恶意弹幕,  碰到精彩时刻也能马上回退循环欣赏,  让我一个从来不看直播, 也从来不玩lol的每天至少看三小时lol录播,  当时的大司马录播在半夜12点之后可以登顶B站在线榜,  压了很多番剧一头,  也让大司马输出了lol圈数量最多的梗
+
+
+如果as的运营能复现巅峰大司马录播,  在录播里做好弹幕演员,  那对我来说已经别无所求了,  目前的情况, 弹幕版录播还是不行, 看不下去, 能做好弹幕演员的话,  效果真的和花大价钱做后期吐槽的电视综艺差不了太多了.
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 2202#       发表于 2021-2-21 12:26
+
+
+
+
+看了昨天的录播，这不挺好的吗，不用那么高强度弹幕互动照样能有意思已经领先百分之90以上的虚拟主播了。点了下弹幕版真是没法看，就一直在那刷几个词，和小孩子哭闹要玩具一样。。搞得开弹幕完全变成负加成了，对我这种就看看节目的很不友好，听说还影响主播状态<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2203#       发表于 2021-2-21 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394540&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-21 11:43</a>
+
+这个项目能不能活看的还是策划而不是运营，就算运营做到了v8心目中的完美，做到了v圈顶流，v圈顶流也不一定 ...</blockquote>
+专业！精神加鹅
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2204#       发表于 2021-2-21 12:32
+
+
+
+
+随便道个歉就能化解的矛盾，运营死硬不肯低头，8u对人上人的ptsd犯了，傲慢不愧是七大罪之首
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 2205#       发表于 2021-2-21 12:34
+
+
+
+
+其实我在想，既然b站和贴吧都有水军的话，nga大概也有吧。
+
+
+是不是就s1没有水军了，v圈唯一起不到任何作用的论坛，也没必要派水军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 2206#       发表于 2021-2-21 12:38
+
+
+
+
+s1是维阿办公室，哪有往同行办公室派人的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2207#       发表于 2021-2-21 13:12
+
+
+
+
+把内容二次生产的权力下放给粉丝就要有合作的心态啊。说到底二次创作就是粉丝的一种间接参与的塑造了，内容上游你有这个管控权，内容下游就未必了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2208#       发表于 2021-2-21 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394799&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-21 12:14</a>
+
+电视综艺也要有现场观众,  没有现场观众的都是户外大型综艺, 目前3d做不了户外.  没有观众的话, 孤独感就 ...</blockquote>
+没必要做到电视综艺的水准，对我来说只要做到游戏部水平，改成视频势完全可以接受了。
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2209#       发表于 2021-2-21 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395284&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-02-21 13:25:57</a>
+没必要做到电视综艺的水准，对我来说只要做到游戏部水平，改成视频势完全可以接受了。 ...</blockquote>不要被快进影响那么多，8u闹得大其实就是一小撮人，这个企划将来会吸引更多的粉丝，只要策划不拉就能一直直播
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2210#       发表于 2021-2-21 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395302&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-21 13:27</a>
+
+不要被快进影响那么多，8u闹得大其实就是一小撮人，这个企划将来会吸引更多的粉丝，只要策划不拉就能一直直 ...</blockquote>
+改成视频势我5天前就在楼里说过了，和8u冲锋破防都没关系，是我自己的最坏考量
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2211#       发表于 2021-2-21 14:02
+
+
+
+
+有新消息吗，昨天看完直播喝断片了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2212#       发表于 2021-2-21 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395523&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-21 14:02</a>
+
+有新消息吗，昨天看完直播喝断片了</blockquote>
+无。还是粉丝内战
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2213#       发表于 2021-2-21 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395523&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-21 14:02</a>
+
+有新消息吗，昨天看完直播喝断片了</blockquote>
+疑似运营回应了两句，但没什么内容
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2214#       发表于 2021-2-21 14:18
+
+
+
+
+醒了想想as其实也那么多问题，被狂热的气氛影响了，罪过罪过
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2215#       发表于 2021-2-21 14:18
+
+
+
+
+看有些人不知道跟你们提一嘴，as确实算是v吧蛆养大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个月前嘉然三万粉都不到，其他人有的还没破万
+我从as出道就开始看这团，一开始as官号下面也就一百左右回复，真当V吧蛆闲得蛋疼给你冲锋6000楼要你出来磕头啊，批话多给你充了好几次10万弹幕都是假的是吧
+小年夜车了足足一个小时的才让工具人把投票栏撤了，能逼得他中途出来发动态解释，你明白吗?
+在者，以前的神回还真跟V吧蛆离不开，要不然在引流了这么久之后怎么这么拉了?
+引流一直都有内部肃反，引流动物园你当媒人冲是吧，没人反对哪来的as吧和二创计画出来道歉?
+我算是这个企划老粉了，你不爽就和我来汴京，我随时欢迎
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2216#       发表于 2021-2-21 14:22
+
+
+
+ 本帖最后由 弈秋 于 2021-2-21 14:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2217#       发表于 2021-2-21 14:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395623&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:18</a>
+
+看有些人不知道跟你们提一嘴，as确实算是v吧蛆养大的一个月前嘉然三万粉都不到，其他人有的还没破万 ...</blockquote>
+这企划才三个多月就老粉了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼不都是从开播一场不落看到现在的么
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2218#       发表于 2021-2-21 14:24
+
+
+
+
+楼里平静的氛围突然被打破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2219#       发表于 2021-2-21 14:25
+
+
+
+
+哈人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我参与 我见证
+
+
+
+
+
+
+
+-----
+
+####  zhanglei8657  
+##### 2220#       发表于 2021-2-21 14:26
+
+
+
+
+我要不是第一天开始就看了我他妈还真信了 别尼玛觉得嗓门大爱复读就是核心了 真是当了粉头不想下来是么 路人评论区弹幕区不搭理你们还真感觉良好起来了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2221#       发表于 2021-2-21 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395623&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:18</a>
+
+看有些人不知道跟你们提一嘴，as确实算是v吧蛆养大的一个月前嘉然三万粉都不到，其他人有的还没破万 ...</blockquote>
+神回跟V吧蛆离不开举个例子呗
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2222#       发表于 2021-2-21 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">咋有点一股隔壁“我不看等于主播完了”的味道。
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2223#       发表于 2021-2-21 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395623&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:18</a>
+
+看有些人不知道跟你们提一嘴，as确实算是v吧蛆养大的一个月前嘉然三万粉都不到，其他人有的还没破万 ...</blockquote>
+h ttps://www.douban.com/group/topic/212153071/是这个道理，这位总结的挺好。所以这次冲我是支持的，不然我想以后大概没有猫狗鼠这样的文章可以看了，以后观众就是观众，再也没有参与感了（对只在乎演者自身节目效果的诸位，我无意冒犯，果咩）
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2224#       发表于 2021-2-21 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395650&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-21 14:22</a>
+这企划才三个多月就老粉了啊这楼不都是从开播一场不落看到现在的么 ...</blockquote>
+三个月已经算老粉了，毕竟一个月前一个月后评论区风格都换了一种，很难不当老粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2225#       发表于 2021-2-21 14:27
+
+
+
+
+贴吧男孩的第一次意见领袖体验卡
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2226#       发表于 2021-2-21 14:28
+
+
+
+
+v8引流跟整活我还挺爱看的，不过骂v8毒血我也还不了口啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+就有点好奇当初切割v8搬家到A吧的粉丝还有二创组的8u现在是怎么看ASOUL的
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2227#       发表于 2021-2-21 14:30
+
+
+
+
+楼上老哥说的对啊，以后就会有距离感了，其实对于企业势来说这一天只是早晚得问题
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2228#       发表于 2021-2-21 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395677&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 14:26</a>
+神回跟V吧蛆离不开举个例子呗</blockquote>
+拿个最简单的例子，嘉然12月小作文神回，起因就是V吧蛆天天偷定型文在评论区发情，才有的嘉晚饭直播中说出“他们也有原创的”，就有了后来的小作文大赛，新户眠子也是V吧蛆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2229#       发表于 2021-2-21 14:31
+
+
+
+
+bsyl还蛮期待以后直接撕皮直接二三次元一起发展的
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2230#       发表于 2021-2-21 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395716&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:31</a>
+
+拿个最简单的例子，嘉然12月小作文神回，起因就是V吧蛆天天偷定型文在评论区发情，才有的嘉晚饭直播中说 ...</blockquote>
+唉，就是看了这个切片我才看的as全团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2231#       发表于 2021-2-21 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395696&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-21 14:28</a>
+v8引流跟整活我还挺爱看的，不过骂v8毒血我也还不了口啊
+
+就有点好奇当初切割v8搬家到A吧的粉丝还有 ...</blockquote>
+我就直说吧，我V吧黄牌，自从引流动物园我就切割跑到豆瓣玩去了，前几天rx销号跑路所以我也去as吧玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2232#       发表于 2021-2-21 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395683&amp;ptid=1974517" target="_blank">岛田开 发表于 2021-2-21 14:27</a>
+h ttps://www.douban.com/group/topic/212153071/是这个道理，这位总结的挺好。所以这次冲我是支持的，不 ...</blockquote>
+豆瓣这个帖子是我写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意不意外
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2233#       发表于 2021-2-21 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395716&amp;ptid=1974517" target="_blank">情字何解 发表于 2021-2-21 14:31</a>
+
+拿个最简单的例子，嘉然12月小作文神回，起因就是V吧蛆天天偷定型文在评论区发情，才有的嘉晚饭直播中说 ...</blockquote>
+鸡胸肉还是b综楼友呢，是不是神回离不开b综了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2234#       发表于 2021-2-21 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">明年撕皮上女团综艺。双重身份还挺有看头的
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2235#       发表于 2021-2-21 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395746&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 14:35</a>
+鸡胸肉还是b综楼友呢，是不是神回离不开b综了</blockquote>
+鸡胸肉那位也玩贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2236#       发表于 2021-2-21 14:37
+
+
+
+
+你们争归属权的样子像极了小学生
+
+
+
+
+
+                         
