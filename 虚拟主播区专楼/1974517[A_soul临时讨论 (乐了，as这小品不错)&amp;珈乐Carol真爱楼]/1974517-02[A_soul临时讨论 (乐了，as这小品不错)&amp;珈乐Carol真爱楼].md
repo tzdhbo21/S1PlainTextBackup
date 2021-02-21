@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 12:45** 
+> ## **本文件最后更新于2021-02-21 15:35** 
 
 
 
@@ -15186,4 +15186,590 @@ v8和泥潭的活跃用户数量在资本那块也是不起作用的啦<img src=
 
 
 
-                     
+
+
+-----
+
+####  音稻  
+##### 2352#       发表于 2021-2-21 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50398312&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-21 20:22</a>
+
+这也能解释为什么总是把镜头给怼到脸上了
+
+我觉得是手部捕捉的问题更大，仔细看得话常常会被吓到。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 设备不到位，按照前期消息来看是用的国产货 不是一线游戏厂或者制片厂那些 比如Optitrack什么的
+
+可能是考虑自研软件 国产货更方便对接开发一点?
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2353#       发表于 2021-2-21 21:09
+
+
+
+
+看了眼，as吧使徒来袭也太吓人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 2354#       发表于 2021-2-21 21:23
+
+
+
+
+我玩了半天星之卡比，现在看起来还在吵，真是够了……
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2355#       发表于 2021-2-21 21:57
+
+
+
+
+我虽然早就被nga封了，但每天都有人把我的话搬到nga 真好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2356#       发表于 2021-2-21 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么这里也有传话太监的
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2357#       发表于 2021-2-21 22:03
+
+
+
+
+nga也有抗大总管是吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2358#       发表于 2021-2-21 22:05
+
+
+
+
+抓单身狗都100w了，短视频才是版本答案
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2359#       发表于 2021-2-21 22:06
+
+
+
+
+到现在都还没有心动挑战的二创真怪
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2360#       发表于 2021-2-21 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399201&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-02-21 22:06:53</a>
+到现在都还没有心动挑战的二创真怪</blockquote>有的，向晚90秒心动挑战
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2361#       发表于 2021-2-21 22:16
+
+
+
+2021年9月的某一天，秋蝉鼓噪的下午，你坐在自习室的窗边，前面一对情侣靠在一起拿着平板追剧。你像往常一样掏出手机打开贴吧，点进最近访问的第一个——V吧。
+吧里最近没什么新活，裆宝不知道从哪找到几个新的yhm在弄排名。几个帖子还在车着引流贵物新月岚，贴吧和她缠斗了半年多，她的粉丝却涨到了快一百万。你跟着复读了几条，拉动刷新，一个新的帖子窜入你的眼中，《女团Asoul将于9月x日停止活动》，你怔了一下。
+去年年底关注了Asoul，今年二月底因为运营的问题，你冲直播间被禁言了，然后去评论区骂了几十条到出现验证码。你取关了全员，那几天你天天盯着几个账号的粉丝数据，去各个论坛和人争论，最后运营也没有改正自己的傲慢。“鼠鼠被切割了呢，枉我天天去各个评论区给你引流，像个小丑一样”你没有难过太久，贴吧里新推荐了个底边yhm，那里8U可以自由团建。
+你又跑去NGA，VT早已经把帖子发好了，你点进去，倪哥们一溜地扇子笑和喝茶。
+“恶臭饭圈终于爬了”
+“乐华的引流控评真把我恶心到了”
+“可惜了，设备和中之人跳舞都不错”
+...
+看着倪哥的正义评论，你乐了，sb运营切割8U这下死了。
+毕业那天，你点进直播间，弹幕飞速地流动，好像回到了最开始手摇独轮车的几次直播。你尝试着发弹幕，发现账号已经解除禁言。看着剩下的金瓜子还够一个30的SC，你发了一个“好死”。这一次SC没有被删除而是被淹没在了红色的瀑布里，看着MMR像死了爹妈一样哭丧，你直犯恶心。
+退出直播间，你鬼使神差地翻了翻收藏夹，想找的那个视频却已经失效，原来二创组几个月前也因为矛盾删视频跑路了。你点开搜索栏，找到的却是舞蹈区幕刃的视频.....
+“嘉然小姐，我好想再看一遍《桃花旗袍》啊”
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海底铁锚| + 1|情感抑制模块绷不住了|
+| 鳳凰院クレア| + 1|欢乐多|
+| 恒温死神| + 1|蚌埠住了|
+| 小小雪空| + 1|我讨厌真情实感|
+| 不想闭嘴| + 1|好|
+| zero_death| + 1|绷不住了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2362#       发表于 2021-2-21 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399294&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-21 22:16</a>
+
+2021年9月的某一天，秋蝉鼓噪的下午，你坐在自习室的窗边，前面一对情侣靠在一起拿着平板追剧。你像往常一 ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2363#       发表于 2021-2-21 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399294&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-2-21 22:16</a>
+2021年9月的某一天，秋蝉鼓噪的下午，你坐在自习室的窗边，前面一对情侣靠在一起拿着平板追剧。你像往常一 ...</blockquote>
+优秀原创，精神加鹅！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2364#       发表于 2021-2-21 22:29
+
+
+
+ 本帖最后由 音稻 于 2021-2-21 22:32 编辑 
+
+“贝拉骗过贝极星多少次了” “'我'没有骗过你们”
+
+呜呜呜，贝拉用的是“我”不是“贝拉”，没有骗过、没有骗过我们。贝拉都是真的，心意都是真的，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2365#       发表于 2021-2-21 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399294&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-02-21 22:16:03</a></blockquote>这活可以的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2366#       发表于 2021-2-21 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">卧槽 别 你让我阴阳怪气多少次都可以，看到这种活真是要破防了
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2367#       发表于 2021-2-21 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">卧槽 别 你让我阴阳怪气多少次都可以，看到这种活真是要破防了
+
+
+
+
+
+
+
+-----
+
+####  鳳凰院クレア  
+##### 2368#       发表于 2021-2-21 23:03
+
+
+
+
+要是真9月没的话 必刀预言家<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2369#       发表于 2021-2-21 23:10
+
+
+
+
+嘉然今天也没有发动态，然瘾犯了。
+
+翻开嘉然的tag看了看，切片、当狗，一页就一个能转的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2370#       发表于 2021-2-21 23:10
+
+
+
+
+好家伙今天这事情一出，人均回旋，运气够好的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Seteor  
+##### 2371#       发表于 2021-2-21 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">都被运营整到这么惨了，我还是想见你，嘉然小姐，晚安
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2372#       发表于 2021-2-21 23:13
+
+
+
+
+都回来吧，看asoul的大家都是一个魂啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2373#       发表于 2021-2-21 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399811&amp;ptid=1974517" target="_blank">有优越感的人mk2 发表于 2021-2-21 23:10</a>
+好家伙今天这事情一出，人均回旋，运气够好的</blockquote>
+还是别回旋了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2374#       发表于 2021-2-21 23:17
+
+
+
+
+今天出了啥事儿？不一直是观众发病吗，我错过了什么<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2375#       发表于 2021-2-21 23:17
+
+
+
+
+有楼友说说怎么了吗
+
+NGA那边问了下只说岚出事了?
+
+对AS这边有什么影响吗
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2376#       发表于 2021-2-21 23:19
+
+
+
+
+今天逛了下贴吧，喷魔怔人的帖子也不少，看来正常人还是占大多数，只是之前在沉默<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2377#       发表于 2021-2-21 23:22
+
+
+
+
+UID1604289141
+
+第二个女运营
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2378#       发表于 2021-2-21 23:22
+
+
+
+
+对AS没什么影响吧，粉丝回旋？
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2379#       发表于 2021-2-21 23:24
+
+
+
+
+我现在怀疑比烂学就是人类的终极了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 2380#       发表于 2021-2-21 23:24
+
+
+
+
+我悟了，偶像粉丝做什么，跟偶像、运营没有关系，是有一套独立的运行逻辑……
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2381#       发表于 2021-2-21 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399910&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-21 07:22</a>
+
+UID1604289141
+
+第二个女运营</blockquote>
+BSYL
+
+明牌上的工作人员一共有6个人,这人工费可以啊
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2382#       发表于 2021-2-21 23:32
+
+
+
+
+大伙看吧里的帖子时要抱着大部分都是rp的前提<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 踏踏开是rp 投降是rp run是rp 正义审判是rp 现在的回旋也差不多是rp
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2383#       发表于 2021-2-21 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399995&amp;ptid=1974517" target="_blank">luoy 发表于 2021-2-21 23:32</a>
+大伙看吧里的帖子时要抱着大部分都是rp的前提 踏踏开是rp 投降是rp run是rp 正义审判是rp 现在的回 ...</blockquote>
+无敌的rp盾，8u永远赢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+                    

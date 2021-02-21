@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-01-30 09:24** 
+> ## **本文件最后更新于2021-02-21 15:45** 
 
 
 
@@ -291,14 +291,7 @@ anmr新人的鸡感觉很强，以后可能就是茶店歌姬担当+1了
 ####  wsotaku  
 ##### 17#       发表于 2020-2-25 15:58
 
-
-
-
-这团没了eri和蝙蝠妹就赶紧滚进历史垃圾堆吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5466,4 +5459,233 @@ syl848这突发性耳聋是什么怪病<img src="https://static.saraba1st.com/im
 
 
 
-                                            
+
+
+-----
+
+####  huanshen  
+##### 175#       发表于 2021-1-30 22:51
+
+
+
+
+刚刚sglr联动发表，2/11日新衣装披露直播
+
+
+<img src="https://img.saraba1st.com/forum/202101/30/225021yupzofmppgfxjoim.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210130_224905.jpg</strong> (137.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-1-30 22:50 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 176#       发表于 2021-2-1 23:09
+
+
+
+
+虎城アンナ诞生日倒计时直播正在进行
+
+直播地址:https://youtu.be/QnjnwzPOcdU
+
+诞生日纪念谷子 受注生产 2/15日截止
+
+购买地址:https://774inc.spwn.jp/events/SugarLyric/goods
+
+<img src="https://img.saraba1st.com/forum/202102/01/230844g8l0056t16001f1u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210201_230533.jpg</strong> (300.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-1 23:08 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 177#       发表于 2021-2-11 00:37
+
+
+
+
+今晚sugerlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン新衣装发表
+
+19时（日本时间）虎城アンナ
+
+待机间:https://youtu.be/gTMcsz8rKek
+
+19时30分（日本时间）獅子王クリス
+
+待机间:https://youtu.be/rwLGEHY3OM4
+
+20时（日本时间）龍ヶ崎リン
+
+待机间:https://youtu.be/WtG-cM6Q14Y
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 178#       发表于 2021-2-11 20:00
+
+
+
+
+sugarlyric的虎城アンナ、獅子王クリス和龍ヶ崎リン第二套衣装的官方视觉图
+
+<img src="https://img.saraba1st.com/forum/202102/11/195932ercyyyddy0cqbkuz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>Et8YL-IVoAA7GSm.jpeg</strong> (170.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-11 19:59 上传
+
+
+
+
+
+
+https://twitter.com/SugarLyric_PI/status/1359832392043667464
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 179#       发表于 2021-2-16 20:27
+
+
+
+
+uge二周年纪念3D直播，vapart五人都在
+
+直播地址:https://youtu.be/0vf1NbJ19Go
+
+二周年纪念谷子贩售中 受注生产 3/1日截止
+
+购买地址:https://774inc.spwn.jp/events/200415-VApArt/goods
+
+<img src="https://img.saraba1st.com/forum/202102/16/202636ved2emsx2dcqccxq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EuWMez_VcAcQe1l.jpeg</strong> (59.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-16 20:26 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 180#       发表于 2021-2-21 18:58
+
+
+
+
+月野木ちろる身体不适，去医院检查后医生给出必须治疗的意见，与运营商讨后决定暂时停止活动
+
+<img src="https://img.saraba1st.com/forum/202102/21/185607usjs1e255cestj2g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EuvBPSOUYAAs3SI.jpeg</strong> (36.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:56 上传
+
+
+
+
+
+
+https://twitter.com/tirol0_0lorit/status/1363398050228576256
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 181#       发表于 2021-2-21 23:19
+
+
+
+
+風見くく、柚原いづみ一周年重大发表，明日初始衣装2.0发布
+
+20时（日本时间）風見くく
+
+待机间:
+
+20时30分（日本时间）柚原いづみ
+
+待机间:
+
+<img src="https://img.saraba1st.com/forum/202102/21/231915ps2lsxci0skym4z4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EuwmJLEUYAI8QB9.jpeg</strong> (185.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 23:19 上传
+
+
+
+
+
+
+
+
+
+                                           
