@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 07:34** 
+> ## **本文件最后更新于2021-02-21 10:36** 
 
 
 
@@ -12362,10 +12362,11 @@ syl其实今天还不算有组织的集体冲吧 本来就有不少意思一下�
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 鳳凰院クレア| + 1|好评加鹅|
 | XSH97| + 1||
 | 海底铁锚| + 1|好评加鹅|
 | Anew620| + 1||
@@ -12718,6 +12719,25 @@ s1是维阿办公室，哪有往同行办公室派人的啊<img src="https://sta
 
 —— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Umichika|-1|还挺牛|
+
+
+
+查看全部评分
 
 
 
@@ -13970,4 +13990,671 @@ SYL贴吧黄牌啥意思？以前犯过事被挂过？
 
 
 
-                       
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2285#       发表于 2021-2-21 15:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396106&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-21 15:22</a>
+
+【ASOUL/向晚】迎向未来
+
+这怎么剪得跟纪录片一样。难怪顶碗人这么魔怔，谁来骂醒我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">坏了 有点入脑了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2286#       发表于 2021-2-21 15:42
+
+
+
+ 本帖最后由 EnbuRiAs 于 2021-2-21 16:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396120&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 15:23</a>
+
+所有我才觉得不能切割v8最多你说切割神兔这些，把v8这粪坑甩出去看似不错，实际上又走回去vjuan老路了， ...</blockquote>
+官方也没说要切割啊，上房管，运营反应迟缓跑的是对企划抱有相当“热情”的人，对直播间自由环境执迷的人，对企划纯洁性抱有幻想的人，当然这部分里面有不少贴吧用户。说切割V8，还是贴吧用户的集体认同吧。
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 2287#       发表于 2021-2-21 15:45
+
+
+
+
+楼友们wood也太充沛了，作为铁血纯良这两天真给我弄出了能看一天是一天的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2288#       发表于 2021-2-21 15:50
+
+
+
+
+s1这是落后几个版本啊？
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2289#       发表于 2021-2-21 15:54
+
+
+
+
+等QA再冲也不晚，还是要听听运营的看法
+
+
+
+
+
+
+
+-----
+
+####  sybaseliu  
+##### 2290#       发表于 2021-2-21 16:07
+
+
+
+
+s1，asoul的净土宗是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2291#       发表于 2021-2-21 16:08
+
+
+
+
+说穿了就运营滥用账户   QA说清楚就行了    那有什么大事
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2292#       发表于 2021-2-21 16:17
+
+
+
+ 本帖最后由 poipanchao 于 2021-2-21 16:18 编辑 
+
+“如果以后天天一开播都是车和刷梗的话”
+
+你把弹幕关了不就完了
+
+as哪有那么强烈的互动需求
+
+实在不行当抖友就行了
+
+
+这么一想字节是不是在好几层啊……
+
+
+syl，s1真成净土宗了吗
+
+
+
+
+
+
+
+
+-----
+
+####  Anew620  
+##### 2293#       发表于 2021-2-21 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396422&amp;ptid=1974517" target="_blank">poipanchao 发表于 2021-2-21 16:17</a>
+“如果以后天天一开播都是车和刷梗的话”
+
+你把弹幕关了不就完了
+
+as哪有那么强烈的互动需求</blockquote>
+我想的是昨天开始那种弹幕，虽然没持续多久吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biuh7799  
+##### 2294#       发表于 2021-2-21 16:27
+
+
+
+
+然然，我的然然😭
+
+
+
+
+
+
+
+-----
+
+####  1165wm989845  
+##### 2295#       发表于 2021-2-21 16:29
+
+
+
+
+看楼上这几位，S1是不是要被入侵了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gzlss12321  
+##### 2296#       发表于 2021-2-21 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">给跪了 哪来那么大火气 直接取关多好 现在看了nga专楼里几个魔怔男孩发病就想笑 
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2297#       发表于 2021-2-21 16:37
+
+
+
+
+今日楼事，贴吧黄牌大将莅临S1十人破楼指导工作
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2298#       发表于 2021-2-21 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396558&amp;ptid=1974517" target="_blank">gzlss12321 发表于 2021-02-21 16:37:38</a>
+给跪了 哪来那么大火气 直接取关多好 现在看了nga专楼里几个魔怔男孩发病就想笑  ...</blockquote>不行 我们8u才是对as最好的群体，你们mmr早晚把as变成歌姬<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2299#       发表于 2021-2-21 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396561&amp;ptid=1974517" target="_blank">EnbuRiAs 发表于 2021-02-21 16:37:58</a>
+今日楼事，贴吧黄牌大将莅临S1十人破楼指导工作</blockquote>绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2300#       发表于 2021-2-21 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395907&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-02-21 14:56:50</a>
+真喜欢的根本不care，还觉得魔怔粉聒噪</blockquote>我是想说喜欢的不会去as8和v8了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  蓝灯横滨  
+##### 2301#       发表于 2021-2-21 16:39
+
+
+
+
+年轻人的第一个入脑的V是这样的
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2302#       发表于 2021-2-21 16:43
+
+
+
+
+感觉V8靠as引来不少人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这群人不知道有没有看过v ，或多或少都被v8那种价值观给影响了。
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 2303#       发表于 2021-2-21 16:44
+
+
+
+
+魔怔人挺好的，能活跃气氛
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2304#       发表于 2021-2-21 16:58
+
+
+
+
+团播真的没意思,少有互动
+
+什么偶像啊,说白了只是喜欢能够届到的偶像<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2305#       发表于 2021-2-21 17:05
+
+
+
+
+认知厨是最爽的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2306#       发表于 2021-2-21 17:06
+
+
+
+
+是的，被回私信读sc读弹幕是真的很爽<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2307#       发表于 2021-2-21 17:10
+
+
+
+
+我发现从看AS第一场直播到现在我一共没发过超过100条弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这是好的。
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2308#       发表于 2021-2-21 17:13
+
+
+
+
+说个骚事 那段话本来我是首发asoul吧的
+可惜被屎图淹没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  永恒时间  
+##### 2309#       发表于 2021-2-21 17:18
+
+
+
+
+V吧黄牌来了，听说有人叫我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2310#       发表于 2021-2-21 17:32
+
+
+
+[https://www.bilibili.com/video/B ... 333.788.videocard.0](https://www.bilibili.com/video/BV18z4y127Gp/?spm_id_from=333.788.videocard.0)
+
+晚指导可爱   gachi了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  intotherain9  
+##### 2311#       发表于 2021-2-21 17:35
+
+
+
+
+还是袁老让你们吃的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+一个二个连舰长都不知道上没上的在这给人当精神股东担心成下一个歌姬<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+合着就靠你们白嫖能养活人家一大摊动捕设备咋的？
+
+就算嘉然那每个月600个舰长又能养活谁？
+
+乐华如果投入那么多只为了在B站养5个主播，那才是脑残了。
+
+爱看看不看滚就行了，真不缺你一个“粉丝”。
+
+—— 来自 blackshark SHARK KLE-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2312#       发表于 2021-2-21 17:35
+
+
+
+
+谢谢黄牌大手盘活了这楼，感谢指导<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 2313#       发表于 2021-2-21 17:48
+
+
+
+
+不知道为什么嘉然那个珈乐小宠物的梗为什么没火起来，我感觉那是4小时连播最乐的一个片段，有点可惜
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2314#       发表于 2021-2-21 18:01
+
+
+
+
+嘉然存在的最大意义就是幼女涩情!
+
+
+
+
+
+
+
+-----
+
+####  回旋球忧郁  
+##### 2315#       发表于 2021-2-21 18:15
+
+
+
+
+前面有人说嘉然还是接不上猫鼠狗的梗，后面又有人说怕以后再也看不到猫鼠狗的梗了，这猫鼠狗也不是嘉然自己的梗，跟互动有啥关系
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2316#       发表于 2021-2-21 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397089&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-21 18:01</a>
+嘉然存在的最大意义就是幼女涩情!</blockquote>
+成年了<img src="https://static.saraba1st.com/image/smiley/carton2017/215.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 2317#       发表于 2021-2-21 18:22
+
+
+
+
+猫鼠狗二创增值得也太哈人了，策划要是有脑子就该让嘉然整猫鼠狗二创鉴赏回了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2318#       发表于 2021-2-21 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397244&amp;ptid=1974517" target="_blank">德里达幽灵 发表于 2021-2-21 02:22</a>
+
+猫鼠狗二创增值得也太哈人了，策划要是有脑子就该让嘉然整猫鼠狗二创鉴赏回了 ...</blockquote>
+真别碰了,海外论坛某些神友已经在盯着AS粉开了
+
+毕竟是那边的烂梗
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2319#       发表于 2021-2-21 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397222&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-21 02:18</a>
+
+成年了一米八
+
+
+—— 来自 S1Fun</blockquote>
+那不是更好? 
+
+勺的肉体不也是成熟妹,皮不也是有幼女RP吗?
+
+就好这口
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2320#       发表于 2021-2-21 18:27
+
+
+
+<blockquote>asd225588 发表于 2021-2-21 18:25
+真别碰了,海外论坛某些神友已经在盯着AS粉开了
+
+毕竟是那边的烂梗</blockquote>
+草，太哈人，我先run
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2321#       发表于 2021-2-21 18:36
+
+
+
+
+原来as有神回不是策划写的台本好而是8u弹幕发的多是吧，真是辛苦大家啦
+嘉然首播我在场，珈乐公测我指挥，as你忘恩负义，竟然不听我的话了，你在杭州下班别跑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                      
