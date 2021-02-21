@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 16:58** 
+> ## **本文件最后更新于2021-02-21 12:43** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_Sl1u2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_vhzfl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_Pz4nk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_I6242" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_shzuR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_D9H69" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_SI18S" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_KsmF4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -7384,13 +7384,10 @@ B小鬼不震怒啊？<img src="https://static.saraba1st.com/image/smiley/face20
 
 
 
+ 本帖最后由 望月のあ推し 于 2021-2-21 14:44 编辑 
 
 sugar昨天油管首播
 <img src="https://p.sda1.dev/1/831da4e8c482c4b0b5f720d678f56718/IMG_CMP_23561690.jpeg" referrerpolicy="no-referrer">
-到这的时候我乍一看目标一百万，以为说粉丝
-右上角一看，再生，微妙
-一偏头看到后面藏了个円字
-<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
 
 
 
@@ -7718,7 +7715,7 @@ ame都人称黄天使了，还搁这炎上呢。
 <img src="https://img.saraba1st.com/forum/202102/20/200956i7uro7bbq0zj0nqf.png" referrerpolicy="no-referrer">
 
 
-<strong>vsinger名字.png</strong> (555.98 KB, 下载次数: 0)
+<strong>vsinger名字.png</strong> (555.98 KB, 下载次数: 1)
 
 下载附件
 
@@ -7764,7 +7761,7 @@ ame都人称黄天使了，还搁这炎上呢。
 <img src="https://img.saraba1st.com/forum/202102/20/204807h3xvv3348o6v7yoe.jpg" referrerpolicy="no-referrer">
 
 
-<strong>gems.jpg</strong> (87.02 KB, 下载次数: 0)
+<strong>gems.jpg</strong> (87.02 KB, 下载次数: 1)
 
 下载附件
 
@@ -8302,4 +8299,519 @@ unlimited也就剩下riot和英语老师克蕾尔了，二代游戏部毕业，�
 
 
 
-                                   
+
+
+-----
+
+####  ShuTk4O  
+##### 31930#       发表于 2021-2-21 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392531&amp;ptid=1969498" target="_blank">free 发表于 2021-2-21 00:47</a>
+unlimited也就剩下riot和英语老师克蕾尔了，二代游戏部毕业，柊彩香朝仓日向毕业，青桐也要毕业一个
+
+而且这 ...</blockquote>
+因为另外三个歌力真的不行呀。蓝毛还整天弹阴间电子琴
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31931#       发表于 2021-2-21 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392709&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-2-21 01:20</a>
+
+因为另外三个歌力真的不行呀。蓝毛还整天弹阴间电子琴</blockquote>
+哪里不行啊，就长濑有花拉了点，剩下俩也挺好的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 31932#       发表于 2021-2-21 07:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385454&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-2-20 12:06</a>
+
+446这直播真是一股退休老人自得其乐扑面而来，啥时候去隔壁找阿凛联动阿</blockquote>
+446挺看重同接和直播的游戏选择（除了杠着不玩apex），和头铁ff14的凛姨没法比
+
+你要说她的游戏实况自得其乐那8成杏女都是退休阿姨图一乐了，看一眼隔壁的阿火mega
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31933#       发表于 2021-2-21 09:34
+
+
+
+
+【漢語】世界に通用したい美悪魔は中国語を勉強するにあたりまずこれに手を出した【虎城アンナ / シュガリリ】
+[https://www.youtube.com/watch?v=h0A1lFzCMzU](https://www.youtube.com/watch?v=h0A1lFzCMzU)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31934#       发表于 2021-2-21 09:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/094921cmfn5gg3bpcmjzfj.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #055 - 'YouTube' - www_youtube_com.png</strong> (31.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 09:49 上传
+
+
+
+
+
+
+
+版本该更新了（指现在是🐇葛
+
+
+
+
+
+
+
+-----
+
+####  望月のあ推し  
+##### 31935#       发表于 2021-2-21 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392428&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-21 00:35</a>
+为什么u社这么nb，游戏部爆炸了，没死还搞出了无数新企划，新企划都废了还有丑闻都能骗到8e投资，然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">骗到二代可这么个能唱的田舎jk接手这烂摊子，你u社命挺硬
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 31936#       发表于 2021-2-21 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393835&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-2-21 09:49</a>
+
+版本该更新了（指现在是🐇葛</blockquote>
+但这封面也不是🐇啊
+
+
+
+
+
+
+
+-----
+
+####  Rebellionx5  
+##### 31937#       发表于 2021-2-21 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">20年初二代游戏部绷不住了拆频道一转直播时，怎么看都一副药丸相
+
+结果上西滚了之后RIOT MUSIC好起来了
+
+只能说勇者社时也命也
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 31938#       发表于 2021-2-21 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392428&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-21 00:35</a>
+
+为什么u社这么nb，游戏部爆炸了，没死还搞出了无数新企划，新企划都废了还有丑闻都能骗到8e投资，然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">说的好像1st比bloom规格大一样，riot music不搞1st这企划还能搞什么
+
+
+
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 31939#       发表于 2021-2-21 13:05
+
+
+
+
+上次不是谁聊天说有一个大家都熟悉的让会最近转生。
+
+
+
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 31940#       发表于 2021-2-21 13:06
+
+
+
+
+ps熟悉的人大舅子
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31941#       发表于 2021-2-21 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393741&amp;ptid=1969498" target="_blank">katern 发表于 2021-2-21 09:34</a>
+【漢語】世界に通用したい美悪魔は中国語を勉強するにあたりまずこれに手を出した【虎城アンナ / シュガリ ...</blockquote>
+万万没想到居然是古汉语
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31942#       发表于 2021-2-21 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395947&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-2-21 15:01</a>
+
+万万没想到居然是古汉语</blockquote>
+这谁想得到啊，我还以为是实际是学汉字呢，结果真是汉语，还是古文<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 31943#       发表于 2021-2-21 16:26
+
+
+
+ 本帖最后由 NBXX 于 2021-2-21 16:47 编辑 
+
+[https://panora.tokyo/archives/21046](https://panora.tokyo/archives/21046)
+
+6日で登録者数5万人突破、最終日に卒業　伝説の14日間連続配信中「子狐ねねか」を知っているか？
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/164226ivs0ud4ueieuub8e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault.jpg</strong> (154.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 16:42 上传
+
+
+
+
+
+
+以下是原文渣翻： <blockquote>在14号情人节，某个Vtuber悄悄地开始了她传奇的直播。她叫子狐ねねか隶属于Vtuber团体「ウィンくるむ☆シャワーるーむ」。标题则写着「【長時間配信】まさかの14日間配信！【VTuber】」
+[https://www.youtube.com/watch?v=GLkLRy7AurU&amp;feature=emb_title](https://www.youtube.com/watch?v=GLkLRy7AurU&amp;feature=emb_title)
+
+【長時間配信】まさかの14日間配信！【Vtuber】
+
+正如标题所写，从14号到28号这14天内除非电脑出现故障就一直不停地直播，是个简单却又强烈的企划。
+
+现在话题度正以海外为中心不断扩大，从开始直播前的2000粉丝，仅仅6天后就涨到5五万人以上。曾在userlocal的Vtuber急上升排名中夺得一位。在笔者写报道的时候，也位列第六保持在了前十。
+[https://twitter.com/neko_neneka/status/1361480436388532225](https://twitter.com/neko_neneka/status/1361480436388532225)
+
+直播的主要内容是APEX和LOL等游戏和联动。子狐ねねか也在Twitter发起联动邀请，到现在联动直播过的えぴせんた所属的高妹狼，VOLL所属的ダイヤ・スペランツァ，鷲宮宗等Vtuber频道粉丝数也同步上升。
+
+THIS VTUBER NEEDS YOUR HELP! (the Neko Neneka situation)
+[https://youtu.be/MzE-c89dc5M](https://youtu.be/MzE-c89dc5M)
+
+然而在今天21号、ねねか突然在Twitter上发表了要毕业的消息。而举行这次的14天直播企划的原因，是怀着「最后做一件大事就毕业」的想法开始的。让很多粉丝大吃一惊。另外这次以「子狐ねねか」的身份毕业停止活动，而之后会以个人VTuber的形式再度展开活动。详情请见本人追加发表的评论。
+[https://twitter.com/neko_neneka/status/1363323099425378312](https://twitter.com/neko_neneka/status/1363323099425378312)</blockquote>
+这篇文章一笔带过了被关注的直接原因。其实是因为这个子狐ねねか的身世比较惨。
+
+据[子狐ねねかの過去ー字幕付きー](https://www.youtube.com/watch?v=l8oidtUfEh0)评论区所述： <blockquote>毕业之后去了女仆咖啡厅打工，每天工作14个小时还被性骚扰；
+
+父亲一开始同意但后来又反对她的工作，被赶了出去不允许和父母住在一起。
+
+家里的房子着火。
+
+奶奶去世。
+
+养的狗丢了。
+
+在合租的房子里被偷了裤子。
+
+打两份工的时候生了病。
+
+房子公寓的钱包被偷。</blockquote>
+以及之前就去reddit发过求助帖。
+[https://www.reddit.com/r/Virtual ... nts/kfhstn/help_me/](https://www.reddit.com/r/VirtualYoutubers/comments/kfhstn/help_me/)
+
+<img src="https://img.saraba1st.com/forum/202102/21/163150r3lavevxldqqd0xz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210221173139.png</strong> (48.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 16:31 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+| 暴走的包子| + 1||
+| katern| + 1|好评加鹅|
+| 渡鸦骑士| + 1|这个企划存在感挺高的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 31944#       发表于 2021-2-21 17:07
+
+
+
+
+这是不是算是用B站给敌台引流
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/170616itfd8ndffz7z4117.png" referrerpolicy="no-referrer">
+
+
+<strong>WZNXU3S82S7OUUX1$[[X4CW.png</strong> (29.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 17:06 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 31945#       发表于 2021-2-21 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥哥这不冲一波金憨憨？
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 31946#       发表于 2021-2-21 17:57
+
+
+
+
+nga都过去几个版本了谁还管你这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 31947#       发表于 2021-2-21 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31948#       发表于 2021-2-21 18:54
+
+
+
+
+虹人没人冲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31949#       发表于 2021-2-21 19:15
+
+
+
+[https://www.youtube.com/watch?v=dXduaq_QbdI](https://www.youtube.com/watch?v=dXduaq_QbdI)
+
+黑黑发歌了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31950#       发表于 2021-2-21 19:17
+
+
+
+
+黑黑是牵手动画担当吗，
+感觉遥远的未来如果虹出动画片了也会有黑黑牵手
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 31951#       发表于 2021-2-21 19:21
+
+
+
+
+草，好吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 31952#       发表于 2021-2-21 20:26
+
+
+
+
+md，好甜
+cnr+一如既往的填了好多彩蛋
+
+
+
+
+
+                                  

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 10:36** 
+> ## **本文件最后更新于2021-02-21 12:45** 
 
 
 
@@ -14657,4 +14657,533 @@ V吧黄牌来了，听说有人叫我<img src="https://static.saraba1st.com/imag
 
 
 
-                      
+
+
+-----
+
+####  Hirosue  
+##### 2322#       发表于 2021-2-21 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397244&amp;ptid=1974517" target="_blank">德里达幽灵 发表于 2021-02-21 18:22:10</a>
+猫鼠狗二创增值得也太哈人了，策划要是有脑子就该让嘉然整猫鼠狗二创鉴赏回了 ...</blockquote>二创鉴赏感觉效果应该不错的，提前过滤好就可以
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2323#       发表于 2021-2-21 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397346&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-21 18:36</a>
+原来as有神回不是策划写的台本好而是8u弹幕发的多是吧，真是辛苦大家啦
+嘉然首播我在场，珈乐公测我指挥，a ...</blockquote>
+我要见杜华!我要见杜华!
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 2324#       发表于 2021-2-21 18:43
+
+
+
+
+快进到8u三七开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2325#       发表于 2021-2-21 18:47
+
+
+
+
+泥哥坛里一直bb叨叨那几个东西是什么物种啊 整天没别的事就在那膈应人是吧
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2326#       发表于 2021-2-21 18:51
+
+
+
+
+来点屎黄色论坛截图
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 2327#       发表于 2021-2-21 18:52
+
+
+
+
+幕后人员不就这样，功劳铁定没有，要锅那肯定得来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2328#       发表于 2021-2-21 18:57
+
+
+
+
+然然平板支撑那么厉害，腰身曲线一定很好吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 减肥什么的都是骗人的
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2329#       发表于 2021-2-21 18:59
+
+
+
+
+不是说全员都有腹肌吗?
+
+练腹肌的话,肯定有打击训练把
+
+贝拉打然然肚子的时候能不能轻点
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2330#       发表于 2021-2-21 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397538&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-21 18:59</a>
+不是说全员都有腹肌吗?
+
+练腹肌的话,肯定有打击训练把
+
+贝拉打然然肚子的时候能不能轻点 ...</blockquote>
+昨天乃琳跳舞之前贝拉就指导了一番，珈乐自称不会扒舞，合理猜测，队长打人，然然递皮鞭<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 2331#       发表于 2021-2-21 19:02
+
+
+
+ 本帖最后由 テロメア 于 2021-2-21 19:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397194&amp;ptid=1974517" target="_blank">回旋球忧郁 发表于 2021-2-21 18:15</a>
+
+前面有人说嘉然还是接不上猫鼠狗的梗，后面又有人说怕以后再也看不到猫鼠狗的梗了，这猫鼠狗也不是嘉然自己 ...</blockquote>
+接不了某个梗只是错过了一些白给的机会。接不了大部分梗，就是给二创的泼冷水了。
+
+
+这对互动直播－社群路线的，是非常实际的事。
+
+
+另外经营ugc是字节的长项，确实有浪的资格
+
+
+
+
+
+
+
+-----
+
+####  gogo06415  
+##### 2332#       发表于 2021-2-21 19:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一圈，还是S1的楼友能处
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2333#       发表于 2021-2-21 19:16
+
+
+
+
+好喷<img src="https://p.sda1.dev/1/7cf562a27bcee93eea4fe52473f6d22d/IMG_CMP_48410353.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2334#       发表于 2021-2-21 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397679&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-2-21 19:16</a>
+
+好喷</blockquote>
+下面这位id雷皇必凉的8xj实属笑到我了
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2335#       发表于 2021-2-21 19:29
+
+
+
+
+好奇去nga 看了一圈，给我吓得，净土坛怎么成这样了，是杏把你们变成这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2336#       发表于 2021-2-21 19:32
+
+
+
+
+接不了梗，还可以靠rsq传播嘛
+<img src="https://p.sda1.dev/1/6ccff8e4d5fd3b8de69db31b69ba842f/IMG_CMP_83497469.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 2337#       发表于 2021-2-21 19:35
+
+
+
+
+我倒是觉得团播特有意思，节奏好，几个小妹嘻嘻哈哈，唱歌跳舞，热闹，气氛好。单人一直一直和弹幕互动很考验能力的，经常会尬住。多人就可以相互聊天跟回应弹幕穿插，观感好。
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2338#       发表于 2021-2-21 19:37
+
+
+
+
+我实在想不懂，为什么贴吧用户身份认同感那么高，几个v区的讨论社群，只有贴吧人张口8u闭口8xj，迷惑行为
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2339#       发表于 2021-2-21 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397831&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 19:32</a>
+接不了梗，还可以靠rsq传播嘛</blockquote>
+好想坐上去<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2340#       发表于 2021-2-21 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397831&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-21 19:32</a>
+
+接不了梗，还可以靠rsq传播嘛</blockquote>
+然然，为什么每次引流都有你<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2341#       发表于 2021-2-21 19:42
+
+
+
+<blockquote>yuzu98k 发表于 2021-2-21 03:41
+然然，为什么每次引流都有你</blockquote>
+因为然然是行走的幼女涩情
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2342#       发表于 2021-2-21 19:44
+
+
+
+
+珈乐昨天跳舞胳膊动得好快，合理推测平时轮鞭子抽然然练出来的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2343#       发表于 2021-2-21 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397960&amp;ptid=1974517" target="_blank">不想闭嘴 发表于 2021-02-21 19:44:46</a>
+珈乐昨天跳舞胳膊动得好快，合理推测平时轮鞭子抽然然练出来的</blockquote>机体跟不上机师是这样的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  1165wm989845  
+##### 2344#       发表于 2021-2-21 20:01
+
+
+
+<blockquote>人別離苦 发表于 2021-2-21 19:29
+好奇去nga 看了一圈，给我吓得，净土坛怎么成这样了，是杏把你们变成这样的吗 ...</blockquote>
+那个楼已经把正常人赶的差不多了，现在活跃的就剩下那些了
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 2345#       发表于 2021-2-21 20:01
+
+
+
+ 本帖最后由 テロメア 于 2021-2-21 20:02 编辑 
+
+珈乐那个舞已经不自然了。 我推测她们模型带类似自动校准功能，会把不到位的动作修成到位的。
+
+遇上这种快的舞，频繁触发脚本就直接机器人了
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2346#       发表于 2021-2-21 20:09
+
+
+
+
+等嘉然毕业了会不会有土豪把嘉然保养了，天天在家给土豪用嘴剥无骨鸡爪啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  情字何解  
+##### 2347#       发表于 2021-2-21 20:13
+
+
+
+
+明天指不定除了嘉然四个人都要上掉粉榜了，寄了
+
+—— 来自 HUAWEI BLA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2348#       发表于 2021-2-21 20:17
+
+
+
+
+不注重用户反馈的辣鸡企划早点死吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2349#       发表于 2021-2-21 20:18
+
+
+
+
+没有bsoul了 其他资本一看这都是什么贵物观众 我们也run了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2350#       发表于 2021-2-21 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50398115&amp;ptid=1974517" target="_blank">テロメア 发表于 2021-2-21 20:01</a>
+
+珈乐那个舞已经不自然了。 我推测她们模型带类似自动校准功能，会把不到位的动作修成到位的。
+
+遇上这种快的 ...</blockquote>
+这也能解释为什么总是把镜头给怼到脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+我觉得是手部捕捉的问题更大，仔细看得话常常会被吓到。
+
+我还看了几遍练习室版本的《got your love》，真人跳起来也能让我“哇槽”一声
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2351#       发表于 2021-2-21 20:30
+
+
+
+
+就跟s1在论坛这块不起作用一样<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+v8和泥潭的活跃用户数量在资本那块也是不起作用的啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                     
