@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-20 17:46** 
+> ## **本文件最后更新于2021-02-21 03:35** 
 
 
 
@@ -8749,7 +8749,7 @@ mmr浓度上升了，v8浓度下降了。</blockquote>
 
 
 tmp.jpg
-(46.15 KB, 下载次数: 0)
+(46.15 KB, 下载次数: 1)
 
 
 
@@ -10527,10 +10527,11 @@ ASOUL团队皮套号的运营不看直播安排就转动态、转了动态又拿
 
 
 
- 参与人数 13战斗力 +13
+ 参与人数 14战斗力 +14
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Blaze626| + 1|欢乐多|
 | 是谁的书画| + 1|欢乐多|
 | 抄袭炉石的垃圾| + 1|很难不支持|
 | zero_death| + 1|很难不笑嘻|
@@ -11813,4 +11814,512 @@ syl其实今天还不算有组织的集体冲吧 本来就有不少意思一下�
 
 
 
-                           
+
+
+-----
+
+####  Umichika  
+##### 2167#       发表于 2021-2-21 01:56
+
+
+
+ 本帖最后由 Umichika 于 2021-2-21 02:08 编辑 
+
+看了眼官号新剪辑下面的评论，想想自从杏炸了以来你圈很多路人都被带成了这种狂暴输出的模式。可惜就算行为模式变了，人该怎么样的还是没变。太监和疯子二极管到最后，居然看着太监倒顺眼了不少，毕竟疯子只会破坏不会建设，还会拿着他的破烂玩意在你面前炫耀。
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2168#       发表于 2021-2-21 02:02
+
+
+
+
+低价收破防舰长的上舰福利<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2169#       发表于 2021-2-21 02:19
+
+
+
+
+看来是不少人把五个号全部取关了，运营居然回复了两次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2170#       发表于 2021-2-21 03:19
+
+
+
+ 本帖最后由 XSH97 于 2021-2-21 03:25 编辑 
+
+这次搞得掉一大堆粉了都。而且跑的都是活粉，对比之前简直就是个灾难。现在看之前运营就有点端倪，小年夜是节目效果好能混过去，这次想搞防空洞自我安慰结果弄不下去。太想当然顺着自己思维了。
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 2171#       发表于 2021-2-21 03:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392732&amp;ptid=1974517" target="_blank">回旋球忧郁 发表于 2021-2-21 01:25</a>
+
+也许v8从来没有真心喜欢过asoul，都是乐子人在表演，虚拟偶像表演三个月虚拟粉丝也表演了三个月 ...</blockquote>
+我觉得v8有一部分人不是没喜欢过，是喜欢过头了。。。所以魔怔了
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 2172#       发表于 2021-2-21 04:38
+
+
+
+
+有个长期存在的问题，嘉然这次又没接住猫狗和小向晚等几个梗。
+
+本来这fanbase的创作热度，已经把饭递到嘴边了。应对得当就能躺平好几天的。
+
+结果还偏偏是最糟的“无知”应对，直接一盆水把萌萌人浇醒了
+
+
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2173#       发表于 2021-2-21 06:57
+
+
+
+
+想来想去还是觉得打sc冲锋的8u最有乐，这消费观念基本属于马斯洛的自我实现那一块的了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2174#       发表于 2021-2-21 07:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50392812&amp;ptid=1974517" target="_blank">XSH97 发表于 2021-2-21 01:44</a>
+看周二QA反馈吧。但是运营这种思路是真没想到，也不像是临时换人的样子，周二的回馈改变看到底是怎么想的 ...</blockquote>
+感觉很可能是团队里有些人刚入职不懂，操作不当了。我记得有次QA里提到过年后会有专业的音频工具人。有可能这个企划刚启动的时候人手不足，因为某些原因提前推出了，现在新入职的员工和老员工没有磨合好，所以才出了这些问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2175#       发表于 2021-2-21 07:35
+
+
+
+
+不知道他们团队是不是换人，解决问题根本比不上之前了，回个qa还在那学v8说话，太抽象了。运镜的事从12月就开始说，到现在还是跳舞切近景，镜头乱动，把人脸贴你脸上
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  J8pl4  
+##### 2176#       发表于 2021-2-21 07:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393342&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 07:35</a>
+不知道他们团队是不是换人，解决问题根本比不上之前了，回个qa还在那学v8说话，太抽象了。运镜的事从12月就 ...</blockquote>
+从拉近拍腿改成拉近拍脸了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  躺赢局局长CJH  
+##### 2177#       发表于 2021-2-21 08:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393342&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 07:35</a>
+不知道他们团队是不是换人，解决问题根本比不上之前了，回个qa还在那学v8说话，太抽象了。运镜的事从12月就 ...</blockquote>
+不知道能不能加个机位，一看这个运镜就是想学电视节目变镜头，但人家通常三四个机位，就一个机位这么变就啥都看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2178#       发表于 2021-2-21 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393352&amp;ptid=1974517" target="_blank">J8pl4 发表于 2021-2-21 07:40</a>
+从拉近拍腿改成拉近拍脸了
+
+—— 来自 S1Fun</blockquote>
+珈乐那个舞手部动作那么多，对着脸拍我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 运镜太拉跨了
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2179#       发表于 2021-2-21 09:06
+
+
+
+
+之前有人有人说把私信改成棉花糖，现在想想还真不错，还能多一个节目，不至于每次到最后都想着混时间。无聊发情没必要回，换成棉花糖形式运营也可以光明正大筛选了，匿名的也没人会说闲话了
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 2180#       发表于 2021-2-21 09:24
+
+
+
+
+好多人取关都只留一个向晚大魔王，这就是as版的crew吗？
+
+顶碗人不算as粉，crew不算杏奴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2181#       发表于 2021-2-21 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393605&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 09:06</a>
+之前有人有人说把私信改成棉花糖，现在想想还真不错，还能多一个节目，不至于每次到最后都想着混时间。无聊 ...</blockquote>
+贝拉首播就用过棉花糖征集过问题，不过选了个国内直连很卡的，yhm常用的棉花糖网站，这运营还是懂点v圈的
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 2182#       发表于 2021-2-21 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这批事取关的不是赶紧爬对企划更好？还是那句话，太把自己当一回事
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 2183#       发表于 2021-2-21 10:07
+
+
+
+
+取关还要特地在评论区说一声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2184#       发表于 2021-2-21 10:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">该去收舰长周边了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2185#       发表于 2021-2-21 10:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">很喜欢8u的一句话:你几把谁啊
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2186#       发表于 2021-2-21 10:38
+
+
+
+
+应该说目前为止AS能成功除了节目效果外，运营低姿态以及私信和动态营业也占了很大一部分。特别是后者（现在看几次都是有意无意暗示皮魂合一）让人觉得有说不上的亲近感。那这个信任感被透支了以后不太可能再有这个黏性了
+
+
+
+
+
+
+
+-----
+
+####  逸yi  
+##### 2187#       发表于 2021-2-21 10:42
+
+
+
+
+事实证明就压根不该有过年加播企划<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 自曝其短破事一堆 
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2188#       发表于 2021-2-21 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394111&amp;ptid=1974517" target="_blank">XSH97 发表于 2021-2-21 10:38</a>
+
+应该说目前为止AS能成功除了节目效果外，运营低姿态以及私信和动态营业也占了很大一部分。特别是后者（现在 ...</blockquote>
+本来大家都在配合as表演，谁不知道本人哪来的时间经营几万粉丝的帐号啊，但是你至少别穿帮啊，演都演不像，完了出事还装死，直播前10分钟解释一下我看观众就都投降了，死都不动，最后掉活粉了运营慌了开始回应了
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2189#       发表于 2021-2-21 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394201&amp;ptid=1974517" target="_blank">有优越感的人mk2 发表于 2021-2-21 10:54</a>
+
+本来大家都在配合as表演，谁不知道本人哪来的时间经营几万粉丝的帐号啊，但是你至少别穿帮啊，演都演不像 ...</blockquote>
+装鸵鸟这真是没想到。就很诧异这一手操作怎么来的，跟之前比感觉就是完全换了个人
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 2190#       发表于 2021-2-21 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">维阿就是出事了运营装死   所以我十分期待周二QA装死
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2191#       发表于 2021-2-21 11:02
+
+
+
+
+只能说如果不想得过且过就好好回应吧，装死就说明这上限也这样了，跟原来的目标差太远了
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2192#       发表于 2021-2-21 11:06
+
+
+
+
+运营还是有过一些努力的，上房管test封人，官号发言、内鬼打红sc试图引导直播间节奏，as吧空降粉头申请吧主，不过好像都没起到正面效果，只能说努力的方向不大对？
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2193#       发表于 2021-2-21 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394261&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 11:06</a>
+
+运营还是有过一些努力的，上房管test封人，官号发言、内鬼打红sc试图引导直播间节奏，as吧空降粉头申请吧主 ...</blockquote>
+感觉就是运营觉得自己不能被骂，自己不能背锅，sc攻击本人钓鱼不管，sc攻击运营就撤
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2194#       发表于 2021-2-21 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394261&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 11:06</a>
+运营还是有过一些努力的，上房管test封人，官号发言、内鬼打红sc试图引导直播间节奏，as吧空降粉头申请吧主 ...</blockquote>
+你别乱说，二班学委还没人认领呢。“踩到垃圾罢了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2195#       发表于 2021-2-21 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50394261&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-21 11:06</a>
+
+运营还是有过一些努力的，上房管test封人，官号发言、内鬼打红sc试图引导直播间节奏，as吧空降粉头申请吧主 ...</blockquote>
+这不就是典型的错方向么。试图用另外一个窟窿掩盖另外一个窟窿，另外后面又拉演者盾出来，这操作......
+
+
+
+
+
+                          
