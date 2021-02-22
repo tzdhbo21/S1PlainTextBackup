@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 14:38** 
+> ## **本文件最后更新于2021-02-22 15:36** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_H53Oe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_QRrXV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_avzrv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_jA9uQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_dFE0o" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_wR6mg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_W2646" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_x3zqa" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -10516,4 +10516,471 @@ yagoo:彩虹死佐我都未死哦
 
 
 
-                                
+
+
+-----
+
+####  渡鸦骑士  
+##### 32039#       发表于 2021-2-22 22:40
+
+
+
+
+船长这表情，认真的嘛，我从来没见到船长这么冷的表情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32040#       发表于 2021-2-22 22:44
+
+
+
+
+听了一下船长声音不是挺稳定的，无事发生。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32041#       发表于 2021-2-22 22:44
+
+
+
+
+开头就这个表情“虽然这样 明天后天再往后也只能这样过”
+开始唱歌但是我从来没听过情绪那么差的丹白因
+这直播我大概就不太该看。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32042#       发表于 2021-2-22 22:44
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-22 22:49 编辑 
+
+园长的B站看板在代播讲这件事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+看上去就是原本预定的木口alt的官方二创漫画由于cover提出无法接受的条件而谈崩了
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 32043#       发表于 2021-2-22 22:51
+
+
+
+ 本帖最后由 ktmoon 于 2021-2-22 22:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410121&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-2-22 22:44</a>
+
+园长的B站看板在代播讲这件事
+
+
+看上去就是原本预定的木口alt的官方二创漫画由于cover提出无法接受的 ...</blockquote>
+白嫖呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32044#       发表于 2021-2-22 22:51
+
+
+
+
+好！
+
+
+下一个谁？LAM还是黑星红白阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32045#       发表于 2021-2-22 22:54
+
+
+
+
+Cover都这么有钱了工资还不愿意开啊
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 32046#       发表于 2021-2-22 22:56
+
+
+
+
+英断，木口现在不能被黄漫作者白蹭了
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 32047#       发表于 2021-2-22 23:00
+
+
+
+
+推上有人在说是二创规则里写明了，成了官方合作画师就要把所有创作的木口相关r18内容下架，不过水龙敬具体是什么时候成为的官方画师啊，合同啥时候签的有说过么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 32048#       发表于 2021-2-22 23:01
+
+
+
+
+真的这么搞笑吗，因为开稿费这种事闹翻吗？隔壁什么杏的财务危在旦夕还成真了？
+
+盲猜大概还是其他之类的吧，版权，署名之类的麻烦事
+
+不过话说回来，这也就一个委托他下笔的杏企划，好像最大可能也就是钱之类的事了……
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32049#       发表于 2021-2-22 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410301&amp;ptid=1969498" target="_blank">LCCCCCC 发表于 2021-2-22 23:00</a>
+推上有人在说是二创规则里写明了，成了官方合作画师就要把所有创作的木口相关r18内容下架，不过水龙敬具体 ...</blockquote>
+要是因为这种明文规定水龙敬会这样破防嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不太可能
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32050#       发表于 2021-2-22 23:06
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-2-22 23:07 编辑 
+
+不管是谁的问题，闹到台面上被业界知名大手子公开指着脸怼就是你cover的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+下一个该arte refact了吧，搞快点等不及了
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32051#       发表于 2021-2-22 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cover可太牛逼了，v的所有努力付出都能被它这样糟蹋，不敢再推木口了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32052#       发表于 2021-2-22 23:12
+
+
+
+
+果然是个用爱发点的企划吗 不得不说 还是杏比较强
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32053#       发表于 2021-2-22 23:14
+
+
+
+ 本帖最后由 rzrbtk 于 2021-2-22 23:22 编辑 
+
+体面点好，以后那啥了还少点尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">…
+
+
+省一楼，郡道终于发了个像样的英文推（一句话），再结合老板娘最近学英语，我的郡道老板娘英语游戏联动感觉要来；
+
+再省一楼，kmnz最近生日纪念订阅各种生放都蛮多的（相对以前），要走直播路了吗，再省，虽然但是，一想到鸣神裁有热度吃不上，还是有点欣慰的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32054#       发表于 2021-2-22 23:15
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-22 23:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410301&amp;ptid=1969498" target="_blank">LCCCCCC 发表于 2021-2-22 23:00</a>
+
+推上有人在说是二创规则里写明了，成了官方合作画师就要把所有创作的木口相关r18内容下架，不过水龙敬具体 ...</blockquote>
+没有官宣过，只是当时官推发的一张图大家一眼就看出来了
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1gnwpv6inxwj20dh0e6wlq.jpg" referrerpolicy="no-referrer">
+
+
+园长当时也在推特当了下谜语人
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gnwpzwrt3vj20cq09z3zt.jpg" referrerpolicy="no-referrer">
+
+现在没了
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 32055#       发表于 2021-2-22 23:20
+
+
+
+
+从字幕组到画师和holo合作过的最后都自爆了，holo的运营得是多巨魔
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 32056#       发表于 2021-2-22 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">船长又被背刺了
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 32057#       发表于 2021-2-22 23:27
+
+
+
+
+这是哑炮吗？烟花呢？懂哥来几个啊，不能只停留在发散阶段，水龙敬那个皮套也当谜语人
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 32058#       发表于 2021-2-22 23:28
+
+
+
+
+园长算知名画师了，这怕只是第一个
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  walfeds  
+##### 32059#       发表于 2021-2-22 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到群里消息跑去看了看直播，不愧是你猴楼
+
+霓虹阅不文
+
+
+
+
+
+
+
+-----
+
+####  443421870  
+##### 32060#       发表于 2021-2-22 23:31
+
+
+
+
+说是和阅文合同差不多啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32061#       发表于 2021-2-22 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 水龙敬皮套这种经历了那么多次瓜大家都懂粉头什么尿性了，经典谜语人节奏人
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32062#       发表于 2021-2-22 23:33
+
+
+
+
+ニトロプラスの同人ガイドラインに対する改定に対する漫画家・水龍敬氏を中心とした反応 - Togetter [https://togetter.com/li/689177](https://togetter.com/li/689177) 
+
+
+「企業が二次創作のガイドラインを発表するのが当たり前になったら　同人印刷所は大口顧客を失う！」とわけのわからない妄想を撒き散らしていた過去
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32063#       发表于 2021-2-22 23:34
+
+
+
+
+en进出 船长早该靠边站了吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32064#       发表于 2021-2-22 23:36
+
+
+
+
+等Cover一个重拳出击，惩治危言耸听惯犯水龙敬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
