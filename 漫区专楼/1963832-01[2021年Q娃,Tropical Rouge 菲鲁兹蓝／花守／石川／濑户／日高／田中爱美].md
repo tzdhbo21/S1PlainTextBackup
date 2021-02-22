@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 02:13** 
+> ## **本文件最后更新于2021-02-22 02:04** 
 
 
 
@@ -8586,4 +8586,476 @@ Re:ゼロから始める異世界生活
 
 
 
-                                 
+
+
+-----
+
+####  HGCG+  
+##### 485#       发表于 2021-2-21 10:44
+
+
+
+
+接班啦
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gnutu3xlkhj20hs0a077g.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 486#       发表于 2021-2-21 12:56
+
+
+
+
+这几年的光美都是觉得明年会更好，看抱q时觉得星q宇宙题材加绘画，还想象力，肯定会很有意思。看星q的时候觉得愈q再怎么也比这个好。现在看热q，只希望能快快乐乐，开开心心的过一年
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 487#       发表于 2021-2-21 13:20
+
+
+
+
+q娃这几年只要稳当就可以了 然而去年女人中途还是搞出恶心玩意 起码结局收回来了
+战队是在努力救 可是救的方式不对 结果今年战队在唱op的人出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+来打能不能翻车 不然的话 不会认真拍的 躺着数钱太方便了
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 488#       发表于 2021-2-21 13:26
+
+
+
+
+交接和预告
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4606949921325101?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 489#       发表于 2021-2-21 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395082&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-2-21 12:56</a>
+
+这几年的光美都是觉得明年会更好，看抱q时觉得星q宇宙题材加绘画，还想象力，肯定会很有意思。看星q的时候 ...</blockquote>
+抱q把期望值拉高了
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 490#       发表于 2021-2-21 16:37
+
+
+
+
+预告里是不是出来美人鱼和海豹都有声了？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 491#       发表于 2021-2-21 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395955&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-2-21 15:02</a>
+抱q把期望值拉高了</blockquote>
+抱q就是告诉你东映想做还是能做到的，然后星q告诉你东映就是想躺着把钱挣了
+然后就那质量，还能看到有人说星q把愈q的预算给占了，也不是很明白这种“越做越差正常”的思路是哪来的
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 492#       发表于 2021-2-21 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396599&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-02-21 16:43:04</a>
+抱q就是告诉你东映想做还是能做到的，然后星q告诉你东映就是想躺着把钱挣了
+然后就那质量，还能看到有人 ...</blockquote>星Q预算怕是全拿去给拉拉做变身了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 493#       发表于 2021-2-21 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395245&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-2-21 13:20</a>
+q娃这几年只要稳当就可以了 然而去年女人中途还是搞出恶心玩意 起码结局收回来了
+战队是在努力救 可是救的 ...</blockquote>
+时王算不算翻车，01算不算翻车。口碑翻车有个卵用，玩具销量屡创新高，东映跟万代一看这都可以，只会是加大力度。
+至于战队，国内战队连个版权都没，鹤野刚士唱op那对日本人来说算事吗？就是算，也是邪教方面的炎上
+按理来说应该是公司规模越大产品质量越好，东映倒好，资源一堆，不用，一定得等剧场版啥的才用。总有人说战队亲儿子，在我看来不如说是骑士这边太拉胯。那些巨大机器人cg质量，放2020年早过时了。怕不是都关系户做的
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 494#       发表于 2021-2-21 18:06
+
+
+
+ 本帖最后由 YFIIII 于 2021-2-21 18:12 编辑 
+
+内容编辑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 495#       发表于 2021-2-21 18:08
+
+
+
+ 本帖最后由 HGCG+ 于 2021-2-21 18:50 编辑 
+
+楼上编辑了那我也编辑
+
+虽然都是星期天早上的作品，骑士和战队不是不能提，但有些话题关系差太远了还是别提的好
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 496#       发表于 2021-2-21 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397147&amp;ptid=1963832" target="_blank">HGCG+ 发表于 2021-2-21 18:08</a>
+
+Q娃楼里能别提这个人么</blockquote>
+不好意思，那我编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 497#       发表于 2021-2-21 18:24
+
+
+
+
+屁屁神拳后继有人
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 498#       发表于 2021-2-21 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395245&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-2-21 13:20</a>
+
+q娃这几年只要稳当就可以了 然而去年女人中途还是搞出恶心玩意 起码结局收回来了
+
+战队是在努力救 可是救的 ...</blockquote>
+去年指奶Q？
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 499#       发表于 2021-2-21 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50395955&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-2-21 15:02</a>
+
+抱q把期望值拉高了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">的确，后悔贴吧追抱Q了（同年还有快警，追了就是双喜临门
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 500#       发表于 2021-2-21 18:58
+
+
+
+<img src="http://wx4.sinaimg.cn/large/006JgHrVgy1gnuybpxzkwj31kw148qfc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 501#       发表于 2021-2-21 19:15
+
+
+
+
+预告感觉板冈锦连肝4人变身，今年粉主一登场被踢晕，怕不是连吃瘪都跟隔壁阿光像<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 502#       发表于 2021-2-21 20:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50397673&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-2-21 19:15</a>
+
+预告感觉板冈锦连肝4人变身，今年粉主一登场被踢晕，怕不是连吃瘪都跟隔壁阿光像 ...</blockquote>
+看到时候的成片再下结论也不迟
+
+阿光的吃瘪可不是普遍认知中的吃瘪
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 503#       发表于 2021-2-21 20:38
+
+
+
+
+吃瘪正常啊，总得有理由队友入队，新玩具登场嘛，粉(今年是白)主作为第一个出场的自然要多为后来的让让路，甚至作为镜头最多的，可能还是反派的重点打击对象
+但这样反而更好塑造人物，这么多剧情冲突集中在一个角色身上，每一次应对都是对这个角色的塑造甚至升华，我喜欢的角色遭遇挫折之类的剧情我一般都是叫好的
+但反过来，要是一个角色不行，那每一次剧情冲突都会是黑子们的狂欢。
+“哈哈，你看她哭了，流泪了流泪了，早干嘛去了，现在后悔给谁看呢”
+“诶，怎么被锤到地上就站不起来了？这逼格low穿地心啊”
+“这嘴炮，真是站着说话不腰疼，你懂什么呀”……
+希望今年的q娃是前者吧
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 504#       发表于 2021-2-21 20:51
+
+
+
+<img src="http://wx4.sinaimg.cn/large/a3f7af34ly1gnvfz3nojrj20ee1kwgvd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 505#       发表于 2021-2-21 21:03
+
+
+
+
+这个挑染<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">逐渐游戏王化....
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 506#       发表于 2021-2-21 21:15
+
+
+
+<img src="http://wx3.sinaimg.cn/large/a3f7af34ly1gnvg4pl26hj216f0u0tku.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 507#       发表于 2021-2-21 21:21
+
+
+
+
+这个木瓜Q娃是什么鬼啊，石川由依居然能配黄主
+
+希望今年能比去年强点吧
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 508#       发表于 2021-2-22 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50398573&amp;ptid=1963832" target="_blank">HGCG+ 发表于 2021-2-21 20:51</a></blockquote>
+一开始还一起摆姿势凹造型，后面两个就这么竖着站一起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 509#       发表于 2021-2-22 01:14
+
+
+
+
+看了疗q最后一话才发现summer的爱心眼<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 510#       发表于 2021-2-22 07:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400401&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-2-22 00:29</a>
+
+一开始还一起摆姿势凹造型，后面两个就这么竖着站一起</blockquote>
+<img src="http://wx1.sinaimg.cn/mw1024/9657fdc2gy1gnutu3xlkhj20hs0a077g.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 511#       发表于 2021-2-22 09:32
+
+
+
+
+贴贴好
+
+
+
+
+
+                                

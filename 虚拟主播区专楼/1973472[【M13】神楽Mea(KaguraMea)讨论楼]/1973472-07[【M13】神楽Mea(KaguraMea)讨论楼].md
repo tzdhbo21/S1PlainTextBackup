@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 14:40** 
+> ## **本文件最后更新于2021-02-22 02:03** 
 
 
 
@@ -5496,4 +5496,944 @@ booth也太难用了
 
 
 
-                                       
+
+
+-----
+
+####  A2014720  
+##### 9316#       发表于 2021-2-21 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9317#       发表于 2021-2-21 23:02
+
+
+
+
+ASMR！ASMR！
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9318#       发表于 2021-2-21 23:02
+
+
+
+
+老麻又偷偷看我们楼了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9319#       发表于 2021-2-21 23:14
+
+
+
+
+贴贴曲连发<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 9320#       发表于 2021-2-21 23:15
+
+
+
+
+前面66号线我还能知道，这首歌有啥联系的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9321#       发表于 2021-2-21 23:18
+
+
+
+
+真就不把embrace当贴贴曲么？pv还在那放着呢，什么时候发的给谁唱的？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9322#       发表于 2021-2-21 23:21
+
+
+
+ 本帖最后由 路人庚 于 2021-2-21 23:30 编辑 
+
+虽然但是你咩姐在发了embrace这首歌之后还特地发了个推特说不要把这曲子当做和谁谁的贴贴曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（当然当不当都是各自的自由
+
+
+哦，不是推特是b博（
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 9323#       发表于 2021-2-21 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399876&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-2-21 23:18</a>
+真就不把embrace当贴贴曲么？pv还在那放着呢，什么时候发的给谁唱的？</blockquote>
+去搜索了一下官组投稿，了解了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+唱66号线的时候我还没啥梁木<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但对embrace就没有任何印象了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9324#       发表于 2021-2-21 23:25
+
+
+
+
+苔苔说要请吃饭，那能不能顺便拉她来个3d联动呀<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9325#       发表于 2021-2-21 23:28
+
+
+
+
+我不信她会接苔苔的线下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9326#       发表于 2021-2-21 23:31
+
+
+
+
+灭毒唯的火罢了
+
+               
+
+
+「どんどんお互い忙しくなって時間が作れないことも増えてきたけどこうしてまたお祝いできてよかった！」
+
+「もっともっと楽しいコトやろうね！」
+
+-By 神楽めあ
+
+
+「虽然互相越来越忙没时间的情况越来越多了但是还能像这样为对方庆祝真的太好了！」
+
+「要一起做更多更多开心的事情哦！」
+
+-By 神乐Mea
+
+                   
+
+你要把哪句当圣旨呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9327#       发表于 2021-2-21 23:32
+
+
+
+
+不许说我朋友坏话.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9328#       发表于 2021-2-21 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399990&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-2-21 23:31</a>
+
+灭毒唯的火罢了
+
+               </blockquote>
+
+<img src="https://img.saraba1st.com/forum/202102/21/233236w8f4fryfftt81fwv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A7F15513-7996-48EB-A851-4F00E3A6261C.jpeg</strong> (300.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 23:32 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/233237k45jizrcppjhddp4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3EEEDFD5-0D24-46B4-B92C-2672A478D621.jpeg</strong> (402.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 23:32 上传
+
+
+
+
+
+[https://b23.tv/4Viyqe](https://b23.tv/4Viyqe)
+
+
+你是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9329#       发表于 2021-2-21 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399990&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-2-21 23:31</a>
+
+灭毒唯的火罢了
+
+               </blockquote>
+贴贴的时候唱了这首歌≠唱这首歌就贴贴
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9330#       发表于 2021-2-21 23:33
+
+
+
+
+今天唱的这么好听你们还在这弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9331#       发表于 2021-2-21 23:33
+
+
+
+
+差不多得了，没人寄吧关心那是什么曲😅
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9332#       发表于 2021-2-21 23:35
+
+
+
+
+“高级、奢侈”还真有种能钓到的感觉
+不能错过任何能白吃的机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9333#       发表于 2021-2-21 23:35
+
+
+
+
+没唱振袖和服和生日快乐 还没姨
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9334#       发表于 2021-2-21 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">别给连体找盘了3Q谢谢
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 9335#       发表于 2021-2-21 23:36
+
+
+
+
+アカシア这人的高音部分总感觉处理的有点怪
+
+不过反正我也不是专业的，听个乐呵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9336#       发表于 2021-2-21 23:39
+
+
+
+
+为什么没有おやすみ泣き声、さよなら歌姫<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9337#       发表于 2021-2-21 23:39
+
+
+
+
+什么嘛，真安可啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9338#       发表于 2021-2-21 23:39
+
+
+
+
+前面说没有安可曲，结果还是唱了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9339#       发表于 2021-2-21 23:40
+
+
+
+
+有心论结局，不是振袖和服，anti到下次开播<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9340#       发表于 2021-2-21 23:42
+
+
+
+
+没事 振袖和服还有一年的时间唱 不急
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9341#       发表于 2021-2-21 23:43
+
+
+
+
+完美下播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+buy please<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 9342#       发表于 2021-2-21 23:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9343#       发表于 2021-2-21 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天听的蛮爽的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9344#       发表于 2021-2-21 23:44
+
+
+
+
+放ed还要喊一嗓子
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9345#       发表于 2021-2-21 23:45
+
+
+
+
+你麻对这批谷子还蛮上心的(指突击宣传)
+
+虽然不知道饭盒大半国人该怎么处理跨国问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9346#       发表于 2021-2-21 23:46
+
+
+
+ 本帖最后由 A2014720 于 2021-2-21 23:47 编辑 
+
+这人对谷子不一直挺上心的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9347#       发表于 2021-2-21 23:47
+
+
+
+
+她对自己筹办的谷子都挺上心的
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9348#       发表于 2021-2-22 00:03
+
+
+
+
+倒不如说因为谷子是她全程自己搞的所以她一直挺骄傲的
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9349#       发表于 2021-2-22 00:18
+
+
+
+ 本帖最后由 Cushaw 于 2021-2-22 00:34 编辑 
+
+无聊，睡了
+得想个办法把麻姨的钱都骗光<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9350#       发表于 2021-2-22 00:43
+
+
+
+ 本帖最后由 路人庚 于 2021-2-22 00:46 编辑 
+
+2分钟后与兰熊联动amongus
+
+▽メンバーだよ▽
+
+わたし（兰熊）
+
+かわせ
+
+神楽めあ
+
+灯油
+
+てるしゃん
+
+ぜくしあ
+
+なかのっち
+
+はちてん
+
+神成きゅぴ
+
+瀬戸あさひ
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9351#       发表于 2021-2-22 00:48
+
+
+
+
+我服了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9352#       发表于 2021-2-22 00:50
+
+
+
+ 本帖最后由 路人庚 于 2021-2-22 00:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不是兰熊确实是一直保持了自由直播的习惯
+
+syl，参与人员
+
+<img src="https://img.saraba1st.com/forum/202102/22/005556d4da6mqldqgmhhn7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>630D08D5-08E4-45BF-8586-4D4FAE8229EE.jpeg</strong> (180.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 00:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9353#       发表于 2021-2-22 00:58
+
+
+
+
+上次和是兰熊还有职业哥？
+
+完全不能理解<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9354#       发表于 2021-2-22 01:00
+
+
+
+ 本帖最后由 路人庚 于 2021-2-22 01:18 编辑 
+
+上次跟兰熊确实是跟职业哥一起了（可能还是雪山人狼？记不清了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还好吧，你咩姐最近已经很注意不在凌晨开播了，毕竟她很少不熬夜的（不过跟兰熊玩就不一样了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9355#       发表于 2021-2-22 01:09
+
+
+
+
+开播时间还行吧
+
+就是觉得这兰熊是真的自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多人联动说突就突太神奇了
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 9356#       发表于 2021-2-22 01:19
+
+
+
+
+绿熊最近经常半夜拉野男人野女人玩among us，基本是定番了，不算突击。只不过这次拉上了麻 麻
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9357#       发表于 2021-2-22 01:50
+
+
+
+
+善良之狼阿咩，一个人都没杀还是被票出去了（悲
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9358#       发表于 2021-2-22 04:51
+
+
+
+
+悲愤，为什么咩啊老被刀得那么早
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9359#       发表于 2021-2-22 05:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">师徒羁绊三回了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9360#       发表于 2021-2-22 06:50
+
+
+
+ 本帖最后由 A2014720 于 2021-2-22 06:57 编辑 
+
+手机tc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+哦已经半小时了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+下了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9361#       发表于 2021-2-22 07:10
+
+
+
+
+好家伙，刚醒她就下了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9362#       发表于 2021-2-22 07:29
+
+
+
+
+我醒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9363#       发表于 2021-2-22 08:00
+
+
+
+
+就是两次直播吗，习惯了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9364#       发表于 2021-2-22 08:13
+
+
+
+
+饭盒谷子有拼团的吗 没找到哪里有团 还是说都截止了？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 9365#       发表于 2021-2-22 08:18
+
+
+
+
+20210222东京8点
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/081803t9b4bcvanacmzc29.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>6E0D596B-A7EC-4B46-8306-0CBBC03445CF.jpeg</strong> (160.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 08:18 上传
+
+
+
+
+
+
+
+
+
+
+                                     
