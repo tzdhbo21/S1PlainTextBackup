@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-21 12:43** 
+> ## **本文件最后更新于2021-02-22 12:45** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_vhzfl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_vgcC7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_D9H69" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_SI18S" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_KsmF4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_hLi7n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_BQ02X" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_jAp5x" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -8814,4 +8814,836 @@ cnr+一如既往的填了好多彩蛋
 
 
 
-                                  
+
+
+-----
+
+####  alcoholic1000  
+##### 31953#       发表于 2021-2-21 20:47
+
+
+
+
+但凡从PV里面借两件衣服，黑黑也不会出现在这种难以评价的新衣装好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 31954#       发表于 2021-2-21 21:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/210411md4cxyc93cy3y433.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Euv77ZzVEAUSWko.jpg</strong> (290.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 21:04 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/210413jt8yz8qootow6ztm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Euv78IeU4AIq23B.jpg</strong> (278.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 21:04 上传
+
+
+
+
+
+[https://twitter.com/CNR_Plus/status/1363460482384990216](https://twitter.com/CNR_Plus/status/1363460482384990216)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 31955#       发表于 2021-2-21 21:38
+
+
+
+
+说实话黑黑背后的这个团队真的强，这歌这么大的工程量同人女估计要集体发大水了，平常直播播男性向游戏吸男粉，发歌的时候直球卖腐吸女粉，这思路真的太清晰了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 31956#       发表于 2021-2-21 22:15
+
+
+
+
+Anonymous听虚拟网红2020
+[https://bbs.nga.cn/read.php?tid=25631925](https://bbs.nga.cn/read.php?tid=25631925)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31957#       发表于 2021-2-21 22:29
+
+
+
+
+女粉发大水能不能这个月把月之拿下啊。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31958#       发表于 2021-2-21 22:30
+
+
+
+
+是我最爱的z5老师，我的推都被点名表扬了，小免快点修榜<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 31959#       发表于 2021-2-21 22:33
+
+
+
+
+免费第一时间赶到<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31960#       发表于 2021-2-21 22:39
+
+
+
+
+黑黑背后这个团队是挺厉害的，除了双人频道的运营（包括周边制作和设定集印刷），黑黑个人的投稿、音声台本和素材都有他们帮忙，质量比较高、看起来比较贵的歌投稿基本都是他们的作品。
+about
+
+当サイトはCNR+のポートフォリオとなっております。
+
+[CNR+]
+
+CNR+はディレクターのODAを中心にChroNoiRのお二人をお手伝いしている複数人のクリエーターユニットです。動画、イラスト、デザイン、絵コンテ、ボイスシナリオ等。
+
+◆お仕事のご依頼につきまして◆
+
+申し訳ありませんが、ご依頼は基本受け付けておりません。
+
+◆メンバーの募集につきまして◆
+
+企画用動画班のみ不定期に募集しております(現在停止中)[ビジュアルに関するお仕事]※一部です
+
+葛葉/2020年新居デザイン[バツムラアイコ]
+
+葛葉/2020年チャンネル用スタンプ[ODA]
+
+叶/2020年OP用プロット＆デザイン[ODA]
+
+叶/2020年OP用楽曲[かんざきひろ]
+
+ChroNoiR/チャンネルアートワーク[ずみちり]
+
+ChroNoiR/チャンネル用スタンプ[ODA]
+
+ChroNoiR&amp;葛葉/メンバーシップ特典[ODA]
+
+—————————
+
+CNR+Twitter [https://twitter.com/CNR_Plus](https://twitter.com/CNR_Plus)
+
+ODA[管理] [https://twitter.com/ODA_cnrplus](https://twitter.com/ODA_cnrplus)
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 31961#       发表于 2021-2-21 23:23
+
+
+
+
+星乃发了个今天0点的预告说有大的要来了
+
+结果放了个蛋出来，头像也改了
+
+开了个直播间，倒数6天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31962#       发表于 2021-2-22 00:08
+
+
+
+
+郡郡体调不良下播　不安です
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 31963#       发表于 2021-2-22 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399922&amp;ptid=1969498" target="_blank">Porsche 发表于 2021-2-21 23:23</a>
+星乃发了个今天0点的预告说有大的要来了
+
+结果放了个蛋出来，头像也改了
+
+开了个直播间，倒数6天</blockquote>
+可能是l2d披露目<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 31964#       发表于 2021-2-22 00:37
+
+
+
+
+请教各位个问题 
+
+为何女主角skeb上的商稿那么多
+
+即便是(前)最强个人势 也已经休止半年 换别人早凉透了 但买图的依旧那么多<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 31965#       发表于 2021-2-22 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某真人主播都凉了多久了鬼畜不一大堆
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 31966#       发表于 2021-2-22 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400442&amp;ptid=1969498" target="_blank">biye 发表于 2021-2-22 00:37</a>
+请教各位个问题 
+
+为何女主角skeb上的商稿那么多
+
+即便是(前)最强个人势 也已经休止半年 换别人早凉透了 但买 ...</blockquote>
+可能是扭曲粉。
+P站也有一位，专门写女主角黄文笔耕不辍
+にじそうさく https://www.pixiv.net/users/58636404
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 31967#       发表于 2021-2-22 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400442&amp;ptid=1969498" target="_blank">biye 发表于 2021-2-22 00:37</a>
+请教各位个问题 
+
+为何女主角skeb上的商稿那么多
+
+即便是(前)最强个人势 也已经休止半年 换别人早凉透了 但买 ...</blockquote>
+女主角真的色，不过买图的可能是一种发泄心态吧，反正我很受用。我上次还在pixiv看到一个老哥写了几十篇** 文 各种玩法 估计也是老盐an了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31968#       发表于 2021-2-22 01:57
+
+
+
+
+坏女人什么时候回来呢
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 31969#       发表于 2021-2-22 07:51
+
+
+
+
+呜呜呜我的坏女人。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 31970#       发表于 2021-2-22 10:03
+
+
+
+
+虽然很讨厌sio但她的色图真的很好用，对坏女人用强看她不甘的脸的桥段太色了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 31971#       发表于 2021-2-22 10:10
+
+
+
+
+田角看看黑黑的运营能力能不能有点上进心
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 31972#       发表于 2021-2-22 10:41
+
+
+
+
+sio 黑屁那事 到现在有结论吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 31973#       发表于 2021-2-22 13:37
+
+
+
+
+774的月野木ちろる体调不良，活动休止
+[https://twitter.com/tirol0_0lorit/status/1363398050228576256](https://twitter.com/tirol0_0lorit/status/1363398050228576256)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31974#       发表于 2021-2-22 13:46
+
+
+
+
+774是病号集中营吗……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31975#       发表于 2021-2-22 14:46
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-22 14:50 编辑 
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gnwb7qrxo8j20k025zaou.jpg" referrerpolicy="no-referrer">
+
+
+野猫自我还原地震事故现场.jpg
+
+事故后最先打电话来问情况的是关西妈妈德龙
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|原来是这样砸到的...|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 31976#       发表于 2021-2-22 15:24
+
+
+
+
+没砸着头是命好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31977#       发表于 2021-2-22 17:17
+
+
+
+ 本帖最后由 rzrbtk 于 2021-2-22 17:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400268&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-22 00:08</a>
+
+郡郡体调不良下播　不安です</blockquote>
+睡了爆久，好了。
+
+现在在博彩<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+买了一百张，现在开了五十张，回本情况1000/20000，今年是厄年啊（确信）
+
+
+抽完了，3000/20000，最高中了一张四等奖，sc比抽到的钱多，
+
+郡：“大家与其做梦中大奖，不如来做VTB吧。”
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 31978#       发表于 2021-2-22 18:05
+
+
+
+
+无意中看到一张图
+乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/a84417667a6dd416dc8c3fba4220facb/IMG_CMP_246379961.jpeg" referrerpolicy="no-referrer">
+话说阿葵搬家搬了多久？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 31979#       发表于 2021-2-22 18:18
+
+
+
+
+楼友真的很不基德
+
+不过我喜欢
+
+群里偷一张
+
+<img src="https://img.saraba1st.com/forum/202102/22/181827ouul25uu9gthzxeb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210222181818.jpg</strong> (188.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 18:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 31980#       发表于 2021-2-22 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">韩国人不是走后门吗，也能怀孕？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 31981#       发表于 2021-2-22 18:32
+
+
+
+
+哪天一时兴起走前门也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+syl  足球J联赛开幕fes
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/183150seeobirrrbepceck.png" referrerpolicy="no-referrer">
+
+
+<strong>}YCGO%SG77]%QXI2Z946ZS2.png</strong> (54.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 18:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31982#       发表于 2021-2-22 18:37
+
+
+
+
+确实不基德，恶意二改**发散一条龙，一个小博鱼的幽灵在v综回荡，难顶
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 31983#       发表于 2021-2-22 18:43
+
+
+
+
+阿葵这张挺好看的啊，狐狸的就有点离谱了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31984#       发表于 2021-2-22 18:44
+
+
+
+
+大肚子fanart摩多摩多<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 31985#       发表于 2021-2-22 18:50
+
+
+
+
+不要西瓜肚
+
+楼友xp真的很奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31986#       发表于 2021-2-22 18:50
+
+
+
+
+走姐：录彩虹B级综艺要坐3小时新干线去东京，录完了再坐3小时回去，来回6个小时比录制时间长多了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 31987#       发表于 2021-2-22 18:50
+
+
+
+
+这图还是不了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31988#       发表于 2021-2-22 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 时间过的好快啊，一转眼这周末就是你虹fes了，
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 31989#       发表于 2021-2-22 18:59
+
+
+
+
+这周能看到3d小牛郎了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+Syl，Bora唱歌好听[https://www.youtube.com/watch?v=IgdlCmWKlNg](https://www.youtube.com/watch?v=IgdlCmWKlNg)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 31990#       发表于 2021-2-22 19:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/190358jul5pbnpzl96aonl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210222190344.png</strong> (85 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 19:03 上传
+
+
+
+
+
+
+KING这次真的有一个纯血한민족好妹妹了，啪唧啪唧👏👏
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 31991#       发表于 2021-2-22 19:42
+
+
+
+
+ema翻了wotaku（给修女写dogma的那位）的mafia，有点点吵，
+但是几乎全程低音，低音ema有点好代<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 

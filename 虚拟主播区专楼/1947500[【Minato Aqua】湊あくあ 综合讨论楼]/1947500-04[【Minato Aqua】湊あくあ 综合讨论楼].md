@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 01:43** 
+> ## **本文件最后更新于2021-02-22 12:41** 
 
 
 
@@ -11516,10 +11516,12 @@ bloom是不是hololive的live-是
 
 
 
- 参与人数 19战斗力 +7
+ 参与人数 21战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fightonion|-1||
+| airclab|-2|思路广|
 | GToojer| + 1|天下苦X久矣|
 | fangjun96| + 1|野兔子回你们兔楼吧，没必要|
 | 米酒马路|-1|好评加鹅|
@@ -11538,7 +11540,6 @@ bloom是不是hololive的live-是
 | 66367749|-1|真可怜|
 | UnhappyTails| + 1|回血|
 | OldGlory| + 1|没必要|
-| 星の守|-1|野兔子跳你🐎呢|
 
 
 
@@ -11983,4 +11984,509 @@ mv
 
 
 
-                            
+
+
+-----
+
+####  乌鸦绅士  
+##### 5143#       发表于 2021-2-18 11:56
+
+
+
+
+被最新点喜欢的那条推惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">被点赞的那个人是holo的staff吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5144#       发表于 2021-2-18 22:20
+
+
+
+ 本帖最后由 面具13 于 2021-2-18 23:35 编辑 
+
+最后一句明显是故意的瞎唱的，别狡辩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑子模仿挺像的。
+
+一首比一首老啊。
+
+断气唱法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+あくフレ新的可能性吗
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 5145#       发表于 2021-2-19 00:18
+
+
+
+
+夸宝怎么这么喜欢这歌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">想到昨天夸宝唱这歌很难受的评论就乐了
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5146#       发表于 2021-2-19 00:29
+
+
+
+
+最近姨化程度越来越高了感觉
+
+
+
+
+
+
+
+-----
+
+####  gikaqi  
+##### 5147#       发表于 2021-2-19 00:38
+
+
+
+
+高个锤子，老子从2月初等到现在才念一次sc
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">明年生日一定要届到
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5148#       发表于 2021-2-19 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372030&amp;ptid=1947500" target="_blank">gikaqi 发表于 2021-2-19 00:38</a>
+
+高个锤子，老子从2月初等到现在才念一次sc
+
+明年生日一定要届到</blockquote>
+「織姫と彦星のような……」
+
+「浮気じゃダメ！他の子見じゃダメ！」
+
+「あくたんは、皆のものだから……」
+
+「あくあデラックスになっても好き？」
+
+「年とって、声が可愛くないなったらまだ好き？」
+
+
+
+
+
+
+
+-----
+
+####  gikaqi  
+##### 5149#       发表于 2021-2-19 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50372084&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-2-19 00:44</a>
+
+「織姫と彦星のような……」
+
+「浮気じゃダメ！他の子見じゃダメ！」
+
+「あくたんは、皆のものだから……」 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">《拿捏》
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5150#       发表于 2021-2-19 01:03
+
+
+
+
+这SC，可以，明谏啊（别搞偶像了，快点直播啊）
+
+
+
+
+
+
+
+-----
+
+####  gikaqi  
+##### 5151#       发表于 2021-2-19 01:35
+
+
+
+
+drago老本土粉了，原来那边也有想法一样的老哥。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5152#       发表于 2021-2-19 14:20
+
+
+
+ 本帖最后由 Kanchiki 于 2021-2-19 14:27 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/141918t7fnu4omfofoz1kh.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20210219141820.png</strong> (13.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 14:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/19/141923tapaw98guu77uuwu.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20210219141837.png</strong> (22.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-19 14:19 上传
+
+
+
+
+
+
+把カタオモイ剪掉了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5153#       发表于 2021-2-19 14:27
+
+
+
+
+カタオモイ剪了，14分43秒的地方
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kanchiki| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5154#       发表于 2021-2-20 10:20
+
+
+
+
+所以为什么要剪呢，版权？
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5155#       发表于 2021-2-20 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50384361&amp;ptid=1947500" target="_blank">fangjun96 发表于 2021-2-20 10:20</a>
+
+所以为什么要剪呢，版权？</blockquote>
+触发了索尼日本的版权没法播放（应该是ai判断的），所以剪掉完事。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5156#       发表于 2021-2-20 12:28
+
+
+
+ 本帖最后由 面具13 于 2021-2-20 18:17 编辑 
+
+装双pc啊，后面还要测试什么的，希望早日能播吧。
+
+
+新的小动画广告，之前看多人版贼沙雕。动作应该是mmd（所有人的应该都是同一份，稍作修改），然后唱个歌就行。
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5157#       发表于 2021-2-20 20:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在是2天一播？
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5158#       发表于 2021-2-20 21:26
+
+
+
+
+两周没播游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 5159#       发表于 2021-2-21 18:36
+
+
+
+
+随手做点GIF玩
+[https://www.youtube.com/watch?v=6NSdYeW4cRc](https://www.youtube.com/watch?v=6NSdYeW4cRc)
+
+【アニメ】メイドらしさを求めて
+
+<img src="https://img.saraba1st.com/forum/202102/21/183404htsm8qhtrw5ztut6.gif" referrerpolicy="no-referrer">
+
+
+<strong>夸1.gif</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/183412gq4vtii8vhzpqqqi.gif" referrerpolicy="no-referrer">
+
+
+<strong>夸2.gif</strong> (968.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/183414fn9nz9uvutau9kn3.gif" referrerpolicy="no-referrer">
+
+
+<strong>夸3.gif</strong> (296.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/21/183432hoo7eoqd7lecqo59.gif" referrerpolicy="no-referrer">
+
+
+<strong>夸4.gif</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:34 上传
+
+
+
+
+
+<img src="https://static01.imgkr.com/temp/72596729b5ee42a6a3268511540b177d.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/21/183511kuyedjzppyi2vnye.gif" referrerpolicy="no-referrer">
+
+
+<strong>夸6.gif</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2021-2-21 18:35 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 濡鸦之羽_| + 1|好评加鹅|
+| 乌鸦绅士| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 5160#       发表于 2021-2-21 19:49
+
+
+
+ 本帖最后由 nian1538 于 2021-2-21 20:03 编辑 
+
+<img src="https://p.sda1.dev/1/470f0587df237fdb2a73c4429341ebe7/IMG_CMP_197574545.jpeg" referrerpolicy="no-referrer">
+
+syl：一般人不都是搬完家再买新电脑的吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5161#       发表于 2021-2-22 18:42
+
+
+
+
+一个月3/4过去了播了6+1（会限）次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果是以前的夸宝，月底估计要搞耐久撑时长了吧，参考一下同事，可能是UT？
+
+
+
+
+
+
+
+-----
+
+####  99726182@qq.com  
+##### 5162#       发表于 2021-2-22 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407906&amp;ptid=1947500" target="_blank">面具13 发表于 2021-2-22 18:42</a>
+
+一个月3/4过去了播了6+1（会限）次
+
+如果是以前的夸宝，月底估计要搞耐久撑时长了吧，参考一下同事， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你也说是以前了
+
+
+
+
+
+                           

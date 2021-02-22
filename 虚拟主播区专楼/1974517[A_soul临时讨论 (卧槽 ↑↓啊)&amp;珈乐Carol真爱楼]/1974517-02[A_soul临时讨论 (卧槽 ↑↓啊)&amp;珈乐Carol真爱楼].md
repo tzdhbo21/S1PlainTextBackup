@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 08:41** 
+> ## **本文件最后更新于2021-02-22 12:47** 
 
 
 
@@ -12730,10 +12730,11 @@ s1是维阿办公室，哪有往同行办公室派人的啊<img src="https://sta
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| saybestty|-1|思路广|
 | LamdaHT|-1|欢乐多|
 | Umichika|-1|还挺牛|
 
@@ -18559,4 +18560,398 @@ cbbdl，这点信息就中之人了，学v8快进是吧<img src="https://static.
 
 
 
-               
+
+
+-----
+
+####  vegetht  
+##### 2542#       发表于 2021-2-22 16:49
+
+
+
+
+asoul应该是青瞳视觉提供的动捕  小一那个视频里动捕室看着确实不大   前面就是工具人 
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2543#       发表于 2021-2-22 16:49
+
+
+
+
+又烂又烂
+
+[https://b23.tv/Wg7L6V](https://b23.tv/Wg7L6V)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2544#       发表于 2021-2-22 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406683&amp;ptid=1974517" target="_blank">vegetht 发表于 2021-2-22 16:49</a>
+
+asoul应该是青瞳视觉提供的动捕  小一那个视频里动捕室看着确实不大   前面就是工具人  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 他们每次运镜我都怀疑是AI自动运镜 根本不像人操作的
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 2545#       发表于 2021-2-22 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406744&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-22 16:53</a>
+
+他们每次运镜我都怀疑是AI自动运镜 根本不像人操作的</blockquote>
+运镜水平忽高忽低的  还有那个混响 听着像是调音台内置的效果器 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  还有麦克风槽点就更多了  
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2546#       发表于 2021-2-22 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406683&amp;ptid=1974517" target="_blank">vegetht 发表于 2021-2-22 16:49</a>
+asoul应该是青瞳视觉提供的动捕  小一那个视频里动捕室看着确实不大   前面就是工具人  ...</blockquote>
+青瞳也是国内vicon的代理
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2547#       发表于 2021-2-22 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406744&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-22 16:53</a>
+他们每次运镜我都怀疑是AI自动运镜 根本不像人操作的</blockquote>
+他们这种有台本的可以预制camera路径，不过绑定手持也不难，这就属于xr方面的东西了，乐华目前看没这个意思。
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2548#       发表于 2021-2-22 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406938&amp;ptid=1974517" target="_blank">vegetht 发表于 2021-2-22 17:08</a>
+
+运镜水平忽高忽低的  还有那个混响 听着像是调音台内置的效果器   还有麦克风槽点就更多了   ...</blockquote>
+还有那个音频设备底噪，每次自己的录播本地播放的时候底噪声音大的要死，也不雇个专业的音响师调一下，技术和运营一个劲的招
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2549#       发表于 2021-2-22 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407087&amp;ptid=1974517" target="_blank">依然荏苒 发表于 2021-2-22 17:18</a>
+
+他们这种有台本的可以预制camera路径，不过绑定手持也不难，这就属于xr方面的东西了，乐华目前看没这个意 ...</blockquote>
+你可以翻一下贝拉首播第一段舞蹈的镜头，真的一眼难尽，就对着裙子那部分摁拍，画面只剩裙子在摇摆，全身动作看都看不见，观感体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 2550#       发表于 2021-2-22 17:42
+
+
+
+
+我好奇的是她们是怎么找镜头的呢？摄像机也不是实物呀
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2551#       发表于 2021-2-22 17:51
+
+
+
+ 本帖最后由 音稻 于 2021-2-22 17:57 编辑 
+
+编辑，kale
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2552#       发表于 2021-2-22 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407348&amp;ptid=1974517" target="_blank">CheshireK 发表于 2021-2-22 17:42</a>
+
+我好奇的是她们是怎么找镜头的呢？摄像机也不是实物呀</blockquote>
+前边摆个适合尺寸的显示视频（可能是笔记本），有本地预览和弹幕
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2553#       发表于 2021-2-22 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407348&amp;ptid=1974517" target="_blank">CheshireK 发表于 2021-2-22 17:42</a>
+我好奇的是她们是怎么找镜头的呢？摄像机也不是实物呀</blockquote>
+有图不过涉及保密项目不好发，处理好的画面反送回动捕室的，弹幕也是。
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2554#       发表于 2021-2-22 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407690&amp;ptid=1974517" target="_blank">依然荏苒 发表于 2021-2-22 18:18</a>
+
+有图不过涉及保密项目不好发，处理好的画面反送回动捕室的，弹幕也是。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> as的设备钱有cy的十分之一吗
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2555#       发表于 2021-2-22 18:30
+
+
+
+
+看个LPL弹幕一堆嘉然
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2556#       发表于 2021-2-22 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407801&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-22 18:30</a>
+
+看个LPL弹幕一堆嘉然</blockquote>
+看晕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就万象天引
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2557#       发表于 2021-2-22 18:44
+
+
+
+
+然然😭😭，为什么受伤的总是我的然然😭😭，不要再挨铁棍了，要打就打晚晚吧
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2558#       发表于 2021-2-22 18:46
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/024614ocd4z2xzxhp6f3ph.png" referrerpolicy="no-referrer">
+
+
+<strong>%4YM22OG8BN}~R`XYUJ~Q66.png</strong> (14.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 18:46 上传
+
+
+
+
+
+
+在挖中之人我是狗
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2559#       发表于 2021-2-22 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407767&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-22 18:27</a>
+as的设备钱有cy的十分之一吗</blockquote>
+青瞳自家的mc，cy的vicon 72位 v16 要200多万人民币
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2560#       发表于 2021-2-22 18:49
+
+
+
+
+嘉然读私信回念欧西给的切片有近10w播放<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+这次引流献祭的又是哪些幸运嘉心糖呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2561#       发表于 2021-2-22 19:01
+
+
+
+
+为什么受伤的都是然然<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2562#       发表于 2021-2-22 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407962&amp;ptid=1974517" target="_blank">依然荏苒 发表于 2021-2-22 18:49</a>
+
+青瞳自家的mc，cy的vicon 72位 v16 要200多万人民币</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 感觉as的空间24位顶天 国内供应商单价水太深，每年还不用交保护费
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2563#       发表于 2021-2-22 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407941&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-22 18:46</a>
+
+在挖中之人我是狗</blockquote>
+你铲归铲，别说出来啊，自己铲着玩得了，你发出来总会有人克制不住自己跑去互动的
+
+
+
+
+
+              
