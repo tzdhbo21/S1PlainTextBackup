@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 05:35** 
+> ## **本文件最后更新于2021-02-22 08:41** 
 
 
 
@@ -17791,4 +17791,772 @@ cbbdl，这点信息就中之人了，学v8快进是吧<img src="https://static.
 
 
 
-                
+
+
+-----
+
+####  弈秋  
+##### 2498#       发表于 2021-2-22 13:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，搞运营还要搞心理学
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2499#       发表于 2021-2-22 13:42
+
+
+
+
+1300评论了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">哈人
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2500#       发表于 2021-2-22 13:48
+
+
+
+
+然然发新动态了，10w粉动态下1w评论应该是达不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zero_death  
+##### 2501#       发表于 2021-2-22 13:50
+
+
+
+
+不会有人觉得磕头喊爹求关注真的只是为了as好吧？又能发病钓鱼团建顺带顺劈，以后吹“8u”的安利之功又更有底气 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，路人看到这种比饭圈妹妹还哈人的评论早就run了
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2502#       发表于 2021-2-22 13:52
+
+
+
+
+运营必读的《参与感》没安排上吗
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 2503#       发表于 2021-2-22 13:58
+
+
+
+<img src="https://p.sda1.dev/1/0e10ef95946cbc1a7e5324956cd9676f/IMG_CMP_170949110.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2504#       发表于 2021-2-22 14:03
+
+
+
+
+还有这张 贴吧贴就叫嘉然小姐的狗我是极速版不能发链接<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2505#       发表于 2021-2-22 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50404178&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-22 13:05</a>
+
+怎么办，看了阿梓给8u的私信我也要变成小孩梓了，有没有人来劝我一下
+
+
+—— 来自 HUAWEI PCT-AL10,  ...</blockquote>
+看中之人照片
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2506#       发表于 2021-2-22 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50404178&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-22 13:05</a>
+怎么办，看了阿梓给8u的私信我也要变成小孩梓了，有没有人来劝我一下
+
+—— 来自 HUAWEI PCT-AL10,  ...</blockquote>
+为什么回私信就能变成这样呢 我一直没搞懂逻辑 她回你私信能代表什么吗
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2507#       发表于 2021-2-22 14:10
+
+
+
+
+可能这就是认知厨吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2508#       发表于 2021-2-22 14:14
+
+
+
+
+没人爱的自闭阿宅在网络世界也混成了边缘群体，希望有美少女理一理是很奇怪的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2509#       发表于 2021-2-22 14:21
+
+
+
+
+问题是阿梓只是个女也没有美少两个字啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2510#       发表于 2021-2-22 14:35
+
+
+
+
+运营：我太难了，怎么这帮人就切割不掉呢<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2511#       发表于 2021-2-22 14:59
+
+
+
+
+我不是认知厨啊，但内心还是向往皮魂合一的美少女的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">syl有没有人分析一下dy回复是不是晚晚本人，如果是我就去当抖友了（我觉得真）
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2512#       发表于 2021-2-22 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50404919&amp;ptid=1974517" target="_blank">我尊敬的父亲 发表于 2021-02-22 14:07:10</a>
+为什么回私信就能变成这样呢 我一直没搞懂逻辑 她回你私信能代表什么吗</blockquote>建议复习泥潭唯一指定真·s1娘，天国的魔魔マラ的圣经:
+“巨魔都是缺爱的，只要美少女主动示好马上就被感化了”
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2513#       发表于 2021-2-22 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405184&amp;ptid=1974517" target="_blank">Anonekoy 发表于 2021-02-22 14:35:20</a>
+运营：我太难了，怎么这帮人就切割不掉呢</blockquote>猫雷是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切割v吧哪有这么简单，与其切割，还不如想想怎么降低他们的论坛归属感
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2514#       发表于 2021-2-22 15:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直不懂认知厨，被读到弹幕，被回私信有这么爽吗。
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2515#       发表于 2021-2-22 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405451&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-22 14:59</a>
+
+我不是认知厨啊，但内心还是向往皮魂合一的美少女的syl有没有人分析一下dy回复是不是晚晚本人，如果 ...</blockquote>
+怎么可能是本人，时间表都排满不是训练就是开会研讨，抖音上的视频是不是她们本人拍的都难讲
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2516#       发表于 2021-2-22 15:19
+
+
+
+ 本帖最后由 音稻 于 2021-2-22 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405647&amp;ptid=1974517" target="_blank">有优越感的人mk2 发表于 2021-2-22 15:16</a>
+
+怎么可能是本人，时间表都排满不是训练就是开会研讨，抖音上的视频是不是她们本人拍的都难讲 ...</blockquote>贝拉dy有个双重影分身的短视频，不确定是后期镜像还是两个人拍的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 想想皮下被字节运营逼着拍各种奇奇怪怪的抖音素材，绿色的火焰不由自主的燃起来了。
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2517#       发表于 2021-2-22 15:25
+
+
+
+
+回私信要是很入脑，这边建议去推小爱同学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 2518#       发表于 2021-2-22 15:25
+
+
+
+
+这几天《嘉然小姐的狗》这二创的二创好多啊，什么赛博朋克版和广西普通话版的还确实挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  基神的强袭自由  
+##### 2519#       发表于 2021-2-22 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405668&amp;ptid=1974517" target="_blank">音稻 发表于 2021-02-22 15:19:52</a>
+想想皮下被字节运营逼着拍各种奇奇怪怪的抖音素材，绿色的火焰不由自主的燃起来了。 ...</blockquote>说不定抖音几年的实景那几段是合成的呢<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2520#       发表于 2021-2-22 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405647&amp;ptid=1974517" target="_blank">有优越感的人mk2 发表于 2021-2-22 15:16</a>
+怎么可能是本人，时间表都排满不是训练就是开会研讨，抖音上的视频是不是她们本人拍的都难讲 ...</blockquote>
+可是他rp的真的好像啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">他还会回“然然追不上我的”。。。运营我要鲨了你
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2521#       发表于 2021-2-22 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405770&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-22 15:29</a>
+可是他rp的真的好像啊他还会回“然然追不上我的”。。。运营我要鲨了你
+
+—— 来自 HUAWEI PCT-AL ...</blockquote>
+想开点运营小姐姐也是美少女哦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2522#       发表于 2021-2-22 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405621&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-22 15:15</a>
+
+我一直不懂认知厨，被读到弹幕，被回私信有这么爽吗。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">平时纸片人看多了只能靠颅内发散，现在逮到一个“真实”的完美符合阿尼玛投射的纸片人可不得使劲媷吗，长年累月积累的的反馈心理诉求被无限放大。
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2523#       发表于 2021-2-22 15:36
+
+
+
+
+突然有点理解为啥会有人这么魔怔了，当发现一切都是假的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2524#       发表于 2021-2-22 15:37
+
+
+
+
+为什么你们会觉得运营现在就在考虑切割的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧魔怔人千不好万不好，起码有一点，付费率高厨力强，别说字节乐华不看重这个，这起码是能用来应付kpi的。万一上头质问下来“这么多资源投下来为啥涨粉比不上一个小社团缝合怪啊，人日增两万多你最高一个才五千，咋回事儿啊”，那运营总要找理由吧，什么粉丝质量高咯，付费欲望强咯，二创力度大咯。反正我印象中互联网企业砍项目从来不手软，这些数据可是运营的保命符啊。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2525#       发表于 2021-2-22 15:38
+
+
+
+ 本帖最后由 luoy 于 2021-2-22 15:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405770&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-22 15:29</a>
+可是他rp的真的好像啊他还会回“然然追不上我的”。。。运营我要鲨了你
+
+—— 来自 HUAWEI PCT-AL ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">坛友我要鲨了你们
+
+
+
+
+
+
+
+-----
+
+####  基神的强袭自由  
+##### 2526#       发表于 2021-2-22 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405621&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-02-22 15:15:11</a>
+我一直不懂认知厨，被读到弹幕，被回私信有这么爽吗。</blockquote>还是被读SC爽点，有种下水道的鼠鼠看到一丝光明照进昏暗的世界的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2527#       发表于 2021-2-22 15:42
+
+
+
+
+8u真的付费率高吗
+
+
+
+
+
+
+
+-----
+
+####  Hqchan  
+##### 2528#       发表于 2021-2-22 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405621&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-22 15:15</a>
+
+我一直不懂认知厨，被读到弹幕，被回私信有这么爽吗。</blockquote>
+真的很爽，我以前一被念到弹幕或者评论被回复，心跳马上就dokidoki了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2529#       发表于 2021-2-22 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405924&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-2-22 15:42</a>
+8u真的付费率高吗</blockquote>
+这是和岚狗做对比，注意上下文啊
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2530#       发表于 2021-2-22 15:47
+
+
+
+
+确实 我一直看海子姐就是因为她是唯二读我弹幕的主播 第一个是三年前的秦川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2531#       发表于 2021-2-22 15:54
+
+
+
+
+也不单纯是字节，还得看乐华。不过AS的确从付费比上来看挺漂亮的，福利公布后吸粉上涨，我反正是被忽悠上舰了
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2532#       发表于 2021-2-22 15:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  躺赢局局长CJH  
+##### 2533#       发表于 2021-2-22 15:58
+
+
+
+
+兄弟们借楼问一波，刚回顾了乃琳1.9的直播录像，开场白说自己是"浙/之 江大学法学系"，这真的假的？真的那可太猛了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+主要浙大法学院真的在之江，我有丶信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2534#       发表于 2021-2-22 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是rp，她们几个都是枝江的
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2535#       发表于 2021-2-22 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2536#       发表于 2021-2-22 16:01
+
+
+
+
+太对了，只要不发疯就好。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2537#       发表于 2021-2-22 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406122&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-22 16:00</a>
+
+一想到跟我没有一点关系的打工妹妹穿着臭臭动捕服嘻嘻哈哈地读着我打的贫穷sc我就兴奋得不行。我这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 不知道多少mmr能接受制作幕后实景呢，估计嫖一眼就幻灭心碎了，有一周QA就提过“你们不会想看幕后花絮的”。
+
+
+
+
+
+
+
+-----
+
+####  躺赢局局长CJH  
+##### 2538#       发表于 2021-2-22 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406116&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-22 16:00</a>
+都是rp，她们几个都是枝江的</blockquote>
+着相了，着相了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2539#       发表于 2021-2-22 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50405770&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-22 15:29</a>
+
+可是他rp的真的好像啊他还会回“然然追不上我的”。。。运营我要鲨了你
+
+
+—— 来自 HUAWEI PCT-AL ...</blockquote>
+那你就自我安慰一下说可能会有本人突然心血来潮回你一句<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2540#       发表于 2021-2-22 16:23
+
+
+
+
+可已经被运营戳破了啊。之前还能安慰自己。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2541#       发表于 2021-2-22 16:41
+
+
+
+
+幕后不就这样么，不过乐华还要简陋点，他们动捕室没这么大，动捕员还要戴固定深度摄像头的支架<img src="https://p.sda1.dev/1/17bc8e745068f5fd9048652797dcf770/IMG_CMP_191833823.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+               

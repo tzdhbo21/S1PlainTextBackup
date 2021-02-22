@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 01:40** 
+> ## **本文件最后更新于2021-02-22 08:36** 
 
 
 
@@ -7950,7 +7950,16 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ####  后会无期  
 ##### 1881#       发表于 2020-11-7 19:26
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+5ii有办法微信分身吗？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -7998,7 +8007,19 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ####  后会无期  
 ##### 1884#       发表于 2020-11-7 22:58
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314368&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-7 22:57</a>
+
+用island啊，我就用着，2个微信
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+这软件安全吗，读取第二个微信信息可能性大不大。。
+
+
+
+
 
 
 
@@ -8026,7 +8047,16 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ####  后会无期  
 ##### 1886#       发表于 2020-11-7 23:39
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314485&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-07 23:08:36</a>
+island的原理是工作空间，这是一个完全独立的空间，大部分ROM的分身功能都是基于这个功能，如果要是觉得 ...</blockquote>了解了，谢谢～
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -8500,7 +8530,16 @@ ZACKBUKS
 ####  后会无期  
 ##### 1910#       发表于 2020-11-10 16:42
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+犹豫症买前最后一问，双sim卡使用如何？能清晰分辨和调整来电、短信、上网是哪个卡吗？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -8548,7 +8587,16 @@ ZACKBUKS
 ####  后会无期  
 ##### 1913#       发表于 2020-11-10 21:14
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49350650&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-10 20:18:23</a>
+v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收到的，并对应以哪个卡回复吗？或者直接在短信界面选择哪个卡发送？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -8731,7 +8779,16 @@ ZACKBUKS
 ####  后会无期  
 ##### 1920#       发表于 2020-11-13 15:06
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+有没有5兔会莫名其妙进飞行模式？是误触的原因吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -8756,7 +8813,17 @@ ZACKBUKS
 ####  后会无期  
 ##### 1922#       发表于 2020-11-13 15:41
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+ 本帖最后由 后会无期 于 2020-11-14 19:15 编辑 
+
+5兔通话时候前感应太灵敏了怎么办，貌似稍微一离开耳朵再蹭就能误触，设置开了口袋防误触也没什么用，电话打的时间一长就容易误触到飞行模式，犹豫要不要退了，烦
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -9059,7 +9126,17 @@ ZACKBUKS
 ####  后会无期  
 ##### 1940#       发表于 2020-11-17 20:31
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+ 本帖最后由 后会无期 于 2020-11-17 20:33 编辑 
+
+五兔亚马逊海外淘4k4了？？有人了英亚这到国内使用有啥问题吗？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -16606,4 +16683,368 @@ ps 请问是移动的手机号吗
 
 
 
-                      
+
+
+-----
+
+####  Youszsh  
+##### 2324#       发表于 2021-2-19 12:53
+
+
+
+
+请问下上下扬声器这里空着一大块是正常的吗，都能直接看见里面了。按理来说是不是该有张防尘网啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/b8a16fe43cb1f8e2d2cbc7bc04947441/IMG_CMP_20827429.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/6ffbb7c34305c4db753a42c8f5272f63/IMG_CMP_34719198.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2325#       发表于 2021-2-19 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376156&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-19 12:53</a>
+
+请问下上下扬声器这里空着一大块是正常的吗，都能直接看见里面了。按理来说是不是该有张防尘网啊</blockquote>
+前几代就这种膜？了，有灰水一冲就好，防尘网才是真积灰
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 2326#       发表于 2021-2-19 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376520&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-19 13:27</a>
+前几代就这种膜？了，有灰水一冲就好，防尘网才是真积灰</blockquote>
+主要里面一个大空腔看着也太吓人了，真的怀疑是不是缺了啥零件。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2327#       发表于 2021-2-20 10:12
+
+
+
+
+用国行的各位最近还有信号卡死问题吗，感觉春节后好像就没遇到过了。不过因为老家5g信号太差我把5g给关了，不知道是哪边因素
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  majiyabakunei  
+##### 2328#       发表于 2021-2-20 14:27
+
+
+
+
+无码兔在开着黑阈的情况下，开司马阿里系的软件依然会很卡。不root折腾的话有什么解决办法吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  KosHaruhi  
+##### 2329#       发表于 2021-2-20 15:14
+
+
+
+
+自从X1ii升级到11后总是时不时会有充电充不进的现象，要关机充一下看见电量开始上涨了才敢重新开机充，很谜。
+
+
+
+
+
+
+InkedScreenshot_20210207-084022_LI.jpg
+(212.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-20 15:14 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/20/151420ryba4u098xob0yz1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zjf  
+##### 2330#       发表于 2021-2-21 08:26
+
+
+
+
+到手了，说说情况
+Android11目前没法root，会无限重启
+港版10的rom没找到，于是刷了欧版的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+目前除了型号会显示成xq-as52之外还没发现别的问题
+ps 打开相机的时候会发出咔的一声正常吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  ut0  
+##### 2331#       发表于 2021-2-21 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50393464&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-21 08:26</a>
+到手了，说说情况
+Android11目前没法root，会无限重启
+港版10的rom没找到，于是刷了欧版的</blockquote>
+奆奆买的是港版5M2吗？刷成安卓11然后再刷回安卓10了？也没丢失算法什么的吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 2332#       发表于 2021-2-22 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376520&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-19 13:27</a>
+前几代就这种膜？了，有灰水一冲就好，防尘网才是真积灰</blockquote>
+這個位置可以直接用水沖？？？？
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2333#       发表于 2021-2-22 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400564&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 01:04</a>
+
+這個位置可以直接用水沖？？？？</blockquote>
+ip68对付普通水流没问题的
+
+
+
+
+
+
+
+-----
+
+####  zjf  
+##### 2334#       发表于 2021-2-22 07:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399537&amp;ptid=1915171" target="_blank">ut0 发表于 2021-2-21 22:42</a>
+奆奆买的是港版5M2吗？刷成安卓11然后再刷回安卓10了？也没丢失算法什么的吗？
+
+—— 来自 Xiaomi Redmi  ...</blockquote>
+国行5m2，先后刷了国行10，港版11，欧版10
+丢算法是什么症状啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+主要我到手就刷，没得对比，目前看来至少俩pro相机都挺正常
+
+—— 来自 Sony XQ-AS52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2335#       发表于 2021-2-22 09:08
+
+
+
+
+国行5.2到现在还没收到11的OTA，问题不小啊
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2336#       发表于 2021-2-22 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50401179&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-22 07:04</a>
+
+国行5m2，先后刷了国行10，港版11，欧版10
+
+丢算法是什么症状啊
+
+主要我到手就刷，没得对比，目前看 ...</blockquote>
+这个主要影响视频增强，不过问题真得不大
+
+
+
+
+
+
+
+-----
+
+####  Benthic  
+##### 2337#       发表于 2021-2-22 15:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1II升到11之后息屏显示微信来新消息不会有图标，一定到点亮屏幕到锁屏界面后才会有图标出现，只有微信有这个问题，好嗨烦，有遇到相同问题的朋友吗
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 2338#       发表于 2021-2-22 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400762&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-22 01:44</a>
+
+ip68对付普通水流没问题的</blockquote>
+ 真的不會進水我就把我的Xperia 1的拿去洗塵了
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2339#       发表于 2021-2-22 16:19
+
+
+
+
+5马克兔上面的听筒/扬声器积灰是真的厉害啊，可以直接用水冲吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yygundam  
+##### 2340#       发表于 2021-2-22 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406289&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 16:16</a>
+
+真的不會進水我就把我的Xperia 1的拿去洗塵了</blockquote>
+下水前最好看一下气密有没有问题（开工程模式，打开气压计测试，略用力按一下屏幕，看数值变动），用了一阵之后防水性能是有可能下降的。
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2341#       发表于 2021-2-22 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406289&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 16:16</a>
+
+真的不會進水我就把我的Xperia 1的拿去洗塵了</blockquote>
+我反正差不多一周一洗，对别人那只能建议洗别怂，怂别洗，真进水反正不保修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
