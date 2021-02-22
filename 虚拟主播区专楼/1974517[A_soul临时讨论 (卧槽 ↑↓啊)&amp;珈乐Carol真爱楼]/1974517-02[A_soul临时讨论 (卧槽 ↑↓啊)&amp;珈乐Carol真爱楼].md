@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 12:47** 
+> ## **本文件最后更新于2021-02-22 16:59** 
 
 
 
@@ -18954,4 +18954,501 @@ as的设备钱有cy的十分之一吗</blockquote>
 
 
 
-              
+
+
+-----
+
+####  Seteor  
+##### 2564#       发表于 2021-2-22 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这置顶感觉是挖到了？不过那个微博本身也没啥意思，是不是都无所谓啦
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2565#       发表于 2021-2-22 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407941&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-22 18:46</a>
+在挖中之人我是狗</blockquote>
+前面挖出来的东西不编辑，再截个置顶出来稳一手是吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2566#       发表于 2021-2-22 22:50
+
+
+
+
+本来是有一点点信息的，被挖了就都删掉了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看来真有人去私信
+但是这个号发的不管是原创还是转发，语气和措辞感觉都对不上任何一位成员<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么顶级rp
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2567#       发表于 2021-2-22 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410169&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-02-22 22:50:05</a>
+本来是有一点点信息的，被挖了就都删掉了</blockquote>没准不是中之人，是工作人员<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2568#       发表于 2021-2-22 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407941&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-22 18:46</a>
+
+在挖中之人我是狗</blockquote>
+什么又当又立<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2569#       发表于 2021-2-22 22:55
+
+
+
+
+挖人是不对的<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2570#       发表于 2021-2-22 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410191&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-22 22:52</a>
+
+没准不是中之人，是工作人员
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+确实删了一点东西，图我倒是没存，我也觉得是工作人员，不过说实话，挖这些没啥意义
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2571#       发表于 2021-2-22 22:58
+
+
+
+
+糖宝下一句话是：“我是狗我是狗，🐶”<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2572#       发表于 2021-2-22 22:58
+
+
+
+
+挖人是看v这件事的重要组成部分，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2573#       发表于 2021-2-22 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410222&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-02-22 22:55:24</a>
+挖人是不对的</blockquote>我都在那个号的置顶点赞里面看到你的头像了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2574#       发表于 2021-2-22 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410295&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-22 22:59</a>
+我都在那个号的置顶点赞里面看到你的头像了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+🏳️🙇
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2575#       发表于 2021-2-22 23:13
+
+
+
+
+挖了又发在公共论坛又配上这么矫情的话属实是典中典的犯贱
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2576#       发表于 2021-2-22 23:20
+
+
+
+
+平静的一天要过去了，明天又是什么样的腥风血雨呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2577#       发表于 2021-2-22 23:23
+
+
+
+
+太期待明天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2578#       发表于 2021-2-22 23:27
+
+
+
+
+你们是跟QA互动还是跟然然互动
+
+投降<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2579#       发表于 2021-2-22 23:37
+
+
+
+
+问题不大，我们as的弹幕环境一定会越来越好的，一句话，我相信（）
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2580#       发表于 2021-2-22 23:42
+
+
+
+
+现在不都回转了吗   明天QA运营认个错给魔怔人一个台阶下他们又变成mmr了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2581#       发表于 2021-2-22 23:43
+
+
+
+
+圣嘉然会净化弹幕的
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2582#       发表于 2021-2-22 23:47
+
+
+
+
+搁这当陀螺呢，天天没事儿就回转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2583#       发表于 2021-2-22 23:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/235253o44usvty5usab2zu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-02-22-23-52-19-611_com.baidu.tieba.jpg</strong> (231.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 23:52 上传
+
+
+
+
+
+
+晚指导gachi是真的多
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 2584#       发表于 2021-2-23 00:08
+
+
+
+
+不知道为什么总有种预感，如果as能做大做强，顶碗人和嘉心糖必有一战，就像天狗和crew一样
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2585#       发表于 2021-2-23 00:14
+
+
+
+
+至少现在还是粉头毒唯人人喊打
+到了周二果然还是有点紧张呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2586#       发表于 2021-2-23 00:23
+
+
+
+
+享受短暂的宁静吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">大的要来了
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2587#       发表于 2021-2-23 00:32
+
+
+
+
+看了下v8  as粉浓度有点高   晚指导和嘉然有500多票  贝拉400多一起包涵前三    奶0也有近300票  唯一淘汰的珈乐也是内战输给奶0
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2588#       发表于 2021-2-23 00:50
+
+
+
+
+真能做大做强的话粉丝打架可以算消遣了
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 2589#       发表于 2021-2-23 00:52
+
+
+
+ 本帖最后由 LamdaHT 于 2021-2-23 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410918&amp;ptid=1974517" target="_blank">deadpoem 发表于 2021-2-23 00:08</a>
+
+不知道为什么总有种预感，如果as能做大做强，顶碗人和嘉心糖必有一战，就像天狗和crew一样 ...</blockquote>
+天狗和crew打起来，一个是NGA的三酱专楼在三酱直播的时候讨论阿夸，开打应该是在阿夸油管粉丝超过三酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻因为联动MC的“苹果”圣经就有一种被抛弃的怨妇感，而且带天使也确实有一种用完就扔的茶味。
+
+目前应该还是没有这个苗头。
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2590#       发表于 2021-2-23 00:54
+
+
+
+
+审判日到来了，信仰虔诚的信徒将获得永远进入天堂的奖赏还是接受地狱火刑呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2591#       发表于 2021-2-23 00:58
+
+
+
+
+顶碗人和嘉心糖开战三条件 1等到嘉然直播时NGA的as楼里都在讨论晚指导 2
+
+
+
+
+
+             

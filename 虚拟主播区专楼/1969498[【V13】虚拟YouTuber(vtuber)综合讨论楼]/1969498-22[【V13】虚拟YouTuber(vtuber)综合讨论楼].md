@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 15:36** 
+> ## **本文件最后更新于2021-02-22 16:57** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_QRrXV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_Fi96q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_wR6mg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_W2646" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_x3zqa" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_kbpXx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_R4we7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_zQE9F" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -10983,4 +10983,184 @@ en进出 船长早该靠边站了吧
 
 
 
-                               
+
+
+-----
+
+####  flyskywalker92  
+##### 32065#       发表于 2021-2-22 23:38
+
+
+
+
+先寄一封律师函 再说其他的
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32066#       发表于 2021-2-22 23:41
+
+
+
+
+是时候跳下木口这艘漏船了，趁早止损<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 32067#       发表于 2021-2-22 23:43
+
+
+
+
+推特#ホロライブ  怎么一堆人贴水龙敬皮套B站那直播 什么杏人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32068#       发表于 2021-2-22 23:43
+
+
+
+
+原来郡道是抄组长作业（发的时间间隔三分钟，郡道又玩组长）白开心了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">，
+播什么ff14，给我去学外语<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32069#       发表于 2021-2-22 23:45
+
+
+
+
+我还是感觉木口实力雄厚 alt计划都能钩到水龙敬 而且完全不在乎水龙敬 看来业内关系无敌 半年灭亡彩虹指日可待
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32070#       发表于 2021-2-22 23:48
+
+
+
+
+这下只能找海苔男画了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  扶桑洛槿  
+##### 32071#       发表于 2021-2-22 23:48
+
+
+
+
+木口怎么体量越大越弱智阿，cover那群人脑子不打算去检查一下么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+单纯是下架r18不可能让院长那么生气吧。话说去年把在中国吃下去的肉全部吐都能做出来，难不成今年是想把本该是画师喝的汤给抢走<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 32072#       发表于 2021-2-22 23:51
+
+
+
+
+讲道理看看木口那无敌MV，水龙敬不就应该自惭形秽伏法受诛？真是不识抬举
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32073#       发表于 2021-2-23 00:06
+
+
+
+
+这下只能阿船辛苦一点把漫画也画了
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 32074#       发表于 2021-2-23 00:10
+
+
+
+
+木口可是虚拟迪士尼，请不自量力蹭大腿的黄漫小作家好自为之<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32075#       发表于 2021-2-23 00:32
+
+
+
+
+水龙敬可是中国虹人，发表杏an言论不足为奇（白皮看着还挺乐呵的）
+
+
+
+
+
+                              
