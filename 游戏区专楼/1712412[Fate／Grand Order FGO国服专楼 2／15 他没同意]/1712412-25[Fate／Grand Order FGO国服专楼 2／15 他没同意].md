@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 06:47** 
+> ## **本文件最后更新于2021-02-22 05:37** 
 
 
 
@@ -13304,4 +13304,511 @@ S版主上个月底把自己攻略全锁隐，我建议他去把自己的置顶�
 
 
 
-                        
+
+
+-----
+
+####  UNISONIA  
+##### 36753#       发表于 2021-2-18 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315829&amp;ptid=1712412" target="_blank">renoluo 发表于 2021-2-12 14:58</a>
+
+想抽极恶非道礼装，白情应该没有单UP吧，这情况下概率是多少？</blockquote>
+3%，白情四星礼装基本都是三UP
+
+
+礼装好像没见过同期有复数张的池针对单张进行的日替吧
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 36754#       发表于 2021-2-18 17:34
+
+
+
+
+装死就能解决大多数问题，可惜非要跑出来当舔狗揣摩圣意<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36755#       发表于 2021-2-18 19:25
+
+
+
+
+两个号都满破礼装了，每次打活动都要祈祷满破礼装也只有这垃圾游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36756#       发表于 2021-2-18 20:02
+
+
+
+
+终于变咸鱼了,150级达成.
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36757#       发表于 2021-2-18 22:19
+
+
+
+
+这次高难，尝试了光炮洗地，先弄死劳模，小弄死女人，三种模式，发现先弄死女人最简单，双枪老太婆加孔梅，打得对方毫无还手之力。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36758#       发表于 2021-2-18 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50370698&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2021-2-18 22:19</a>
+
+这次高难，尝试了光炮洗地，先弄死劳模，小弄死女人，三种模式，发现先弄死女人最简单，双枪老太婆加孔梅， ...</blockquote>
+狂那3T吧，最简单的解法了，我现在高难小号都直接嫖大号的狂那了，就是无脑碾压过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  213专用  
+##### 36759#       发表于 2021-2-19 15:38
+
+
+
+
+215变成了元宵节卡池了，强化本落地。
+
+
+
+
+
+
+
+-----
+
+####  atomicink  
+##### 36760#       发表于 2021-2-19 15:45
+
+
+
+
+版权意识极端薄弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36761#       发表于 2021-2-19 16:04
+
+
+
+
+元宵节23333，版权意识呢
+
+
+
+
+
+
+
+-----
+
+####  GALLADE  
+##### 36762#       发表于 2021-2-19 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2分钟 身上 蚂蚁
+
+
+
+
+
+
+
+-----
+
+####  骚哦.好男人  
+##### 36763#       发表于 2021-2-19 16:43
+
+
+
+
+乐宝亡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  精英级自演乙  
+##### 36764#       发表于 2021-2-19 20:50
+
+
+
+
+突然落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以究竟什么情况
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 36765#       发表于 2021-2-19 22:15
+
+
+
+
+这次剑本的掉落率好高，体感有100AP一个了
+
+
+
+
+
+
+
+-----
+
+####  smdzh2  
+##### 36766#       发表于 2021-2-20 00:15
+
+
+
+
+凌晨单抽一发入魂，老婆时隔两年终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36767#       发表于 2021-2-20 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50381463&amp;ptid=1712412" target="_blank">martinhe 发表于 2021-2-19 22:15</a>
+
+这次剑本的掉落率好高，体感有100AP一个了</blockquote>
+嗯，金蛋昨天掉率不错，今天好像不行
+
+
+
+
+
+
+
+-----
+
+####  离墨魇  
+##### 36768#       发表于 2021-2-20 19:19
+
+
+
+
+求个司马懿巧克力开图鉴，就差这一个了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36769#       发表于 2021-2-20 19:28
+
+
+
+
+金蛋掉率确实不错，不过我好像已经完全不需要用了.....C呆也只要33个，活动送的就够了
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 36770#       发表于 2021-2-20 23:56
+
+
+
+
+所以黑呆灵衣什么的时候上，五一劳动节行不行？23333
+
+
+
+
+
+
+
+-----
+
+####  penguinboa  
+##### 36771#       发表于 2021-2-21 16:43
+
+
+
+
+有无安卓的大佬有高宝狂那满级黑杯借啊，高难打不过，不想慢慢磨啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 36772#       发表于 2021-2-21 17:26
+
+
+
+
+这次高难本水莉莉丝3t也很轻松 就是需要个灾星简当拐
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 36773#       发表于 2021-2-21 18:17
+
+
+
+
+忘了拿前几天白送的那几个礼装关卡了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36774#       发表于 2021-2-21 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396602&amp;ptid=1712412" target="_blank">penguinboa 发表于 2021-2-21 16:43</a>
+
+有无安卓的大佬有高宝狂那满级黑杯借啊，高难打不过，不想慢慢磨啊
+
+
+—— 来自 Xiaomi MI 8, Androi ...</blockquote>
+三令咒复活，这还有打不过的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">，
+
+令咒留这有没用，
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36775#       发表于 2021-2-21 21:38
+
+
+
+
+今天才打高难，结果雪山樱3t失败了，第三条血没卡补刀伤害不够，懒得再刷发牌了，又攒了一发宝具5t收工
+
+
+
+
+
+
+
+-----
+
+####  朝仓和美  
+##### 36776#       发表于 2021-2-21 22:42
+
+
+
+
+原来夹馍的巧克力剧情要选拒绝，惊了
+
+—— 来自 Xiaomi M2007J22C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36777#       发表于 2021-2-21 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50396602&amp;ptid=1712412" target="_blank">penguinboa 发表于 2021-2-21 16:43</a>
+
+有无安卓的大佬有高宝狂那满级黑杯借啊，高难打不过，不想慢慢磨啊
+
+
+—— 来自 Xiaomi MI 8, Androi ...</blockquote>
+4宝狂那100级黑杯,100,104,844,583,拿去干
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36778#       发表于 2021-2-22 09:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手痒 把石头呼符全抽了 毛都没得到
+
+
+
+
+
+
+
+-----
+
+####  penguinboa  
+##### 36779#       发表于 2021-2-22 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399538&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-2-21 22:43</a>
+
+4宝狂那100级黑杯,100,104,844,583,拿去干</blockquote>
+3咒乱打打完了，还是需要大佬<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">  ID阳之下光
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36780#       发表于 2021-2-22 09:55
+
+
+
+
+加了
+
+
+
+
+
+
+
+-----
+
+####  sandro  
+##### 36781#       发表于 2021-2-22 13:01
+
+
+
+
+阿斯塔低小天使我草，太可爱了吧
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36782#       发表于 2021-2-22 13:16
+
+
+
+
+准备打高难了，用大佬的狂娜可以轰过去是吧....
+
+倒是有点担心不能毕业，好友的CBA本来带的是满破五星氪金礼装，结果变成点数礼装了......
+
+
+
+
+
+                       
