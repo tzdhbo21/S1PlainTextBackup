@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 12:45** 
+> ## **本文件最后更新于2021-02-22 14:38** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_vgcC7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_H53Oe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_hLi7n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_BQ02X" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_jAp5x" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_avzrv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_jA9uQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_dFE0o" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -9646,4 +9646,874 @@ ema翻了wotaku（给修女写dogma的那位）的mafia，有点点吵，
 
 
 
-                                 
+
+
+-----
+
+####  yinoh  
+##### 31992#       发表于 2021-2-22 21:24
+
+
+
+
+cover不知道又整啥了被园长全部拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20210222212334.png
+(66.89 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-22 21:23 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/212356ukdde6necc3nun52.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 31993#       发表于 2021-2-22 21:30
+
+
+
+
+看了下园长后面几条推，应该是cover要求他下架holo的本子
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 31994#       发表于 2021-2-22 21:32
+
+
+
+
+说吧，阴湿虹人又下了什么阴招
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 31995#       发表于 2021-2-22 21:33
+
+
+
+
+是cover的臭味，太冲了
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 31996#       发表于 2021-2-22 21:35
+
+
+
+
+我甚至觉得可能是要收版权费
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 31997#       发表于 2021-2-22 21:35
+
+
+
+
+我要是运营得求着他给画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 31998#       发表于 2021-2-22 21:35
+
+
+
+ 本帖最后由 -rm7- 于 2021-2-22 21:40 编辑 
+
+不是很懂这波神秘操作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+明明园长才是大腿，双赢局面都要踹开
+
+如今除了阿希，圆脸几个，还有人相信这个企划里的“偶像”因素？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可能是之前被版权大锤抡了，现在缓过劲来就要用版权大锤抡人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 31999#       发表于 2021-2-22 21:36
+
+
+
+
+一定是虹暗部搞的鬼
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32000#       发表于 2021-2-22 21:38
+
+
+
+
+这么搞还有谁敢和你一起做大饼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 32001#       发表于 2021-2-22 21:38
+
+
+
+
+想想都知道不是什么要求下架本子，还有那么多本子，不如说是本人拉黑了想清掉关系下架的
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32002#       发表于 2021-2-22 21:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是什么惊天大草台能让水龙敬炸成这样
+
+
+
+
+
+
+
+-----
+
+####  吉诺爱比利  
+##### 32003#       发表于 2021-2-22 21:42
+
+
+
+
+该给园长发个独轮车了
+
+
+
+
+
+
+
+-----
+
+####  whzfjk  
+##### 32004#       发表于 2021-2-22 21:45
+
+
+
+
+水龙敬也算是个 vtuber
+
+这么一想就是有个活动的 vtuber 给自己的同行画小本本还能公开发表
+
+代入自己在意的 v 的话岂不是很炸裂的感觉？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 32005#       发表于 2021-2-22 21:53
+
+
+
+
+水龙敬连发7条推，这是气的不轻啊，全解除关注了
+
+
+
+
+
+
+
+-----
+
+####  Guadalcanal  
+##### 32006#       发表于 2021-2-22 21:54
+
+
+
+ 本帖最后由 Guadalcanal 于 2021-2-22 21:57 编辑 
+
+<img src="https://p.sda1.dev/1/30d31769620a928e9f98f1e25b887d47/-7e94b85813fc1c8f.jpg" referrerpolicy="no-referrer">
+任天堂人送外号小holo
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 32007#       发表于 2021-2-22 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有别的画师炸了吗 没有的话那就是小问题
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 32008#       发表于 2021-2-22 21:55
+
+
+
+
+感觉就是分成没谈拢吧，不然早就该有不准画18x的规定了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 32009#       发表于 2021-2-22 21:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有瓜吃了？希望大一点。
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 32010#       发表于 2021-2-22 21:57
+
+
+
+
+cover是不是以为他们的摊子已经做得跟迪○尼一样大了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32011#       发表于 2021-2-22 21:57
+
+
+
+
+没名气的画师cover还懒得找你要钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 32012#       发表于 2021-2-22 21:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该不是禁止二创，不然现在推特肯定遍地开花了
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 32013#       发表于 2021-2-22 21:58
+
+
+
+
+没人气的时候花资源搞二创活动拉人气，有人气之后就开始问继续搞二创的收钱？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么互联网平台
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32014#       发表于 2021-2-22 21:58
+
+
+
+
+能把日本人气成这样，看来还不是一般程度的脑瘫
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 32015#       发表于 2021-2-22 21:58
+
+
+
+
+水龍敬@Vtuber園長
+
+西洋の城
+
+シルクハット
+
+@mizuryu
+
+ここ半年余りカバーさんの企画に尽力しましたが、再三にわたり企業としてあり得ない対応を受けましたので、金輪際先方との関りは持ちません。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32016#       发表于 2021-2-22 22:00
+
+
+
+
+希望烟花大点<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 32017#       发表于 2021-2-22 22:01
+
+
+
+
+目前看上去是个人问题吧，看没有其他人一样反应
+
+
+
+
+
+
+
+-----
+
+####  坂田金时kin  
+##### 32018#       发表于 2021-2-22 22:03
+
+
+
+
+是alt方面的事吧，不知道因为什么谈崩了，其他都是后面拉黑删好友操作了，扯二创什么都是扯谈
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32019#       发表于 2021-2-22 22:03
+
+
+
+
+看上去应该不是版权或是下架什么的了，是半年来多次草台应对的积怨爆发<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 32020#       发表于 2021-2-22 22:05
+
+
+
+
+能不能来点大烟花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">园长爆点大料吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32021#       发表于 2021-2-22 22:06
+
+
+
+
+不管哪边有错最尴尬的还是船长，这就是大粉啊…骂运营就骂吧，希望别写什么《我脱粉XX的十个理由》<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，
+话说回来，萌木到底干嘛了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 32022#       发表于 2021-2-22 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，咱怎么看NGA那边在车空集，空集这段时间干了啥么
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 32023#       发表于 2021-2-22 22:07
+
+
+
+
+应该是禁止工口二创商品化了，船长个人同意过的被运营否决了，看现在情况可能还要园长赔钱才会这么炸<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  条野太狼  
+##### 32024#       发表于 2021-2-22 22:07
+
+
+
+
+船长歌回延迟半小时 笑嘻
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 32025#       发表于 2021-2-22 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">船长那本子不是都开始预售了么，这时候才跳出来说？
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 32026#       发表于 2021-2-22 22:10
+
+
+
+
+不允许r18同人的可能性不大吧，现在网络上还有那么多呢...
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32027#       发表于 2021-2-22 22:11
+
+
+
+
+萌木那次可是乖乖认错，水龙敬敢这么怼肯定有底气<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 32028#       发表于 2021-2-22 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50409714&amp;ptid=1969498" target="_blank">恶魔娘阿洛 发表于 2021-2-22 22:07</a>
+
+草，咱怎么看NGA那边在车空集，空集这段时间干了啥么</blockquote>
+前两天楼友们跑隔壁地盘打架，被mute以后趁楼友说不了话尼哥唱双簧输出
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32029#       发表于 2021-2-22 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好 破案了 铁血战狼隐忍到现在给木口来波大的
+
+
+
+
+
+
+QQ截图20210222221357.jpg
+(89.88 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-22 22:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/221611rx0xmitvxvaux0n5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32030#       发表于 2021-2-22 22:19
+
+
+
+
+yagoo:彩虹死佐我都未死哦
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32031#       发表于 2021-2-22 22:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+园长指名了运营，担心船的可以稍微安心下了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32032#       发表于 2021-2-22 22:22
+
+
+
+
+懒得随手借个号 去嘲讽一下在被mute的人那边唱双簧的太监了，视奸的自行当传话鸽吧。
+
+看到这消息到现在一路看情报和聊下来我真几把没心情讲什么了。。。对楼友来说水龙敬只是个普通的合作画师，对于这一年直播看下来的我来说，他也算是个资深一味了，半年以上的会员，同人图都是深度贴合直播梗，论v和人气画师合作，他和bzml我觉得是最密切之一了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 32033#       发表于 2021-2-22 22:23
+
+
+
+ 本帖最后由 oshinoshinobu 于 2021-2-22 22:37 编辑 
+
+黄漫作者能当战狼也是挺奇怪的，这就是围城吗
+
+
+不是瞎说啊，去年那事的时候水龙敬不就发声了吗，应该属于少数觉得cover应对不力的日本人了吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 屑屑代沟尼亚| + 1|我看没取关这两随手扯的 别当真.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32034#       发表于 2021-2-22 22:29
+
+
+
+
+我现在真也懒得理性分析细节了，作为一味，我现在的感受就是，cover.我日尼玛的你要怎么样啊，之前925时间的时候我就耿耿于怀bzml长期经营的舰b关系几天之内就全没了，只能说以后我会多祥林嫂一件事吧，又想到了之前自费弄企划，还有某次会限小破防说有现在不能讲清楚的事情，反正我现在情绪就是很不稳定，最近可能不适合看论坛。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32035#       发表于 2021-2-22 22:31
+
+
+
+
+气头上发的前三条语气较重的推删了，可能木口行动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32036#       发表于 2021-2-22 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50409989&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-2-22 22:31</a>
+气头上发的前三条语气较重的推删了，可能木口行动了吧</blockquote>
+与其是木口在行动，我更觉得是船长在行动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+空集说的对，Bzml确实是最尴尬的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 32037#       发表于 2021-2-22 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50409814&amp;ptid=1969498" target="_blank">屑屑代沟尼亚 发表于 2021-2-22 22:16</a>
+
+好 破案了 铁血战狼隐忍到现在给木口来波大的</blockquote>
+他好像早就关注了
+
+之前holocn的事情还想帮忙来着
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32038#       发表于 2021-2-22 22:35
+
+
+
+
+船长直播开头说了，我知道大家都想问什么，但我真的什么都不知道，运营很混乱是常态了大家都懂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                
