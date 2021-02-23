@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 04:40** 
+> ## **本文件最后更新于2021-02-23 10:39** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_qHL87" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_ed7pU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_EQzSO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_a33S3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_a8yiO" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_qFK5Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_l52Gu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_pR8tu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -12981,10 +12981,11 @@ s1有杀头的啊
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ylssb10438| + 1|草，什么每日任务|
 | Map-2| + 1|虽然不基德，但我看笑了|
 | argaregeasr|-1|别拉屎了|
 
@@ -13420,4 +13421,419 @@ https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/
 
 
 
-                          
+
+
+-----
+
+####  cheatdeath3  
+##### 32202#       发表于 2021-2-23 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413932&amp;ptid=1969498" target="_blank">opersuper 发表于 2021-2-23 11:38</a>
+
+把叔叔和猴楼放一起不管吹黑都是辱b了，体量天差地别好吗
+
+b站犯错能公关能删帖能回旋，猴楼就只有装 ...</blockquote>
+冲国就是外包区，运营是外包的，宣传是外包的，字幕组是外包的，连公关也是外包的。难怪cover一涉中就出事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 32203#       发表于 2021-2-23 12:49
+
+
+
+
+语录楼不就是s1杏奴挂nga杏奴，两边不如都快点入土
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 32204#       发表于 2021-2-23 12:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v综终于成了彻底的垃圾场了啊，可喜可贺。
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 32205#       发表于 2021-2-23 12:58
+
+
+
+ 本帖最后由 黑暗剑 于 2021-2-23 13:07 编辑 
+
+live.bilibili.com/blackboard/activity-PmTcnKHIE.html
+虹的睿站售票
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32206#       发表于 2021-2-23 13:05
+
+
+
+
+这三折票价是给切割没了吗，不敢买了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 32207#       发表于 2021-2-23 13:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹这套票比n便宜太多了 估计一堆黑幕静音 特别是flow的前夜祭 该不会把flow静音黑屏掉吧
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 32208#       发表于 2021-2-23 13:09
+
+
+
+<blockquote>NIJISANJI
+
+
+#NIJISANJI三周年#bilibili海外同步直播！
+
+2月26日～2月28日
+
+3天共计8场演唱活动日程全公开！
+
+
+*本次三周年庆典活动内容繁多，部分海外播放全力确认中。
+
+票务已做相应调整。部分NG歌曲、互动环节会做静音、画面覆盖等处理。
+
+敬请谅解。</blockquote>你b这票子一下子便宜2/3<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，有点可怕啊
+syl尼哥潭还整什么s1语录楼啊，直接把v综搬过去吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32209#       发表于 2021-2-23 13:15
+
+
+
+
+想看的节目都free了，正好省钱了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32210#       发表于 2021-2-23 13:22
+
+
+
+
+好喜欢免费节目，
+神田教能获得人气的发声技巧，
+千教写字，
+尊教喝酒，
+sky教演戏，
+绿仙教玄学
+
+真的能学到什么的感觉诶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 32211#       发表于 2021-2-23 13:43
+
+
+
+ 本帖最后由 北山玖公 于 2021-2-23 13:47 编辑 
+
+还以为瓜有啥进展的，结果是nm垃圾场大乱斗，互相糊屎玩可太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">。
+
+
+需要付钱的就一个东京复仇我比较在意，小问题小问题<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32212#       发表于 2021-2-23 14:43
+
+
+
+
+看运营的说法
+ng掉的“没有各位想象的多”
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32213#       发表于 2021-2-23 14:47
+
+
+
+ 本帖最后由 Ketestrait 于 2021-2-23 14:49 编辑 
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gnxgtua1s6j20k00snk0f.jpg" referrerpolicy="no-referrer">
+
+
+被推送标题骗进去了，结果看了发现是在说3周年fes有贝叔x口了的主题甜甜圈当然因为转线上了所以甜甜圈现在也没了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32214#       发表于 2021-2-23 14:53
+
+
+
+
+真给律师函
+
+nga没收到 肯定是因为本质杏奴团建地<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32215#       发表于 2021-2-23 15:35
+
+
+
+
+你虹给有官方入驻账号的字幕组都发了免费通票
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| FCCHua| + 1|可以的|
+| 渡鸦骑士| + 1|这点还是彩虹做的像个人|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 32216#       发表于 2021-2-23 16:06
+
+
+
+
+nga才是杏奴团建地 我们v综和隔壁都是冰清玉洁的普通观众<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32217#       发表于 2021-2-23 16:07
+
+
+
+ 本帖最后由 qq845629713 于 2021-2-23 16:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 先让入驻的v至少播几次再说吧，
+
+发点小恩小惠就想收买人心啊，
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 32218#       发表于 2021-2-23 16:20
+
+
+
+
+2000因为没蹭到葵组免费票而扭曲了起来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 32219#       发表于 2021-2-23 17:08
+
+
+
+
+#花卷好吃
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32220#       发表于 2021-2-23 18:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rage party天开歌衣他们鸡了一把
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 32221#       发表于 2021-2-23 18:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了几页，又是车咕噜，真晦气
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 32222#       发表于 2021-2-23 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望运营明盘东京复仇有没有ng歌曲
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 32223#       发表于 2021-2-23 18:36
+
+
+
+
+azki这3D瞅了半天，虽然还算好看但快想不起来这位之前有啥特征了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+就一个下眼影，加一个群友补充的齐刘海<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
