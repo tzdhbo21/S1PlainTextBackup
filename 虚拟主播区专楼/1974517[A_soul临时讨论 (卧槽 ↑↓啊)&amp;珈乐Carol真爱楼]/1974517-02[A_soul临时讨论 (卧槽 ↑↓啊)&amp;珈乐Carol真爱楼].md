@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 07:39** 
+> ## **本文件最后更新于2021-02-23 11:33** 
 
 
 
@@ -21217,7 +21217,7 @@ morning 只是只是浮躁着
 
 
 791b9960bd0134747be7a8f849ae68f0c754fda8.jpg
-(621.76 KB, 下载次数: 0)
+(621.76 KB, 下载次数: 1)
 
 
 
@@ -21578,4 +21578,642 @@ morning 只是只是浮躁着
 
 
 
-         
+
+
+-----
+
+####  王一唯不傲娇  
+##### 2708#       发表于 2021-2-23 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50416849&amp;ptid=1974517" target="_blank">Gmanager 发表于 2021-2-23 15:39</a>
+
+防人钓碗指导的话可能贝拉乃0去效果更好些，上次集美们开扣直接把嘉然干懵了忘了？
+
+
+—— 来自 S1Fu ...</blockquote>
+贝拉算了吧，贝拉虽然是队长，但是没有身为队长该有的魄力的
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2709#       发表于 2021-2-23 15:45
+
+
+
+
+#支持乃琳当队长
+
+
+
+
+
+
+
+-----
+
+####  飞雨啸寒  
+##### 2710#       发表于 2021-2-23 16:06
+
+
+
+
+当队长当然要本家的练习生啊，贝拉和珈乐你说选谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2711#       发表于 2021-2-23 16:35
+
+
+
+
+向晚播这么少肯定去加练了,毕竟唱歌跳舞全拉跨
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2712#       发表于 2021-2-23 16:48
+
+
+
+
+毕竟乐华的项目，怎么可能非练习生当队长啊，然然洗脚婢的命运不可避免<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2713#       发表于 2021-2-23 17:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">洗脚婢惹急了把你脚皮搓下来还是没问题的
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2714#       发表于 2021-2-23 17:04
+
+
+
+
+赫敏回私信了
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2715#       发表于 2021-2-23 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50417903&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-23 17:04</a>
+赫敏回私信了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回的啥
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2716#       发表于 2021-2-23 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418066&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-2-23 01:17</a>
+
+回的啥</blockquote>
+和QAQ一套说辞
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2717#       发表于 2021-2-23 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418084&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-23 17:18</a>
+
+和QAQ一套说辞</blockquote>
+糖宝收手吧，外面都是JC
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2718#       发表于 2021-2-23 17:22
+
+
+
+
+大的要来了，要被大手橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2719#       发表于 2021-2-23 17:29
+
+
+
+
+赫敏是谁？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2720#       发表于 2021-2-23 17:30
+
+
+
+
+山田赫敏，是crew<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2721#       发表于 2021-2-23 17:37
+
+
+
+
+你能不能一句话发完，“赫敏和qvq和官号说的一样”<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">别老谜语人好不好
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2722#       发表于 2021-2-23 17:39
+
+
+
+
+mk2能不能别弱智了
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2723#       发表于 2021-2-23 17:45
+
+
+
+ 本帖最后由 asd225588 于 2021-2-23 01:58 编辑 
+
+我不服啊,我也没私信她,我只私信了赫敏,为什么我被拉黑了
+
+
+<img src="https://img.saraba1st.com/forum/202102/23/014451xv9nin0wm0rzrpzp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210223_174349.jpg</strong> (81.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-23 17:44 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/23/014450kswq44ucki4i66ig.png" referrerpolicy="no-referrer">
+
+
+<strong>3LLSAR]Y2``_}0ZK%T.png</strong> (4.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-23 17:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+XMM$$)NQTCGW9A0]L9P0@FE.png
+(27.89 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-23 17:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/23/014451pz5nuec5umecnpes.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2724#       发表于 2021-2-23 17:54
+
+
+
+
+差不多得了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2725#       发表于 2021-2-23 17:54
+
+
+
+
+看到一张好图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/251440be909ee531ddf12e49bb6c0109/IMG_CMP_167237484.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2726#       发表于 2021-2-23 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418493&amp;ptid=1974517" target="_blank">Zaphikel 发表于 2021-2-23 17:54</a>
+看到一张好图</blockquote>
+哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2727#       发表于 2021-2-23 18:02
+
+
+
+ 本帖最后由 XSH97 于 2021-2-23 18:16 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2728#       发表于 2021-2-23 18:12
+
+
+
+
+8u看asoul为什么要这么精神分裂<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+一边喊着我们要正常的讨论，不要高浓度粉丝群
+
+一边竭尽全力证明mmr根本不关心这个企划，我们才是最入脑最云p的粉丝，现在已经无力回天了
+
+
+他们到底想要啥，谁能给我解惑一下<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+syl 
+
+糖宝你去私信臊皮被拉黑不是活该啊，sj一下还不够是吧，非得去跟本人说一下我挖到你了这是为了证明啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然了，微博是公共平台，挖人sj私信都是我们的权利，所以拉黑也是被挖的人的权利啦<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2729#       发表于 2021-2-23 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418672&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-23 02:12</a>
+
+8u看asoul为什么要这么精神分裂
+
+一边喊着我们要正常的讨论，不要高浓度粉丝群
+
+一边竭尽全力证明mmr ...</blockquote>
+我没私信，我只不过第一个点赞，我也只给赫敏发了两个字，加油
+
+我觉得这波我真无辜了
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2730#       发表于 2021-2-23 18:23
+
+
+
+ 本帖最后由 Hirosue 于 2021-2-23 18:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418767&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-02-23 18:21:33</a>
+
+我没私信，我只不过第一个点赞，我也只给赫敏发了两个字，加油
+
+我觉得这波我真无辜了 ...</blockquote>
+差不多吧，无非就是从关注了sj变成不关注sj而已，有什么本质区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+况且你发个私信加油，不还是在证明你挖到了，害怕困惑
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  初雪绫  
+##### 2731#       发表于 2021-2-23 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 感觉还挺累的？白天练习完还要晚班直播
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2732#       发表于 2021-2-23 18:46
+
+
+
+ 本帖最后由 音稻 于 2021-2-23 18:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418767&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-23 18:21</a>
+
+我没私信，我只不过第一个点赞，我也只给赫敏发了两个字，加油
+
+我觉得这波我真无辜了 ...</blockquote>
+不是所有人都喜欢实名上网的，而且肯定有sb直球私信整活，被拉黑不是很正常
+
+哪怕你觉得自己可以做到心照不宣 ，对面第一时间想的不是“你寄吧谁啊”
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2733#       发表于 2021-2-23 18:48
+
+
+
+
+糖，差不多就得了
+
+你无辜？我觉得人家私人账号这两天被压根不认识的人私信到爆更无辜，不是每个人都是闲出屁的冲浪大手子<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2734#       发表于 2021-2-23 18:50
+
+
+
+
+你最多到私信这一步是无辜的，让我们看到了基本上是定罪了
+溜不是罪 卖是罪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2735#       发表于 2021-2-23 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我觉得吧这种信息挖到了肯定自己独享偷着乐好吧
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2736#       发表于 2021-2-23 19:12
+
+
+
+
+魔怔人本来就多，别发出来了
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2737#       发表于 2021-2-23 19:18
+
+
+
+
+糖，你是真行，昨天说再挖是狗，今天又往贴吧一发，是让8u帮你挖是吧，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2738#       发表于 2021-2-23 19:23
+
+
+
+
+贴吧那个不是我啊
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2739#       发表于 2021-2-23 19:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50419387&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-23 19:23</a>
+
+贴吧那个不是我啊</blockquote>
+这句话我是真的蚌埠住了，不是你是vt是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
