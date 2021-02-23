@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 16:59** 
+> ## **本文件最后更新于2021-02-23 04:42** 
 
 
 
@@ -19451,4 +19451,676 @@ as的设备钱有cy的十分之一吗</blockquote>
 
 
 
-             
+
+
+-----
+
+####  M_ath  
+##### 2592#       发表于 2021-2-23 01:00
+
+
+
+
+晚指导b战关注超嘉然 3晚指导放弃嘉晚饭  选择奶0
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2593#       发表于 2021-2-23 01:35
+
+
+
+ 本帖最后由 asd225588 于 2021-2-22 09:41 编辑 
+
+一点进去点赞全是楼友和e姓雷克塞syl 赫敏小姐连夜删微博改姓别
+
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2594#       发表于 2021-2-23 01:41
+
+
+
+
+呕呕<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/3f05bfb7de41c3450339006805159afd/IMG_20210223_013944.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2595#       发表于 2021-2-23 01:43
+
+
+
+
+虽然已经入脑了，不是等QA回旋的那部分，但是也好想现在就看到QA啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+到时候这楼应该就得一百页了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Seteor  
+##### 2596#       发表于 2021-2-23 02:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50411380&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2021-2-23 01:41</a>
+呕呕
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">晦气，别发这玩意儿了
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2597#       发表于 2021-2-23 02:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50411380&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2021-02-23 01:41:25</a>
+呕呕 v2.4.3</blockquote>明天谁直播啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2598#       发表于 2021-2-23 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50411380&amp;ptid=1974517" target="_blank">斯大林的拖拉机 发表于 2021-02-23 01:41:25</a>
+呕呕 v2.4.3</blockquote>明白了，属实晦气<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">非要给主播整破防是吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2599#       发表于 2021-2-23 02:32
+
+
+
+
+怎么热衷于发掘这种东西...结果要是发现人家只不过是以工作的心态应付臭宅男，最后的结果是不是又要自顾自的破防了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2600#       发表于 2021-2-23 02:54
+
+
+
+
+明天有直播？
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2601#       发表于 2021-2-23 04:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50411526&amp;ptid=1974517" target="_blank">是谁的书画 发表于 2021-02-23 02:32:41</a>
+怎么热衷于发掘这种东西...结果要是发现人家只不过是以工作的心态应付臭宅男，最后的结果是不是又要自顾自 ...</blockquote>客观来说，本来就应该是这样，看节目看个乐不上脑就行，上脑了就会给自己催眠了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2602#       发表于 2021-2-23 06:41
+
+
+
+
+
+八月,asoul企划的第九个月.然然早已与自己的职业和解.
+
+被囚于闷热的动捕服,在拥挤的演播室表演.是自己作为虚拟偶像能做到的全部了
+
+
+九个月了,企划越做越大,但增量终归是没有达到预期.
+
+作为追梦少女,然然也曾期望过成为闪耀的偶像.
+
+当得知自己将作为虚拟偶像出道时,然然也很开心,成为偶像的实感让她沉浸在喜悦中.
+
+她哭过,她笑过,为了粉丝与运营争吵过.
+
+最初的一切都是那么美好.
+
+
+但,隔着屏幕的应援又能给人带来多少实感呢?回应然然的始终只有导播,提词器,与小屏幕,
+
+然然很内向,面对导播的铁棍与斥责只能忍受,然然视力不太好,看不清小屏幕里的应援弹幕.
+
+在企划的第四个月,然然开始质疑自己偶像的身份.同月,嘉心糖们的私信再也没有了回应.
+
+
+四月,
+
+制作人宣布需要增加全平台的直播时间.加班越来越频繁,下班越来越晚.
+
+
+五月,
+
+奶琳不在参与直播,制作人解释她去专职做as的电台企划了.
+
+
+六月,
+
+咖乐在某次假期后再也没有回来,同时制作人收走了剩余三人的手机.
+
+这个月的所有直播,然然都面对着铺天盖地的谩骂,然然不想去看弹幕,然然只想做偶像
+
+
+七月.
+
+在某次斗舞直播后,向晚请了长假,制作人的说法是向晚练舞受伤了,需要养伤.
+
+但嘉然也知道,自己的不算偶像的偶像生涯大概也快结束了.
+
+
+八月.
+
+贝拉 vs 嘉然 12小时耐久斗舞直播, 直播开始1个小时便草草的结束.
+
+长期穿着动捕服的嘉然因为体液久闷导致肾脏衰竭,终究是倒下了
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2603#       发表于 2021-2-23 08:48
+
+
+
+<blockquote>斯大林的拖拉机 发表于 2021-2-23 01:41
+呕呕
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
+这是b综楼主？最早从nga三酱楼就被骂傻逼的人
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2604#       发表于 2021-2-23 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412195&amp;ptid=1974517" target="_blank">岛田开 发表于 2021-2-23 08:48</a>
+这是b综楼主？最早从nga三酱楼就被骂傻逼的人</blockquote>
+这是糖宝
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 2605#       发表于 2021-2-23 08:58
+
+
+
+<blockquote>人別離苦 发表于 2021-2-23 08:49
+这是糖宝</blockquote>
+草，这人和vi有仇啊，乐了，管人粉丝的人际关系真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  基神的强袭自由  
+##### 2606#       发表于 2021-2-23 09:39
+
+
+
+
+话说有没有网盘录播链接啊，之前忘记存了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2607#       发表于 2021-2-23 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407801&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-22 18:30</a>
+看个LPL弹幕一堆嘉然</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2608#       发表于 2021-2-23 10:16
+
+
+
+[https://b23.tv/FWkym8](https://b23.tv/FWkym8)
+
+8u写的长专栏记录<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2609#       发表于 2021-2-23 10:27
+
+
+
+
+我的评价:cbddl <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2610#       发表于 2021-2-23 10:29
+
+
+
+
+呜呜呜，心碎的时候才知道自己原来是mmr<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2611#       发表于 2021-2-23 10:41
+
+
+
+
+我的评价是:1月入坑也算老粉？😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2612#       发表于 2021-2-23 11:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/23/111222pd3vhtf9hg57x7x7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG20210223024308.jpg</strong> (36.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-2-23 11:12 上传
+
+
+
+
+
+魔怔人不管是谁都讨厌
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2613#       发表于 2021-2-23 11:21
+
+
+
+
+我看了首播的，我也是老粉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+一眼就喜欢上然然了，血统纯正<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2614#       发表于 2021-2-23 11:36
+
+
+
+
+这就是暴风雨前的宁静吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">到时候能不能来个大的
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2615#       发表于 2021-2-23 11:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">这批入脑人好惨啊，破防最深还走哪儿都被嫌弃。
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2616#       发表于 2021-2-23 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50414100&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-23 11:50</a>
+
+这批入脑人好惨啊，破防最深还走哪儿都被嫌弃。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">爱有多深 伤有多痛
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2617#       发表于 2021-2-23 12:00
+
+
+
+
+不管是他们自己破防还是运营骗了他们，都不能赋予他们冲直播间的正义性<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2618#       发表于 2021-2-23 12:07
+
+
+
+
+b综楼主是vt改名字了吗
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2619#       发表于 2021-2-23 12:10
+
+
+
+
+看到“我们确实是看运营”就不想往下看了。
+你看运营那你心碎不是活该吗。
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2620#       发表于 2021-2-23 12:10
+
+
+
+
+差不多得了，粉丝经济讲正义性有个吊用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+乐府大战六六那次有句话还是蛮典的:“没有什么具体定义，粉丝觉得你私联了那你就是私联”
+只要贴吧入脑人还占据粉丝主体，运营就只有低头认错一条活路，粉丝觉得你有错那你就有错，有什么道理可讲的？要么就引流mmr腾笼换鸟，那就看运营本事了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2621#       发表于 2021-2-23 12:26
+
+
+
+
+来了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2622#       发表于 2021-2-23 12:26
+
+
+
+
+此后，小姐姐们将在个人闲谈直播中集中回复大家的留言、观看转发二创，而直播之外将不再进行相关互动。
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 2623#       发表于 2021-2-23 12:26
+
+
+
+
+那个长专栏记录也是醉了，突出一个引流动物园，车直播间锅都是主播和运营的，为什么有些人混在这种混沌的环境里，还能觉得自己冰清玉洁
+
+
+
+
+
+
+
+-----
+
+####  crystalmacarons  
+##### 2624#       发表于 2021-2-23 12:30
+
+
+
+
+直播外不互动，增加直播次数
+是好文明
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2625#       发表于 2021-2-23 12:32
+
+
+
+
+直播互动真能行吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">99+ 
+
+
+
+
+
+
+
+-----
+
+####  雪空  
+##### 2626#       发表于 2021-2-23 12:36
+
+
+
+
+目前，该同事的B站账号已被恶意攻击充斥，其中不乏号召及进行人肉搜索的违法违规行为，在此，我们特别呼吁，请即刻停止人肉等违法违规行为，勿将非A-SOUL工作人员卷入不必要的争端、以免带来更多伤害。
+
+
+
+
+
+            

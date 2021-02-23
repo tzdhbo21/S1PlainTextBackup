@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 02:40** 
+> ## **本文件最后更新于2021-02-23 04:40** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_nQ2ZW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_qHL87" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_k6oN6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_h6EQo" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_Pmbb6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_EQzSO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_a33S3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_a8yiO" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -12262,10 +12262,1162 @@ dd全跑了，留下来的杏奴憎叔叔却喜二叔
 
 
 
-一晚怎么就车轱辘回b站了，这事八杆子打不着吧
+过一晚就车轱辘回b站了，这事八杆子打不着吧。
 
 
 
 
 
-                            
+
+
+-----
+
+####  十九号大侠  
+##### 32139#       发表于 2021-2-23 10:47
+
+
+
+
+围b救杏？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 32140#       发表于 2021-2-23 10:48
+
+
+
+ 本帖最后由 バーチャルS1er 于 2021-2-23 10:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413111&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-2-23 10:34</a>
+
+不过话说回来引用楼宝当年的名言，杏就是血厚，运营三天一小炸五天一大炸照样苟得下去 ...</blockquote>
+一个网红组织、不炸到根本不就是越来越火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+真能让杏过不下去还是得看我Uto那种食杀多来几十位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  赞美太阳  
+##### 32141#       发表于 2021-2-23 10:50
+
+
+
+
+结束纷争的办法之一——寻找外敌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 32142#       发表于 2021-2-23 10:53
+
+
+
+
+到底是哪边先提的叔叔，我蒙古啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32143#       发表于 2021-2-23 10:58
+
+
+
+
+cue叔叔的差不多得了，谷乡真有叔叔的靠山v综已经没了，明贬暗吹不可取
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 32144#       发表于 2021-2-23 11:00
+
+
+
+
+原来b站是fh网站吗？这我还真不知道，毕竟我不像一些人荤素不忌，什么屎都吃，说起来沈逸之类的也是b站用户，这么说沈逸是fh网站的用户？三月底之前他还会在b站直播，有没有有心人去沈逸评论区给他扣个fh网站主播的帽子？不敢吗？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32145#       发表于 2021-2-23 11:02
+
+
+
+
+pxj别jjyy的，有本事就去洗共c共q
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32146#       发表于 2021-2-23 11:03
+
+
+
+
+拳头打出去就是"合理的商业行为"，收回来就是"群众的自发组织"。看了无数遍，骂了无数次的剧本，到今天还在发生。有人在拉偏架，但我不说是谁。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32147#       发表于 2021-2-23 11:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 楼友还是够车轱辘，几个人员都不变的，看不出新意了，很难这种时候还有兴趣去论b是个什么东西。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32148#       发表于 2021-2-23 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413060&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-2-23 10:30</a>
+
+说到底木口为了贪点名气找个海里出名的画师+推特吵架王当人设就够蠢的了，官方（包括船长）早该离画黄本的 ...</blockquote>
+兔子妈就是海里的，建议一刀两断嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32149#       发表于 2021-2-23 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413415&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-2-23 11:02</a>
+
+pxj别jjyy的，有本事就去洗共c共q
+
+
+ -- 傲娇地来自 Stage1未知客户端</blockquote>
+缴税，提供岗位，党媒入驻
+
+它不爱国谁爱国，你还是cover?
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 32150#       发表于 2021-2-23 11:12
+
+
+
+
+有什么好洗gcgq的？去骂啊，骂的不够难听我看不起你，要不要我跟一起骂？我花样多。然后我骂cover和旗下女主播的时候杏奴也跟上吗？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32151#       发表于 2021-2-23 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413525&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-2-23 11:11</a>
+ 缴税，提供岗位，党媒入驻 它不爱国谁爱国，你还是cover?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你b现在还留着你们钦定的fh主播的官方账号呢，他不fh谁fh
+顺便pxj到底能不能给个共c共q的解释啊
+
+
+
+
+
+
+
+-----
+
+####  Prushka  
+##### 32152#       发表于 2021-2-23 11:13
+
+
+
+<img src="http://tva1.sinaimg.cn/large/007WH5Y2ly1gnxaijxa7aj30qy07dwg0.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟整改之后没发公告更没向楼友汇报，自然不算数的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32153#       发表于 2021-2-23 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413549&amp;ptid=1969498" target="_blank">theloved 发表于 2021-2-23 11:12</a>
+ 有什么好洗gcgq的？去骂啊，骂的不够难听我看不起你，要不要我跟一起骂？我花样多。然后我骂cover和旗下女 ...</blockquote>
+来，骂一段b给大家看看啊，cover傻逼我天天骂呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| xnlyt|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32154#       发表于 2021-2-23 11:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“强烈谴责”往屎上泼脏水的行为
+
+
+
+
+
+
+
+-----
+
+####  Prushka  
+##### 32155#       发表于 2021-2-23 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413552&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-2-23 11:12</a>
+
+你b现在还留着你们钦定的fh主播的官方账号呢，他不fh谁fh
+
+顺便pxj到底能不能给个共c共q的解释啊 ...</blockquote>
+<img src="http://tvax3.sinaimg.cn/large/007WH5Y2ly1gnxapihk45j30pm0eegow.jpg" referrerpolicy="no-referrer">
+
+可不敢乱扣帽子
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32156#       发表于 2021-2-23 11:16
+
+
+
+
+悲报，园长被律师含了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32157#       发表于 2021-2-23 11:16
+
+
+
+ 本帖最后由 poipanchao 于 2021-2-23 11:18 编辑 
+
+楼友抓着这个词不放的样子真的很靓仔
+s1有杀头的啊
+
+我记着当初这个词出来的时候，是用在月球相关的一个活动上？可能记混了，不确定
+当时看到过说法是内斗，网站运营这边眼红，想恶心游戏部门。
+
+突然想起这个事就提一下，感叹一下
+当时的弦还没现在这么紧，b站也还是个小废物，很多现在看来傻逼的事情也就那么过去了。这个词出来的时候，网络上都没啥大水花，换现在就不一定咯
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32158#       发表于 2021-2-23 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413552&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-2-23 11:12</a>
+
+你b现在还留着你们钦定的fh主播的官方账号呢，他不fh谁fh
+
+顺便pxj到底能不能给个共c共q的解释啊 ...</blockquote>
+钦定fh主播账号已经不出视频了。文案当然是临时工的锅，这种罪状一摘就掉，总比直播出现上位の国好洗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ZUOUZU  
+##### 32159#       发表于 2021-2-23 11:17
+
+
+
+
+走，大伙跟我去漫区b黑楼摇人
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 32160#       发表于 2021-2-23 11:18
+
+
+
+
+不会真有pxj吧，快进到反杏是工作，反b是信仰
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32161#       发表于 2021-2-23 11:20
+
+
+
+
+园长推特删了？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+杏:加强体制(指法务部)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32162#       发表于 2021-2-23 11:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/23/112109eppgmy5uokl1mufu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C03711A5-99CF-4747-B833-1E023616B5F7.jpeg</strong> (48.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-23 11:21 上传
+
+
+
+
+
+
+巧了，这也有个签约主播
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32163#       发表于 2021-2-23 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 人都说了，只是把404后台发出来，是404的错
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 32164#       发表于 2021-2-23 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏奴大战b小将现场？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32165#       发表于 2021-2-23 11:22
+
+
+
+ 本帖最后由 poipanchao 于 2021-2-23 11:25 编辑 
+
+楼友抓着b站黑的样子味道太对了
+可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32166#       发表于 2021-2-23 11:24
+
+
+
+
+虽然杏奴舔杏的时候很狼狈，但他们跳脚的样子真的很靓仔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32167#       发表于 2021-2-23 11:24
+
+
+
+
+我觉得大家其实有共同语言的，有人看不惯b，有人看不惯杏，大家四舍五入一下，一起想办法让b把不该有的签约主播干掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 32168#       发表于 2021-2-23 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 32169#       发表于 2021-2-23 11:25
+
+
+
+
+围b救杏也太乐了吧
+
+这楼里英断无伤气息怎么跟4V阴间坛似的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Albaze  
+##### 32170#       发表于 2021-2-23 11:25
+
+
+
+
+楼友为了证明“你吃的💩比我吃的更臭”据理力争的样子挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32171#       发表于 2021-2-23 11:26
+
+
+
+
+好歹抓着虹黑啊
+抓着b黑有啥用
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32172#       发表于 2021-2-23 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"就算cover有99%的错，难道阿B就没1%的责任吗"
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 32173#       发表于 2021-2-23 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413578&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-2-23 11:14</a>
+来，骂一段b给大家看看啊，cover傻逼我天天骂呢</blockquote>
+我没说过b站和cover都是屎？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32174#       发表于 2021-2-23 11:28
+
+
+
+
+确实是围b救杏，我上当了，本来大家都在开开心心踩杏，看到吹b的我没忍住，着了pxj的道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32175#       发表于 2021-2-23 11:30
+
+
+
+
+天天拿cover和批站比，谷乡看到真的要笑麻了。
+
+
+
+
+
+
+
+-----
+
+####  66367749  
+##### 32176#       发表于 2021-2-23 11:31
+
+
+
+
+还是泥潭杏奴有意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32177#       发表于 2021-2-23 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这我就不得不提一句当初魔都迪士尼事件了
+
+
+错也是当时小孩、家长的错，
+
+
+我认为月丿只是把这件事说出来嘲笑罢了，并没有错
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|虽然不基德，但我看笑了|
+| argaregeasr|-1|别拉屎了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 32178#       发表于 2021-2-23 11:38
+
+
+
+
+我感觉ALT是杏今后的重中之重，关呼发展新战略。不想在一棵树上吊着也有可能。以后谁的二创反响热烈，主页就推广谁。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 32179#       发表于 2021-2-23 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把叔叔和猴楼放一起不管吹黑都是辱b了，体量天差地别好吗
+
+b站犯错能公关能删帖能回旋，猴楼就只有装死大变申和孝子孝孙洗地了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32180#       发表于 2021-2-23 11:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">合理怀疑泥潭人士这是帆船pxj 味也太冲了8，管人吹黑就管人吹黑吧，不知现在在干嘛
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 32181#       发表于 2021-2-23 11:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">2000又拉屎
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32182#       发表于 2021-2-23 11:40
+
+
+
+
+2000你知道错就好，下次拉的时候记得去厕所
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32183#       发表于 2021-2-23 11:40
+
+
+
+
+这从头到尾没说过cover一句好话，就因为说了下b不是好东西，pxj就要跳出来各种莫名其妙的护，我是真的想不通啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32184#       发表于 2021-2-23 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50413523&amp;ptid=1969498" target="_blank">asdhai 发表于 2021-2-23 11:10</a>
+兔子妈就是海里的，建议一刀两断嗷</blockquote>
+兔妈这个例子很好，木口非要找下海的就应该找这种人气一般的女性画师，还不会画兔子黄图的。
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 32185#       发表于 2021-2-23 11:42
+
+
+
+
+乐死，nga已经有s1语录楼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| opersuper| + 1|s1地位史高|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32186#       发表于 2021-2-23 11:43
+
+
+
+
+互联网想说服对方是很蠢的一件事，扣帽子和屁股大战开心多了。楼里某个老杏奴脑子抽了才在这里和舔b站腚眼子的人汴京。
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32187#       发表于 2021-2-23 11:44
+
+
+
+
+每当楼内走向奇怪，2000就出面用一泡屎化解危机。
+2000，你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 32188#       发表于 2021-2-23 11:48
+
+
+
+
+当初究竟是谁第一个说拉屎小孩是2000的，太毒了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 32189#       发表于 2021-2-23 11:51
+
+
+
+
+别S1语录了，S1V版大部分都是NGA赶过来的人，nga还搞个S1语录自演臭太重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32190#       发表于 2021-2-23 11:52
+
+
+
+
+蝗还有9W粉阿？
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 32191#       发表于 2021-2-23 11:52
+
+
+
+
+怎么🔒来的这么快啊 乐子没了 呜呜
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 32192#       发表于 2021-2-23 11:54
+
+
+
+
+编辑一下 怎么发了两条
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32193#       发表于 2021-2-23 12:02
+
+
+
+
+找了半天没看见楼，原来锁了真是遗憾。泥哥要不来s1发个帖，这里不锁
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32194#       发表于 2021-2-23 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 被🔒前我去看了下 发现楼友很多巨魔帆船也给列进去了 甄别能力不行，这样搞不🔒要变渔场了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 32195#       发表于 2021-2-23 12:04
+
+
+
+
+这发语录，管他是钓鱼还是啥，越睿智越好
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32196#       发表于 2021-2-23 12:06
+
+
+
+[https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/](https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/)
+
+做彩虹翻唱每周统计的，上次看只是把做的每周统计删了，
+
+这次是彻底把频道删了。
+
+我还是对着时光机才搞懂这个是谁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 32197#       发表于 2021-2-23 12:09
+
+
+
+
+泥哥能不能来屎绿色论坛VTB版开一个屎绿色论坛VTB版经典语录鉴赏<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32198#       发表于 2021-2-23 12:10
+
+
+
+
+那泥哥又不会交五块钱 最后还是楼友挂楼友
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32199#       发表于 2021-2-23 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50414319&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-2-23 12:06</a>
+https://www.youtube.com/channel/UCP9eJUjCnfFu0Mg3HVTCEng/
+
+做彩虹翻唱每周统计的，上次看只是把做的每周 ...</blockquote>
+频道其实炎上后一天就删了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 32200#       发表于 2021-2-23 12:14
+
+
+
+
+几个楼友也不脱掉衣服肉搏，只会cosplay批小将搅屎，比较没劲
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32201#       发表于 2021-2-23 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50414385&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-2-23 12:12</a>
+
+频道其实炎上后一天就删了</blockquote>
+是这样吗？在我的记忆里流程还挺长的来着，先是看到争吵，我去看频道是还在，但是每周统计视频都没了，
+
+然后就是现在彻底删频道了，
+
+是我看到后不久就彻底删了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
