@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 05:35** 
+> ## **本文件最后更新于2021-02-23 07:39** 
 
 
 
@@ -20762,4 +20762,820 @@ A：诚恳地说，我们尊重每个小伙伴评论的权利，对于批评建�
 
 
 
-           
+
+
+-----
+
+####  Hirosue  
+##### 2664#       发表于 2021-2-23 13:39
+
+
+
+
+然然肯定不忍心用铁棍打这个啥b运营<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">我的然然
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2665#       发表于 2021-2-23 13:41
+
+
+
+
+然然你好温柔，我的天使<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2666#       发表于 2021-2-23 13:43
+
+
+
+
+然然就是个端水洗脚的还用铁棍打人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+不被打就算好了
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2667#       发表于 2021-2-23 13:47
+
+
+
+<blockquote>聪明墨菲特 发表于 2021-2-23 13:26
+然然太惨了，除了神回都要被骂，春节直播运营不在嗨了一回还要被说吵v8蛆没有心
+
+
+—— 来自 HUAWE ...</blockquote>
+呜呜呜 然然 我的然然
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2668#       发表于 2021-2-23 13:52
+
+
+
+
+耶稣是上帝取了肉身，他是无罪的人。罪人的死是应当的，因为罪所带来的代价就是死亡。但是耶稣确实无罪的人，他不应该死，却为了代替罪人而死了。上帝使耶稣基督代替世人被钉死在十字架上，承担偿付了罪人的罪责，就是成为我们的赎罪祭，满足了上帝对罪必然要作的惩罚。因此耶稣成为人神中间的桥、让我们与上帝和好，人靠自己不能解救自己，却只靠着相信耶稣的受难来赎罪<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鳳凰院クレア  
+##### 2669#       发表于 2021-2-23 13:52
+
+
+
+
+然然承受太多了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer"> 不过增加直播频率确实是好文明，减少观众发病周期
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2670#       发表于 2021-2-23 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">贝拉能不能再回我一次
+
+—— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2671#       发表于 2021-2-23 13:57
+
+
+
+
+看泥哥楼 经常有“问下大伙现在什么风向”“问下大家现在是回旋？”这种评论
+**看个虚拟偶像都没有个自己的态度，不用自己的大脑去思考，你这辈子一事无成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2672#       发表于 2021-2-23 13:58
+
+
+
+
+泥哥不就是这样吗屁股决定脑袋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2673#       发表于 2021-2-23 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50415282&amp;ptid=1974517" target="_blank">テロメア 发表于 2021-2-23 13:30</a>
+我觉得虚拟偶像的优势在于，分工（创作）&amp;分担（风险）
+
+所以被观众逼着开倒车回归稳态的做法，还是略微失望 ...</blockquote>
+现阶段的粉丝画像就这样，维稳是最好的选择吧，企划才出道3个月而已
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2674#       发表于 2021-2-23 14:01
+
+
+
+
+算拉回来了，一一回应是好事。
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2675#       发表于 2021-2-23 14:03
+
+
+
+
+破防可是会传染的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 2676#       发表于 2021-2-23 14:04
+
+
+
+
+多数人本来就都是这样，很容易被环境左右看法的，所以社区风气重要啊
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2677#       发表于 2021-2-23 14:07
+
+
+
+
+好想要晚晚回我评论啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">每次动态我都回的很早
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2678#       发表于 2021-2-23 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50415678&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-23 14:07</a>
+
+好想要晚晚回我评论啊每次动态我都回的很早
+
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 S1Next-鹅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抖音好像回得挺多的 去过那了吗
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 2679#       发表于 2021-2-23 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer"> 该回的都回了,早点回复就好了,发酵那么久
+
+
+
+
+
+
+
+-----
+
+####  XSH97  
+##### 2680#       发表于 2021-2-23 14:10
+
+
+
+ 本帖最后由 XSH97 于 2021-2-23 14:11 编辑 
+
+媒体众口难调是正常，都不可能一碗水端平，只能说尽量做好。但高要求也导致高互动。你达到要求了，那另一方回应和投入更足。
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2681#       发表于 2021-2-23 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50415690&amp;ptid=1974517" target="_blank">非洲亚马逊鼓手 发表于 2021-2-23 14:08</a>
+抖音好像回得挺多的 去过那了吗</blockquote>
+抖音有没有什么特别关注推送什么的，每次看到都过了很久了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2682#       发表于 2021-2-23 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50415709&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-23 14:10</a>
+
+抖音有没有什么特别关注推送什么的，每次看到都过了很久了
+
+
+—— 来自 HUAWEI PCT-AL10, Android  ...</blockquote>
+抖音更新时间挺规律的，一般都是下午5点左右？
+
+不过近期只有晚晚的互动最积极，抢个前排发点能回的就行
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2683#       发表于 2021-2-23 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只有我不是认知厨吗
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2684#       发表于 2021-2-23 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50415709&amp;ptid=1974517" target="_blank">聪明墨菲特 发表于 2021-2-23 14:10</a>
+
+抖音有没有什么特别关注推送什么的，每次看到都过了很久了
+
+
+—— 来自 HUAWEI PCT-AL10, Android  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">好像有个下次更新提醒的 
+
+
+一般要发都是下午5点左右发 
+
+
+
+
+
+
+
+-----
+
+####  鳳凰院クレア  
+##### 2685#       发表于 2021-2-23 14:15
+
+
+
+
+晚晚的回复确实挺积极的。以前，B站的私信都大概率回复的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 2686#       发表于 2021-2-23 14:21
+
+
+
+
+晚晚和顶碗人很适合这首歌
+[https://www.bilibili.com/video/BV1AZ4y1u7KW](https://www.bilibili.com/video/BV1AZ4y1u7KW)
+
+
+A part <blockquote>loadingで進まない毎日
+
+loading每日都停滞不前
+
+上品が似合わない my lady
+
+并不适合雅致的 my lady
+
+morning　ただただ浮ついて
+
+morning 只是只是浮躁着
+
+日中も淡い夢を見る
+
+白日里也做着浅淡的美梦
+
+ねぇ　今夜は急いで行く
+
+今晚我要急着赶去
+
+愛情に満たされる日
+
+被爱情所填满的日子
+
+二人　静かに
+
+两个人 静静的</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2687#       发表于 2021-2-23 14:35
+
+
+
+
+节目单出了 
+
+
+
+
+
+
+791b9960bd0134747be7a8f849ae68f0c754fda8.jpg
+(621.76 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-23 14:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/23/143458yzx9zwdx5xfmgrt9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  mystletainn  
+##### 2688#       发表于 2021-2-23 14:35
+
+
+
+
+我还没私信过别人 感觉乃琳挺容易回复的 可能私信的人不多吧
+
+
+
+
+
+
+
+-----
+
+####  王一唯不傲娇  
+##### 2689#       发表于 2021-2-23 14:37
+
+
+
+
+果然改成一晚上两场一次一小时了啊。。。不过周六那个团播是什么性质
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2690#       发表于 2021-2-23 14:39
+
+
+
+
+拍小视频的时间少了是重心转移到b站了吗
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2691#       发表于 2021-2-23 14:39
+
+
+
+
+单人solo的话 2小时确实偏长了点 很吃节目 
+
+
+
+
+
+
+
+-----
+
+####  luoy  
+##### 2692#       发表于 2021-2-23 14:43
+
+
+
+
+晚晚<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2693#       发表于 2021-2-23 14:43
+
+
+
+
+晚指导不会真的是带资进组吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2694#       发表于 2021-2-23 14:45
+
+
+
+
+晚晚没有单人直播了，果然版本op都无法逃脱下个版本被砍的命运
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2695#       发表于 2021-2-23 14:47
+
+
+
+
+晚晚真是大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有丫鬟陪是吧
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 2696#       发表于 2021-2-23 14:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">晚晚回过我私信 评论 还捡过我的弹幕  
+
+贝拉什么都没回过 但我还是贝极星啊<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2697#       发表于 2021-2-23 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">贝拉什么都没回过 但我还是贝极星啊
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2698#       发表于 2021-2-23 14:55
+
+
+
+
+认知厨天天惦记着那点私信干吊 直播回私信也太寄吧无聊了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2699#       发表于 2021-2-23 14:57
+
+
+
+
+然然超级加班 好诶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2700#       发表于 2021-2-23 15:00
+
+
+
+
+直播看点二创还行 看私信还是溜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 2701#       发表于 2021-2-23 15:01
+
+
+
+
+这波是回归偶像运营模式啊，对企业来说是好事啊。asoul这个项目从一开始就和歌姬这种传统偶像运营不一样，有点杂交了liver和偶像的意思，如果是歌姬那种高高在上低互动的模式也不会有这么高的人气。
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 2702#       发表于 2021-2-23 15:04
+
+
+
+
+然然连上四天班，<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">然然，我的然然
+怎么不每天播
+向晚：过阵子来赛博朋克
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2703#       发表于 2021-2-23 15:05
+
+
+
+
+你以为向晚是大小姐，其实向晚是嘉然的洗脚婢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2704#       发表于 2021-2-23 15:10
+
+
+
+
+晚指导一个人播容易被钓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+来个人一起播比较好
+
+
+
+
+
+
+
+-----
+
+####  飞雨啸寒  
+##### 2705#       发表于 2021-2-23 15:21
+
+
+
+
+晚晚双人播效果也挺好，嘉然乃琳都不错
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2706#       发表于 2021-2-23 15:35
+
+
+
+
+我一直是嘉晚饭啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2707#       发表于 2021-2-23 15:39
+
+
+
+
+防人钓碗指导的话可能贝拉乃0去效果更好些，上次集美们开扣直接把嘉然干懵了忘了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+         
