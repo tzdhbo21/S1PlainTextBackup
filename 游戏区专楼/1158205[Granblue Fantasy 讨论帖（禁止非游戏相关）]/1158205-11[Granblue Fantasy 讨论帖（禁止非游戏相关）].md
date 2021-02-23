@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 02:37** 
+> ## **本文件最后更新于2021-02-23 01:16** 
 
 
 
@@ -725,4 +725,408 @@ lm季限齐玩土，不然玩暗
 
 
 
-                                                
+
+
+-----
+
+####  kiralzb  
+##### 15041#       发表于 2021-2-18 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50350781&amp;ptid=1158205" target="_blank">windhawind2 发表于 2021-2-17 01:12</a>
+
+功利点（指猎金）的话 目前是暗土一档 火次之 然后风水光这样
+
+暗老王优点是成型便宜 人物要么免费肝要么 ...</blockquote>
+我看了几个属性的老王攻略，土的几个关键限定我有，氪金武器也没啥问题，非氪金的才是真的头大
+
+路西法武器的三阶我这种死鱼玩家怎么可能打过<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+新的龙武器舔了十几次感觉还行，比方阵2.0那垃圾蓝箱系统好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 15042#       发表于 2021-2-18 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364238&amp;ptid=1158205" target="_blank">kiralzb 发表于 2021-2-18 12:08</a>
+我看了几个属性的老王攻略，土的几个关键限定我有，氪金武器也没啥问题，非氪金的才是真的头大
+
+路西法武 ...</blockquote>
+打不过可以550勋章换三阶法大礼包 就是贤者只能躺着等送玉髓了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15043#       发表于 2021-2-18 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364238&amp;ptid=1158205" target="_blank">kiralzb 发表于 2021-2-18 12:08</a>
+ 我看了几个属性的老王攻略，土的几个关键限定我有，氪金武器也没啥问题，非氪金的才是真的头大 路西法武 ...</blockquote>
+550勋章换 爽到
+
+
+
+
+
+
+
+-----
+
+####  冰原狼  
+##### 15044#       发表于 2021-2-18 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50364238&amp;ptid=1158205" target="_blank">kiralzb 发表于 2021-2-18 12:08</a>
+我看了几个属性的老王攻略，土的几个关键限定我有，氪金武器也没啥问题，非氪金的才是真的头大
+
+路西法武 ...</blockquote>
+去共斗开拳皇招募房啊，虽然不知道通过率如何就是了
+标题写ルシHL デスラー理解者募
+进门看人到齐了给个盾就可以音乐鉴赏了
+
+
+
+
+
+
+
+-----
+
+####  ichirukia1566  
+##### 15045#       发表于 2021-2-18 16:36
+
+
+
+
+这六龙素材真的难农，救援掉率也太低了…昨天刚把火星幽的黑剑整好，结果卡六龙素材。单人一天就能打两把（而且我的残废水队只能小马走路刮痧），多人一天自发一把，加一起大概有8个左右。去打救援的，又堵车，还不掉。唯一的慰藉是基本稳定出杯子和玻璃球<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ichirukia1566  
+##### 15046#       发表于 2021-2-18 16:43
+
+
+
+
+说到拳皇放置房，昨天晚上我还看到两个日本人开房喷的。最近是太多了点，昨天12点左右大概一共就一页多点共斗房，可能一大半都是拳皇放置。
+社恐但不怕麻烦的话可以去蹲推特上的残血救援。有的是solo崩了，有的可能是慈善的。保证角色3w血就行，进去按点伤害技能，会有人收了的。
+
+
+
+
+
+
+
+-----
+
+####  Mitka  
+##### 15047#       发表于 2021-2-18 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50367327&amp;ptid=1158205" target="_blank">ichirukia1566 发表于 2021-2-18 16:36</a>
+这六龙素材真的难农，救援掉率也太低了…昨天刚把火星幽的黑剑整好，结果卡六龙素材。单人一天就能打两把（ ...</blockquote>
+火龙设计的傻，掉落差，水队又没有中低配打拳配置
+换风龙水龙，分分钟冲进来几个大汉给你收了
+
+
+
+
+
+
+
+-----
+
+####  ichirukia1566  
+##### 15048#       发表于 2021-2-18 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50368357&amp;ptid=1158205" target="_blank">Mitka 发表于 2021-2-18 18:17</a>
+火龙设计的傻，掉落差，水队又没有中低配打拳配置
+换风龙水龙，分分钟冲进来几个大汉给你收了 ...</blockquote>
+水龙我不常打，因为土队也不咋地。风龙确实人挺多。我自己是火老王，看到有救援一般都进去打两拳，残血的那种有时候偷跑完就死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15049#       发表于 2021-2-19 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">4妹这个110级强化可太爽叻
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15050#       发表于 2021-2-19 18:43
+
+
+
+
+之前谁问进境法还是浑身法来着<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15051#       发表于 2021-2-19 20:35
+
+
+
+
+水方爽了老王可能还要等一个进境<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15052#       发表于 2021-2-20 05:27
+
+
+
+
+下一个LM就是水进境.jpg
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15053#       发表于 2021-2-20 09:10
+
+
+
+
+现在3阶法很容易获得了啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15054#       发表于 2021-2-20 11:52
+
+
+
+
+水方出什么大事了吗（看着手上准备砸钢的lm武器
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15055#       发表于 2021-2-20 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385289&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-2-20 11:52</a>
+
+水方出什么大事了吗（看着手上准备砸钢的lm武器
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+1104奥义追加一割追伤，因为是奥義枠所以和目前章鱼割草常用的杖职主手进境法冲突了（虽然割草好像也不带4，现在可以带了到是），
+
+
+比较尴尬的一点是，脱离主手法武支持萌王开书会变卡（浑身法主手奥义效果太差），而且章鱼现在还没有优质的进境（lm）..所以其实，还是带方阵浑身法割草吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+相比之下水方因为法武只能选浑身，4的追伤倒是放在割草环境也是很大的增强了，毕竟水方现在也是带龙枪的
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15056#       发表于 2021-2-22 13:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385900&amp;ptid=1158205" target="_blank">peh 发表于 2021-2-20 12:52</a>
+
+1104奥义追加一割追伤，因为是奥義枠所以和目前章鱼割草常用的杖职主手进境法冲突了（虽然割草好像也不带 ...</blockquote>
+1104的主场肯定是150
+
+这150能不能用武僧都是个问号
+
+到时候老男人能不能去也是个问号
+
+可能这就是章鱼佬的余裕吧。
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15057#       发表于 2021-2-22 23:14
+
+
+
+<blockquote>phoenixxj 发表于 2021-2-22 13:21
+1104的主场肯定是150
+
+这150能不能用武僧都是个问号
+
+到时候老男人能不能去也是个问号
+</blockquote>
+我记得去年150帽子都能用，老男人更是前排铁板..
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15058#       发表于 2021-2-23 00:49
+
+
+
+
+老男人有驱散肯定是铁板的
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15059#       发表于 2021-2-23 07:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410464&amp;ptid=1158205" target="_blank">peh 发表于 2021-2-22 23:14</a>
+
+我记得去年150帽子都能用，老男人更是前排铁板..</blockquote>
+我个人觉得，应该不能参考去年水团
+
+而且应该参考最近团战150的强度…
+
+而且既然用4，我们应该指代的fa吧？
+
+当然，我也是表示对新一轮150压力的忧虑，因为他们真的很厉害(ง •̀_•́)ง
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15060#       发表于 2021-2-23 08:23
+
+
+
+
+可去年水团不就是新一代强度了……最强的风团还是最早开的…倒不如说看看kmr怎么给4和新季限造环境，或者新一轮又整些什么阴间玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15061#       发表于 2021-2-23 08:57
+
+
+
+<blockquote>Sylpheed 发表于 2021-2-23 08:23
+可去年水团不就是新一代强度了……最强的风团还是最早开的…倒不如说看看kmr怎么给4和新季限造环境，或者新 ...</blockquote>
+对，我就是这个意思。
+
+而且目前玩家主流都是fa思路，老男人3都是不建议学的。所以也没有驱散。
+
+学了3我记得打木桩fa，4狗莉大于4男莉莉
+
+
+
+
+
+                                               

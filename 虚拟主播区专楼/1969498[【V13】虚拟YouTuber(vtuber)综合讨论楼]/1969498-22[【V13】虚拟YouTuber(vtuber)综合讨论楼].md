@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 16:57** 
+> ## **本文件最后更新于2021-02-23 01:14** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_Fi96q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_t6Ztz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_kbpXx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_R4we7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_zQE9F" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_m761v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_fK9Eh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_p88E2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -11163,4 +11163,517 @@ en进出 船长早该靠边站了吧
 
 
 
-                              
+
+
+-----
+
+####  sonyjam  
+##### 32076#       发表于 2021-2-23 00:58
+
+
+
+
+奥尔加小废物天天视奸怎么还没被黑色高级子弹创死呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32077#       发表于 2021-2-23 01:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烧的狠一点能不能把大亏sololive烧出来啊，今年目标有一个已经不可能完成了，两个都完不成孩子怕不是要毕业了。
+
+水龙敬这波允许组长开团好评无数啊，好感拉满了，啥时候鲸落2.0
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 32078#       发表于 2021-2-23 01:07
+
+
+
+
+鲸落是指404？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32079#       发表于 2021-2-23 01:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鲸落肯定是b站啊，水龙敬组长直接上号开团了。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32080#       发表于 2021-2-23 01:25
+
+
+
+
+半夜头痛睡不着，没想到吃到这么大瓜，cover真的从来没让我失望过
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 32081#       发表于 2021-2-23 01:27
+
+
+
+
+野兔子还是积点德吧，天天指着别家v车，小心虐力反馈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32082#       发表于 2021-2-23 01:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉倒吧我大亏会员比兔子久
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 32083#       发表于 2021-2-23 01:32
+
+
+
+
+35p第二？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 32084#       发表于 2021-2-23 01:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冲蝗的表示破防了，冲了半年还不如木口自己作死效果大
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 32085#       发表于 2021-2-23 01:55
+
+
+
+
+大亏二期的，会员比兔子久不正常吗
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32086#       发表于 2021-2-23 01:57
+
+
+
+
+crew不愧是诞生最多厄介粉的群体
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32087#       发表于 2021-2-23 02:01
+
+
+
+
+那必须给crew辩白一下
+
+厄介粉多是因为crew人多啊
+
+其他小菜比加起来有crew多吗，国内
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32088#       发表于 2021-2-23 02:15
+
+
+
+
+旧木口规模来比较的话祭丝还真未必输
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32089#       发表于 2021-2-23 02:30
+
+
+
+
+可能是圈子问题，在外面（非V）还真没见过祭丝
+
+但是不管什么群里都见得到crew
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 32090#       发表于 2021-2-23 02:34
+
+
+
+
+在外面感觉猫猫的表情包特别多😄
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32091#       发表于 2021-2-23 02:36
+
+
+
+
+小看辣辣军是吧
+
+
+
+
+
+
+
+-----
+
+####  amgryn  
+##### 32092#       发表于 2021-2-23 02:50
+
+
+
+
+为啥不挨个给画过HOLO画的画师反串一波呢,私信DMCA警告 日本法律警告,狂轰乱炸,我不信弄不死holo
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32093#       发表于 2021-2-23 03:05
+
+
+
+
+crew不是还要给aqua赎身<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 32094#       发表于 2021-2-23 03:16
+
+
+
+
+对如日中天的杏来说感觉也不是啥大事儿?也不知道两方之前怎么谈的.
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32095#       发表于 2021-2-23 05:58
+
+
+
+
+泥哥要标榜自己正义，不转火，先诛首恶。要不直接冲粽子，半个月整出个物理毕业都轻松。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32096#       发表于 2021-2-23 07:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要真是啥木口与画师的不平等条约的话，要是再没其他画师跟园长，就要问问园长是不是有问题了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32097#       发表于 2021-2-23 07:39
+
+
+
+
+我也这么觉得 明显就是园长不知好歹
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32098#       发表于 2021-2-23 07:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 水龙敬这种靠画18x起家的人还好意思这么高调喷人啊，
+
+11区最不缺的就是画师，你不干了，后面有几十个人来干
+
+
+
+
+
+
+
+
+-----
+
+####  Prushka  
+##### 32099#       发表于 2021-2-23 07:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">水龙敬也不掂量掂量自己几斤几两
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32100#       发表于 2021-2-23 08:19
+
+
+
+
+你综阴湿人差不多得了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+cover既然得了脑瘫，对病人体恤点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 32101#       发表于 2021-2-23 08:31
+
+
+
+
+q综来的 谁是杏奴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32102#       发表于 2021-2-23 08:32
+
+
+
+
+只有水龙敬炸了的原因可能是只有他深度参与了这个企划，不管是作为画师还是作为粉丝，到底是人的问题还是公司的问题得过一段时间才看的出来，不过一个画师的事确实是小事，大企业都会和画师保持适当的距离，萌木被开了不也经常yygq你虹，说不定是水龙敬想自己贴上去cover不让贴所以急了
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32103#       发表于 2021-2-23 08:43
+
+
+
+ 本帖最后由 獅白ぼたん 于 2021-2-23 08:44 编辑 
+
+开团不给瓜吃，那不就是谜语人biss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 32104#       发表于 2021-2-23 08:43
+
+
+
+
+看日网上的说法是水龙敬自己之前谈好价钱了，现在感觉因为alt反响太大了想提价，holo不同意所以闹翻了？
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32105#       发表于 2021-2-23 08:44
+
+
+
+ 本帖最后由 flyskywalker92 于 2021-2-23 08:48 编辑 
+
+木口关系这么厚 蛐蛐r18画师
+
+反倒是整出nyacat这种弱智企划的ickr能不能早点死
+
+nga入场 怕不是把园长架在火上烤 皮套还出来露脸 怎么想的啊
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32106#       发表于 2021-2-23 09:14
+
+
+
+
+什么，一觉醒来水龙敬给脸不要脸了？
+
+
+
+
+
+                             
