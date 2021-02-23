@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 01:14** 
+> ## **本文件最后更新于2021-02-23 02:40** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_t6Ztz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_nQ2ZW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_m761v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_fK9Eh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_p88E2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_k6oN6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_h6EQo" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_Pmbb6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -11572,6 +11572,25 @@ cover既然得了脑瘫，对病人体恤点<img src="https://static.saraba1st.c
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11676,4 +11695,577 @@ nga入场 怕不是把园长架在火上烤 皮套还出来露脸 怎么想的�
 
 
 
-                             
+
+
+-----
+
+####  theloved  
+##### 32107#       发表于 2021-2-23 09:39
+
+
+
+
+木口在站拜年祭就干过临时抬价的事，更sb的是拜年祭负责人还同意了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|+1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 32108#       发表于 2021-2-23 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412169&amp;ptid=1969498" target="_blank">影山银 发表于 2021-2-23 08:43</a>
+
+看日网上的说法是水龙敬自己之前谈好价钱了，现在感觉因为alt反响太大了想提价，holo不同意所以闹翻了？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不木口信编的么。。。
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 32109#       发表于 2021-2-23 09:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏这赚到便宜然后翻脸不认人的都是企业文化，深深地刻在骨子里了。
+
+—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 32110#       发表于 2021-2-23 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412106&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-2-23 08:32</a>
+
+只有水龙敬炸了的原因可能是只有他深度参与了这个企划，不管是作为画师还是作为粉丝，到底是人的问题还是公 ...</blockquote>
+出过拜年祭的事情不会还有人信这种倒打一耙的传谣8<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32111#       发表于 2021-2-23 09:52
+
+
+
+
+pxj又站起来了是吧，杏有一万个傻逼例子能举，但拜年祭和傻逼平安夜就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32112#       发表于 2021-2-23 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 平安夜等故事会不是本来就是最大传谣之一，这种属于你把石头人拿出来说一样，很不s1
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 32113#       发表于 2021-2-23 09:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算乐色要分级，那杏生活也是乐色里面比较乐色的那种。天天搁这吃绝户呢。
+
+—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32114#       发表于 2021-2-23 09:57
+
+
+
+
+杏奴又开始了，石头人难道没扣压sc吗？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32115#       发表于 2021-2-23 10:00
+
+
+
+
+关注不够多不是很了解
+平安夜怎么就传谣了？展开说一下？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32116#       发表于 2021-2-23 10:00
+
+
+
+
+石头人当然指的是他那些聊天记录和故事会 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 32117#       发表于 2021-2-23 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50410789&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-2-22 23:48</a>
+这下只能找海苔男画了</blockquote>
+得加钱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 32118#       发表于 2021-2-23 10:04
+
+
+
+
+海苔男和hololive不是绝配？
+
+—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 32119#       发表于 2021-2-23 10:04
+
+
+
+
+如果是普通观众，为了dissb站连杏的屁股都坐？至少b站不fh吧？虽然都是两坨屎，b站都没杏那么臭，如果是杏奴差不多得了，和你主子散发出一样的屎味，这么喜欢fh公司能不能别发中文？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32120#       发表于 2021-2-23 10:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想用夸皇模型上拜年纪不是钱的问题，拿cover模型拿去搞商用擦边球，不做一半被毙当cover是咸鱼么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32121#       发表于 2021-2-23 10:06
+
+
+
+
+这种事不管谁的错都是杏运营全锅不会看不懂吧？怎么一觉醒来还试图了转反的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32122#       发表于 2021-2-23 10:06
+
+
+
+
+cover是株式会社，运营第一要务自然是给股东赚钱，脸自然是可以不要的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 32123#       发表于 2021-2-23 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412804&amp;ptid=1969498" target="_blank">winda 发表于 2021-2-23 10:05</a>
+
+想用夸皇模型上拜年纪不是钱的问题，拿cover模型拿去搞商用擦边球，不做一半被毙当cover是咸鱼么 ...</blockquote>
+细说
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32124#       发表于 2021-2-23 10:12
+
+
+
+
+b站还不fh？活在哪个世界线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32125#       发表于 2021-2-23 10:15
+
+
+
+
+所以最后还是以版权的名义加价了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以前cover被铁拳出击时，杏奴如丧考妣。
+
+现在cover铁拳出击时，杏奴欢呼雀跃，哦不对，是弹冠相庆。
+
+如果说cover走的是叔叔的道路，那杏奴就越来越像他们最讨厌的pxj。硬说有什么区别的话，pxj比较爱国。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32126#       发表于 2021-2-23 10:17
+
+
+
+
+叔叔fh，那也是看在钱的份上，你杏fh连钱都可以不要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32127#       发表于 2021-2-23 10:23
+
+
+
+
+叔叔拿钱才fh，那pxj替fh的叔叔讲话时候拿到钱了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 32128#       发表于 2021-2-23 10:23
+
+
+
+
+跟叔叔比还是算了，杏再怎么样也没发过共〇共7这种东西
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32129#       发表于 2021-2-23 10:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412979&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-2-23 10:23</a>
+
+叔叔拿钱才fh，那pxj替fh的叔叔讲话时候拿到钱了嘛
+
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+pxj拿到的钱和杏奴一样多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32130#       发表于 2021-2-23 10:26
+
+
+
+
+别尬黑，pxj做个视频怎么就不拿钱了
+有激励的啊
+
+
+
+
+
+
+
+-----
+
+####  丿焰丶  
+##### 32131#       发表于 2021-2-23 10:28
+
+
+
+
+别尬黑，pxj拿到视频激励又去抽叔叔的魔力商了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32132#       发表于 2021-2-23 10:30
+
+
+
+
+说到底木口为了贪点名气找个海里出名的画师+推特吵架王当人设就够蠢的了，官方（包括船长）早该离画黄本的远一点了。
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 32133#       发表于 2021-2-23 10:32
+
+
+
+
+pxj爱的哪门子国？批斯维加斯国？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32134#       发表于 2021-2-23 10:33
+
+
+
+
+所以dd合力抬了个叔叔第二出来
+
+dd全跑了，留下来的杏奴憎叔叔却喜二叔
+
+贱不贱呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 32135#       发表于 2021-2-23 10:34
+
+
+
+
+叔叔的魔力赏公然挑战国家政策，大沪国还袒护至今，pxj也有可能爱的是大沪国
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32136#       发表于 2021-2-23 10:34
+
+
+
+
+不过话说回来引用楼宝当年的名言，杏就是血厚，运营三天一小炸五天一大炸照样苟得下去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32137#       发表于 2021-2-23 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 虹人有空阴湿别家，不如去看看叔叔谈的fes门票好了没有，
+
+
+我最喜欢给批站送钱了
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 32138#       发表于 2021-2-23 10:40
+
+
+
+
+一晚怎么就车轱辘回b站了，这事八杆子打不着吧
+
+
+
+
+
+                            
