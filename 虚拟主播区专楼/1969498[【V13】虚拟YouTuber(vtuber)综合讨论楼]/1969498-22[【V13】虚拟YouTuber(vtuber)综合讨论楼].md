@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 09:36** 
+> ## **本文件最后更新于2021-02-24 15:43** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_I988l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_KuyZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_YRV3W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Fus32" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_JfFyY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_dNVKJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_gJ5X1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_zY7YJ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -12756,6 +12756,25 @@ s1有杀头的啊
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13886,6 +13905,25 @@ azki也变成圆脸了！圆脸是yagoo的性癖吗
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14174,10 +14212,11 @@ xp对谈
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| alcoholic1000|-1|基点德|
 | sonyjam|-1|基德|
 | 空集|-1|不基德|
 
@@ -14251,7 +14290,7 @@ xp对谈
 <img src="https://img.saraba1st.com/forum/202102/24/170845l6lzyl16tdvtlvgl.jpg" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20210224170748.jpg</strong> (93.04 KB, 下载次数: 0)
+<strong>QQ截图20210224170748.jpg</strong> (93.04 KB, 下载次数: 1)
 
 下载附件
 
@@ -14368,4 +14407,657 @@ xp对谈
 
 
 
-                        
+
+
+-----
+
+####  死体残留  
+##### 32254#       发表于 2021-2-24 17:37
+
+
+
+
+草 这个palette要和隔壁alt打架么，又是这种多媒体多边企划
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32255#       发表于 2021-2-24 17:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wonder neverland 要当vtl2.0么，这就是虹新时代的诺亚方舟么
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32256#       发表于 2021-2-24 18:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水龙敬已经快成伟大的自由战士了，就算你推上fh，只要你反木口就是友军。
+
+泥哥一直标榜的反木口是因为木口fh，不尊重cn有点站不住了啊。
+
+为啥不能直球觉得两边都是傻逼呢，就像我看待v综家人们一样。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 13战斗力 -14
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qesto|-1|思路广|
+| lolosan|-1||
+| xnlyt|-1|好评加鹅|
+| wiig|-1|😠🤚‼|
+| lovcavil|-2||
+| pliee|-1|好评加鹅|
+| walfeds|-1||
+| -rm7-|-1|属实精彩|
+| Zhudhh|-1|nowaki滚回QQ群，那里才是你的家.|
+| UnhappyTails|-1|论脑瘫我等委实不如先生|
+| 某穆克拉|-1|说得好，你和pro一换一|
+| 屑屑代沟尼亚|-1|为什么要讲最后一句大实话|
+| Zaphikel|-1|都给你狂完了😡👊🏻👊🏻|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32257#       发表于 2021-2-24 18:16
+
+
+
+
+海里的当大旗气还是短一截，下次最好找个岸上的大手子——最好B站有官方正版作品的那种——来一句谁看holo谁傻逼。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32258#       发表于 2021-2-24 18:16
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-2-24 18:18 编辑 
+
+🗡专
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32259#       发表于 2021-2-24 18:45
+
+
+
+
+v综也就只有阴湿的时候能刷几楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32260#       发表于 2021-2-24 18:51
+
+
+
+
+不会有liver连三周年纪念曲演唱都混不上吧？
+
+哦，唱歌难听、只联社外啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+Valheim这么好的团建游戏，怎么会有人跑去和别家老板、别家职业选手、别家画师玩啊，田角都不忍心打破这份其乐融融<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32261#       发表于 2021-2-24 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429243&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-2-24 18:51</a>
+不会有liver连三周年纪念曲演唱都混不上吧？
+
+哦，唱歌难听、只联社外啊，那没事了</blockquote>
+呜呜呜叶推老姐别这样<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不要变成巨魔的样子
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|实话实说|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32262#       发表于 2021-2-24 18:57
+
+
+
+
+多井队120400，千羽队79600…多井pro你好强大。
+说起来看到不下五条来自郡an或者holo信的“水龙敬去推了niji估计会跟郡道关系很好吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32263#       发表于 2021-2-24 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> A老哥不要这样，今晚阿叶超你葵，正式成为你虹第三
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|=。=|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32264#       发表于 2021-2-24 19:04
+
+
+
+
+说明军刀是彩虹船长，这是赞美啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32265#       发表于 2021-2-24 19:06
+
+
+
+
+アーカイブ残らないかもしれない公開歌収録！Rec Streaming
+[https://www.youtube.com/watch?v=hU4nAtG6adQ](https://www.youtube.com/watch?v=hU4nAtG6adQ)
+
+
+edo开了，应该不会留档
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 32266#       发表于 2021-2-24 19:39
+
+
+
+
+かもしれない不是“会留档但是又想骗点同接”的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+y1s1这同接真惨
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32267#       发表于 2021-2-24 20:02
+
+
+
+
+这就是大部分歌势现状，歌唱得好有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32268#       发表于 2021-2-24 20:08
+
+
+
+[https://www.youtube.com/watch?v=xwZvLdlU2aU](https://www.youtube.com/watch?v=xwZvLdlU2aU)
+
+【セルフ踊ってみた】SLEE『絶対最大瞬間風速』
+
+
+田角哥哥啥时候给人家弄好V皮出道啊
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32269#       发表于 2021-2-24 21:20
+
+
+
+
+才发现，兔皇就算了
+
+怎么新魔界村轮的到你不破玩
+
+我露呢
+
+彩虹还是快点死吧（kr记得独立）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32270#       发表于 2021-2-24 21:23
+
+
+
+
+虹女不配的 彩虹有男人足够了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32271#       发表于 2021-2-24 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我露休了很多天了。
+
+这种低档次工商没啥好争的，bzml看的上的才是值得讨论的工商，毕竟是甩了水龙敬转眼蹭ut的女人。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|差不多得了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 32272#       发表于 2021-2-24 21:29
+
+
+
+
+兔皇是工商，不破只是拿到提前玩的资格不是工商，露露根本就不播
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32273#       发表于 2021-2-24 21:37
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-24 21:40 编辑 
+
+今晚这人狼有意思的，每局都能笑死我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+sky可算当了几局狼，还赢了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32274#       发表于 2021-2-24 21:38
+
+
+
+
+这就要掰扯一下了，先行体验配信是最近经常搞的宣传手段
+
+不破和兔皇都是工商
+
+
+不如说你为什么觉得不破不是工商……
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 32275#       发表于 2021-2-24 21:47
+
+
+
+ 本帖最后由 aptx318 于 2021-2-24 21:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50430732&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-24 21:38</a>
+
+这就要掰扯一下了，先行体验配信是最近经常搞的宣传手段
+
+不破和兔皇都是工商</blockquote>
+看虹楼repo不破自己说的不是案件。
+
+还有他的窗点进去没有”包含付费宣传内容“，兔皇的有
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32276#       发表于 2021-2-24 22:04
+
+
+
+
+狐皇把人狼录播转会限了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32277#       发表于 2021-2-24 22:14
+
+
+
+161Vtuberまとめてみました2021/02/12(金) 14:15:06.00同接中央値をまとめてくれてた人がいなくなったみたいだから今月の分をまとめてみた 
+
+()は配信数 
+
+<img src="https://img.saraba1st.com/forum/202102/24/221318mbwljooj4p4lw4cp.png" referrerpolicy="no-referrer">
+
+
+<strong>picture12298.png</strong> (128.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-24 22:13 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32278#       发表于 2021-2-24 22:26
+
+
+
+
+bzml对床的第一影响是颜很好的s  所以阿床算s么?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32279#       发表于 2021-2-24 22:31
+
+
+
+
+商業百合漫画で1巻で完結してて、攻めがクール系で学園系より社会人系で、性行為描写があって受けと攻めがはっきり分かれててリバにならないタイプのやつ無いですか…………………………………わがままなので条件全部合うのしか今読みたくないです………………
+
+
+说实话完全想不到，一卷完结的商业刊，cool系社会人，分手…分开想每个都能想到，合在一起就一个都无，满足不了推的百合漫画需求，河豚失格啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 32280#       发表于 2021-2-24 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431184&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-24 22:31</a>
+
+商業百合漫画で1巻で完結してて、攻めがクール系で学園系より社会人系で、性行為描写があって受けと攻めが ...</blockquote>
+恨之切爱之深 既非为黑亦非为白  感觉ユニ画的应该都算？
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 32281#       发表于 2021-2-24 23:08
+
+
+
+
+怎么holo成员的所有niconico百科评论全关了，全集中赶到cover词条里吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32282#       发表于 2021-2-24 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431384&amp;ptid=1969498" target="_blank">wiig 发表于 2021-2-24 22:57</a>
+恨之切爱之深 既非为黑亦非为白  感觉ユニ画的应该都算？</blockquote>
+有人推了，郡道说不伦踩雷不行…
+郡道还雷师生所以flowerchild全不行，商刊一卷所以阿瓦隆合集不行，没有彻底分手的其实也不是不可以和你交往前传和目玉烧女同漫画也不行，想着直接推蕾丝风俗结果郡道已经看过了…
+看屁啊！（想推须藤佑实但郡脑子不行可能看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32283#       发表于 2021-2-24 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">Wonder NeverLand这个歌居然可以做到没有一个gamers成员也是牛逼，这就是彩虹对于内部最劳苦功高团体的态度吗？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 32284#       发表于 2021-2-24 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431482&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-2-24 23:10</a>
+
+有人推了，郡道说不伦踩雷不行…
+
+郡道还雷师生所以flowerchild全不行，商刊一卷所以阿瓦隆合集不行，没有 ...</blockquote>
+要求分手 你郡好刁钻<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                       
