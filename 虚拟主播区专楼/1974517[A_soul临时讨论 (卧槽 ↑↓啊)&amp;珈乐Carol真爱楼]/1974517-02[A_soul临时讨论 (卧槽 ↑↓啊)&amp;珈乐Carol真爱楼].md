@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 13:40** 
+> ## **本文件最后更新于2021-02-24 14:42** 
 
 
 
@@ -24552,4 +24552,298 @@ ED长进了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 
 
-    
+
+
+-----
+
+####  弈秋  
+##### 2865#       发表于 2021-2-24 21:48
+
+
+
+
+顶级roleplay<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2866#       发表于 2021-2-24 21:52
+
+
+
+
+草，乃琳也看v8是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2867#       发表于 2021-2-24 21:59
+
+
+
+
+乃老师看S1也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2868#       发表于 2021-2-24 22:00
+
+
+
+
+老惦记那fk干啥，乃0看的一定是s1。s1什么时候输过<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2869#       发表于 2021-2-24 22:10
+
+
+
+
+两场直播好快，我急了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">效果确实比一个人2小时要好，不容易冷场，让人更期待下一场
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2870#       发表于 2021-2-24 22:12
+
+
+
+
+1小时基本上没法整大的活，看看以后能不能玩点小游戏
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2871#       发表于 2021-2-24 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">《从你的全世界路过》
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2872#       发表于 2021-2-24 22:15
+
+
+
+
+两小时有点长，一小时有点短<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2873#       发表于 2021-2-24 22:15
+
+
+
+
+乃0脑控好强，弹幕开始发病了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2874#       发表于 2021-2-24 22:16
+
+
+
+
+只能说电台女主播懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2875#       发表于 2021-2-24 22:17
+
+
+
+
+我觉得日常回一个小时两动挺合适的，聊聊天互个动，中间还能去倒被咖啡<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+唱跳多留一些给多人回吧
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2876#       发表于 2021-2-24 22:17
+
+
+
+
+顶碗人和乃琪琳谁更强？
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2877#       发表于 2021-2-24 22:18
+
+
+
+
+年纪大点的喜欢乃琳，小年轻喜欢向晚<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2878#       发表于 2021-2-24 22:19
+
+
+
+
+乃老师别rua然然了，要rua就rua我吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2879#       发表于 2021-2-24 22:23
+
+
+
+
+乃指导太神仙了
+
+
+
+
+
+
+
+-----
+
+####  尿完抖两下  
+##### 2880#       发表于 2021-2-24 22:25
+
+
+
+
+
+风 情 小 珈 乐
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2881#       发表于 2021-2-24 22:33
+
+
+
+
+现在看来，3D对电台系的加成也蛮大的
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2882#       发表于 2021-2-24 22:38
+
+
+
+
+呃啊，忘了礼拜三也有直播了，还在礼拜四的版本，血崩<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+
+
+
+   
