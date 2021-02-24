@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 03:37** 
+> ## **本文件最后更新于2021-02-24 07:40** 
 
 
 
@@ -22909,4 +22909,530 @@ asoul最大问题就是一粉顶十黑。这群把评论区当qq群用的学生�
 
 
 
-       
+
+
+-----
+
+####  光明莫斯利安  
+##### 2778#       发表于 2021-2-24 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50425102&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-24 11:37</a>
+
+大学生.....
+
+我当大学生的时候, 追番曾经全制霸过, 当季所有新番一部不落
+
+目前大学的确是绝大部分人的人 ...</blockquote>
+阿这，我之前看b综说v8人均初中生，被b综骗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">yysy大学确实快乐
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 2779#       发表于 2021-2-24 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50425134&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-24 11:40</a>
+阿这，我之前看b综说v8人均初中生，被b综骗了yysy大学确实快乐</blockquote>
+不一定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在小朋友人手一部手机，全时段冲浪可嗨了
+
+—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  浅仓透  
+##### 2780#       发表于 2021-2-24 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50425029&amp;ptid=1974517" target="_blank">万花筒 发表于 2021-2-24 11:31</a>
+
+不知道以前有没有这种事发生，但嘉然评论区已经不用搭理她发的内容开始自娱自乐了，别人的新观众可以融入老 ...</blockquote>
+粉丝作为炒作主力是这样的。真正火的不是嘉然，而是《想当嘉然小姐的狗》。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2781#       发表于 2021-2-24 12:38
+
+
+
+<blockquote>光明莫斯利安 发表于 2021-2-24 11:40
+阿这，我之前看b综说v8人均初中生，被b综骗了yysy大学确实快乐</blockquote>
+其实高中生不少，特别是存在感很高的几个，比如富二代鞋宝
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2782#       发表于 2021-2-24 12:44
+
+
+
+
+为什么不能多看看V而不是看V观众呢
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2783#       发表于 2021-2-24 12:55
+
+
+
+
+《从投票结果观察贴吧成分变化》
+
+
+
+
+
+
+Screenshot_20210224_125225.jpg
+(51.3 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-24 12:55 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/24/125501pbxjb88ziq8d7bhi.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2784#       发表于 2021-2-24 13:36
+
+
+
+
+观众是会影响v的，四个人站在屏幕前找能读的弹幕现在都想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2785#       发表于 2021-2-24 13:41
+
+
+
+
+[img]%5Burl=https://imgtu.com/i/yOwGz6%5D<img src="https://s3.ax1x.com/2021/02/24/yOwGz6.png" referrerpolicy="no-referrer">[/url][/img]
+
+
+新公告，以后日常回和节目回分开了，日常会以互动为主<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2786#       发表于 2021-2-24 13:42
+
+
+
+
+12w播放5000评论，离谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2787#       发表于 2021-2-24 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50426272&amp;ptid=1974517" target="_blank">不想闭嘴 发表于 2021-2-24 13:36</a>
+
+观众是会影响v的，四个人站在屏幕前找能读的弹幕现在都想笑</blockquote>
+楼友应该都看过，我还是来补个图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+tmp1.jpg
+(53.27 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-24 13:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/24/134222m1tr2mret4no5rd4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+tmp2.jpg
+(52.96 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-24 13:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/24/134230yc2g2okl67fgko1l.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| goudante| + 1|查询贝拉内心迷惑值|
+| 不想闭嘴| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2788#       发表于 2021-2-24 14:25
+
+
+
+
+好图！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">贝拉可爱，贝拉喜欢
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 2789#       发表于 2021-2-24 14:35
+
+
+
+
+这图贝拉扶头盔吧，五个人里就贝拉总在调整头盔
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2790#       发表于 2021-2-24 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50426915&amp;ptid=1974517" target="_blank">cao1rui2 发表于 2021-2-24 14:35</a>
+
+这图贝拉扶头盔吧，五个人里就贝拉总在调整头盔</blockquote>
+贝拉的秀发如丝般顺滑，即使是有固定效果的头盔也无法静置住，只能随着她的三千青丝摇曳<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2791#       发表于 2021-2-24 14:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> i了i了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2792#       发表于 2021-2-24 14:53
+
+
+
+
+为什么晚指导没有个人杂谈，是害怕顶晚人男友粉继续大量增值吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2793#       发表于 2021-2-24 14:58
+
+
+
+
+确实，个人的日常杂谈无晚晚，说是请假了。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2794#       发表于 2021-2-24 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50427118&amp;ptid=1974517" target="_blank">连清人 发表于 2021-2-24 14:58</a>
+
+确实，个人的日常杂谈无晚晚，说是请假了。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer"> 恶意猜测私号被爆破心态被影响了。
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2795#       发表于 2021-2-24 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">有理怀疑是因为接力直播和团播两次被弹幕恶心坏了，梁木了。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2796#       发表于 2021-2-24 15:11
+
+
+
+
+有理怀疑，嘉然的运营就是向晚，回炉考试去了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2797#       发表于 2021-2-24 15:11
+
+
+
+
+嘉然铁不是二次元
+
+向晚会不会是隐蔽二次元?
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2798#       发表于 2021-2-24 15:16
+
+
+
+
+然然这周好辛苦，四播还要给姐妹们洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  基神的强袭自由  
+##### 2799#       发表于 2021-2-24 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50426971&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-24 14:42</a>
+
+贝拉的秀发如丝般顺滑，即使是有固定效果的头盔也无法静置住，只能随着她的三千青丝摇曳 ...</blockquote>
+好文采，嗯了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2800#       发表于 2021-2-24 15:23
+
+
+
+
+晚指导个人杂谈突然来句 集美们开扣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+整个直播间都会麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2801#       发表于 2021-2-24 15:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来虚吧那个到底是不是糖宝 
+
+
+
+
+
+      
