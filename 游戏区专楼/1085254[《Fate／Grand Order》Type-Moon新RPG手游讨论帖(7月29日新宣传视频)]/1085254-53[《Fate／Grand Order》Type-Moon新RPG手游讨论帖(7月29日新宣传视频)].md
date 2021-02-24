@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 06:43** 
+> ## **本文件最后更新于2021-02-24 11:39** 
 
 
 
@@ -594,4 +594,547 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 
 
 
-                                                
+
+
+-----
+
+####  黑上シグマ  
+##### 78033#       发表于 2021-2-24 15:38
+
+
+
+
+街机版这是又要搞事了？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78034#       发表于 2021-2-24 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快5点了。我还是挺想开个DL给我回一下血。。
+
+
+
+
+
+
+
+-----
+
+####  rzxa  
+##### 78035#       发表于 2021-2-24 16:16
+
+
+
+
+应该是下载突破，不知出哪个
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78036#       发表于 2021-2-24 17:05
+
+
+
+
+旧剑都第几次复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78037#       发表于 2021-2-24 17:08
+
+
+
+
+旧剑我喷了。。告辞 护符都不想丢
+
+
+
+
+
+
+
+-----
+
+####  仰望神的括约肌  
+##### 78038#       发表于 2021-2-24 17:14
+
+
+
+
+狂那 水武 仇凛 刚好3个百级<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78039#       发表于 2021-2-24 17:19
+
+
+
+
+拉二、白枪和艾蕾，陪自己开荒的都100级了。
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 78040#       发表于 2021-2-24 17:21
+
+
+
+
+白貞、黑貞、金閃閃都100級，因為愛
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78041#       发表于 2021-2-24 17:23
+
+
+
+
+旧剑这个技能本有点数值膨胀了吧...自带三回合50魔放，伊吹童子那个三回合50攻击还是按次数的，之前三回合的魔放都是30啊...
+
+感觉这种强化是在平衡环境，想让红卡有蓝绿卡的地位，但有点简单粗暴了...
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78042#       发表于 2021-2-24 17:29
+
+
+
+
+估计早晚会出个破格的红爆辅助角色，
+
+瞎奶一下：一技能三回合红卡50加战续，二技能三回合100爆伤+特攻，三技能群冲50+持续回血。宝具是BUFF类，全员无敌贯通+持续给星+用红卡攻击后回复一定量NP，受NP率提升影响。
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 78043#       发表于 2021-2-24 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428496&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:23</a>
+
+旧剑这个技能本有点数值膨胀了吧...自带三回合50魔放，伊吹童子那个三回合50攻击还是按次数的，之前三回合 ...</blockquote>
+红的没关系，什么时候出个3回合50蓝放30np率的技能那才是破格
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78044#       发表于 2021-2-24 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个单推标记是设置在卡上面，不是设置在英灵上面的，亏了
+
+10连拿到4星嘲讽礼装，圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78045#       发表于 2021-2-24 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428496&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:23</a>
+
+旧剑这个技能本有点数值膨胀了吧...自带三回合50魔放，伊吹童子那个三回合50攻击还是按次数的，之前三回合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么用？ 还不是仓管  而且红卡给30黄金率有什么用 木大木大
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78046#       发表于 2021-2-24 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说未来可期，我觉得这强化意义不大
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78047#       发表于 2021-2-24 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说未来可期，我觉得这强化意义不大
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78048#       发表于 2021-2-24 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428614&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-2-24 17:35</a>
+
+红的没关系，什么时候出个3回合50蓝放30np率的技能那才是破格</blockquote>
+这种可就真是缺钱到极致才会放出来的怪物，估计带一个狐狸就够冲浪的......
+
+
+蓝绿卡自从有了专业辅助后都不怎么出强卡了，总要加些NP率或hit数之类的限制，今次旧剑算是开了50魔放三回合的头，以后的技能估计会越来越IMBA。
+
+
+当初齐格鲁德的一技能也不过是三次100暴击，结果现在各种三回合100，超人熊啊秦始皇啊道满啊，50魔放很快也该泛滥起来了，叶良树当初好像就是做别的游戏做的数值崩坏才打发到FGO，看来**病又犯了...
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78049#       发表于 2021-2-24 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428639&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 17:37</a>
+
+有什么用？ 还不是仓管  而且红卡给30黄金率有什么用 木大木大</blockquote>
+红卡类角色很适合给个村正的三技能，三红平A给NP，大公都馋疯了。
+
+
+
+
+
+
+
+-----
+
+####  阿提拉  
+##### 78050#       发表于 2021-2-24 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428496&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:23</a>
+
+旧剑这个技能本有点数值膨胀了吧...自带三回合50魔放，伊吹童子那个三回合50攻击还是按次数的，之前三回合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">旧剑这魔放除了给在只能打一发的宝具上以外，总不能去期待平A吧，他也压根没法再继续放炮。加的黄金律就更莫名其妙了，大哥你不是蓝卡
+
+
+同样3T50红放、20充能、有爆伤、有灵衣、能产星、用剑打人、初始戴着兜帽、CV是考哥，另一位好歹比旧剑有用的多
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78051#       发表于 2021-2-24 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428730&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:45</a>
+
+红卡类角色很适合给个村正的三技能，三红平A给NP，大公都馋疯了。</blockquote>
+你在说什么  还能平a？  
+
+
+我说的是周回啊  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78052#       发表于 2021-2-24 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428637&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-24 17:37</a>
+
+这个单推标记是设置在卡上面，不是设置在英灵上面的，亏了
+
+
+10连拿到4星嘲讽礼装，圆满了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚在想为什么人気記事里会有个4星礼装  原来这就是传说中嘲讽自杀礼装吗  萌新也要去抽了
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78053#       发表于 2021-2-24 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428766&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 17:48</a>
+
+你在说什么  还能平a？  
+
+
+我说的是周回啊</blockquote>
+周回的话蓝卡冲浪已经是天花板了，三个满破宝石翁的红光炮也比不上，也没必要比。
+
+
+但是解决红卡就业的话，红卡就强在1.5倍的平A伤害，增加宝具空档期中除充能外的NP回复手段还是挺必要。
+
+
+有时候过剧情或是高难的时候还是会上红卡系角色，期待出几个强角也没啥。
+
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78054#       发表于 2021-2-24 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428851&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 18:01</a>
+
+周回的话蓝卡冲浪已经是天花板了，三个满破宝石翁的红光炮也比不上，也没必要比。
+
+
+但是解决红卡就业的话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这和旧剑有什么关系
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78055#       发表于 2021-2-24 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红魔放3T我觉得意义还不如呆毛卡变色
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78056#       发表于 2021-2-24 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428824&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 17:57</a>
+我刚在想为什么人気記事里会有个4星礼装  原来这就是传说中嘲讽自杀礼装吗  萌新也要去抽了 ...</blockquote>
+是啊，我就差这张没拿到，其他嘲讽礼装都在仓库吃灰好久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78057#       发表于 2021-2-24 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428953&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-24 18:15</a>
+
+是啊，我就差这张没拿到，其他嘲讽礼装都在仓库吃灰好久了
+
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要能死啊  我也有嘲讽礼装但是自带无敌的那张 死不掉就很搞笑了
+
+
+现在萌新也有送死礼装了
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78058#       发表于 2021-2-24 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 18:17</a>
+要能死啊  我也有嘲讽礼装但是自带无敌的那张 死不掉就很搞笑了
+
+
+现在萌新也有送死礼装了 ...</blockquote>
+咦，你没有看板娘吗，3t嘲讽送死必备啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78059#       发表于 2021-2-24 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429018&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-24 18:21</a>
+
+咦，你没有看板娘吗，3t嘲讽送死必备啊
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有 萌新我只有那张嘲讽+无敌一起的
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78060#       发表于 2021-2-24 18:51
+
+
+
+ 本帖最后由 黑上シグマ 于 2021-2-24 18:56 编辑 
+
+街机这第六章难道是要把竹帚日记里的虚假的十字军给捡起来了？
+
+
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 78061#       发表于 2021-2-24 19:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前DL不是送自选角的么  这骑士王怎么扣多了
+
+
+
+
+
+                                               
