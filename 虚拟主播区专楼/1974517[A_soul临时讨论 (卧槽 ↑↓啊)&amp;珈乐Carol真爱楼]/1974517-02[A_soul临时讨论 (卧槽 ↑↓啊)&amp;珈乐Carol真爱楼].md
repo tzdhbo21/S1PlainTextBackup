@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 12:57** 
+> ## **本文件最后更新于2021-02-24 13:40** 
 
 
 
@@ -24238,10 +24238,14 @@ ED长进了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 
 
+ 本帖最后由 抄袭炉石的垃圾 于 2021-2-24 21:10 编辑 
 
 珈乐新歌什么时候单独发珈乐新歌什么时候单独发珈乐新歌什么时候单独发珈乐新歌什么时候单独发珈乐新歌什么时候单独发<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 卧槽，还没听完怎么就掐了，工具人我🦈了你
+
+
+破案了，在官号跨年夜录像里有切片
 
 
 
@@ -24283,4 +24287,269 @@ ED长进了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 
 
-     
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2851#       发表于 2021-2-24 20:56
+
+
+
+
+主播会吹唢呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2852#       发表于 2021-2-24 21:01
+
+
+
+
+楼友太不gachi了，asoul官号总共就那几个切片你们都不看完<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+《溯》，在官号跨年夜切片里
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 抄袭炉石的垃圾| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2853#       发表于 2021-2-24 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50430377&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-24 21:01</a>
+
+楼友太不gachi了，asoul官号总共就那几个切片你们都不看完
+
+
+《溯》，在官号跨年夜切片里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我听歌识曲才发现，原来不是原创曲
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2854#       发表于 2021-2-24 21:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50430377&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-24 21:01</a>
+
+楼友太不gachi了，asoul官号总共就那几个切片你们都不看完
+
+
+《溯》，在官号跨年夜切片里 ...</blockquote>
+找到了，官号的录像我都没怎么看，只看了贾布的，怪不得
+
+
+啥时候把官方录播弄好啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 2855#       发表于 2021-2-24 21:18
+
+
+
+
+乃琳迟到10分钟了
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 2856#       发表于 2021-2-24 21:25
+
+
+
+
+乃琳说最近嘉然吃饭不开心，怕不是知道自己这周加班四天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2857#       发表于 2021-2-24 21:26
+
+
+
+
+然然<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">为什么受伤的都是你
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2858#       发表于 2021-2-24 21:29
+
+
+
+
+呜呜呜，乃琳真的偷家了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2859#       发表于 2021-2-24 21:32
+
+
+
+
+大三角无了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 2860#       发表于 2021-2-24 21:34
+
+
+
+
+草，怎么还有粉丝寄了一整本棍法的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2861#       发表于 2021-2-24 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">然然我的然然
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2862#       发表于 2021-2-24 21:36
+
+
+
+
+动物园差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2863#       发表于 2021-2-24 21:36
+
+
+
+
+呜呜呜，为什么全世界都针对然然
+
+听人说耶稣承受了他人的罪而被钉死在十字架上
+
+以前我不信 现在有些动摇了
+
+然然呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2864#       发表于 2021-2-24 21:37
+
+
+
+
+乃老师第一次上钩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+    
