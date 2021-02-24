@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 07:40** 
+> ## **本文件最后更新于2021-02-24 12:57** 
 
 
 
@@ -22707,7 +22707,7 @@ syl哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/sm
 
 
 C26978264FFF2BF011D1A72A292E5DBE.jpg
-(25.01 KB, 下载次数: 0)
+(25.01 KB, 下载次数: 1)
 
 
 
@@ -23119,7 +23119,7 @@ Screenshot_20210224_125225.jpg
 
 
 tmp1.jpg
-(53.27 KB, 下载次数: 0)
+(53.27 KB, 下载次数: 2)
 
 
 
@@ -23435,4 +23435,852 @@ tmp2.jpg
 
 
 
-      
+
+
+-----
+
+####  Hirosue  
+##### 2802#       发表于 2021-2-24 15:55
+
+
+
+
+晚指导请假去干碎岚皇了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 2803#       发表于 2021-2-24 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50427727&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-24 15:55</a>
+
+晚指导请假去干碎岚皇了
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+随着直播间的关闭，杜向晚手指揉着太阳穴，缓缓在靠椅上坐了下来。
+
+冰镇的葡萄酒立刻送到了眼前。
+
+杜向晚接过来，将高脚杯举到眼前微微摇晃着。灯光透过暗红的液体，显出了杯壁上那跟着摇晃似乎正翩翩起舞的水母图案。
+
+旁边低着头的男人斟酌着语句开了口。
+
+“大小姐，虽然歌姬的事情已经告一段落，但是还有另外一件事情需要麻烦您一下。“
+
+杜大小姐放下了太阳穴上的手指，抚上了自己的钻头尾，漫不经心地开口道：”这回又是谁啊？“
+
+男人没有说话，只是小心翼翼递上了一张纸。
+
+那是一副名单。
+
+女孩接过来，从上到下略略看了一遍，然后皱起了眉头。
+
+男人心中泛起一丝不安——能让杜大小姐皱眉的人会是名单上的谁呢？
+
+只见女孩伸出如葱手指，轻轻点在了第二个人的名字上。
+
+“嗯......这个字应该是念le还是yue啊？”
+
+
+（偷的
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2804#       发表于 2021-2-24 16:39
+
+
+
+
+不错，不过把洗脚的嘉然写出来就更有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2805#       发表于 2021-2-24 16:47
+
+
+
+
+电棍ldl首秀弹幕群魔乱舞，真是万象天引
+
+
+
+
+
+
+
+-----
+
+####  tanningzhi423  
+##### 2806#       发表于 2021-2-24 16:51
+
+
+
+
+也不算首秀了
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2807#       发表于 2021-2-24 17:04
+
+
+
+
+抖友平时就看这种尬视频吗<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1HA411g7L1?t=2](https://www.bilibili.com/video/BV1HA411g7L1?t=2)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2808#       发表于 2021-2-24 17:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不太懂抖音的发展策略
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2809#       发表于 2021-2-24 17:25
+
+
+
+
+挺好的，开播前先在阿b溜切片入脑，下播后抖音去去瘾，时刻调整状态
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2810#       发表于 2021-2-24 17:27
+
+
+
+
+b友入脑抖友出脑。
+
+9:00到12:00在评论区发病
+
+12:00到17:00去论坛痛骂入脑人
+
+
+只要一个魂回旋得足够快就能当成两个魂用，这月活跃指标又超了
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2811#       发表于 2021-2-24 17:28
+
+
+
+
+那号不会真是向晚吧 qaq ava
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 2812#       发表于 2021-2-24 17:31
+
+
+
+
+那晚晚请假，是不是你干的？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2813#       发表于 2021-2-24 17:33
+
+
+
+ 本帖最后由 音稻 于 2021-2-24 17:57 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2814#       发表于 2021-2-24 17:39
+
+
+
+
+👀不如数字论证呢......
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2815#       发表于 2021-2-24 17:39
+
+
+
+
+怎么又说回来了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+为什么一定是五个中的一个，谁能翻译翻译<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2816#       发表于 2021-2-24 18:26
+
+
+
+
+这周孕妇装能回归了吧?  没有孕妇装, 模型瘦成火柴人了,  我觉得不好看
+
+
+
+
+
+
+
+-----
+
+####  逸yi  
+##### 2817#       发表于 2021-2-24 19:16
+
+
+
+
+官方二创群来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2818#       发表于 2021-2-24 19:22
+
+
+
+
+因为版本更新后互动量下降，想要给二创作者一点补偿罢了，才不是脂粉小团体
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">我不想知道这些
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2819#       发表于 2021-2-24 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电棍是锤子首秀
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2820#       发表于 2021-2-24 19:45
+
+
+
+
+糖啊 你在贴吧发的那帖感觉没上初二发不出来<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2821#       发表于 2021-2-24 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429684&amp;ptid=1974517" target="_blank">Badwoman 发表于 2021-2-24 19:43</a>
+
+电棍是锤子首秀</blockquote>
+本赛季首秀没什么问题啊
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2822#       发表于 2021-2-24 19:51
+
+
+
+
+珈乐开了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2823#       发表于 2021-2-24 20:03
+
+
+
+
+什么不穿衣服的直播间<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2824#       发表于 2021-2-24 20:03
+
+
+
+
+什么不穿衣服的直播间<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2825#       发表于 2021-2-24 20:05
+
+
+
+
+卧槽，乐！<img src="https://p.sda1.dev/1/41a1dd383fdacbb185a992459281086c/IMG_CMP_226073817.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2826#       发表于 2021-2-24 20:08
+
+
+
+
+说好珈乐真爱楼呢<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2827#       发表于 2021-2-24 20:08
+
+
+
+
+珈乐的腿啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2828#       发表于 2021-2-24 20:09
+
+
+
+
+楼主快来啊，珈乐超神了，可以不破防了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2829#       发表于 2021-2-24 20:09
+
+
+
+
+楼主快来啊，珈乐超神了，可以不破防了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 2830#       发表于 2021-2-24 20:11
+
+
+
+
+卧槽，乐！
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2831#       发表于 2021-2-24 20:12
+
+
+
+
+懂不懂二甲的含金量啊
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 2832#       发表于 2021-2-24 20:13
+
+
+
+
+走光乐,没穿
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2833#       发表于 2021-2-24 20:15
+
+
+
+
+这都什么话题，我完全融不进去<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2834#       发表于 2021-2-24 20:16
+
+
+
+
+珈乐这十分钟互动比首播都高了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2835#       发表于 2021-2-24 20:18
+
+
+
+
+贝拉和其他人看电影，贝极星急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2836#       发表于 2021-2-24 20:19
+
+
+
+
+什么苦主
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2837#       发表于 2021-2-24 20:21
+
+
+
+
+贝拉你坏事做尽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2838#       发表于 2021-2-24 20:22
+
+
+
+
+怎么还有问比特币走势的……
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2839#       发表于 2021-2-24 20:29
+
+
+
+
+黑色<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2840#       发表于 2021-2-24 20:31
+
+
+
+
+烧 烧完了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2841#       发表于 2021-2-24 20:32
+
+
+
+
+风情 梗来源: 珈乐
+
+珈乐已经会引导弹幕了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2842#       发表于 2021-2-24 20:37
+
+
+
+
+破音了不是麦破了是我破了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2843#       发表于 2021-2-24 20:50
+
+
+
+
+就这样，日复一日，年复一年，王力口乐在真实地展示自己，和改变自己去迎合观众的过程中努力地成长着。ASoul也从杭州的地下“村姑团”逐渐变成了国民偶像。2022年，ASoul终于得以登上东京巨蛋这个最高舞台进行演出，那场演唱会被命名为“1830米的梦”——这是从杭州秋叶原，到杭州巨蛋距离。短短的1830米，她们走了整整七年。
+
+
+偷的。
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2844#       发表于 2021-2-24 20:51
+
+
+
+
+这ED画面的酷盖和刚刚的女孩儿是一个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2845#       发表于 2021-2-24 20:52
+
+
+
+
+ED长进了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2846#       发表于 2021-2-24 20:53
+
+
+
+
+珈乐能唱能跳能唠，什么六边形，太可了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lolikonh  
+##### 2847#       发表于 2021-2-24 20:53
+
+
+
+
+嘟嘟嘟嘟嘟嘟嘟嘟嘟<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2848#       发表于 2021-2-24 20:54
+
+
+
+
+珈乐新歌什么时候单独发珈乐新歌什么时候单独发珈乐新歌什么时候单独发珈乐新歌什么时候单独发珈乐新歌什么时候单独发<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+卧槽，还没听完怎么就掐了，工具人我🦈了你
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 2849#       发表于 2021-2-24 20:54
+
+
+
+
+工具人什么时候把这首歌发出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2850#       发表于 2021-2-24 20:54
+
+
+
+
+风情<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+浴室混响<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+珈乐来个联动，救救然然的弹幕好不好
+
+
+
+
+
+     
