@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-18 01:16** 
+> ## **本文件最后更新于2021-02-24 17:44** 
 
 
 
@@ -7905,4 +7905,632 @@ S1有号，就是“3000”。
 
 
 
-                                   
+
+
+-----
+
+####  穆  
+##### 54424#       发表于 2021-2-18 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50339614&amp;ptid=98922" target="_blank">moooooonlight 发表于 2021-2-15 17:40</a>
+
+我知道不可能 但实在是太像雷神了
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/007.png" referrerpolicy="no-referrer">是啊 看着也是在是太像了
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 54425#       发表于 2021-2-18 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50339614&amp;ptid=98922" target="_blank">moooooonlight 发表于 2021-2-15 17:40</a>
+
+我知道不可能 但实在是太像雷神了
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+艾尼路：我好像听到有人说要更强的电
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54426#       发表于 2021-2-18 15:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">大概是日和吧
+
+
+
+
+
+
+
+-----
+
+####  好评加鹅  
+##### 54427#       发表于 2021-2-18 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50331952&amp;ptid=98922" target="_blank">klzxs 发表于 2021-2-14 16:53</a>
+
+不是看不起厨子啊 他本就该是第三位的位置 这是与战力无关的
+
+主要是尾田这些年实在没给他安排什么 ...</blockquote>
+讲个笑话，山治年
+
+
+
+
+
+
+
+-----
+
+####  游戏  
+##### 54428#       发表于 2021-2-20 10:35
+
+
+
+
+不知道团子是不是只对smile能力者有用
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54429#       发表于 2021-2-20 13:06
+
+
+
+
+只盼山治能够好好和三灾对决一场。
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 54430#       发表于 2021-2-22 09:19
+
+
+
+ 本帖最后由 evangelina 于 2021-2-22 09:20 编辑 
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/092003qffngh7ccfrf78fu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EuxeNRXXIAUzbsv.jpg</strong> (191.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 09:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/092014prit00ttfqfe144l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EuvpYGHXUAMzHCW.jpg</strong> (84.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 09:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/092017nagun03v03qwgqzq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EuuNKnAXUAE27DU.jpg</strong> (91.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 09:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/092018bwogywwwsswwyqvq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EuuNLwHXMAQpvWU.jpg</strong> (73.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 09:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/22/092013v5wkowdz2nko65e5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EuvMyCMXIAAh10Y.jpg</strong> (286.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-22 09:20 上传
+
+
+
+
+
+
+
+动画御田打老白这段感觉比漫画有魄力不少<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54431#       发表于 2021-2-22 09:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">看到御田就烦
+
+然后听说1000话的人气投票中期排位他还能排二十几 我震惊
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54432#       发表于 2021-2-22 09:55
+
+
+
+
+第10人是在锦卫门旁边的黑影吧，体型比锦卫门小好多，不太可能是雷神
+
+
+
+
+
+
+
+-----
+
+####  般的存在  
+##### 54433#       发表于 2021-2-22 11:19
+
+
+
+
+是阿金<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 54434#       发表于 2021-2-22 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50401810&amp;ptid=98922" target="_blank">evangelina 发表于 2021-2-22 09:19</a>
+动画御田打老白这段感觉比漫画有魄力不少</blockquote>
+这个作画组是不是龙珠布罗利那批……之前就发现感觉和前期画风完全不一样
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 54435#       发表于 2021-2-22 23:09
+
+
+
+ 本帖最后由 Tomorrow_D 于 2021-2-22 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406374&amp;ptid=98922" target="_blank">千里夜雨 发表于 2021-2-22 16:24</a>
+
+这个作画组是不是龙珠布罗利那批……之前就发现感觉和前期画风完全不一样 ...</blockquote>
+作画团队是这几年一直延续下来的，有新鲜血液加入，但是整体没有换过
+
+
+和之国篇的一把手监督长峰达也是布罗利的监督，不过长峰此前也是海贼剧场版Z的监督，另外除了长峰以外还有两位共同监督
+
+
+后期（摄影合成）团队从和之国篇开始由三晃换成了旭Pro，布罗利还有海贼Stampede（狂热行动）的后期也是旭负责的
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 54436#       发表于 2021-2-22 23:30
+
+
+
+
+最近动画的整体质量很可观，推荐大家看一下，补的话可以从950话开始
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54437#       发表于 2021-2-24 00:23
+
+
+
+
+这情报有点看不懂了
+黑玛利亚的目的不就是把山治当人质想要怂恿山治把罗宾叫过来，还特地写了手下们的心理活动 这家伙誓死不从应该不会出卖同伴吧
+结果让你喊你还真的喊啊 至少也找其他人来救你吧，人家的目标就是罗宾所以山治这是要让罗宾自投罗网吗，而且首先也应该先提醒罗宾敌人的目标是你让罗宾注意一点吧
+真的就是我相信大法 还是等漫画出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 54438#       发表于 2021-2-24 09:07
+
+
+
+ 本帖最后由 Tomorrow_D 于 2021-2-24 09:11 编辑 
+
+山治的选择没什么问题吧。
+
+
+当初山治下船就是因为遇到了自己难以解决的问题，但是又想一个人自己扛，不想连累其他船员。但是这么做的后果就是大家一起受连累。
+
+
+但是现在山治已经放下了心里包袱，知道如果让自己一个人应对的话只有死路一条，在这种情况下选择相信罗宾（而不是自己扛，结果扛到最后连累到所有人），而且从罗宾的话来看很明显罗宾也非常高兴自己能够被信任。
+
+
+这样的桥段还是很海贼的。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 重名的mufasa| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54439#       发表于 2021-2-24 09:31
+
+
+
+
+海贼王外传《佩罗娜小说》部分剧透：被禁酒的索隆为了一瓶红酒与佩罗娜合作挑战鹰眼，结果嘛………索隆还是没得喝
+
+
+看来佩罗娜的消极果实对顶级强者没有用啊....<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  arthes  
+##### 54440#       发表于 2021-2-24 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">两年的修炼过去 草帽海贼团的成员都学会了新的技能 路飞和索罗有霸气 乌索普有植物 娜美深造了气象 山治学会了喊救命 大家都有光明的前途
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| memo2| + 1|笑着笑着就哭了，山治惨|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  龙手马弗  
+##### 54441#       发表于 2021-2-24 10:00
+
+
+
+<blockquote>tyauto 发表于 2021-2-24 09:31
+海贼王外传《佩罗娜小说》部分剧透：被禁酒的索隆为了一瓶红酒与佩罗娜合作挑战鹰眼，结果嘛………索隆还是 ...</blockquote>
+海贼王的世界规则就是萝莉的果实能力才会逆天，佩罗娜三年之后就已经不是萝莉了，不受世界规则保护，消极果实失效啦！
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54442#       发表于 2021-2-24 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423980&amp;ptid=98922" target="_blank">龙手马弗 发表于 2021-2-24 10:00</a>
+
+海贼王的世界规则就是萝莉的果实能力才会逆天，佩罗娜三年之后就已经不是萝莉了，不受世界规则保护，消极 ...</blockquote>
+佩罗娜哪是萝莉，比索隆还大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">索隆认识的几个妹子都比她大
+
+
+罗罗诺亚·索隆
+
+
+年龄 19岁→21岁
+
+
+佩罗娜
+
+
+年龄 23岁→25岁
+
+
+光月日和
+
+
+年龄 26岁
+
+
+达斯琪
+
+
+年龄 21岁→23岁
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 54443#       发表于 2021-2-24 10:51
+
+
+
+
+别把区区月步不当新技能啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54444#       发表于 2021-2-24 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这展开也不算不行吧 但还是希望厨子能普通的帅气点
+
+
+
+
+
+
+
+-----
+
+####  原来如此君  
+##### 54445#       发表于 2021-2-24 16:23
+
+
+
+
+我也觉得还行，终于没硬撑了，希望后面能够好好打一场找回点牌面就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  owada  
+##### 54446#       发表于 2021-2-24 16:37
+
+
+
+
+山治果然牛逼,救救我,罗宾酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 54447#       发表于 2021-2-24 16:40
+
+
+
+
+从这话开始正式分配对手了吧，看好山治能分到一个三灾
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 54448#       发表于 2021-2-24 20:01
+
+
+
+
+就不能是厨子的见闻色已经断定黑玛利亚不是罗兵的对手
+
+
+
+
+
+
+
+-----
+
+####  蔡卓妍  
+##### 54449#       发表于 2021-2-24 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429837&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-24 20:01</a>
+就不能是厨子的见闻色已经断定黑玛利亚不是罗兵的对手</blockquote>
+有见闻色还被抓住…还时间宝石唯一结局呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  晴岚  
+##### 54450#       发表于 2021-2-25 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429837&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-24 20:01</a>
+
+就不能是厨子的见闻色已经断定黑玛利亚不是罗兵的对手</blockquote>
+怎么不能是厨子见闻色到自己只是个煮饭的命,不应该插手战斗这种事？
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54451#       发表于 2021-2-25 01:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50432427&amp;ptid=98922" target="_blank">晴岚 发表于 2021-2-25 01:19</a>
+
+怎么不能是厨子见闻色到自己只是个煮饭的命,不应该插手战斗这种事？</blockquote>
+这个才是最妥当的答案，建议发去贴吧给尾田。
+
+
+
+
+
+                                  
