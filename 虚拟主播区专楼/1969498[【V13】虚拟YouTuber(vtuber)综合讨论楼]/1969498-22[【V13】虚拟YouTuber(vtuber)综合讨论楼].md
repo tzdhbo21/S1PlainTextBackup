@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 10:39** 
+> ## **本文件最后更新于2021-02-24 09:36** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_ed7pU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_I988l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_qFK5Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_l52Gu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_pR8tu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_YRV3W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Fus32" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_JfFyY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -13836,4 +13836,536 @@ azki这3D瞅了半天，虽然还算好看但快想不起来这位之前有啥�
 
 
 
-                         
+
+
+-----
+
+####  free  
+##### 32224#       发表于 2021-2-23 20:08
+
+
+
+
+azki也变成圆脸了！圆脸是yagoo的性癖吗
+
+
+来看大葵的30万人歌回了
+[https://www.youtube.com/watch?v=vsHmA7ORw9U](https://www.youtube.com/watch?v=vsHmA7ORw9U)
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32225#       发表于 2021-2-23 20:13
+
+
+
+
+圆脸+1 free大胜利
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 32226#       发表于 2021-2-23 20:18
+
+
+
+
+以后免费要骂垃圾圆脸就不知道是在骂谁了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32227#       发表于 2021-2-23 20:39
+
+
+
+
+这波免费是最大赢家啊
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 32228#       发表于 2021-2-23 21:05
+
+
+
+
+本来是想看看楼友有无有趣发散的，结果几页一翻又是车轱辘小屁孩打架，失望<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  walfeds  
+##### 32229#       发表于 2021-2-23 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">azki也没换人捏脸啊，无非是换了个发型前发不遮脸看得更清楚了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32230#       发表于 2021-2-23 22:25
+
+
+
+
+azki不会变成全职主播吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 32231#       发表于 2021-2-23 22:36
+
+
+
+
+xp对谈
+老师：杏里要说S的话就是狐皇和猫又了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大家纷纷附和，对狐皇是绝对S
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 32232#       发表于 2021-2-23 22:39
+
+
+
+
+阿葵也是S<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32233#       发表于 2021-2-23 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50420962&amp;ptid=1969498" target="_blank">Porsche 发表于 2021-2-23 22:36</a>
+
+xp对谈
+
+老师：杏里要说S的话就是狐皇和猫又了吧
+
+大家纷纷附和，对狐皇是绝对S ...</blockquote>
+&lt;线上直播的萌萌狐不可能是女王大人&gt;<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32234#       发表于 2021-2-23 23:15
+
+
+
+
+郡道酒会归来打麻，看着是喝醉了，是很适合失言炎上的放松的直播氛围啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32235#       发表于 2021-2-24 14:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前mio和卡普空的线下周边，今天兔皇的魔界村新作工商，cover和卡普空这是和解了啊，版权棒时期可真没想到，这就是资本吧。
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 32236#       发表于 2021-2-24 15:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">水龙敬事件过了两天，现在看起来是水龙敬全输结局吧。现在推特以前黑历史全被翻出来指着当墙头草骂，之后会不会和杏一样来一个阴阳公告还是就现在这样退网呢
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32237#       发表于 2021-2-24 15:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在水龙敬允许字幕组发声前，水龙敬还是占据优势的。发声之后就不再是废物的cover和被辜负的可怜画师了。
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 32238#       发表于 2021-2-24 15:41
+
+
+
+ 本帖最后由 Aminor 于 2021-2-24 15:43 编辑 
+
+只要和这边扯上关系，海内外杏奴就可以抓住这点把他打成中国杏an一路人之后在外网就变成大顺风了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁还在意这本来不过是商业上的纠纷呢
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32239#       发表于 2021-2-24 15:42
+
+
+
+
+中日民众关系的网络缩影，忠诚不绝对就是绝对不忠诚<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32240#       发表于 2021-2-24 15:53
+
+
+
+<blockquote>Aminor 发表于 2021-2-24 15:41
+只要和这边扯上关系，海内外杏奴就可以抓住这点把他打成中国杏an一路人之后在外网就变成大顺风了谁 ...</blockquote>
+用莫须有开团就会被莫须有车回来，屁股政治谁不会呢
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 32241#       发表于 2021-2-24 16:44
+
+
+
+
+好事，让其他画师看看和杏扯上关系的结果
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32242#       发表于 2021-2-24 16:47
+
+
+
+ 本帖最后由 空集 于 2021-2-24 17:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 难道不是从此揭示了随便授权给粉头代理人开直播自由发散的风险么，顺风局直接转删推加到现在无后续。本来水龙敬作为大粉转黑 ，基本上是很难洗的。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32243#       发表于 2021-2-24 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画师不画杏，就一定会回去画虹了呢，啥时候slj画葵皇带孩子去公园
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sonyjam|-1|基德|
+| 空集|-1|不基德|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32244#       发表于 2021-2-24 17:06
+
+
+
+
+韩国换网是不是像国内一样一天搞定的？
+感觉棒子这么内卷应该差不多？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32245#       发表于 2021-2-24 17:06
+
+
+
+
+麻将师徒对决，郡道多井vs哈哥千羽，
+然而，哈哥睡过头了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32246#       发表于 2021-2-24 17:07
+
+
+
+
+普通画师哪里想的到离粉头远一点这一步，他们根本就没有粉头，但离木口远一点还是容易想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32247#       发表于 2021-2-24 17:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/24/170845l6lzyl16tdvtlvgl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210224170748.jpg</strong> (93.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-24 17:08 上传
+
+
+
+
+
+
+
+这就是你虹最终决战的盘吗？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32248#       发表于 2021-2-24 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">slj有机会声明头部以下概不负责么
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32249#       发表于 2021-2-24 17:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32250#       发表于 2021-2-24 17:18
+
+
+
+
+2000不来个《从参演人员观虹内地位变迁》吗
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32251#       发表于 2021-2-24 17:18
+
+
+
+
+2000不来个《从参演人员观虹内地位变迁》吗
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32252#       发表于 2021-2-24 17:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 没什么好分析的，除了阿叶、江猴、椎名、头部虹liver都参加了，
+
+
+既不是分门别类、又不是派阀斗争，
+
+
+你虹的困兽之斗罢了，这周末就是fes了，我个人还是挺期待的，期待有什么大消息在会上发布，比如某人引退什么的，
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32253#       发表于 2021-2-24 17:26
+
+
+
+
+看消息不是说日本准备解除紧急事态了吗，延期一下搞线下的可能性呢？
+
+
+
+
+
+                        
