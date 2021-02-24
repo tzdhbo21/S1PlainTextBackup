@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 11:33** 
+> ## **本文件最后更新于2021-02-24 03:37** 
 
 
 
@@ -22216,4 +22216,697 @@ syl
 
 
 
-        
+
+
+-----
+
+####  Umichika  
+##### 2740#       发表于 2021-2-23 20:10
+
+
+
+ 本帖最后由 Umichika 于 2021-2-23 20:12 编辑 
+
+这么傻逼怎么鹅只被扣到-26？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2741#       发表于 2021-2-23 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50419387&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-23 19:23</a>
+贴吧那个不是我啊</blockquote>
+轮到asd和vt切割了是吧，糖宝你这条臭狗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2742#       发表于 2021-2-23 20:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50419387&amp;ptid=1974517" target="_blank">asd225588 发表于 2021-2-23 19:23</a>
+
+贴吧那个不是我啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"> 还换了个无端联想的头像 恶心愣是吧
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2743#       发表于 2021-2-23 22:37
+
+
+
+
+差不多得了
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2744#       发表于 2021-2-24 00:16
+
+
+
+
+V8搞得V萌，8进4都有人跑到nga给asoul拉票了😅马上四强变成asoul内战
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 2745#       发表于 2021-2-24 00:18
+
+
+
+
+这也太有画面感了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 2746#       发表于 2021-2-24 00:21
+
+
+
+
+感觉这个v萌把as五个人放一块投得了，就和以前歌姬一样，不然v8就这么点人，整的四强全是as多不好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2747#       发表于 2021-2-24 00:29
+
+
+
+
+笑死
+<img src="https://p.sda1.dev/1/b2de942ad51fad62ecbc54621dca5126/IMG_CMP_248200346.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2748#       发表于 2021-2-24 00:29
+
+
+
+ 本帖最后由 不想闭嘴 于 2021-2-24 00:31 编辑 
+
+我一个玩fgo的感觉有些回忆要涌出来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2749#       发表于 2021-2-24 00:32
+
+
+
+
+快进到向晚绝杀嘉然<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2750#       发表于 2021-2-24 00:46
+
+
+
+
+＃非号主发言
+顶碗人非常的。嗯，怎么说呢
+就算向晚唱歌跳舞不知道是在练些什么，整天抱着吉他嗯混，心思根本不在虚拟偶像上。读一读台本顶碗人就像垃圾一样涌上去。把水母当圣经一样，整天用zqsg恶心人。
+关于这点。我觉得非常有趣。
+
+请务必投然然
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  JWJking  
+##### 2751#       发表于 2021-2-24 01:39
+
+
+
+
+挺好的，我又是mmr了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2752#       发表于 2021-2-24 02:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 哎 只为看一眼，算了算了。确实是个鼠鼠 魔怔的竟是我自己 
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 2753#       发表于 2021-2-24 05:42
+
+
+
+
+艹，现在评论区换成比心后感觉更魔怔了
+还说不是水军
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2754#       发表于 2021-2-24 06:57
+
+
+
+
+四千多条评论几乎没有几条跟视频内容有关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 观众已经快不需要主播了么
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2755#       发表于 2021-2-24 06:58
+
+
+
+[真正的魔怔人，哈人](http://tieba.baidu.com/p/7238299182?share=9105&amp;fr=share&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.3.8.6&amp;st=1614121103&amp;unique=9827EAE2111265014FA811EB99A3AB29)
+
+
+
+
+
+
+
+-----
+
+####  百世汇  
+##### 2756#       发表于 2021-2-24 07:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">虚拟偶像真可怕，不思考容易便乘泥哥，过度思考还容易陷入魔怔
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2757#       发表于 2021-2-24 09:46
+
+
+
+
+然然现在视频播放日常10万+,加上又跟叔叔py上了，感觉真的要起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2758#       发表于 2021-2-24 09:59
+
+
+
+
+一鸣是什么看法啊？结合最近冷鸟去抖音发展，这两家开始松动了?
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 2759#       发表于 2021-2-24 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">太哈人了，我寻思年轻男人的第一个真人偶像杨超越粉也就摁头xjb吹，怎么第一个虚拟偶像粉能这么魔愣
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2760#       发表于 2021-2-24 10:05
+
+
+
+
+可能虎扑老哥比较阳光吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 2761#       发表于 2021-2-24 10:06
+
+
+
+
+可能这就是二次元吧
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2762#       发表于 2021-2-24 10:14
+
+
+
+
+魔怔大了的都是错把偶像当对象的观众，能不魔怔吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">偶像离我如此之近，这种心态前所未有啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2763#       发表于 2021-2-24 10:27
+
+
+
+
+太弱智了，我要跟评论区切割<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2764#       发表于 2021-2-24 10:38
+
+
+
+
+哈人啊
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2765#       发表于 2021-2-24 10:38
+
+
+
+
+评论区天天惦记那b网暴，抗压，不管内容是啥先给你科普一遍，我寻思也没人搞记忆修正，路人进来看个动漫人物，是不是要先从始皇帝开始科普啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 味太大了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2766#       发表于 2021-2-24 10:45
+
+
+
+
+没活儿了只能炒冷饭，播一播就好了
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 2767#       发表于 2021-2-24 10:56
+
+
+
+
+然然这视频刚发出来1个小时时候，评论没过千，还是很正常的内容的，也有讨论视频本身的，后面小鬼就来了，又要说一次开局网暴，后续翻盘，未来希望橄榄臭鱼烂虾的故事<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我寻思这qa是把你们记忆重置了么，怎么版本回调到12月了
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2768#       发表于 2021-2-24 11:06
+
+
+
+ 本帖最后由 Anonekoy 于 2021-2-24 11:07 编辑 
+
+我们asoul，要把yhm一个不留，全部驱逐出去😡
+
+我的猫雷😭我的爱丽丝😭我的熊猫人😭寄了
+
+
+
+
+
+
+C26978264FFF2BF011D1A72A292E5DBE.jpg
+(25.01 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-24 11:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/24/110608g8h22vq9zjpfv41h.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2769#       发表于 2021-2-24 11:17
+
+
+
+
+asoul最大问题就是一粉顶十黑。这群把评论区当qq群用的学生能不能成熟点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2770#       发表于 2021-2-24 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50424727&amp;ptid=1974517" target="_blank">Anonekoy 发表于 2021-2-24 11:06</a>
+
+我们asoul，要把yhm一个不留，全部驱逐出去😡
+
+我的猫雷😭我的爱丽丝😭我的熊猫人😭寄了
+
+ ...</blockquote>
+V8人称asoul二吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2771#       发表于 2021-2-24 11:18
+
+
+
+
+v8那群人为什么这么有精力<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+每天高强度各个社区说批话<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2772#       发表于 2021-2-24 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50424001&amp;ptid=1974517" target="_blank">黑暗剑 发表于 2021-02-24 10:02:53</a>
+太哈人了，我寻思年轻男人的第一个真人偶像杨超越粉也就摁头xjb吹，怎么第一个虚拟偶像粉能这么魔愣 ...</blockquote>不能把asoul当成一般女团了，现在粉丝群体已经开始报团自我纯化，即将成为互联网现象了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2773#       发表于 2021-2-24 11:22
+
+
+
+<blockquote>Y_Curiosity 发表于 2021-2-24 11:17
+asoul最大问题就是一粉顶十黑。这群把评论区当qq群用的学生能不能成熟点
+
+
+  -- 来自 能看大图的 Sta ...</blockquote>
+不炒作你永无出头之日.jpg
+
+最近国V各种炒作切片爆红，但asoul直播并没有这些烂梗内容，就变成现在粉丝主动炒作这样了
+
+
+
+
+
+
+
+-----
+
+####  zuperer  
+##### 2774#       发表于 2021-2-24 11:31
+
+
+
+
+国V涨粉烂活asoul一个没有，唯一沾边的贝拉打嗝，二创组投了两次还给退回了。
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 2775#       发表于 2021-2-24 11:31
+
+
+
+
+不知道以前有没有这种事发生，但嘉然评论区已经不用搭理她发的内容开始自娱自乐了，别人的新观众可以融入老观众，嘉然新观众只能选择融入v吧的氛围或者离开，但问题很大一部分人并不能理解或者融入他们疯狂的氛围。虽然不知道asoul是不是有v吧的支持才有今天，但这种氛围肯定会成为以后继续发展的一个阻碍。
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2776#       发表于 2021-2-24 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50424854&amp;ptid=1974517" target="_blank">Y_Curiosity 发表于 2021-2-24 11:17</a>
+
+asoul最大问题就是一粉顶十黑。这群把评论区当qq群用的学生能不能成熟点
+
+
+  -- 来自 能看大图的 Sta ...</blockquote>
+真得学生吗，真学生哪有时间高强度冲浪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我以前天天作业做到11点，除了看新闻，电视都不让看电脑连网都不让上，只能无限单机魔兽3
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2777#       发表于 2021-2-24 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50425065&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-24 11:33</a>
+
+真得学生吗，真学生哪有时间高强度冲浪啊我以前天天作业做到11点，除了看新闻，电视都不让看电脑 ...</blockquote>
+大学生.....
+
+我当大学生的时候, 追番曾经全制霸过, 当季所有新番一部不落
+
+目前大学的确是绝大部分人的人生中最自由的一段时间了
+
+
+
+
+
+       
