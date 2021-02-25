@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-25 04:41** 
+> ## **本文件最后更新于2021-02-25 09:47** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_AK09P" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_jgFrf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_Xz7sA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_uhYYl" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_Qxqnk" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_WDrfg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_jaap3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_tR778" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -15656,10 +15656,11 @@ nowaki出征唱双簧被发现，空集对线没对过被mute，这不比管人�
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| kilty| + 1|扣分的是小号吗|
 | 真飞鸟i|-1||
 
 
@@ -16346,8 +16347,9 @@ Palette企划明眼人都能看得出来就是对标的holoA吧，反正也就�
 
 
 
+ 本帖最后由 IDIDIDID 于 2021-2-25 12:44 编辑 
 
-holoAlt是直接在bloom后面发布的，到现在才多久怎么对标？你虹又不可能超光速光速神速做企划出曲子。当然cover有彩虹卧底另说。
+holoAlt是直接在bloom后面发布的，到现在才多久怎么对标？你虹又不可能超光速做企划出曲子。当然cover有彩虹卧底另说。
 
 
 等等，好像真的有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -16372,4 +16374,448 @@ holoAlt是直接在bloom后面发布的，到现在才多久怎么对标？你�
 
 
 
-                     
+
+
+-----
+
+####  真飞鸟i  
+##### 32354#       发表于 2021-2-25 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉版权棒之后虹杏互相就有眼线了，五期五绝同时出，alt后虹这个反应也很快，理想点说，你说俩家通过气也行。
+
+syl，阿希是许攸啊，田角赤脚相迎，安排星川陪侍，橄榄杏以后，就把小肥妹发配去slee。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32355#       发表于 2021-2-25 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看来这几天停播是接受调查去了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32356#       发表于 2021-2-25 13:07
+
+
+
+
+虹是曹操，杏是袁绍咯，什么时候火烧乌巢啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32357#       发表于 2021-2-25 13:13
+
+
+
+
+v综家人们唯有在阴湿和汴京时才如此活跃
+
+
+
+
+
+
+
+-----
+
+####  霜浪  
+##### 32358#       发表于 2021-2-25 13:32
+
+
+
+
+葵还没回来吗，真5ch了？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32359#       发表于 2021-2-25 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50435780&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-25 12:43</a>
+
+感觉版权棒之后虹杏互相就有眼线了，五期五绝同时出，alt后虹这个反应也很快，理想点说，你说俩家通 ...</blockquote>
+通气也正常把，业界两方合起来做大不是更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32360#       发表于 2021-2-25 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 三月末回来，可以不用等了，FES也是录像，
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32361#       发表于 2021-2-25 14:15
+
+
+
+
+星川的英语进出搞得很认真啊，就是怎么还有英语问星川玩不玩原神的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32362#       发表于 2021-2-25 14:17
+
+
+
+<blockquote>qq845629713 发表于 2021-2-25 13:40
+三月末回来，可以不用等了，FES也是录像，</blockquote>
+2000哪里来的这么准确的消息的啊，你是有葵皇的私推嘛
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32363#       发表于 2021-2-25 14:36
+
+
+
+
+原来2000黑屁葵皇是为了劝退其他人然后自己吃独食私联吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32364#       发表于 2021-2-25 14:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑，也可能是接生婆。正好做一个月月子
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 32365#       发表于 2021-2-25 14:50
+
+
+
+ 本帖最后由 oshinoshinobu 于 2021-2-25 14:52 编辑 
+
+【我推的孩子】：激光2000传（有点不基德）
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32366#       发表于 2021-2-25 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迪士尼拉屎小孩，葵熊的韩国小男友，s1的黑屁巨魔——激光2000
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32367#       发表于 2021-2-25 15:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 葵熊的KR小男友还行，连性取向都要编排的么？
+
+
+SYL  我的椎名播了快十几个小时apex了，新社歌没有她就这么让她难受么？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">呜呜呜，我的椎名，早这么努力，就不会被笹木拉下这么远了，
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 32368#       发表于 2021-2-25 15:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436902&amp;ptid=1969498" target="_blank">Hemis 发表于 2021-2-25 14:55</a>
+迪士尼拉屎小孩，葵熊的韩国小男友，s1的黑屁巨魔——激光2000</blockquote>
+两千是月之在迪士尼拉屎的儿子，也是葵熊的韩国男友
+所以葵熊是月之的儿媳，所以上节目月之老是带着葵熊
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 32369#       发表于 2021-2-25 15:54
+
+
+
+
+艾玛去参加发声训练了，和这新企划会不会有关系？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32370#       发表于 2021-2-25 15:59
+
+
+
+<blockquote>影山银 发表于 2021-2-25 15:54
+艾玛去参加发声训练了，和这新企划会不会有关系？</blockquote>
+还得看其他人有没有一起去参加的才能推断是不是公司企划相关的吧，一般要是多个人同一天都说要去收录或者去事务所什么的这种一般就比较准了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32371#       发表于 2021-2-25 16:00
+
+
+
+
+黛灰要搞啥，连slee都包含了，黛善人啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 32372#       发表于 2021-2-25 16:12
+
+
+
+
+是卡页了么
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 32373#       发表于 2021-2-25 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是杏奴不多了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32374#       发表于 2021-2-25 16:22
+
+
+
+
+烂货圆脸今天居然发推声称去美容院了，就这种圆脸，怎么美来美去不也就是个圆脸？？？我真的吐了。
+
+还声称下周一有告知，还告知个屁？怎么还不毕业？真是烂货中的烂货。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32375#       发表于 2021-2-25 16:29
+
+
+
+
+我帮免费补上
+嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32376#       发表于 2021-2-25 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> bora还是尽快换掉垃圾LG宽带吧，用过KT的都说好
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32377#       发表于 2021-2-25 17:08
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/25/163100aabjggaih146aaaa.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32378#       发表于 2021-2-25 17:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/25/170907t31131pbit13yp0i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210225170829.jpg</strong> (65.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-25 17:09 上传
+
+
+
+
+
+
+
+真有你的啊，不愧是千代田80暗黑会社ichikara，宣传郡道的谷子，下面配图来个博士生日，都不知道在迫害谁了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32379#       发表于 2021-2-25 17:17
+
+
+
+
+哈哈是博士啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，上回郡道谷子配图还是卯月光嘞，没一次对的，毕竟郡道本人没有生日谷图（刚好错过了），再等三个月郡道生日就好力，
+省一楼，郡道在nijifes开幕的今天大搞特搞她和齐藤的结婚三周年兼相遇一周年纪念，是不是虹人啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
