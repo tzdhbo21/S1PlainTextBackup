@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-25 02:40** 
+> ## **本文件最后更新于2021-02-25 04:41** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_Z5QKb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_AK09P" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_vF1S8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_uJSeL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_j22WU" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_Xz7sA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_uhYYl" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_Qxqnk" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -15745,13 +15745,631 @@ nowaki这不得大喊一声我为大天使立过功献过金试图原地复活
 
 
 
+ 本帖最后由 真飞鸟i 于 2021-2-25 10:47 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434469&amp;ptid=1969498" target="_blank">yanerwola 发表于 2021-2-25 10:28</a>
 
 nowaki出征唱双簧被发现，空集对线没对过被mute，这不比管人乐多了 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">想说的评分说不下，就先评分再回复吧，nowaki弱智是共识，空集对线没对过可没看出来，只能看见好几个人和空集撕扯个没完，尤其是奥尔加和阴湿的宝物丑态百出，居然还吹灰烬战线的，要屁股不要脑子的，至于后面空集和直球骂他的一换一mute，只能说nga版务确实不行。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">想说的评分说不下，就先评分再回复吧，nowaki弱智是共识，空集对线没对过可没看出来，只能看见好几个人和空集撕扯个没完，对线没对过还能撕扯这么久啊？尤其是奥尔加和阴湿的宝物丑态百出，居然还吹灰烬战线的，要屁股不要脑子的，至于后面空集和直球骂他的一换一mute，只能说nga版务确实不行，然后在版务封人之后才敢高声笑语以及过了很久才敢来v综黑屁的就更乐了不是？
 
 
 
 
 
-                      
+
+
+-----
+
+####  空集  
+##### 32324#       发表于 2021-2-25 10:41
+
+
+
+ 本帖最后由 空集 于 2021-2-25 10:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434469&amp;ptid=1969498" target="_blank">yanerwola 发表于 2021-2-25 10:28</a>
+nowaki出征唱双簧被发现，空集对线没对过被mute，这不比管人乐多了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然但是 你仔细看下就发现我被mute是在别的楼群嘲尼哥谭杏奴，顺便还一换一了一个破防直球骂人路人。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32325#       发表于 2021-2-25 10:41
+
+
+
+
+apex这游戏有一点好
+单排的时候几乎每晚都能碰上樱花妹
+yhm又特别喜欢开麦聊天
+口语急速长进中
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 32326#       发表于 2021-2-25 10:53
+
+
+
+
+支持s1杏仁橄榄nga杏仁 等hololiver以某种形式回来，这话语权总不能便宜给nga杏仁是吧，鉴于他们的各种行为。
+打响s1杏仁地下反抗基地反攻杏仁圣地第一枪，重夺华语hololive荣耀！
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32327#       发表于 2021-2-25 10:57
+
+
+
+
+s1杏奴以前就都跑去404看的，在这就别装傻子谈回旋了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 32328#       发表于 2021-2-25 11:04
+
+
+
+ 本帖最后由 admentus 于 2021-2-25 11:25 编辑 
+
+神必，尼哥谭哪会mute对线没对过的人？哪次不是把对方气的没话说了只能集体举报求矢本沙希爹救救？
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 32329#       发表于 2021-2-25 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434579&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-25 10:38</a>
+想说的评分说不下，就先评分再回复吧，nowaki弱智是共识，空集对线没对过可没看出来，只能看见好几 ...</blockquote>
+你非觉得v综那一套放四海接准，那可不是从一个胜利走向另一个胜利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32330#       发表于 2021-2-25 11:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 只吃到抹布的就别出来诉苦了，你们只是被抹布看来是英雄相惜，被队友版主保护了还不自知，
+
+
+我几个号都直接被大内总管扣到-800分，账号直接在管人区被拉黑，
+
+
+和净土宗总管比，杏人的危害程度简直是不值一提
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32331#       发表于 2021-2-25 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434877&amp;ptid=1969498" target="_blank">yanerwola 发表于 2021-2-25 11:08</a>
+
+你非觉得v综那一套放四海接准，那可不是从一个胜利走向另一个胜利</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在v综不用v综这套用尼哥那套？喜欢用尼哥那套打人还是老老实实窝在泥潭呗。
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 32332#       发表于 2021-2-25 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434899&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-25 11:10</a>
+在v综不用v综这套用尼哥那套？喜欢用尼哥那套打人还是老老实实窝在泥潭呗。 ...</blockquote>
+反正出征被当野怪mute又在楼里无伤的不是我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32333#       发表于 2021-2-25 11:14
+
+
+
+ 本帖最后由 空集 于 2021-2-25 11:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">  求中立可以今天开始都用8u那套 大家都来黄豆脸抽象表情  
+野怪还行 这是真尼哥?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32334#       发表于 2021-2-25 11:15
+
+
+
+
+#查询楼友年龄
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 32335#       发表于 2021-2-25 11:15
+
+
+
+
+差不多得了，是不是还要学nga搞开盒威胁那套啊😅😅😅
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32336#       发表于 2021-2-25 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434929&amp;ptid=1969498" target="_blank">yanerwola 发表于 2021-2-25 11:14</a>
+
+反正出征被当野怪mute又在楼里无伤的不是我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是跑来v综拿尼哥版务战果自 慰的是你啊。
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 32337#       发表于 2021-2-25 11:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v综不改名叫赢综太可惜了，只有需要车轱辘尼又输的时候才能刷高楼
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 32338#       发表于 2021-2-25 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434983&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-2-25 11:17</a>
+但是跑来v综拿尼哥版务战果自 慰的是你啊。</blockquote>
+暗搓搓扣鹅的场外诸葛差不多得了😅
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 真飞鸟i|-1|我都专门回复你了还叫暗搓搓啊。.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 32339#       发表于 2021-2-25 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434883&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-2-25 11:09</a>
+
+只吃到抹布的就别出来诉苦了，你们只是被抹布看来是英雄相惜，被队友版主保护了还不自知，
+
+
+我几个 ...</blockquote>
+nowaki几个号也被扣了几百吧
+
+尼哥谭v版毕竟民粹板块，几个人把大风向一立反对者都能随意用权限封掉，版规不存在的，人身攻击支持人肉违反互联网相关法律法规的发言不用封，拿着事实反对大风向的人能用“带节奏”“引战”等主观标准mute掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32340#       发表于 2021-2-25 11:23
+
+
+
+ 本帖最后由 poipanchao 于 2021-2-25 11:25 编辑 
+
+楼友体面一点，太难看了
+一坛归一坛
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32341#       发表于 2021-2-25 11:27
+
+
+
+
+我说v综信息量怎么这么拉垮了，原来是人才外流<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32342#       发表于 2021-2-25 11:28
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32343#       发表于 2021-2-25 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭加把劲，现在居然能让fh团体nijisanji仗着原神压着亲善代表团体ccll，转播压b限，这是最大的zzbzq，得让更多观众觉醒才行。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32344#       发表于 2021-2-25 11:47
+
+
+
+
+反正我觉得和V综挺相关的：
+
+
+「韓国推し」を続ける日テレに集まる不信感…フジ炎上の二の舞となるリスクも？
+[https://gendai.ismedia.jp/articles/-/80469](https://gendai.ismedia.jp/articles/-/80469)
+
+
+ <blockquote>「また視聴者無視の韓国ゴリ押しか」
+
+「韓国人のタレントばかり出すな。しかも祝日に。気分悪い」
+
+「この番組、本当に韓国人が絡んでいるのかな」</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32345#       发表于 2021-2-25 11:51
+
+
+
+<blockquote>winda 发表于 2021-2-25 11:29
+泥潭加把劲，现在居然能让fh团体nijisanji仗着原神压着亲善代表团体ccll，转播压b限，这是最大的zzb ...</blockquote>
+没有关系，你虹转播人气高却没有钱，ccll 虽然人气稳定但是赚翻了，大家都赢没有受伤的世界完成了，虽然我感觉你虹应该不久马上就会有人复刻江菜了
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32346#       发表于 2021-2-25 11:56
+
+
+
+
+建议成立n综进行集中讨论<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+外边不还是有个语录楼吗
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32347#       发表于 2021-2-25 12:06
+
+
+
+ 本帖最后由 nowaki 于 2021-2-25 12:16 编辑 
+
+两个号在说水龙敬早年推特就叫唱双簧呗，v综家人们这合理吗
+
+而且我也没那闲工夫跑一个楼用两个号自己聊，更没匿名发言过，钓个鱼而言都一击脱离的，被觉得双簧怕不是某两位楼友借我号一起去对线那回啊。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32348#       发表于 2021-2-25 12:07
+
+
+
+
+来点信息
+
+虹PALETTE动画中出现的数字
+
+<img src="https://img.saraba1st.com/forum/202102/25/120153mdd8l4ubdo1tm11k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>nijisanji_palette.jpg</strong> (637.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-25 12:01 上传
+
+
+
+
+[https://twitter.com/kaya_saga/status/1364606983937028097](https://twitter.com/kaya_saga/status/1364606983937028097)
+
+
+标示的对应
+
+<img src="https://img.saraba1st.com/forum/202102/25/120404wffoj0j03azzm0s8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>『Wonder Neverland』『虹色のPuddle』.jpg</strong> (68.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-25 12:04 上传
+
+
+
+
+
+[https://twitter.com/convolve_p/status/1364650798710366212](https://twitter.com/convolve_p/status/1364650798710366212)
+
+
+标志设计&amp;视觉担当
+
+有馬トモユキ@tatsdesign给虹三周年PALETTE的动画做了视觉和动态标志设计，顺便一提<strong>hololiveALT</strong>的标志、动画和テロップ（PV中的标注文字）也是他做的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+[https://twitter.com/tatsdesign/status/1364545022419365889](https://twitter.com/tatsdesign/status/1364545022419365889)
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32349#       发表于 2021-2-25 12:12
+
+
+
+
+划江而治
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32350#       发表于 2021-2-25 12:13
+
+
+
+
+Palette企划明眼人都能看得出来就是对标的holoA吧，反正也就是两大箱圈钱的噱头，wnl 出现的线索主要还是live相关，估计你虹fes的告知应该也是这方面的
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32351#       发表于 2021-2-25 12:14
+
+
+
+
+不破魔界村这一周目就过了，游戏力确实挺强
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32352#       发表于 2021-2-25 12:26
+
+
+
+
+holoAlt是直接在bloom后面发布的，到现在才多久怎么对标？你虹又不可能超光速光速神速做企划出曲子。当然cover有彩虹卧底另说。
+
+
+等等，好像真的有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32353#       发表于 2021-2-25 12:39
+
+
+
+
+阿希就是糜芳是吧
+
+
+
+
+
+                     
