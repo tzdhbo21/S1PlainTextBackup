@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-25 13:36** 
+> ## **本文件最后更新于2021-02-25 14:36** 
 
 
 
@@ -26237,4 +26237,653 @@ v萌向晚781票，嘉然780票</blockquote>
 
 
 
- 
+
+
+-----
+
+####  Hirosue  
+##### 2964#       发表于 2021-2-25 21:37
+
+
+
+
+播了半小时涨了一百舰，太哈人了
+这种速度到不了生日就破千了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 2965#       发表于 2021-2-25 21:37
+
+
+
+
+嘉然今天直播状态不错啊，弹幕拉到20级后多数不错啊
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2966#       发表于 2021-2-25 21:38
+
+
+
+
+今天弹幕没几条不能看的吧
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 2967#       发表于 2021-2-25 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50440655&amp;ptid=1974517" target="_blank">二条乃梨子 发表于 2021-2-25 21:29</a>
+
+贝拉为什么直播老是举手啊，总是感觉她在行军礼（虚拟空输）</blockquote>
+忠！诚！
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2968#       发表于 2021-2-25 21:42
+
+
+
+
+萧瑟加油真的麻了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2969#       发表于 2021-2-25 21:43
+
+
+
+
+什么叫爆杀啊
+
+
+
+
+
+
+1.png
+(42.09 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-25 21:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/25/214259h8gjeae82gteyras.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  goudante  
+##### 2970#       发表于 2021-2-25 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然然的弹幕太多成分太能发散了，要在里头只看能回的真不容易
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2971#       发表于 2021-2-25 21:47
+
+
+
+
+万象天引的后遗症
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 2972#       发表于 2021-2-25 21:49
+
+
+
+
+咱爸能处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 2973#       发表于 2021-2-25 21:50
+
+
+
+
+嘉然看来还是有一点二次元浓度
+
+SYL这是个屁打工人,杭州土著收租家庭的形象跃然纸上
+
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2974#       发表于 2021-2-25 21:52
+
+
+
+
+然然叫爸爸妈妈的口音好怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2975#       发表于 2021-2-25 21:52
+
+
+
+
+好sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2976#       发表于 2021-2-25 21:52
+
+
+
+
+上钩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  +1真的好玩  
+##### 2977#       发表于 2021-2-25 21:53
+
+
+
+
+看了看然然的舰长上座率不错啊，gachi浓度挺高的
+
+syl   然然也是杭州的？
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2978#       发表于 2021-2-25 21:53
+
+
+
+
+别钓了别钓了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2979#       发表于 2021-2-25 21:53
+
+
+
+
+5人都是枝江大学呀
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2980#       发表于 2021-2-25 21:54
+
+
+
+
+棍孝子终于得偿所愿
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 2981#       发表于 2021-2-25 21:54
+
+
+
+
+刚才提到了平时开车来送吃
+
+
+
+
+
+
+
+-----
+
+####  +1真的好玩  
+##### 2982#       发表于 2021-2-25 21:55
+
+
+
+
+之江大学（Hangchow University）是基督教美北长老会和美南长老会在中国杭州联合创办的一所教会大学。前身为1845年于宁波创立的崇信义塾。1949年新中国成立前，中国共有13所基督教教会大学，之江大学也是中国的十三所基督教大学之一
+
+
+之江大学吧，as5人全是基督徒？八刀子要不要去聊聊神学
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2983#       发表于 2021-2-25 21:56
+
+
+
+
+下播之后又要对嘉心糖多几分戒备了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2984#       发表于 2021-2-25 21:57
+
+
+
+
+圣嘉然会原谅动物园xz，但是嘉心糖不会<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 2985#       发表于 2021-2-25 21:57
+
+
+
+
+谐音的浙江大学
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2986#       发表于 2021-2-25 21:58
+
+
+
+
+ 顶碗人别太过分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2987#       发表于 2021-2-25 21:59
+
+
+
+
+枝江大学是一个虚构设定，虚拟偶像上虚拟大学应该没什么问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2988#       发表于 2021-2-25 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50440933&amp;ptid=1974517" target="_blank">+1真的好玩 发表于 2021-2-25 21:55</a>
+
+之江大学（Hangchow University）是基督教美北长老会和美南长老会在中国杭州联合创办的一所教会大学。前身 ...</blockquote>
+什么圣母在上
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2989#       发表于 2021-2-25 22:00
+
+
+
+
+这个弹幕密度和同接真的是12w的vup吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2990#       发表于 2021-2-25 22:00
+
+
+
+
+asoul和观众跨服聊天也是一大节目效果
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2991#       发表于 2021-2-25 22:01
+
+
+
+
+反转了 我们嘉心糖就是gachi<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  +1真的好玩  
+##### 2992#       发表于 2021-2-25 22:02
+
+
+
+
+有确切的消息吗？浙大有个之江学院和之江大学一样都在杭州<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2993#       发表于 2021-2-25 22:03
+
+
+
+
+衣服混穿是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 2994#       发表于 2021-2-25 22:03
+
+
+
+
+枝江大学不是设定吗？a-soul这种企划应该不会找在读大学生吧？
+
+
+
+
+
+
+
+-----
+
+####  +1真的好玩  
+##### 2995#       发表于 2021-2-25 22:04
+
+
+
+ 本帖最后由 +1真的好玩 于 2021-2-25 22:05 编辑 
+
+然然向奶0借衣服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+奶0有好几件吊带
+
+一起洗澡还看到珈乐的运动内衣
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2996#       发表于 2021-2-25 22:04
+
+
+
+
+珈乐穿吊带<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2997#       发表于 2021-2-25 22:05
+
+
+
+
+多说点，我就想知道这些。然然真能说<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 2998#       发表于 2021-2-25 22:05
+
+
+
+
+不是说有2个中之人是在校生
+
+
+
+
+
+
+
+-----
+
+####  百世汇  
+##### 2999#       发表于 2021-2-25 22:06
+
+
+
+
+好直播间，就想知道这些<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3000#       发表于 2021-2-25 22:07
+
+
+
+
+真的有b吗
+
+
+
+
+
