@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 15:43** 
+> ## **本文件最后更新于2021-02-25 02:40** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_KuyZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_Z5QKb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_dNVKJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_gJ5X1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_zY7YJ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_vF1S8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_uJSeL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_j22WU" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -14463,10 +14463,11 @@ xp对谈
 
 
 
- 参与人数 13战斗力 -14
+ 参与人数 14战斗力 -15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ChristinaDU|-1|u1s1qs|
 | qesto|-1|思路广|
 | lolosan|-1||
 | xnlyt|-1|好评加鹅|
@@ -14554,6 +14555,25 @@ v综也就只有阴湿的时候能刷几楼了<img src="https://static.saraba1st
 
 Valheim这么好的团建游戏，怎么会有人跑去和别家老板、别家职业选手、别家画师玩啊，田角都不忍心打破这份其乐融融<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2L模仿47哥| + 1|确实|
+
+
+
+查看全部评分
 
 
 
@@ -14920,7 +14940,7 @@ sky可算当了几局狼，还赢了
 <img src="https://img.saraba1st.com/forum/202102/24/221318mbwljooj4p4lw4cp.png" referrerpolicy="no-referrer">
 
 
-<strong>picture12298.png</strong> (128.65 KB, 下载次数: 0)
+<strong>picture12298.png</strong> (128.65 KB, 下载次数: 1)
 
 下载附件
 
@@ -15060,4 +15080,678 @@ bzml对床的第一影响是颜很好的s  所以阿床算s么?
 
 
 
-                       
+
+
+-----
+
+####  dybang  
+##### 32285#       发表于 2021-2-24 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431513&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-2-24 23:13</a>
+Wonder NeverLand这个歌居然可以做到没有一个gamers成员也是牛逼，这就是彩虹对于内部最劳苦功高团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑，首先不只一首曲子，其次也不是按山头分的组
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32286#       发表于 2021-2-25 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431819&amp;ptid=1969498" target="_blank">dybang 发表于 2021-2-24 23:55</a>
+
+别尬黑，首先不只一首曲子，其次也不是按山头分的组</blockquote>
+按什么分法可以分出一个gamers都没有的组？
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 32287#       发表于 2021-2-25 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431863&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-2-25 00:03</a>
+按什么分法可以分出一个gamers都没有的组？</blockquote>
+我也没看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正另一首有两个
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32288#       发表于 2021-2-25 00:07
+
+
+
+
+别尬黑 彩虹头牌看了holopv 马上就要跳到holostar了
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32289#       发表于 2021-2-25 00:07
+
+
+
+
+kz作曲的水平还是在线的，但这mix未免也太拉胯了吧，动态被压得一点不剩都快压成噪音了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32290#       发表于 2021-2-25 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431154&amp;ptid=1969498" target="_blank">空集 发表于 2021-2-24 22:26</a>
+bzml对床的第一影响是颜很好的s  所以阿床算s么?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+嗯……反正喜欢欺负人是有点的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+不过尺度拿捏的很好，不愧是老练的社会人<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32291#       发表于 2021-2-25 00:23
+
+
+
+
+笑死了，夜见都差点唱破音了，能不能别掐你那萌音唱歌了，和谢林芙莲一起简直是处刑，rap吐字也不清楚，你以后还是别凑这种热闹了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32292#       发表于 2021-2-25 00:29
+
+
+
+
+相对喜欢WN一点
+
+这个人选实在太迷了……
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32293#       发表于 2021-2-25 00:55
+
+
+
+
+看到smc和挑染的图才想起来黛灰那个疑似围裙的新衣装还没发……要是图上这样感觉还不错
+
+
+
+
+
+
+
+-----
+
+####  条野太狼  
+##### 32294#       发表于 2021-2-25 01:14
+
+
+
+
+魔界战记6跟HOLO联动了 5个角色都有专属技能演出 虽然游戏并不好玩
+
+
+<img src="https://img.saraba1st.com/forum/202102/25/011241i6re9bq26qcb4xkj.png" referrerpolicy="no-referrer">
+
+
+<strong>Eu-0aAsVcAIuCrv.png</strong> (177.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-25 01:12 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32295#       发表于 2021-2-25 01:21
+
+
+
+
+听说绿帽坛封了个，S1四大杏奴，都谁啊......
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32296#       发表于 2021-2-25 01:39
+
+
+
+
+空集鱼头清宝免费吧
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 32297#       发表于 2021-2-25 01:42
+
+
+
+
+这不还差一个嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星期三下午五点  
+##### 32298#       发表于 2021-2-25 01:43
+
+
+
+
+crew怎么能算杏奴呢
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32299#       发表于 2021-2-25 01:52
+
+
+
+
+这不和a岛评四大bog一样，有意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 32300#       发表于 2021-2-25 04:00
+
+
+
+
+九小时了进度还没到第一个存档点，太绝望了。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32301#       发表于 2021-2-25 04:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">彩虹这俩歌有这么好听吗 
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32302#       发表于 2021-2-25 07:25
+
+
+
+
+四大杏奴应该是空集nowaki鱼头百宝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32303#       发表于 2021-2-25 07:41
+
+
+
+
+nowaki在唯一没被锁的水龙敬事件楼里用两个号唱双簧带节奏，其中一个号还用的匿名发言，结果被版务看出是想攻击大家敬爱的水龙敬老师来扰乱冲蝗大队军心，ip一查，两个号都吃了mute<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 32304#       发表于 2021-2-25 07:45
+
+
+
+
+自由呢，民主呢？这还不去冲了尼哥潭？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32305#       发表于 2021-2-25 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50433233&amp;ptid=1969498" target="_blank">面具13 发表于 2021-2-25 07:41</a>
+
+nowaki在唯一没被锁的水龙敬事件楼里用两个号唱双簧带节奏，其中一个号还用的匿名发言，结果被版务看出是想 ...</blockquote>
+大快人心。
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32306#       发表于 2021-2-25 09:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32307#       发表于 2021-2-25 09:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 彩虹新歌确实好听啊，这才配得上社歌啊，vtl是什么臭鱼烂虾
+
+
+彩虹社只要有他们就够了，其他人或多或少都有点多余，
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32308#       发表于 2021-2-25 09:44
+
+
+
+
+彩虹官号那个彩虹猫百万再生了，这种万试万灵的财富密码早该用用了，不知道以前犟什么。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32309#       发表于 2021-2-25 09:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比较喜欢虹色，虽然俩首都挺偏向大联欢曲的，虹色那首还是热情不少。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32310#       发表于 2021-2-25 09:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么老是把我排在第一个
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32311#       发表于 2021-2-25 10:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">看下后面几弹企划，不知虹里还有几人有机会上船
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32312#       发表于 2021-2-25 10:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一还不好，倍有面
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32313#       发表于 2021-2-25 10:10
+
+
+
+
+四大XX不是应该有五个才对吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32314#       发表于 2021-2-25 10:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 彩虹新歌就是田角费劲心力建造的“方舟”，而有幸参与的人就是其船员，
+
+
+等毁灭ichikara的大洪水袭来时，保证田角和他的天选之人能活着重建彩虹，并重铸ichikara荣光，
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 32315#       发表于 2021-2-25 10:21
+
+
+
+
+nga四大尼哥来一个秋泥膏
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32316#       发表于 2021-2-25 10:26
+
+
+
+
+感觉valheim要成为新的ark了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32317#       发表于 2021-2-25 10:27
+
+
+
+
+也就s1能4个了，nga好歹也得百大吧
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 32318#       发表于 2021-2-25 10:28
+
+
+
+
+nowaki出征唱双簧被发现，空集对线没对过被mute，这不比管人乐多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 真飞鸟i|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 32319#       发表于 2021-2-25 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50433233&amp;ptid=1969498" target="_blank">面具13 发表于 2021-2-25 07:41</a>
+
+nowaki在唯一没被锁的水龙敬事件楼里用两个号唱双簧带节奏，其中一个号还用的匿名发言，结果被版务看出是想 ...</blockquote>
+这也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rockroxas  
+##### 32320#       发表于 2021-2-25 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434469&amp;ptid=1969498" target="_blank">yanerwola 发表于 2021-2-25 10:28</a>
+
+nowaki出征唱双簧被发现，空集对线没对过被mute，这不比管人乐多了 ...</blockquote>
+nowaki这不得大喊一声我为大天使立过功献过金试图原地复活
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32321#       发表于 2021-2-25 10:31
+
+
+
+
+看了看不破这魔界村，严重担忧露皇之后玩的时候身体撑不撑得住<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32322#       发表于 2021-2-25 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 选个净土宗虹楼内务府总管，我倒是可以引荐几位
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32323#       发表于 2021-2-25 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434469&amp;ptid=1969498" target="_blank">yanerwola 发表于 2021-2-25 10:28</a>
+
+nowaki出征唱双簧被发现，空集对线没对过被mute，这不比管人乐多了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">想说的评分说不下，就先评分再回复吧，nowaki弱智是共识，空集对线没对过可没看出来，只能看见好几个人和空集撕扯个没完，尤其是奥尔加和阴湿的宝物丑态百出，居然还吹灰烬战线的，要屁股不要脑子的，至于后面空集和直球骂他的一换一mute，只能说nga版务确实不行。
+
+
+
+
+
+                      
