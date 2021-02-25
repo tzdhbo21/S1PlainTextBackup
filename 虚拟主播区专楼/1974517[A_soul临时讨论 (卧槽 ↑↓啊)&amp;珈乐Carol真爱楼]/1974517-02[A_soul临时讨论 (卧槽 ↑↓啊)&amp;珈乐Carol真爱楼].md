@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-25 10:44** 
+> ## **本文件最后更新于2021-02-25 13:36** 
 
 
 
@@ -25382,4 +25382,859 @@ abo就是个同人设定，没什么的
 
 
 
-  
+
+
+-----
+
+####  弈秋  
+##### 2914#       发表于 2021-2-25 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了，怎么8u这么喜欢写小作文啊
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2915#       发表于 2021-2-25 19:19
+
+
+
+
+被豆瓣女粉整的abo小黄文弄笑了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2916#       发表于 2021-2-25 20:03
+
+
+
+
+贝拉挠头.jpg
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2917#       发表于 2021-2-25 20:03
+
+
+
+
+贝拉嘴怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2918#       发表于 2021-2-25 20:04
+
+
+
+
+贝拉依旧整天扶着头，是小头贝拉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2919#       发表于 2021-2-25 20:05
+
+
+
+
+贝拉说话的时候嘴巴合不上，笑死
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2920#       发表于 2021-2-25 20:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贝拉是真的不知道大聪明是啥吗
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 2921#       发表于 2021-2-25 20:10
+
+
+
+
+v萌向晚781票，嘉然780票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2922#       发表于 2021-2-25 20:11
+
+
+
+
+哪来这么多土味sc，我要偷了去然然那里发
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2923#       发表于 2021-2-25 20:12
+
+
+
+
+破案了，FPX替补打野就是fpx kira
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2924#       发表于 2021-2-25 20:15
+
+
+
+
+向晚gachi好多
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2925#       发表于 2021-2-25 20:27
+
+
+
+
+v萌虽然是cylx 节目效果这块是真的行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2926#       发表于 2021-2-25 20:29
+
+
+
+
+女武神来了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 2927#       发表于 2021-2-25 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 我估计你坛大部分肥肥可能打架打不过她
+
+家里还有个跆拳道的哥哥
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2928#       发表于 2021-2-25 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我打两个然然还是没问题的
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 2929#       发表于 2021-2-25 20:32
+
+
+
+
+向晚赢一票？ 这节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2930#       发表于 2021-2-25 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50439855&amp;ptid=1974517" target="_blank">冰结镜界的伊甸 发表于 2021-2-25 20:10</a>
+
+v萌向晚781票，嘉然780票</blockquote>
+然然还是老老实实去给晚指导洗脚吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2931#       发表于 2021-2-25 20:36
+
+
+
+
+贝拉和她的后宫们<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 这就是as队长的含金量吗
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2932#       发表于 2021-2-25 20:38
+
+
+
+
+这都被你大聪明发现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2933#       发表于 2021-2-25 20:39
+
+
+
+
+可爱捏
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2934#       发表于 2021-2-25 20:39
+
+
+
+
+这就是晚指导的魅力
+
+
+
+
+
+
+~KZR57)U@UGH12]%%SRB9II.png
+(44.69 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-25 20:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/25/203915gpk927gim3mvlk3k.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2935#       发表于 2021-2-25 20:40
+
+
+
+
+然...我的然<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2936#       发表于 2021-2-25 20:42
+
+
+
+
+打金币弹是吧
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2937#       发表于 2021-2-25 20:50
+
+
+
+
+我反悔了，50分钟太快了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 2938#       发表于 2021-2-25 20:55
+
+
+
+
+话不讲完歌也掐 什么工具人 给你吗一刀
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2939#       发表于 2021-2-25 21:08
+
+
+
+
+快快快快快快快快快快快快快快快快快，开门啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"> 我要见然然！
+
+
+
+
+
+
+
+-----
+
+####  goudante  
+##### 2940#       发表于 2021-2-25 21:09
+
+
+
+
+直播间弹幕太搞了
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2941#       发表于 2021-2-25 21:10
+
+
+
+
+恭喜og是吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  好爽  
+##### 2942#       发表于 2021-2-25 21:10
+
+
+
+
+
+诚实说一句不好听的，贝拉单人的闲聊节目太尬了，尬得就像刚刚跟我谈恋爱的邻家女孩一样。
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2943#       发表于 2021-2-25 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50440472&amp;ptid=1974517" target="_blank">好爽 发表于 2021-2-25 21:10</a>
+
+诚实说一句不好听的，贝拉单人的闲聊节目太尬了，尬得就像刚刚跟我谈恋爱的邻家女孩一样。 ...</blockquote>
+只能说进步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，经典“爱你哦”
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2944#       发表于 2021-2-25 21:12
+
+
+
+
+然然今天声音好好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2945#       发表于 2021-2-25 21:18
+
+
+
+
+动态壁纸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 2946#       发表于 2021-2-25 21:19
+
+
+
+
+然然你点个视频看呀<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2947#       发表于 2021-2-25 21:21
+
+
+
+
+做点能看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 2948#       发表于 2021-2-25 21:22
+
+
+
+
+赛博狗呢？广西狗呢？日语狗呢？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 2949#       发表于 2021-2-25 21:23
+
+
+
+
+狗怕是不能公开看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2950#       发表于 2021-2-25 21:23
+
+
+
+
+我然的弹幕环境还是一如既往的垃圾，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2951#       发表于 2021-2-25 21:24
+
+
+
+
+当狗为什么不回没点数吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">又不是虚拟逢坂大河
+
+虽然也有不错的
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 2952#       发表于 2021-2-25 21:24
+
+
+
+
+为什么不能公开看，又不沾宗教色情暴力zz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 2953#       发表于 2021-2-25 21:25
+
+
+
+
+“真情实感”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">蚌埠住了
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2954#       发表于 2021-2-25 21:25
+
+
+
+
+我觉得弹幕环境已经不错了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要求太高了吧
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 2955#       发表于 2021-2-25 21:27
+
+
+
+
+弹幕还行，能处
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2956#       发表于 2021-2-25 21:28
+
+
+
+ 本帖最后由 是谁的书画 于 2021-2-25 21:30 编辑 
+
+别问..问就是我酸顶碗人了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+嘉心糖太flbk了
+
+
+能别寄吧刷了给然然投个票嘛
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2957#       发表于 2021-2-25 21:29
+
+
+
+
+嘉心糖也就会刷刷弹幕了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2958#       发表于 2021-2-25 21:29
+
+
+
+
+贝拉为什么直播老是举手啊，总是感觉她在行军礼（虚拟空输）
+
+
+
+
+
+
+
+-----
+
+####  +1真的好玩  
+##### 2959#       发表于 2021-2-25 21:30
+
+
+
+
+然然睡觉眼睛太大闭不上
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2960#       发表于 2021-2-25 21:31
+
+
+
+
+芜湖 就爱听分享生活<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 2961#       发表于 2021-2-25 21:31
+
+
+
+
+什么张飞
+
+
+
+
+
+
+
+-----
+
+####  crystalmacarons  
+##### 2962#       发表于 2021-2-25 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50440655&amp;ptid=1974517" target="_blank">二条乃梨子 发表于 2021-2-25 21:29</a>
+
+贝拉为什么直播老是举手啊，总是感觉她在行军礼（虚拟空输）</blockquote>
+经典扶头盔
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 2963#       发表于 2021-2-25 21:35
+
+
+
+
+浓度先不说，至少然然的流量越来越大了😊
+
+
+
+
+
+ 
