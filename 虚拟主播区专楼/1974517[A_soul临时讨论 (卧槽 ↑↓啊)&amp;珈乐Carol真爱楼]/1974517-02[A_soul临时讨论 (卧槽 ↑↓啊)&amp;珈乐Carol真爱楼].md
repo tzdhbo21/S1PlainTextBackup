@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 14:42** 
+> ## **本文件最后更新于2021-02-25 10:44** 
 
 
 
@@ -24846,4 +24846,540 @@ ED长进了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 
 
 
-   
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2883#       发表于 2021-2-24 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431236&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-24 22:38</a>
+
+呃啊，忘了礼拜三也有直播了，还在礼拜四的版本，血崩</blockquote>
+王力可乐的贾布已经传上去了，乃琳的应该也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2884#       发表于 2021-2-24 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431444&amp;ptid=1974517" target="_blank">抄袭炉石的垃圾 发表于 2021-2-24 23:05</a>
+
+王力可乐的贾布已经传上去了，乃琳的应该也差不多了</blockquote>
+贾布额滴神！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 2885#       发表于 2021-2-25 00:29
+
+
+
+
+豆瓣女粉浓度过高, 害怕, 跑路了,  那啥abo直接看得我头皮发麻
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 2886#       发表于 2021-2-25 00:39
+
+
+
+
+奶0全锅
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2887#       发表于 2021-2-25 00:41
+
+
+
+
+abo是啥？科普一下？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2888#       发表于 2021-2-25 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50432169&amp;ptid=1974517" target="_blank">海底铁锚 发表于 2021-02-25 00:41:35</a>
+abo是啥？科普一下？</blockquote>豆瓣有科普，你可以去看看。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 2889#       发表于 2021-2-25 00:52
+
+
+
+
+补了嘟嘟嘟嘟嘟，真好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 2890#       发表于 2021-2-25 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50432082&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-25 00:29</a>
+
+豆瓣女粉浓度过高, 害怕, 跑路了,  那啥abo直接看得我头皮发麻</blockquote>
+我也是打算撤了，感觉互联网女性一旦聚集起来就会不自主的输出价值观<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 2891#       发表于 2021-2-25 01:00
+
+
+
+
+珈乐跳舞的时候看到了背后的曲线，太涩了，不是露背毛衣，也能这么涩，大晚上的，很难睡着了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WAS-LX2J, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 2892#       发表于 2021-2-25 01:01
+
+
+
+
+abo老东西了，晋江一堆abo文，无论男女都爱看刘备的，不用辣么激动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 2893#       发表于 2021-2-25 01:01
+
+
+
+
+豆瓣还有人拿as写abo的？这不比8u写破防文带劲多了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 2894#       发表于 2021-2-25 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50432310&amp;ptid=1974517" target="_blank">光明莫斯利安 发表于 2021-2-25 01:00</a>
+珈乐跳舞的时候看到了背后的曲线，太涩了，不是露背毛衣，也能这么涩，大晚上的，很难睡着了
+
+——  ...</blockquote>
+京阿尼秘籍- 着衣裸体
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2895#       发表于 2021-2-25 01:23
+
+
+
+
+豆友写的文是真的劲，可惜搬家的时候就差不多全被橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2896#       发表于 2021-2-25 01:55
+
+
+
+
+Abo设定看着玄乎，写文用的上也就是确定攻受关系和强制发情开搞两个点，没啥新奇的
+
+
+
+
+
+
+
+-----
+
+####  acgreen  
+##### 2897#       发表于 2021-2-25 09:25
+
+
+
+
+abo就是个同人设定，没什么的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  intotherain9  
+##### 2898#       发表于 2021-2-25 11:05
+
+
+
+
+昨天珈乐起身的时候是走光了吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+那凭什么就然然穿安全裤！
+
+—— 来自 blackshark SHARK KLE-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2899#       发表于 2021-2-25 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50434844&amp;ptid=1974517" target="_blank">intotherain9 发表于 2021-02-25 11:05:12</a>
+昨天珈乐起身的时候是走光了吗？
+
+ v2.4.4.1</blockquote>是穿模了，asoul的模型应该都有安全裤的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 2900#       发表于 2021-2-25 16:08
+
+
+
+
+冲蝗头子之一在nga走廊发表对asoul投降演讲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 2901#       发表于 2021-2-25 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">静观其💩
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 2902#       发表于 2021-2-25 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">佬佬佬重要演讲发表完，终于可以正大光明回旋了。
+什么时候集体记忆修正啊
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2903#       发表于 2021-2-25 16:16
+
+
+
+
+坏了，这下真佬了
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 2904#       发表于 2021-2-25 16:26
+
+
+
+
+来个图好不好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 2905#       发表于 2021-2-25 16:29
+
+
+
+
+我一猜就是天海<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">老v8sj人了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  goudante  
+##### 2906#       发表于 2021-2-25 16:56
+
+
+
+
+那栋楼里有几个人真是相当地体现出来尼哥那种装懂哥发言的味道<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2907#       发表于 2021-2-25 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 2908#       发表于 2021-2-25 17:29
+
+
+
+
+锁了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Seteor  
+##### 2909#       发表于 2021-2-25 17:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是我年纪大了还是你们压根不看同人文，abo这玩意儿但凡看一点文都会有所了解吧。而且没那么哈人，就理解成分个攻受和有发情期方便写刘备文就好，我那会儿看晋江百合文这类型的多得是，也有许多作者不写扶她的
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 2910#       发表于 2021-2-25 17:31
+
+
+
+
+回旋空中的不止月兔，还有泥哥和吧友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2911#       发表于 2021-2-25 18:29
+
+
+
+
+真的棍术啊。太乐了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 2912#       发表于 2021-2-25 18:30
+
+
+
+
+又卡页了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 2913#       发表于 2021-2-25 18:41
+
+
+
+
+水母新短视频可算是扔了gamer设定了。这下真成gamer了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+  
