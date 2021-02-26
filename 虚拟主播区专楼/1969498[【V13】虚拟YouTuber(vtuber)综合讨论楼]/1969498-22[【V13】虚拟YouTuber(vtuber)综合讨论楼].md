@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 05:34** 
+> ## **本文件最后更新于2021-02-26 12:51** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_datvJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_FSoux" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_U5Mle" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_KXXrY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_qcC4w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_W7U0a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_F3P65" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_ALX2W" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17267,4 +17267,587 @@ https://twitter.com/honmono_ibrahim/status/1365131252882239488</blockquote>
 
 
 
-                   
+
+
+-----
+
+####  rzrbtk  
+##### 32403#       发表于 2021-2-26 14:45
+
+
+
+
+看推特发现inui突然发了一个泣いた ，以为东京组又干嘛了，点进去一看是es，平安是福🙄
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32404#       发表于 2021-2-26 15:29
+
+
+
+[https://dimensionlabels.jp/virtualmusicfestival/](https://dimensionlabels.jp/virtualmusicfestival/)
+[https://www.youtube.com/watch?li ... Q&amp;v=GvQOdrCIg8Q](https://www.youtube.com/watch?list=TLGGuaDizgmMW4MyNjAyMjAyMQ&amp;v=GvQOdrCIg8Q)
+
+
+3月2728两天，B站票单日200，两天350
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/152912bbxyqznx6kigggzg.png" referrerpolicy="no-referrer">
+
+
+<strong>img_main_pc.png</strong> (427.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 15:29 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32405#       发表于 2021-2-26 16:17
+
+
+
+
+这现场的女粉数，感觉本土也快是女粉的天下了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32406#       发表于 2021-2-26 16:37
+
+
+
+
+怎么感觉虹liver像是伴舞来了，flow厉害啊…
+们郡郡半小时后开撞，不想当虹人可以休止换口了回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32407#       发表于 2021-2-26 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 终究是上了fes方舟的人才有资格狂欢，旧时代的虹粉就等着被大洪水淹没吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32408#       发表于 2021-2-26 16:44
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-26 18:04 编辑 
+
+社长也太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Syl,三枝这次发挥很好，星川…四处跑很可爱！
+
+绿仙唱得也不错
+
+力也好可爱，空气吉他好啊
+
+
+德龙太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">龙吼喜欢
+
+
+King 星川 King<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+flow来了
+
+
+附赠一个端水大师
+
+<img src="https://img.saraba1st.com/forum/202102/26/172738gnxxl8d3dzx7zxd7.png" referrerpolicy="no-referrer">
+
+
+<strong>XD.png</strong> (79.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 17:27 上传
+
+
+
+
+
+
+
+
+打call站的还挺高
+
+
+Go，火影观众狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 32409#       发表于 2021-2-26 16:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">cnm，这就静音了，早知道不在B买了。
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 32410#       发表于 2021-2-26 16:49
+
+
+
+
+b人票不出意外地静音<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32411#       发表于 2021-2-26 16:49
+
+
+
+
+开场先high起来<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32412#       发表于 2021-2-26 16:53
+
+
+
+
+场地和屏幕效果看着挺行，但没有我推就不买了，等月之场惹<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32413#       发表于 2021-2-26 16:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我也不买了，喜欢的节目都是free的，主要关注下彩虹官方施舍给国际组的30分钟有什么内容
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 32414#       发表于 2021-2-26 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那两首在404也被NG了，啊B暂时不背锅
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 32415#       发表于 2021-2-26 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NG3分之2，我虹会挣疯了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32416#       发表于 2021-2-26 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不是门票给你们打折了么，甚至还给字幕组发了套票，你们就不能宽容点么？
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32417#       发表于 2021-2-26 17:04
+
+
+
+
+幸好没买阿B的通票，东京复仇和kemt还是去N看好了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32418#       发表于 2021-2-26 17:05
+
+
+
+
+有一说一，门票价1/3，正常曲目1/3，很合理<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">。
+省一楼，郡道开始手游力
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 32419#       发表于 2021-2-26 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这首404没ng，还是叔叔不行
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32420#       发表于 2021-2-26 17:27
+
+
+
+
+ng的都在免费部分，我觉得还行？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32421#       发表于 2021-2-26 17:30
+
+
+
+
+这次舞台效果进步挺大的，运镜特效下功夫了，还有侧后机位，算是个进步吧
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32422#       发表于 2021-2-26 17:34
+
+
+
+
+哦，后半部分完全无ng
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32423#       发表于 2021-2-26 17:35
+
+
+
+
+谁听liver那些cylx啊，能听FLOW就是赚到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32424#       发表于 2021-2-26 17:36
+
+
+
+ 本帖最后由 qq845629713 于 2021-2-26 17:40 编辑 
+
+罢了，我也没买票，瞎凑合什么热闹，回家打游戏去了，
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32425#       发表于 2021-2-26 17:54
+
+
+
+
+被郡gachi说对了，虹liver就是站了个至尊打call位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32426#       发表于 2021-2-26 18:11
+
+
+
+
+bsyl，这首新歌现场效果真好
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32427#       发表于 2021-2-26 18:17
+
+
+
+
+会动的星川还是很可爱的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32428#       发表于 2021-2-26 18:49
+
+
+
+
+Niji fes现在发推数8万3，杏2nd50万，bloom40万，综上一杏最少等于5虹
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32429#       发表于 2021-2-26 18:55
+
+
+
+
+木口这个壁画感该反省一下了
+
+<img src="https://img.saraba1st.com/forum/202102/26/185430hg23gaoaomtum3zx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210226185150.png</strong> (150.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 18:54 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/185446bi0aib9p09hs0306.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210226185258.png</strong> (402.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 18:54 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SuperCK  
+##### 32430#       发表于 2021-2-26 18:57
+
+
+
+
+nijifes录了，抓的b站直播流，需要的私信我票根截图
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32431#       发表于 2021-2-26 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以宣布彩虹再续一年
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32432#       发表于 2021-2-26 19:41
+
+
+
+
+郡道70抽new了三个三星，把活动卡抽完了，这男友代打吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，
+昨天以为听错了，结果月之真的有六七首solo，必须支持一下惹
+
+
+
+
+
+
+
+-----
+
+####  walfeds  
+##### 32433#       发表于 2021-2-26 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50447908&amp;ptid=1969498" target="_blank">free 发表于 2021-2-26 15:29</a>
+
+https://dimensionlabels.jp/virtualmusicfestival/
+
+https://www.youtube.com/watch?list=TLGGuaDizgmMW4My ...</blockquote>
+感觉面子差了点。。。听倒是不算亏
+
+
+
+
+
+                  

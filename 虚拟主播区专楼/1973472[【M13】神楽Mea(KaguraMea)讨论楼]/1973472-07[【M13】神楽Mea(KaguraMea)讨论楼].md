@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 06:40** 
+> ## **本文件最后更新于2021-02-26 12:52** 
 
 
 
@@ -9000,4 +9000,651 @@ jk的爸爸活好，
 
 
 
-                                
+
+
+-----
+
+####  sgssk  
+##### 9513#       发表于 2021-2-26 14:43
+
+
+
+
+记者这转发的，全世界都要认识RuA了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+乐观点想，有80万粉大物给引流可太棒了快进到b限，贴不贴都无所谓了。今晚赶紧补点rua录播回味她的……死活上不去的高音<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">（x）
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 9514#       发表于 2021-2-26 14:44
+
+
+
+
+别弱智了
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 9515#       发表于 2021-2-26 14:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50447122&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-02-26 14:06:36</a></blockquote>霸道总裁rua
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9516#       发表于 2021-2-26 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">是年轻的肉体
+
+
+
+
+
+
+
+-----
+
+####  国民掷弹兵  
+##### 9517#       发表于 2021-2-26 15:00
+
+
+
+
+立绘太宽了只能摆中间(
+
+
+
+
+
+
+
+-----
+
+####  H喷他QY  
+##### 9518#       发表于 2021-2-26 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  H喷他QY  
+##### 9519#       发表于 2021-2-26 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9520#       发表于 2021-2-26 15:22
+
+
+
+
+meall是真的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9521#       发表于 2021-2-26 15:26
+
+
+
+
+我和麻才是真的！
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9522#       发表于 2021-2-26 15:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">yysy，我都没见过RUA的立绘长啥样
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9523#       发表于 2021-2-26 15:59
+
+
+
+
+我命mearua制作委员会速速橄榄二创组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 9524#       发表于 2021-2-26 17:08
+
+
+
+
+晚上要播，期待。
+
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 9525#       发表于 2021-2-26 17:11
+
+
+
+
+rua的人设我喜欢，但是live2d感觉和holo一样脸很平
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 9526#       发表于 2021-2-26 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新的贴贴风暴么
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9527#       发表于 2021-2-26 17:24
+
+
+
+
+说不定你麻的脸马上就要平了，呜呜呜，我的井皮咩<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9528#       发表于 2021-2-26 17:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是，难道没鼻子的井皮还不算平吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9529#       发表于 2021-2-26 17:40
+
+
+
+
+别奶，血压升高了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9530#       发表于 2021-2-26 17:55
+
+
+
+
+你咩姐这个l2d只是因为机体本身可动区域太小所以对比不出平脸的事实，真要参考现有机体的那种可动范围，就当年那个技术力做出来的估计就完全是个门板脸罢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9531#       发表于 2021-2-26 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新L2D能做成平板吗
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 9532#       发表于 2021-2-26 18:17
+
+
+
+ 本帖最后由 柚子皮 于 2021-2-26 18:24 编辑 
+
+如果真是momo的话，会是大欧派吧。咩咩的大欧派<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 9533#       发表于 2021-2-26 18:29
+
+
+
+
+看到别人传的，你麻是没发现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+A3D829B5905E399B66A8428A37D1397A.jpg
+(380.69 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-26 18:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/182904vkqpj0wvrzccqj0l.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+6BBD60E00A7AB085430AAFBCC2A8BF03.jpg
+(71.24 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-26 18:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/182909ee6qhdb8e3q3d3dd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9534#       发表于 2021-2-26 19:17
+
+
+
+
+其实是发现了，但因为是真的debu了，所以认命了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9535#       发表于 2021-2-26 19:33
+
+
+
+
+小麻快开直播间小麻快开直播间小麻快开直播间小麻快开直播间小麻快开直播间
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9536#       发表于 2021-2-26 19:46
+
+
+
+
+不管咋样这吊人藏肉猪也藏的太好了
+
+每次摸的让人感觉她明天是不是就提桶跑路的时候就掏出点东西出来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9537#       发表于 2021-2-26 20:09
+
+
+
+
+rua是年轻的肉体，楼里老男人该转推了（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9538#       发表于 2021-2-26 20:19
+
+
+
+
+十点播<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9539#       发表于 2021-2-26 20:25
+
+
+
+
+好！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9540#       发表于 2021-2-26 20:25
+
+
+
+
+麻麻我想死你了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9541#       发表于 2021-2-26 20:26
+
+
+
+
+我的小麻我的小麻我的小麻我的小麻
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9542#       发表于 2021-2-26 20:27
+
+
+
+
+今天的元宵吃了芝麻馅的，不是因为我喜欢芝麻，是因为我想知麻。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|土就是好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9543#       发表于 2021-2-26 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9544#       发表于 2021-2-26 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9545#       发表于 2021-2-26 20:36
+
+
+
+
+是熟悉的发病环节,好起来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9546#       发表于 2021-2-26 20:39
+
+
+
+
+喜欢看你麻的多少在某些方面上都有点性格缺陷是天狗的普遍共识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 9547#       发表于 2021-2-26 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又土又土
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+                               
