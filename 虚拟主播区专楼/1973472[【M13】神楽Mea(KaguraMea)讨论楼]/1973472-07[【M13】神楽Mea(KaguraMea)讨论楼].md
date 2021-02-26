@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 03:37** 
+> ## **本文件最后更新于2021-02-26 06:40** 
 
 
 
@@ -8740,4 +8740,264 @@ c位跟叔叔有啥关系 顶多和rua有关系
 
 
 
-                                 
+
+
+-----
+
+####  Mr.shelter  
+##### 9498#       发表于 2021-2-26 12:05
+
+
+
+
+死肥婆的爸爸活谁要啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不如倒贴我
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9499#       发表于 2021-2-26 12:22
+
+
+
+
+垂死病中惊坐起<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，这个C位有点闪
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 9500#       发表于 2021-2-26 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">ruamea是真的！是真的！
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 9501#       发表于 2021-2-26 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445554&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-2-26 11:32</a>
+是无形的大手
+
+事业民的心差点又活了，得清醒点</blockquote>
+jk的爸爸活好，
+过期jk的不行
+
+—— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 9502#       发表于 2021-2-26 13:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这活动叫Dimension Labels Virtual Music Festival，rua所属的那企业就叫Dimension Labels，那应该可以开始有端联想了。
+
+也给rua多一点舞台和曝光，也好。
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 9503#       发表于 2021-2-26 13:21
+
+
+
+ 本帖最后由 sgssk 于 2021-2-26 13:23 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 9504#       发表于 2021-2-26 13:21
+
+
+
+ 本帖最后由 sgssk 于 2021-2-26 13:23 编辑 
+
+风怒^2
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9505#       发表于 2021-2-26 13:31
+
+
+
+
+不用有段联想，那歌势合集的cd也是rua所属这企业搞得，这个live也是。这两波人重合度挺高，估计录了cd顺便再请来了live。
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 9506#       发表于 2021-2-26 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445554&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-02-26 11:32:55</a></blockquote>孩子长大知道用这种手段了，老父亲事业粉欣慰
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9507#       发表于 2021-2-26 13:58
+
+
+
+
+那专辑居然也是这公司的…<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9508#       发表于 2021-2-26 13:59
+
+
+
+
+？你们才看出来是一个公司吗？看看这人跟cd的重合度不就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9509#       发表于 2021-2-26 14:05
+
+
+
+
+粉蓝是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9510#       发表于 2021-2-26 14:06
+
+
+
+ 本帖最后由 A2014720 于 2021-2-26 14:10 编辑 
+
+没想那么多<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，原来这业界人脉这么厉害的嘛
+
+真是靠rua那也太真了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+想想如月上bw可能也是…<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+原来无形的大手就是这玩意嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9511#       发表于 2021-2-26 14:12
+
+
+
+
+有一说一你麻也算个人势大物的，别太看不起啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前那个偶像节这次还都有子兔音呢，要我说啊天神乐是真的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过如月上bw八成是你麻带的应该没问题
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9512#       发表于 2021-2-26 14:32
+
+
+
+
+以为粉蓝已经断掉的我太天真了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 17:44** 
+> ## **本文件最后更新于2021-02-26 06:36** 
 
 
 
@@ -122,7 +122,17 @@
 ####  届得到  
 ##### 54006#       发表于 2020-12-24 12:50
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+空岛篇你们关注的神官？
+
+
+空岛的主线不是跨越百年的浪漫友情和守信之约？
+
+
+
+
 
 
 
@@ -1663,7 +1673,16 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  届得到  
 ##### 54085#       发表于 2020-12-30 12:10
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887059&amp;ptid=98922" target="_blank">萌萌哒兆兆 发表于 2020-12-30 12:06</a>
+
+画了vvvv的旗，说vvvv是国家，微博估计要炎上了</blockquote>
+哪个画面
+
+
+
+
 
 
 
@@ -1918,7 +1937,17 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  届得到  
 ##### 54101#       发表于 2020-12-30 12:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887583&amp;ptid=98922" target="_blank">owada 发表于 2020-12-30 12:56</a>
+
+所以 1000话没在B漫出是这个吗</blockquote>
+叔叔最喜欢的不就是这种吗？
+
+
+
+
+
 
 
 
@@ -2847,7 +2876,14 @@ SBS那张是26卷，02年出的单行本
 ####  届得到  
 ##### 54156#       发表于 2021-1-1 12:40
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+和之国赶紧死吧，重启开下一篇了
+
+
+
+
 
 
 
@@ -3151,7 +3187,21 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 ####  届得到  
 ##### 54170#       发表于 2021-1-3 00:07
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916817&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-1-2 13:56</a>
+
+亚马逊莉莉这种人均霸气的国家怎么可能会开发不出流樱
+
+九蛇第一个出场的妹子小雏菊，也可以把霸气缠绕在 ...</blockquote>
+别问，问就是乡土爱我和之国天下无敌啊
+
+
+区区白胡子罗杰红发五皇还不是得跪舔我和之国的杰克苏
+
+
+
+
 
 
 
@@ -3393,7 +3443,17 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  届得到  
 ##### 54182#       发表于 2021-1-5 12:19
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939980&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-1-5 00:56</a>
+Op的人物没有成长，只有过去，所有的人都是用一个过去回忆勾勒人物，这么多年了路飞还是傻逼，厨师还是好 ...</blockquote>
+是倒退了，2年后跪舔和之国的五皇不配给大智若愚的路飞提鞋
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
 
 
 
@@ -4140,7 +4200,24 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  届得到  
 ##### 54218#       发表于 2021-1-15 10:51
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+凯多思考着：“不久前在九里的时候这个臭小子才彻底输给我。之后到底发生了什么？！世界上只有几个人能和我一战，他以为他是谁？！”
+
+
+凯多看着路飞，他似乎在路飞背后看到了罗杰，白胡子，御田和洛克斯的影子（这里看不到洛克斯的具体轮廓）
+
+
+
+舔，就硬舔
+
+
+尾田到底知不知道御田这傻逼杰克苏已经是OP最大的败笔了，和之国这乡土爱剧情真的越看越是一坨屎
+
+
+
+
 
 
 
@@ -5872,7 +5949,14 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ####  届得到  
 ##### 54314#       发表于 2021-1-31 12:00
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+尾田仔，快点结束这傻逼和之国篇吧
+
+
+
+
 
 
 
@@ -6720,7 +6804,16 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  届得到  
 ##### 54356#       发表于 2021-2-5 11:18
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235493&amp;ptid=98922" target="_blank">X(iaolw)S 发表于 2021-2-4 11:26</a>
+
+原来如此</blockquote>
+我自己玩PM的改版ROM，都喜欢把暴鲤龙属性改为水+龙<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -7448,23 +7541,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  好评加鹅  
 ##### 54398#       发表于 2021-2-13 11:23
 
-
-
-
-尾田也是精分的可以
-
-
-一边搞天龙人和革命军的对立
-
-
-一边让傻逼御田父子来恶心人，桃之助这种傻逼就一个我爸是御田就能当主子了？
-
-
-尾田的乡土爱情节已经没救了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7969,18 +8046,7 @@ S1有号，就是“3000”。
 ####  好评加鹅  
 ##### 54427#       发表于 2021-2-18 16:37
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50331952&amp;ptid=98922" target="_blank">klzxs 发表于 2021-2-14 16:53</a>
-
-不是看不起厨子啊 他本就该是第三位的位置 这是与战力无关的
-
-主要是尾田这些年实在没给他安排什么 ...</blockquote>
-讲个笑话，山治年
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8533,4 +8599,623 @@ S1有号，就是“3000”。
 
 
 
-                                  
+
+
+-----
+
+####  龙手马弗  
+##### 54452#       发表于 2021-2-25 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50424510&amp;ptid=98922" target="_blank">tyauto 发表于 2021-2-24 10:49</a>
+
+佩罗娜哪是萝莉，比索隆还大索隆认识的几个妹子都比她大
+
+
+罗罗诺亚·索隆</blockquote>
+纳尼！
+
+
+索隆认识的妹子都比索隆还大！
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 54453#       发表于 2021-2-25 18:35
+
+
+
+ 本帖最后由 Tomorrow_D 于 2021-2-25 18:52 编辑 
+
+有一说一，光看情报的时候真不觉得，但是看图之后山治确实被画得很窝囊。
+
+而且不仅被画得很窝囊，这一话直接借剧中角色之口说山治的行为很窝囊。
+
+
+求救本身不是问题，如果刻画得好的话我是绝对相信对山治反而是加分的。但是我反正是真的完全没想到尾田会用这样一种最为窝囊的方式来画山治的求救。
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54454#       发表于 2021-2-25 18:50
+
+
+
+
+尾田是不是在行为艺术。“反正我这么出名了，画得再屎都他们都会买。”
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54455#       发表于 2021-2-25 19:12
+
+
+
+
+往好处想这是先抑后扬，虽然山治已经吃瘪了十年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过看这话山治要去九侠那边，跟杰克在同一层，估计是要对上杰克了，至少有三灾打，比甚平强。
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54456#       发表于 2021-2-25 21:10
+
+
+
+
+Q谁来打？大和？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 54457#       发表于 2021-2-25 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50439387&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-2-25 19:12</a>
+
+往好处想这是先抑后扬，虽然山治已经吃瘪了十年
+
+不过看这话山治要去九侠那边，跟杰克在同一层，估计 ...</blockquote>
+也许是打到一半，梅开二度
+
+“甚平老大，救救我！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 54458#       发表于 2021-2-25 23:40
+
+
+
+
+这周漫画有点重回十年前水平的感觉了
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54459#       发表于 2021-2-26 01:56
+
+
+
+
+十年前不是鱼人岛吗
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54460#       发表于 2021-2-26 02:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50442795&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-2-26 01:56</a>
+
+十年前不是鱼人岛吗</blockquote>
+说不定是在明捧暗骂呢
+
+
+
+
+
+
+
+-----
+
+####  tornadoDA  
+##### 54461#       发表于 2021-2-26 03:53
+
+
+
+
+有人说山治2年后刻画的更细腻，感情更丰富，人物更饱满了，有道理吗？我这种只喜欢战斗力的不太能理解
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54462#       发表于 2021-2-26 05:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/050312tk1zul1lclna3kaw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-17eee3bda97de892.jpg</strong> (181.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 05:03 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/050320v9zooo193q3b61is.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3748b05ef2e73e25.jpg</strong> (168.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 05:03 上传
+
+
+
+
+
+
+
+同样的桥段，两年前处理的不知比现在高明多少
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 54463#       发表于 2021-2-26 06:51
+
+
+
+<blockquote>tornadoDA 发表于 2021-2-26 03:53
+有人说山治2年后刻画的更细腻，感情更丰富，人物更饱满了，有道理吗？我这种只喜欢战斗力的不太能理解 ...</blockquote>
+怎么说呢，是，只不过大家都只喜欢讨论战斗力，尤其贴吧，红黑大战
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54464#       发表于 2021-2-26 08:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443020&amp;ptid=98922" target="_blank">tornadoDA 发表于 2021-2-26 03:53</a>
+
+有人说山治2年后刻画的更细腻，感情更丰富，人物更饱满了，有道理吗？我这种只喜欢战斗力的不太能理解 ...</blockquote>
+你要说对比两年后其他角色，那山治的刻画肯定是细腻的多，因为两年后的角色都很扁平，山治在其中算出众了
+
+但是和两年前一比这叫什么玩意，一个好色属性被无限放大，剩下的部分又逻辑不通，真不敢想象经历了罗宾和乌索普离队事件的山治还会去殴打船长，更别说还有做蛋糕给大妈吃满血和我有一计结果就是月步逃跑这种意义不明的搞笑情节了，想出这几段的人脑子是有病吧
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54465#       发表于 2021-2-26 08:21
+
+
+
+ 本帖最后由 先手必胜 于 2021-2-26 09:06 编辑 
+
+还有前脚刚说要保护娜美，后脚就跑去逛妓院，娜美被差点打死都毫无察觉这就是所谓的骑士道？
+
+真的，还不如就让这个角色直接被杀了，他现在有个屁用啊
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54466#       发表于 2021-2-26 08:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/082449dlvgs5klvddksos5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>75f80124ab18972bea6bea80f1cd7b899f510a11.jpg</strong> (171.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 08:24 上传
+
+
+
+
+
+
+想出这种情节的人脑袋一定有问题
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54467#       发表于 2021-2-26 08:26
+
+
+
+
+前期厨子强到和战斗员差不多，可能是那时作者还要看角色人气的脸色吧，也许现在厨子的表现才是wt本来想让他呆的位置
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 54468#       发表于 2021-2-26 10:46
+
+
+
+
+这展开怎么感觉山治成了罗宾的垫脚石.......
+
+
+还有这一把鼻涕一把泪还高喊不来救我就要被杀的样子，像不像等着被骑士救的人质公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54469#       发表于 2021-2-26 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443639&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 08:25</a>
+
+想出这种情节的人脑袋一定有问题</blockquote>
+桃之助这种角色怀疑是WT故意恶心读者的
+
+
+
+
+
+
+
+-----
+
+####  龙手马弗  
+##### 54470#       发表于 2021-2-26 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443639&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 08:25</a>
+
+想出这种情节的人脑袋一定有问题</blockquote>
+以前还觉得桃之助必须死是说笑,但是现在感觉到真的有点对桃之助的杀意了
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 54471#       发表于 2021-2-26 11:27
+
+
+
+
+WT这么安排就离谱，山治都多少次不打女人了，按道理就不应该派他去跟女人对线，但是wt就非得硬塞入这场戏。关键是这种场景都已经出现了无数遍了，观众看得已经开始腻了。
+
+
+整个场景，看不到山治的成长，也塑造不出山治的新形象，更看不出这对于推动剧情有什么作用，这种剧情完全就是鸡肋。
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54472#       发表于 2021-2-26 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443617&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 08:21</a>
+
+还有前脚刚说要保护娜美，后脚就跑去逛妓院，娜美被差点打死都毫无察觉这就是所谓的骑士道？
+
+真的，还不如 ...</blockquote>
+记错了吧，娜美被大妈抓住的时候还没什么事。然后自己脱身了
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 54473#       发表于 2021-2-26 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445474&amp;ptid=98922" target="_blank">kumquat_cc 发表于 2021-2-26 11:27</a>
+WT这么安排就离谱，山治都多少次不打女人了，按道理就不应该派他去跟女人对线，但是wt就非得硬塞入这场戏。 ...</blockquote>
+山治对大妈可是毫不留手的，看脸罢了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+这么一细想觉得这个角色更讨人厌了
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 54474#       发表于 2021-2-26 11:39
+
+
+
+
+平时扣扣索索恨不得每一格都塞满的尾田，画山治直接两页大特写
+
+感恩戴德！<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tornadoDA  
+##### 54475#       发表于 2021-2-26 12:04
+
+
+
+
+山治被蜘蛛娘巨人女捆绑殴打，桃之助裹在大姐姐衣服里埋胸，wt是不是有点抖m倾向啊
+
+
+
+
+
+
+
+-----
+
+####  arthes  
+##### 54476#       发表于 2021-2-26 12:13
+
+
+
+
+黑玛利亚：<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">呵呵呵 我要吃热狗啊
+
+山治：<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">罗宾 救我啊
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 54477#       发表于 2021-2-26 13:15
+
+
+
+<blockquote>先手必胜 发表于 2021-2-26 08:13
+你要说对比两年后其他角色，那山治的刻画肯定是细腻的多，因为两年后的角色都很扁平，山治在其中算出众了 ...</blockquote>
+做蛋糕给大妈吃，这点当年山治还没入队的时候，不就有过吗，给阿金那个海贼团吃东西，而且不止一次，算是山治的信念了。
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54478#       发表于 2021-2-26 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446676&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-2-26 13:15</a>
+
+做蛋糕给大妈吃，这点当年山治还没入队的时候，不就有过吗，给阿金那个海贼团吃东西，而且不止一次，算是 ...</blockquote>
+情况不一样，山治盘算的是让大妈 吃蛋糕满足到晕倒来作为解决危局的手段，尾田也是营造出会有这种可能的气氛，结果给大妈吃满血了，真的搞笑
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54479#       发表于 2021-2-26 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446968&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 13:47</a>
+
+情况不一样，山治盘算的是让大妈 吃蛋糕满足到晕倒来作为解决危局的手段，尾田也是营造出会有这种可能的气 ...</blockquote>
+克里克吃了哲普的饭也打过来了，哲普在搞笑吗
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54480#       发表于 2021-2-26 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50447013&amp;ptid=98922" target="_blank">cdfjg 发表于 2021-2-26 13:53</a>
+
+克里克吃了哲普的饭也打过来了，哲普在搞笑吗</blockquote>
+别混淆，请问哲普和山治当初给吃饭是为了解决当前的困境吗？
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54481#       发表于 2021-2-26 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50447174&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 14:11</a>
+
+别混淆，请问哲普和山治当初给吃饭是为了解决当前的困境吗？</blockquote>
+哲普和山治给人吃饭是没有目的的
+
+
+
+
+
+
+
+-----
+
+####  memo2  
+##### 54482#       发表于 2021-2-26 14:20
+
+
+
+
+尾田这画的都是什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 54483#       发表于 2021-2-26 14:26
+
+
+
+
+信念归信念，搞得这么一根筋就成zzzq了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
