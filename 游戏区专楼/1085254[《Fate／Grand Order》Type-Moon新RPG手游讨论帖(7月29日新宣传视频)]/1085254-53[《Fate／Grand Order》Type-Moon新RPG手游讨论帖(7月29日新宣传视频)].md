@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-24 11:39** 
+> ## **本文件最后更新于2021-02-26 14:36** 
 
 
 
@@ -1137,4 +1137,554 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 
 
 
-                                               
+
+
+-----
+
+####  白金口袋  
+##### 78062#       发表于 2021-2-24 19:58
+
+
+
+
+卧槽居然还非得升一个100级的从者才给石头？这不是逼我这种从来没用过圣杯的御主吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+顺便问问泥潭推荐喂到100的都有哪些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 78063#       发表于 2021-2-24 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
+
+卧槽居然还非得升一个100级的从者才给石头？这不是逼我这种从来没用过圣杯的御主吗
+
+顺便问问泥潭推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">100看爱吧 我是莉莉丝阿比伽摩
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78064#       发表于 2021-2-24 20:06
+
+
+
+ 本帖最后由 黑上シグマ 于 2021-2-24 20:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
+
+卧槽居然还非得升一个100级的从者才给石头？这不是逼我这种从来没用过圣杯的御主吗
+
+顺便问问泥潭推 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要说推荐那肯定是仇凛狛爵banana之类的呗
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 78065#       发表于 2021-2-24 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
+卧槽居然还非得升一个100级的从者才给石头？这不是逼我这种从来没用过圣杯的御主吗
+
+顺便问问泥潭推 ...</blockquote>
+陈宫（我日服国服都100级了）、厨力角色（国服我把b叔拉满）、泛用性角色（日服没宇宙凛时拉满了萨老师，现在有宇宙凛准备拉满宇宙凛）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 78066#       发表于 2021-2-24 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦忘记补充个，各类瞎**打角色（日服拉满了一个满宝100级剑兰的人在此，多次下棋都是一个人砍爆一条街）
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78067#       发表于 2021-2-24 20:15
+
+
+
+
+真爱或者泛用打手
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78068#       发表于 2021-2-24 20:50
+
+
+
+
+不搓浓缩狗粮的我一个100级礼装都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78069#       发表于 2021-2-24 21:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了 我拉了9个100级的人
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 78070#       发表于 2021-2-24 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
+
+卧槽居然还非得升一个100级的从者才给石头？这不是逼我这种从来没用过圣杯的御主吗
+
+顺便问问泥潭推 ...</blockquote>
+5个圣杯换3个石头，太值了……
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 78071#       发表于 2021-2-25 04:39
+
+
+
+ 本帖最后由 alaya 于 2021-2-25 04:42 编辑 
+
+圣杯主要是耍厨用，打手要是np98哪怕100级喂满金芙芙还是np98，overkill不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78072#       发表于 2021-2-25 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-24 18:51</a>
+
+街机这第六章难道是要把竹帚日记里的虚假的十字军给捡起来了？</blockquote>
+十字军是真的，就那个自称理查是假的……
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 78073#       发表于 2021-2-25 08:36
+
+
+
+
+还好吧，我去年年底捡起来都三个100了。。。
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78074#       发表于 2021-2-25 09:43
+
+
+
+<blockquote>引用第78071楼UNISONIA于2021-02-25 08:31发表的  :
+
+引用:黑上シグマ 发表于 2021-2-24 18:51街机这第六章难道是要把竹帚日记里的虚假的十字......</blockquote>
+蘑菇不是写的偽りの十字軍吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78075#       发表于 2021-2-25 11:36
+
+
+
+
+没记错的话，不算有副作用的杀总司和看rp的剑龙娘的非洲勇者传说，亚瑟强化之后是第一个有3T50魔放的输出型宝具选手，1t50魔放的时代终于要过去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78076#       发表于 2021-2-25 13:43
+
+
+
+
+谢谢楼上各位的意见，最后是升了蓝卡打手仇凛、绿卡打手伯爵和剧场版限定女主角Melt<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78077#       发表于 2021-2-25 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436284&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-25 13:43</a>
+
+谢谢楼上各位的意见，最后是升了蓝卡打手仇凛、绿卡打手伯爵和剧场版限定女主角Melt ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有必要升2个泛用吗。自从用了仇凛CBA体系你有用回哈哈哈吗
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78078#       发表于 2021-2-25 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436498&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 00:11</a>
+
+有必要升2个泛用吗。自从用了仇凛CBA体系你有用回哈哈哈吗</blockquote>
+以防万一啊，保不齐下次活动周回本给你来个出场蓝卡威力下降的debuff（BB老虎机那种），我觉得叶二是真得干得出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78079#       发表于 2021-2-25 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50433989&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-25 09:43</a>
+
+蘑菇不是写的偽りの十字軍吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+对哦，一开始的远征军（真十字军）和后面的偽りの十字軍不是一批人
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78080#       发表于 2021-2-25 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436527&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-25 14:13</a>
+
+以防万一啊，保不齐下次活动周回本给你来个出场蓝卡威力下降的debuff（BB老虎机那种），我觉得叶二是真得 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实区别不大的  不如拉个caber 100级强制排第1 友情拿的手软 （虽然我没这么干
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78081#       发表于 2021-2-25 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437579&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 15:59</a>
+
+其实区别不大的  不如拉个caber 100级强制排第1 友情拿的手软 （虽然我没这么干 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真有人缺友情吗，按你这样说是不是金芙芙也要拉满
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78082#       发表于 2021-2-25 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437665&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:07</a>
+
+真有人缺友情吗，按你这样说是不是金芙芙也要拉满</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情=100级礼装啊 缺不缺就看你喂不喂了
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78083#       发表于 2021-2-25 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437730&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 16:14</a>
+
+友情=100级礼装啊 缺不缺就看你喂不喂了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如刷无限池，或者无限池子第一天挂个满破
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78084#       发表于 2021-2-25 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437758&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:17</a>
+
+还不如刷无限池，或者无限池子第一天挂个满破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看懂你在说什么 这又不是选择题 
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78085#       发表于 2021-2-25 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437767&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 16:18</a>
+
+没看懂你在说什么 这又不是选择题</blockquote>
+我意思是平日收益不大，活动找氪金礼装不看等级，刷无限池和在无限池被人嫖估计都大于半年平日被嫖的友情点。
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78086#       发表于 2021-2-25 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437806&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:22</a>
+
+我意思是平日收益不大，活动找氪金礼装不看等级，刷无限池和在无限池被人嫖估计都大于半年平日被嫖的友情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有收益不就行了白给的东西 
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78087#       发表于 2021-2-25 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437822&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 16:23</a>
+
+有收益不就行了白给的东西</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情点和圣杯哪个更加白给
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78088#       发表于 2021-2-25 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437834&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:24</a>
+
+友情点和圣杯哪个更加白给</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣杯当宝的人肯定不会这么干  根本不在意这玩意的当然是友情更有价值 
+
+
+
+
+
+
+
+-----
+
+####  gulant  
+##### 78089#       发表于 2021-2-25 16:29
+
+
+
+
+还以为旧剑换动作模组呢，原来是提升一下技能…… <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78090#       发表于 2021-2-26 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没事干想去抽张嘲讽礼装，扔了个11连礼装没出旧剑出了………………
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78091#       发表于 2021-2-26 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452067&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-26 22:17</a>
+
+没事干想去抽张嘲讽礼装，扔了个11连礼装没出旧剑出了………………</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 但是好像不怎么羡慕啊
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78092#       发表于 2021-2-26 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452067&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-26 22:17</a>
+
+没事干想去抽张嘲讽礼装，扔了个11连礼装没出旧剑出了………………</blockquote>
+每次看你豹的时候你这个签名感觉就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              

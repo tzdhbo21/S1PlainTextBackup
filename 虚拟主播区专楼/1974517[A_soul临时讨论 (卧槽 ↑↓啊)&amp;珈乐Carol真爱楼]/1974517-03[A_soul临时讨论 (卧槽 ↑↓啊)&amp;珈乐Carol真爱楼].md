@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 12:53** 
+> ## **本文件最后更新于2021-02-26 14:35** 
 
 
 
@@ -3234,4 +3234,1141 @@ A岛在看快手吧
 
 
 
-                                           
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3188#       发表于 2021-2-26 20:54
+
+
+
+
+怎么晚晚总帮工具人辩解，我梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 3189#       发表于 2021-2-26 20:54
+
+
+
+
+乃琳一看就是豆油啊
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3190#       发表于 2021-2-26 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3191#       发表于 2021-2-26 20:58
+
+
+
+
+尬活套娃
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3192#       发表于 2021-2-26 21:00
+
+
+
+
+晚晚我的晚晚<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 3193#       发表于 2021-2-26 21:00
+
+
+
+
+尬就是好，越尬越好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 3194#       发表于 2021-2-26 21:03
+
+
+
+
+乃0这私下里没少看k老师吧
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3195#       发表于 2021-2-26 21:04
+
+
+
+
+懂了，晚晚一米七
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 3196#       发表于 2021-2-26 21:07
+
+
+
+
+不尬不看
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3197#       发表于 2021-2-26 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451316&amp;ptid=1974517" target="_blank">二条乃梨子 发表于 2021-2-26 21:03</a>
+
+乃0这私下里没少看k老师吧</blockquote>
+那得合理质疑乃指导的精神状态了，毕竟能看k老师的多少沾点
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3198#       发表于 2021-2-26 21:12
+
+
+
+
+晚晚算了算了，小恶魔已经死在首播上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3199#       发表于 2021-2-26 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 农历生日也好，也算受到as的生日祝福了 呜呜
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3200#       发表于 2021-2-26 21:22
+
+
+
+
+晚指导这个生日歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3201#       发表于 2021-2-26 21:23
+
+
+
+
+虚拟香火庙
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 3202#       发表于 2021-2-26 21:25
+
+
+
+
+希望大家都能考上自己心仪的带专<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3203#       发表于 2021-2-26 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节目效果来了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3204#       发表于 2021-2-26 21:28
+
+
+
+
+典中典来了
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 3205#       发表于 2021-2-26 21:28
+
+
+
+
+珈乐首播，绑不住了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3206#       发表于 2021-2-26 21:30
+
+
+
+
+荡漾！ （梗来源：珈乐）
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3207#       发表于 2021-2-26 21:37
+
+
+
+
+剑三！（）警觉
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3208#       发表于 2021-2-26 21:39
+
+
+
+
+这个版本的qaq归属已经确定了
+
+
+
+
+
+
+
+-----
+
+####  醒了就睡觉  
+##### 3209#       发表于 2021-2-26 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451548&amp;ptid=1974517" target="_blank">qw945 发表于 2021-2-26 21:22</a>
+
+晚指导这个生日歌
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+乃琳：“对不起，毁了你的生日。”
+
+
+绷不住了……
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3210#       发表于 2021-2-26 21:41
+
+
+
+
+卧槽，乐！
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3211#       发表于 2021-2-26 21:41
+
+
+
+
+卧槽，乐！
+
+荡漾荡漾荡漾<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3212#       发表于 2021-2-26 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3213#       发表于 2021-2-26 21:53
+
+
+
+
+真在最后一瞬间切了，工具人好样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  醒了就睡觉  
+##### 3214#       发表于 2021-2-26 21:53
+
+
+
+
+
+“你有难了”草
+
+
+
+
+
+
+
+-----
+
+####  醒了就睡觉  
+##### 3215#       发表于 2021-2-26 21:55
+
+
+
+
+这个mua好憨啊
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 3216#       发表于 2021-2-26 21:56
+
+
+
+
+好快的吻
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3217#       发表于 2021-2-26 21:56
+
+
+
+
+我的老公都还没刷出去呢
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3218#       发表于 2021-2-26 21:57
+
+
+
+
+虚拟关羽来了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3219#       发表于 2021-2-26 21:58
+
+
+
+
+一拳一个狗函件
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3220#       发表于 2021-2-26 21:58
+
+
+
+
+呜呜呜贝拉呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">打我打我打我
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3221#       发表于 2021-2-26 21:58
+
+
+
+
+今晚豆友有活儿了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3222#       发表于 2021-2-26 21:59
+
+
+
+
+我不用看豆友就知道一排的老公打我
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3223#       发表于 2021-2-26 22:01
+
+
+
+
+我苹果手机怎么自动关机了
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 3224#       发表于 2021-2-26 22:02
+
+
+
+
+看国V，扬国威！
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3225#       发表于 2021-2-26 22:05
+
+
+
+
+看国v，扬国v!
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3226#       发表于 2021-2-26 22:06
+
+
+
+
+晚晚今天不会没节目吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3227#       发表于 2021-2-26 22:06
+
+
+
+
+乃0穿个模跟然然差不多高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3228#       发表于 2021-2-26 22:14
+
+
+
+
+她开弹了！
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3229#       发表于 2021-2-26 22:14
+
+
+
+
+卖汤圆都能唱拉跨
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3230#       发表于 2021-2-26 22:14
+
+
+
+
+开口我就没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3231#       发表于 2021-2-26 22:15
+
+
+
+
+卖汤圆。真实又拉又好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">蚌埠住了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3232#       发表于 2021-2-26 22:15
+
+
+
+<img src="https://wx3.sinaimg.cn/mw690/905d6ef0gy1go1alriu4ug20hs0a0u11.gif" referrerpolicy="no-referrer">
+
+<img src="https://wx2.sinaimg.cn/mw690/905d6ef0gy1go1alr6ts3g20hs0a0b2d.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 3233#       发表于 2021-2-26 22:16
+
+
+
+
+晚指导不装了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3234#       发表于 2021-2-26 22:16
+
+
+
+
+乃0万能辅助
+
+
+
+
+
+
+
+-----
+
+####  醒了就睡觉  
+##### 3235#       发表于 2021-2-26 22:16
+
+
+
+
+卧槽，晚！
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 3236#       发表于 2021-2-26 22:17
+
+
+
+
+蕾姆了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3237#       发表于 2021-2-26 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">很难不是顶碗人
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3238#       发表于 2021-2-26 22:17
+
+
+
+
+这推流怎么回事 画质越来越烂了。狗牙看的我眼睛瞎了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3239#       发表于 2021-2-26 22:18
+
+
+
+
+我暂时是顶碗人呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3240#       发表于 2021-2-26 22:18
+
+
+
+
+顶晚人又要大量增殖了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3241#       发表于 2021-2-26 22:18
+
+
+
+
+我一直是顶碗人啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3242#       发表于 2021-2-26 22:19
+
+
+
+
+我永远爱晚晚<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3243#       发表于 2021-2-26 22:19
+
+
+
+
+晚晚这个台本也太可爱了，很难不是顶碗人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 3244#       发表于 2021-2-26 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452070&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-26 22:17</a>
+
+这推流怎么回事 画质越来越烂了。狗牙看的我眼睛瞎了</blockquote>
+3090过热了？
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3245#       发表于 2021-2-26 22:20
+
+
+
+
+居然加班到现在<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">居然不是公务员女团
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3246#       发表于 2021-2-26 22:20
+
+
+
+
+快快快了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3247#       发表于 2021-2-26 22:20
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3248#       发表于 2021-2-26 22:22
+
+
+
+
+切镜头的也越来越拉了
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3249#       发表于 2021-2-26 22:23
+
+
+
+
+快快快快快快快快快快快快快快快大家明天见<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 3250#       发表于 2021-2-26 22:24
+
+
+
+
+真正的大家庭<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 3251#       发表于 2021-2-26 22:26
+
+
+
+
+不跳舞的时候感觉乃琳才是队长<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3252#       发表于 2021-2-26 22:26
+
+
+
+
+原来是圣米珈乐<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3253#       发表于 2021-2-26 22:27
+
+
+
+
+全团首尬还得是珈乐首播
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3254#       发表于 2021-2-26 22:30
+
+
+
+
+没有反转 继续挖莉亚了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3255#       发表于 2021-2-26 22:32
+
+
+
+
+这个团舞大段的全体镜头，很难不是暗示翻跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3256#       发表于 2021-2-26 22:33
+
+
+
+
+5个人翻跳也太难了吧
+
+
+
+
+
+                                         
