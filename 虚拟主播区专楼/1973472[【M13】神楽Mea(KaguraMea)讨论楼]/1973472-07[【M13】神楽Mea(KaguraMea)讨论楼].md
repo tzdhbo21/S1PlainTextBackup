@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 12:52** 
+> ## **本文件最后更新于2021-02-26 15:38** 
 
 
 
@@ -9553,10 +9553,11 @@ rua是年轻的肉体，楼里老男人该转推了（<img src="https://static.s
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| thisisaspider| + 1|好评加鹅|
 | 路人庚| + 1|土就是好|
 
 
@@ -9647,4 +9648,541 @@ rua是年轻的肉体，楼里老男人该转推了（<img src="https://static.s
 
 
 
-                               
+
+
+-----
+
+####  十九号大侠  
+##### 9548#       发表于 2021-2-26 20:54
+
+
+
+
+建议吃花椒味的汤圆
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9549#       发表于 2021-2-26 21:07
+
+
+
+
+麻圆好吃 又麻又圆
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9550#       发表于 2021-2-26 21:36
+
+
+
+
+马上直播的时候看她会不会提C位的事吧
+不过按你麻的性格 应该不会提
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9551#       发表于 2021-2-26 21:42
+
+
+
+
+她连定型的推广推特还没发呢，不过直播会提一嘴参加c位应该不会提
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9552#       发表于 2021-2-26 22:04
+
+
+
+
+看语气决定真不真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9553#       发表于 2021-2-26 22:29
+
+
+
+
+开幕就吃
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9554#       发表于 2021-2-26 22:31
+
+
+
+
+吞咽音声素材get!
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9555#       发表于 2021-2-26 22:32
+
+
+
+
+麻麻别嗦面了 嗦我
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9556#       发表于 2021-2-26 22:34
+
+
+
+
+看不了，有直球发问rua是谁的么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9557#       发表于 2021-2-26 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始聊C位的事了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9558#       发表于 2021-2-26 22:38
+
+
+
+
+破案了 爸爸活的对象是田角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9559#       发表于 2021-2-26 22:39
+
+
+
+
+所以还真是因为立绘的原因放在c位的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9560#       发表于 2021-2-26 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9561#       发表于 2021-2-26 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9562#       发表于 2021-2-26 22:44
+
+
+
+
+这次的live不唱原创曲，那怕不是要暴露杂鱼水平被歌势暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9563#       发表于 2021-2-26 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xswl
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9564#       发表于 2021-2-26 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9565#       发表于 2021-2-26 22:48
+
+
+
+
+又不是不能听<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9566#       发表于 2021-2-26 22:51
+
+
+
+
+阴间音源
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9567#       发表于 2021-2-26 22:56
+
+
+
+
+好像是准备换立绘的时候 发现在C位 就不换了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9568#       发表于 2021-2-26 23:02
+
+
+
+
+那就只能唱高音曲了，henceforth来一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9569#       发表于 2021-2-26 23:03
+
+
+
+
+年龄又聊爆了（悲
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9570#       发表于 2021-2-26 23:07
+
+
+
+
+好拉胯的幸运星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9571#       发表于 2021-2-26 23:08
+
+
+
+
+憋不出来了（
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9572#       发表于 2021-2-26 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">讲道理合唱曲尿了不丢人吧？
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9573#       发表于 2021-2-26 23:10
+
+
+
+
+她是真的38岁
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9574#       发表于 2021-2-26 23:23
+
+
+
+
+辉夜城真是太怀了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9575#       发表于 2021-2-26 23:24
+
+
+
+
+这人网龄只比年龄短那么一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9576#       发表于 2021-2-26 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">摇头晃脑
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 9577#       发表于 2021-2-26 23:25
+
+
+
+
+可爱可爱
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9578#       发表于 2021-2-26 23:34
+
+
+
+
+下面请听et点中的again
+
+
+（你咩姐：again也是动画片曲啊？哦我知道了，是那个开高达的动画片
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9579#       发表于 2021-2-26 23:37
+
+
+
+
+为啥加百利天使不给点啊 苔苔的缘故？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9580#       发表于 2021-2-26 23:37
+
+
+
+
+因为珈百璃唱起来太累了，你咩姐想轻松一点
+
+
+
+
+
+                              

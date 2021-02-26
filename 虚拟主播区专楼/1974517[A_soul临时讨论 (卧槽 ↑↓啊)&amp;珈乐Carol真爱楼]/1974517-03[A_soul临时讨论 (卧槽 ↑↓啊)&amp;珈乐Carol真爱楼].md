@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 14:35** 
+> ## **本文件最后更新于2021-02-26 15:39** 
 
 
 
@@ -4371,4 +4371,372 @@ A岛在看快手吧
 
 
 
-                                         
+
+
+-----
+
+####  海底铁锚  
+##### 3257#       发表于 2021-2-26 22:36
+
+
+
+
+先集齐五色战队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  醒了就睡觉  
+##### 3258#       发表于 2021-2-26 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452158&amp;ptid=1974517" target="_blank">恒温死神 发表于 2021-2-26 22:26</a>
+
+不跳舞的时候感觉乃琳才是队长</blockquote>
+
+聊天时乃琳吐槽直接carry全场
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3259#       发表于 2021-2-26 22:43
+
+
+
+
+团播时候贝拉本来就比较隐身的，毕竟确实嘴笨，不过就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">贝拉窝老公捏
+
+这次团播感觉已经进步挺多了
+
+
+
+
+
+
+
+-----
+
+####  尿完抖两下  
+##### 3260#       发表于 2021-2-26 22:43
+
+
+
+
+V看得少，说句可能引战的，asoul的今晚热榜排名很长一段时间都没进前十。我不知道的还以为这场看的人很少
+
+
+我看热榜最前面的V，弹幕挺有序的一个接一个飘过，然后切到asoul这边，好家伙，特么的跟独轮车似的，画面都看不到了。
+
+
+原来这就是叔叔的热榜么
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3261#       发表于 2021-2-26 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452330&amp;ptid=1974517" target="_blank">尿完抖两下 发表于 2021-2-26 22:43</a>
+
+V看得少，说句可能引战的，asoul的今晚热榜排名很长一段时间都没进前十。我不知道的还以为这场看的人很少
+
+
+ ...</blockquote>
+今天人确实比昨天少，正好赶上隔壁首播和lpl焦点战了
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 3262#       发表于 2021-2-26 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452330&amp;ptid=1974517" target="_blank">尿完抖两下 发表于 2021-2-26 22:43</a>
+
+V看得少，说句可能引战的，asoul的今晚热榜排名很长一段时间都没进前十。我不知道的还以为这场看的人很少
+
+
+ ...</blockquote>
+热度跟打钱相关性很大,   打的钱多热度就上去, 愿意给官号打钱的比愿意给个人号打钱的少很多
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3263#       发表于 2021-2-26 22:49
+
+
+
+
+虽然热度不行，但我看发言人数一直都稳定1700+。不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3264#       发表于 2021-2-26 22:54
+
+
+
+
+回放有了
+[https://live.bilibili.com/record/R13x411w7x4](https://live.bilibili.com/record/R13x411w7x4)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3265#       发表于 2021-2-26 22:55
+
+
+
+
+没进批话榜，这都是什么人力车
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3266#       发表于 2021-2-26 22:56
+
+
+
+
+回放有时间限制，贾布也停了这可咋办<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3267#       发表于 2021-2-26 22:57
+
+
+
+
+热度全靠叔叔调倍率<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+AS又不是叔叔家的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 3268#       发表于 2021-2-26 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452448&amp;ptid=1974517" target="_blank">不想闭嘴 发表于 2021-2-26 22:56</a>
+
+回放有时间限制，贾布也停了这可咋办</blockquote>
+好像限制是四小时？反正应该是够用的，日常公务员上下班怎么都超不了限制吧
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 3269#       发表于 2021-2-26 23:02
+
+
+
+
+回放限制应该不是长度而是存在时间，好像两三个月就没了
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3270#       发表于 2021-2-26 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452473&amp;ptid=1974517" target="_blank">Blaze626 发表于 2021-2-26 22:59</a>
+
+好像限制是四小时？反正应该是够用的，日常公务员上下班怎么都超不了限制吧 ...</blockquote>
+只能存几个月，早期的录播存不下来<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 3271#       发表于 2021-2-26 23:04
+
+
+
+
+团播祖传两个隐身位，贝拉和嘉然，我从跨年夜看起的每一次团播她俩基本就是这种状态
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 3272#       发表于 2021-2-26 23:04
+
+
+
+
+还是得有个录播君存档<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+万一未来发生什么事情呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3273#       发表于 2021-2-26 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道你们愁什么 录播肯定不少人都在录 很多都是自用素材没传
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3274#       发表于 2021-2-26 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 虽然官方比我快一点 但是我fps多了一倍（数值上已经胜利了）
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3275#       发表于 2021-2-26 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452532&amp;ptid=1974517" target="_blank">某甲245 发表于 2021-2-26 23:04</a>
+团播祖传两个隐身位，贝拉和嘉然，我从跨年夜看起的每一次团播她俩基本就是这种状态 ...</blockquote>
+团播肯定不能一起抢话  那样太乱了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3276#       发表于 2021-2-26 23:08
+
+
+
+
+担心什么，存录播的一堆呢
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3277#       发表于 2021-2-26 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452585&amp;ptid=1974517" target="_blank">嘉然小姐的宠物 发表于 2021-2-26 23:08</a>
+
+担心什么，存录播的一堆呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 赫敏铁好人 qvq和莉亚没吱声 我投两位是狼
+
+
+
+
+
+                                        
