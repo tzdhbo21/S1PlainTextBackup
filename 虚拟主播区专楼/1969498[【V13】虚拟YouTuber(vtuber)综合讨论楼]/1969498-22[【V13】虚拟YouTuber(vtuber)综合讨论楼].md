@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-25 09:47** 
+> ## **本文件最后更新于2021-02-26 05:34** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_jgFrf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_datvJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_WDrfg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_jaap3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_tR778" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_U5Mle" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_KXXrY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_qcC4w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -16818,4 +16818,453 @@ SYL  我的椎名播了快十几个小时apex了，新社歌没有她就这么
 
 
 
-                    
+
+
+-----
+
+####  Sleipnirω  
+##### 32380#       发表于 2021-2-25 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50438309&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-02-25 17:08:56</a></blockquote>卧槽，圣皇尊像<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 32381#       发表于 2021-2-25 20:30
+
+
+
+ 本帖最后由 mmbk 于 2021-2-25 20:48 编辑 
+
+4id这是戳野うさぎ肺管子吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl，まふゆ前几天玩了一款不知名的vr神社参观的游戏，之后（因为直播喝了酒）删档，但是留了不少切片。看了下似乎是伏見稲荷大社？品味比较有趣的
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32382#       发表于 2021-2-25 21:10
+
+
+
+<img src="https://i.loli.net/2021/02/25/noXQbVhBIxH3TSp.png" referrerpolicy="no-referrer">
+
+婚后生活难顶了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32383#       发表于 2021-2-25 21:44
+
+
+
+
+小少爷要被榨干了吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32384#       发表于 2021-2-25 21:56
+
+
+
+ 本帖最后由 rzrbtk 于 2021-2-25 22:05 编辑 
+
+惹，月之剧透fes演唱会是按月之/德龙/rd这样分配的，跟zepp不同组合曲不会很多，说不定还有别的成员协力…要是唱反重力就好力<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+月之原创曲砖！？？？？？说收录了很久，还说在索尼人脉帮助下找到的制作人员大部分是熟人…索尼是被月之拿斧头威胁了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32385#       发表于 2021-2-25 22:18
+
+
+
+ 本帖最后由 qq845629713 于 2021-2-25 22:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 月之的索索新专终于要千呼万唤始出来了嘛？太期待了啊
+
+葉子只能靠垃圾游戏工商赚钱，太难受了，
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32386#       发表于 2021-2-25 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿菜什么时候宣布退出rd，还是一步到位宣布毕业啊。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32387#       发表于 2021-2-25 22:41
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-25 22:45 编辑 
+
+多葛本社也要发歌了吧，你们gamers什么时候再来个歌投稿阿<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+...叶师公开歌回?!哥别唱了，我怕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 32388#       发表于 2021-2-25 22:43
+
+
+
+
+如何评价两首周年曲都没参加的阿叶今天突然开了公开歌回<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32389#       发表于 2021-2-25 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50441346&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-2-25 22:41</a>
+多葛本社也要发歌了吧，你们gamers什么时候再来个歌投稿阿
+
+...叶师公开歌回?!哥别唱了，我怕了[f:06 ...</blockquote>
+这不是唱的很好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|你摸着良心说话|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32390#       发表于 2021-2-25 22:52
+
+
+
+ 本帖最后由 黑之和 于 2021-2-25 22:56 编辑 
+
+收回前言
+他先把完整一首唱下来吧
+唱两句就口胡不唱了就像是在喝珍珠奶茶结果珍珠堵住吸管一样难受
+syl进步还是有的，不掐着他那假声唱了把胸腔打开还是可以的
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32391#       发表于 2021-2-25 22:54
+
+
+
+
+看别的去了一看惊了，孩子长大了，感觉凸待不远了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32392#       发表于 2021-2-25 23:31
+
+
+
+
+问一下明天前夜祭有人录么，社畜看不了第一天
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32393#       发表于 2021-2-26 00:36
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-2-26 00:40 编辑 
+
+[https://tenshoku.mynavi.jp/jobinfo-115661-3-11-1/](https://tenshoku.mynavi.jp/jobinfo-115661-3-11-1/)
+
+偷偷招人的appland。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/26/003624vz2mmm562tgggh6w.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (87.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 00:36 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32394#       发表于 2021-2-26 07:31
+
+
+
+
+26号了京大那群整活玩意撤了吗
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 32395#       发表于 2021-2-26 08:55
+
+
+
+
+月灵推又活了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 32396#       发表于 2021-2-26 10:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/103447vouuzcvc2e99ojus.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (150.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 10:34 上传
+
+
+
+
+
+
+2021年2月21日，林世賢市長邀請虛擬YouTuber「雲之上夢見(くもの上ユメミ)」擔任彰化市麻糬代言人後，許多網民開始於網路上回報行經彰化市時，走在路上容易滑倒。
+
+不是我说你们台湾人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32397#       发表于 2021-2-26 11:36
+
+
+
+[https://mobilelaby.com/blog-entr ... ollow-official.html](https://mobilelaby.com/blog-entry-twitter-super-follow-official.html)
+
+Twitterで収益化。月500円の投げ銭“スーパーフォロー”発表
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32398#       发表于 2021-2-26 11:56
+
+
+
+
+super follow还行，红色背景的super reply安排一下
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32399#       发表于 2021-2-26 12:36
+
+
+
+
+推特怎么也来了，什么时候搞个超级会员啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32400#       发表于 2021-2-26 12:57
+
+
+
+<blockquote>イブラヒム
+
+@honmono_ibrahim
+
+明日3Dなるぞ</blockquote>
+[https://twitter.com/honmono_ibrahim/status/1365131252882239488](https://twitter.com/honmono_ibrahim/status/1365131252882239488)
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32401#       发表于 2021-2-26 13:05
+
+
+
+
+冥府就3d了，什么时候继续一周一次披露
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32402#       发表于 2021-2-26 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446506&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-2-26 12:57</a>
+
+https://twitter.com/honmono_ibrahim/status/1365131252882239488</blockquote>
+王立魔法骑士学院stage啦，国内时间12:00-13:30，冥府组都3D化了。除此之外不破湊也是3D化登陆爆锤机台stage和VACHSS stage，铃木胜会3D化上RD&amp;kemt stage
+
+
+
+
+
+                   

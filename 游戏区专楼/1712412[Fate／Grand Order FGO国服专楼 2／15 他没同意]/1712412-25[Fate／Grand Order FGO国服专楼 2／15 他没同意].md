@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 05:37** 
+> ## **本文件最后更新于2021-02-26 05:37** 
 
 
 
@@ -13811,4 +13811,519 @@ S版主上个月底把自己攻略全锁隐，我建议他去把自己的置顶�
 
 
 
-                       
+
+
+-----
+
+####  艾尔特翔  
+##### 36783#       发表于 2021-2-22 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50404303&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2021-2-22 13:16</a>
+
+准备打高难了，用大佬的狂娜可以轰过去是吧....
+
+倒是有点担心不能毕业，好友的CBA本来带的是满破五星氪金礼 ...</blockquote>
+单单材料不算起子的话，应该够，我小号金材料礼装没，又晚了一天半开始，一开始自回体打，等到金蛋本开始用完了所有铜和银苹果，金苹果大概吃了5~6左右，基本上点数已经280万，然后开始找满破金材料，到现在所有材料都搬了，就剩起子和文章器这些没搬，以后就金蛋随意刷了。
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 36784#       发表于 2021-2-22 19:51
+
+
+
+
+看了一遍卡莲的语音，不行，太媚宅了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不是这角色不好，是跟我记忆里FHA的卡莲完全是俩人。
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 36785#       发表于 2021-2-23 09:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50408475&amp;ptid=1712412" target="_blank">荡寇将军张嶷 发表于 2021-2-22 19:51</a>
+
+看了一遍卡莲的语音，不行，太媚宅了
+
+不是这角色不好，是跟我记忆里FHA的卡莲完全是俩人。 ...</blockquote>
+这卡莲设定大概率是星空弄的啊，除了那个大部分人可能看不懂在说什么的羁绊礼装应该是阿菌写的
+
+
+又要媚宅又要卖跟小安的CP真的把我看笑了（何况阿菌之前设定集也提示过不要锁死卡莲和安利的CP了，卡莲在她自己登场的作品有别的CP）
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36786#       发表于 2021-2-23 09:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412502&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2021-2-23 09:30</a>
+这卡莲设定大概率是星空弄的啊，除了那个大部分人可能看不懂在说什么的羁绊礼装应该是阿菌写的
+
+
+又要媚宅 ...</blockquote>
+是啊，现在的方向都是两头卖，想两边钱都赚。
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36787#       发表于 2021-2-23 11:06
+
+
+
+
+这高难一发令咒就爆破掉了，怎么看有人说打得特别艰难？
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 36788#       发表于 2021-2-23 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412502&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2021-2-23 09:30</a>
+
+这卡莲设定大概率是星空弄的啊，除了那个大部分人可能看不懂在说什么的羁绊礼装应该是阿菌写的
+
+
+又要媚宅 ...</blockquote>
+反正这个卡莲的语音人设从头到尾都让我有种受不了的味道…………
+
+甜腻得太过廉价了。
+
+根源式都没到这劲儿上…………<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 36789#       发表于 2021-2-23 13:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">卡莲一二破不就是以前那味吗，你说三破那确实是有些放飞自我。而且卡莲这次落地明显是给以后的戏份做准备吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 36790#       发表于 2021-2-23 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50415472&amp;ptid=1712412" target="_blank">rollingusagi 发表于 2021-2-23 13:48</a>
+
+卡莲一二破不就是以前那味吗，你说三破那确实是有些放飞自我。而且卡莲这次落地明显是给以后的戏份 ...</blockquote>
+问题是FCM提到卡莲以后不会再在奈须写的fate作品里登场了，下次出来就是月2
+
+FR龙套了一下主要是为了点一下卡莲妈克劳蒂娅有问题（那个人以我不能接受的方式死掉了）
+
+
+至于月2都是猴年马月的事情了……
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36791#       发表于 2021-2-24 00:39
+
+
+
+
+都毕业了，可以回去刷炉心了。不过好像骨灰掉落不错，可能会继续刷吧。
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36792#       发表于 2021-2-24 17:47
+
+
+
+
+现在还没有掉礼装<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  当光停止  
+##### 36793#       发表于 2021-2-24 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">今天死亡冲刺刷完了30w点数发现活动后天才结束，不是我之前以为的明天。
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 36794#       发表于 2021-2-24 20:07
+
+
+
+
+阿清的回收真是卡的你如鲠在喉……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  朝仓和美  
+##### 36795#       发表于 2021-2-24 23:29
+
+
+
+
+才一半点数，感觉根本不可能毕业……
+
+—— 来自 Xiaomi M2007J22C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36796#       发表于 2021-2-24 23:40
+
+
+
+
+大概还要打2-3把就完全毕业了，连棋子都搬空了
+
+就中间为了提前把礼装刷出来吃了几个苹果，后期都是自回，反正几小时一把，我甚至放了阿清和藤乃这样奇葩的阵容随便打5-6T，顺便刷这俩的羁绊以及练阿特拉斯服，这个是最后的大头了，其他衣服的经验在极弟服这种神经病玩意面前果然都不值一提
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36797#       发表于 2021-2-24 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50431718&amp;ptid=1712412" target="_blank">angelooo 发表于 2021-2-24 23:40</a>
+
+大概还要打2-3把就完全毕业了，连棋子都搬空了
+
+就中间为了提前把礼装刷出来吃了几个苹果，后期都是自回，反 ...</blockquote>
+极弟服说得太对了，这鸟衣服经验奇高，作用奇差
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36798#       发表于 2021-2-25 00:13
+
+
+
+
+明天居然要死亡冲刺，铜素材和点数没毕业，好纠结啊
+
+
+
+
+
+
+
+-----
+
+####  铁神  
+##### 36799#       发表于 2021-2-25 00:39
+
+
+
+
+不考虑换素材其实贼好耍  我大号10多w的时候也就刷了一会竟然就溢出了，，，不过金蛋太香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36800#       发表于 2021-2-25 09:44
+
+
+
+
+说起来为什么之前吹星战刷金蛋好？这活动明显金蛋出率高多了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36801#       发表于 2021-2-25 10:26
+
+
+
+
+这活动的金蛋确实香疯了，我其实主要就是剑本刷三个材料和点数，基本2-3把就能掉一个，虽然也有某一天一个都没掉，但体感比地铺可能2-3天都不掉好多了
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36802#       发表于 2021-2-25 10:36
+
+
+
+
+抽卡大失败，所以用不到金蛋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sevenight  
+##### 36803#       发表于 2021-2-25 11:20
+
+
+
+
+自选五星到底什么时候出？
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36804#       发表于 2021-2-25 11:58
+
+
+
+<blockquote>sevenight 发表于 2021-2-25 11:20
+自选五星到底什么时候出？</blockquote>
+4月29号
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 36805#       发表于 2021-2-25 20:27
+
+
+
+
+为什么这次活动会要吃苹果才能刷完？平时我感觉就算不抽池子也不至于啊
+
+现在才220w，一次刷6w的话还有13次左右，到明天下午2点的话还差个一管体力左右
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36806#       发表于 2021-2-26 10:07
+
+
+
+
+再打三四把就彻底搞定了，然而我到现在还没掉礼装<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 36807#       发表于 2021-2-26 10:46
+
+
+
+
+啥？圣诞三期又复刻？
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36808#       发表于 2021-2-26 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50444960&amp;ptid=1712412" target="_blank">6030sylar 发表于 2021-2-26 10:46</a>
+
+啥？圣诞三期又复刻？</blockquote>
+活动本身不需要打，看一遍主线给一宝大王，剩下的8个金方换齐，后续MainInterlude解锁也需要1金方，给错过的人一个至少拿一宝的机会吧
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36809#       发表于 2021-2-26 11:36
+
+
+
+
+yls你好嘢…
+礼装硬是扛到最后一局，商店搬空点数打满才掉。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36810#       发表于 2021-2-26 12:48
+
+
+
+
+打完，没掉，拉倒
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36811#       发表于 2021-2-26 13:24
+
+
+
+
+大号圣晶片有一单了，攒上瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                      

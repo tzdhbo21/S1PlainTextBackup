@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-25 18:39** 
+> ## **本文件最后更新于2021-02-26 05:35** 
 
 
 
@@ -1669,4 +1669,536 @@ CF7447F7BEFA794EFF5F2CC2D0C6015F.jpg
 
 
 
-                                              
+
+
+-----
+
+####  弈秋  
+##### 3093#       发表于 2021-2-26 08:16
+
+
+
+
+公务员考试逻辑题<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">谁说谎了
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3094#       发表于 2021-2-26 09:20
+
+
+
+
+最后发现是编的会不会炎上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3095#       发表于 2021-2-26 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50442595&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-26 01:01</a>
+你们说的对，我有点理解那些饭圈女孩看到偶像恋爱破防的感觉了
+
+  -- 来自 有消息提醒的 Stage1官方 ...</blockquote>
+饭圈妹妹塌房了不是马上就找下一个了吗，谁会像管人观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 3096#       发表于 2021-2-26 11:04
+
+
+
+
+妈的，asoul怎么又在然然的号上面b站发了抖音类发小视频。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 3097#       发表于 2021-2-26 11:05
+
+
+
+
+里面还有男人的声音<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3098#       发表于 2021-2-26 11:16
+
+
+
+
+之前没注意看，现在发现男声还是在跟然然说话，这都是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3099#       发表于 2021-2-26 11:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看懂，不理解抖友超越时代的品味。有人解释解释吗
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3100#       发表于 2021-2-26 11:26
+
+
+
+
+对抖友的梁木加深了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3101#       发表于 2021-2-26 11:30
+
+
+
+
+搬抖友的视频也行，能不能稍微搬几个正常点的
+
+这个真的看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 3102#       发表于 2021-2-26 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">抖友不能处
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 3103#       发表于 2021-2-26 11:35
+
+
+
+
+不会字节的团队连抖音都玩不明白吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3104#       发表于 2021-2-26 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445589&amp;ptid=1974517" target="_blank">Hirosue 发表于 2021-2-26 11:35</a>
+
+不会字节的团队连抖音都玩不明白吧
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这个项目头头不是个萌萌人吗 玩不明白挺正常的吧
+
+
+
+
+
+
+
+-----
+
+####  vegetht  
+##### 3105#       发表于 2021-2-26 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不让官方斗虫  自己V萌不也是斗虫吗  
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 3106#       发表于 2021-2-26 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445615&amp;ptid=1974517" target="_blank">音稻 发表于 2021-02-26 11:36:45</a>
+这个项目头头不是个萌萌人吗 玩不明白挺正常的吧</blockquote>mmr也整不出这么尬的活啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3107#       发表于 2021-2-26 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445615&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-26 11:36</a>
+
+这个项目头头不是个萌萌人吗 玩不明白挺正常的吧</blockquote>
+"由于公司很多同事没有B站账号或较少使用B站，而该同事曾为B站UP主，对平台功能也相对熟悉，因此运营找该同事帮忙测试了一下禁言等功能。"
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 3108#       发表于 2021-2-26 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445664&amp;ptid=1974517" target="_blank">嘉然小姐的宠物 发表于 2021-2-26 11:40</a>
+
+"由于公司很多同事没有B站账号或较少使用B站，而该同事曾为B站UP主，对平台功能也相对熟悉，因此运营找该 ...</blockquote>
+兄啊，看到你的头像我有点绷不住了
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3109#       发表于 2021-2-26 11:55
+
+
+
+
+有无抖友分析下抖音有多少是真抖友有多少是rp的，搬运的这短视频直接横跨两个世代了真看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3110#       发表于 2021-2-26 12:07
+
+
+
+
+怎么还有人跑到驰岛综一去引流的，ybb
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 3111#       发表于 2021-2-26 12:12
+
+
+
+
+a岛有自己的主播板块，要引去那里引啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3112#       发表于 2021-2-26 12:13
+
+
+
+
+岛民人均抖友吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3113#       发表于 2021-2-26 12:32
+
+
+
+
+A岛在看快手吧
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3114#       发表于 2021-2-26 12:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">怎么才能届到私信，去抖音私算了 感觉贝拉不看鳖站的
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3115#       发表于 2021-2-26 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446348&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-26 12:39</a>
+
+怎么才能届到私信，去抖音私算了 感觉贝拉不看鳖站的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好，关注点两下就行了
+
+看QA里说，以后个人回都应该是昨晚然然直播回私信、转二创的那种模式
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3116#       发表于 2021-2-26 12:44
+
+
+
+
+岛民好多也是云快手吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer"> 我反正只看土味角虫和A秀，A站也有asoul 浓度，好多Vup 评论区都见过相关评论
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3117#       发表于 2021-2-26 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446385&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-2-26 12:43</a>
+
+你好，关注点两下就行了
+
+看QA里说，以后个人回都应该是昨晚然然直播回私信、转二创的那种模式 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">然而只有然然是 剩下3个都在跟弹幕和sc聊天，乃琳自己带节奏
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3118#       发表于 2021-2-26 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446439&amp;ptid=1974517" target="_blank">音稻 发表于 2021-2-26 12:49</a>
+
+然而只有然然是 剩下3个都在跟弹幕和sc聊天，乃琳自己带节奏</blockquote>
+我也想象不出来其他4个直播回私信、转二创的样子
+
+总之嘉心糖从昨晚赢到现在了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 3119#       发表于 2021-2-26 13:10
+
+
+
+
+昨天v萌没赢啊。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3120#       发表于 2021-2-26 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446622&amp;ptid=1974517" target="_blank">连清人 发表于 2021-2-26 13:10</a>
+
+昨天v萌没赢啊。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+781:780的v萌我才不信！
+
+然然说我们是冠军我们就是冠军
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 3121#       发表于 2021-2-26 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446622&amp;ptid=1974517" target="_blank">连清人 发表于 2021-2-26 13:10</a>
+昨天v萌没赢啊。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+小兔子罪大恶极，肯定为了报复都投向晚去了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3122#       发表于 2021-2-26 13:24
+
+
+
+
+这破投稿真的顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                             
