@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 11:32** 
+> ## **本文件最后更新于2021-02-27 12:46** 
 
 
 
@@ -5314,4 +5314,763 @@ Everglow前淘汰
 
 
 
-                                       
+
+
+-----
+
+####  Hirosue  
+##### 3305#       发表于 2021-2-27 19:43
+
+
+
+
+不看贾布录播十年了。
+
+他的名气一涨再涨，终于被字节录用为工具人，专门负责录播和台本，我原地踏步的工资打不起sc也上不起舰长。终于年前被公司安排下岗，找工作时我才在路边广告发现初代工具人已经当上了厂长。
+时间太久，一切都变了。
+
+到处投简历的时候我想起了一名人上人的预言：“这些人只配在下水道里度过相对比较失败的人生。”
+像是一条跳过龙门的锦鲤，金鳞被羽耀武扬威地站在门沿上，对其他还在跳的鲤鱼说：
+“你不行！”
+我当时很想反驳，可他说中了。
+我知道我确实不行。我之所以跳了跳，只是为了看下自己能跳成什么样罢了。
+其实每条鲤鱼的龙门都不是一样高的。
+我见过龙门在水下的鲤鱼。看起来是鱼，其实生而为龙。
+也有的生而为鱼肉。
+也见过好运的鲤鱼，门被各种大手摁到河里了。
+我也期待过好运，只是没来而已。
+说起来这就是人性吧。我不讨厌天道酬勤，但是讨厌别人的好运——只是因为我没有好运罢了。
+我也有亲人和宠物会生病；我眼神也挺纯真啊。
+
+讨厌asoul十年了。
+讨厌的更是越来越深的无力感。
+身在泥潭的人是没力气冲锋的吧。
+三流的人生只会让上等人不屑一顾吧。
+我坐井观天，天穹星海依然耀眼。
+可我爬不出井底。
+那我就不再看星星了。世界那么大，但没我的份。
+
+忘记贾布的录播十年了。
+可路上看见街边的大荧幕在放A-soul的新年节目，我还是楞在那里了。
+我没有近视，但总觉得眼睛影影绰绰，雾气来自多年以前。
+这个广告位非常贵。真的再也不是小v了啊。
+抖友还在惦记他们的鸭子，bilibili也被淹没在时间的长河中。
+晚晚仍然只有蓬蓬裙，100首歌竟然还欠着，被粉头小团体以4%年化复利计在小本子了。
+想起她首播时玩2077下饭下得轰轰烈烈，我一边发“粉丝牌改成晚饭人吧”
+“和嘉然珈乐凑加碗饭”
+“和乃琳凑来碗饭”一边忍住刷“和贝拉组拉碗饭”的冲动。
+solo依然拉跨，参团照旧神C。
+贝拉总是六边形战士，乃琳养了成吨的gachi，珈乐还是那个硬壳软妹。
+嘉然小姐依然卖萌摁混。
+什么都没变，贾布还是那个透明而又实干的家伙。
+城里烟火幢幢，灯光下的人热情相拥，阴影里的人压下悸动。
+
+最后的staff表里贾布加布的名字，黑底白字。
+忽然眼睛有点模糊。
+我小声说：
+“新年好啊，贾布加布。”
+
+不看录播十年了。
+十年里，看过的每个录播员都像他。​
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3306#       发表于 2021-2-27 19:47
+
+
+
+
+这下佬了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3307#       发表于 2021-2-27 19:50
+
+
+
+
+麻了，普通人可没有心理医生<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3308#       发表于 2021-2-27 19:52
+
+
+
+
+贝拉待机开了，你们rp吧，我去快快快了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 3309#       发表于 2021-2-27 19:54
+
+
+
+
+你的麻麻在开挖掘机的那一刻开始就么得了
+看直播咯
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3310#       发表于 2021-2-27 20:01
+
+
+
+
+开场劣等上等可还行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+这声音也太小了
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 3311#       发表于 2021-2-27 20:03
+
+
+
+
+这舞是双人的吧，一个人看起来好怪
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3312#       发表于 2021-2-27 20:05
+
+
+
+
+最近贝拉在二次元这块是不是比然然都跳得多了？
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3313#       发表于 2021-2-27 20:06
+
+
+
+
+工具人我🦈了你工具人我🦈了你工具人我🦈了你工具人我🦈了你
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3314#       发表于 2021-2-27 20:08
+
+
+
+
+尬活上瘾了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3315#       发表于 2021-2-27 20:12
+
+
+
+
+今天怎么比昨天还尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3316#       发表于 2021-2-27 20:12
+
+
+
+
+这才开场呢！尬的还在后面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3317#       发表于 2021-2-27 20:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下期尬活大赏又有素材了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3318#       发表于 2021-2-27 20:13
+
+
+
+
+这头衔是惩罚游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 3319#       发表于 2021-2-27 20:15
+
+
+
+
+投票不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3320#       发表于 2021-2-27 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 第一题已经比大部分yhm强了 不过分吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3321#       发表于 2021-2-27 20:18
+
+
+
+
+今天开场比昨天好了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3322#       发表于 2021-2-27 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 今天这个尺度怎么回事 不对劲啊
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 3323#       发表于 2021-2-27 20:20
+
+
+
+
+rsq suki<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3324#       发表于 2021-2-27 20:21
+
+
+
+
+然然好涩<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3325#       发表于 2021-2-27 20:22
+
+
+
+
+必须帮涩然然把大聪明拿下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3326#       发表于 2021-2-27 20:23
+
+
+
+
+擦边球玩明白了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3327#       发表于 2021-2-27 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 赶紧拿 贝拉当小笨蛋就好了
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 3328#       发表于 2021-2-27 20:25
+
+
+
+
+rsq就好这口
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3329#       发表于 2021-2-27 20:26
+
+
+
+ 本帖最后由 绯想天の天子 于 2021-2-27 20:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">就好这口
+震惊！贝拉中之人原来是贝爷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3330#       发表于 2021-2-27 20:27
+
+
+
+
+晚晚没见过封着的椰子还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么大小姐
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 3331#       发表于 2021-2-27 20:28
+
+
+
+
+带一个皇家骑士 除了开椰子还干什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3332#       发表于 2021-2-27 20:29
+
+
+
+
+很难不是北极心，入脑入脑入脑加速入脑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3333#       发表于 2021-2-27 20:30
+
+
+
+
+我一直都是皇珈骑士啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3334#       发表于 2021-2-27 20:35
+
+
+
+
+好题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3335#       发表于 2021-2-27 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">多来点这种题。孩子要遭不住了。
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 3336#       发表于 2021-2-27 20:37
+
+
+
+
+想象一下晚指导**洗袜子的场景
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 3337#       发表于 2021-2-27 20:37
+
+
+
+
+穿着袜子洗澡的晚晚<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 3338#       发表于 2021-2-27 20:38
+
+
+
+
+我也洗澡前洗袜子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 3339#       发表于 2021-2-27 20:38
+
+
+
+
+珈乐的声音感觉特别明显，晚晚的声音感觉特别远，是不是收音有问题？
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3340#       发表于 2021-2-27 20:38
+
+
+
+
+晚！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3341#       发表于 2021-2-27 20:38
+
+
+
+
+贝拉先洗脚，破案了，洗澡之前先要然然洗脚再洗澡<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3342#       发表于 2021-2-27 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 不负责任猜测，先洗脚是因为有脚气
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3343#       发表于 2021-2-27 20:39
+
+
+
+
+懂了，贝拉和然然一起洗的澡<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">超级嘉贝
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3344#       发表于 2021-2-27 20:39
+
+
+
+
+然然洗的呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我也想洗让我来
+
+—— 来自 vivo V2025A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3345#       发表于 2021-2-27 20:40
+
+
+
+
+这四个不都是然然洗的脚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3346#       发表于 2021-2-27 20:42
+
+
+
+
+然然还没准备好<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  德里达幽灵  
+##### 3347#       发表于 2021-2-27 20:46
+
+
+
+
+房间不锁门还行，不怕半夜DIY的时候被室友撞见吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3348#       发表于 2021-2-27 20:46
+
+
+
+
+今晚尺度太大了，多来点<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
