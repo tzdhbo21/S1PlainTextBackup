@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 15:38** 
+> ## **本文件最后更新于2021-02-27 08:41** 
 
 
 
@@ -10185,4 +10185,359 @@ rua是年轻的肉体，楼里老男人该转推了（<img src="https://static.s
 
 
 
-                              
+
+
+-----
+
+####  呓亘  
+##### 9581#       发表于 2021-2-26 23:40
+
+
+
+
+我挺想点我签名里的这首歌的 是个老番的曲子 但我估计这人不会..
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9582#       发表于 2021-2-26 23:43
+
+
+
+
+今天是元气可爱风格呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9583#       发表于 2021-2-26 23:50
+
+
+
+
+刚想夸她又开始玩l2d了（指按了个黑脸表情唱吵死了），然后她发现其实是手滑按错了（
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 9584#       发表于 2021-2-26 23:51
+
+
+
+
+这个阴影表情有意思，只是平时都不怎么用
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9585#       发表于 2021-2-27 00:01
+
+
+
+
+别问,问就是懒得调
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9586#       发表于 2021-2-27 00:03
+
+
+
+
+别问问就是怕颜出不敢动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9587#       发表于 2021-2-27 00:18
+
+
+
+
+真是看不懂这人啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9588#       发表于 2021-2-27 00:48
+
+
+
+ 本帖最后由 Cushaw 于 2021-2-27 01:09 编辑 
+
+什么鬼东西<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+麻姨整天整这种东西不会以为这活很有趣吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+md猜错了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9589#       发表于 2021-2-27 00:56
+
+
+
+
+和她做的时候她也会这样弱智发疯吗<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 9590#       发表于 2021-2-27 01:04
+
+
+
+
+会放屁
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9591#       发表于 2021-2-27 01:06
+
+
+
+
+会吐口水
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9592#       发表于 2021-2-27 01:11
+
+
+
+ 本帖最后由 rosevalley46 于 2021-2-27 01:23 编辑 
+
+说起来我好久没看她的赞踩比现在有2000+对10多个这么恐怖了么
+
+她之前是不是又提了一嘴后面的活动,没注意到
+
+我很长时间没看数据了,还活在1000赞百来踩的年代
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9593#       发表于 2021-2-27 01:20
+
+
+
+
+不一直是这数据嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9594#       发表于 2021-2-27 01:24
+
+
+
+
+不一直是这个数据吗。不过播lol的时候踩好像会多一点点。本刀斯林很喜欢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9595#       发表于 2021-2-27 01:32
+
+
+
+ 本帖最后由 A2014720 于 2021-2-27 01:34 编辑 
+
+你这数据也老的太可怕了
+
+越唱越嗨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sleipnirω  
+##### 9596#       发表于 2021-2-27 01:49
+
+
+
+
+本来以为大晚上的会来几首抒情歌，结果每次想睡着又被炸醒
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9597#       发表于 2021-2-27 01:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">作息我的作息
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9598#       发表于 2021-2-27 01:53
+
+
+
+
+随她疯吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9599#       发表于 2021-2-27 04:11
+
+
+
+
+惊醒了，梦到和小麻谈恋爱了，不知怎么的麻就失踪了，自己躺在床上还得了病，想的全是和小麻在上海迪士尼一起玩的画面<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9600#       发表于 2021-2-27 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50454615&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-2-27 04:11</a>
+
+惊醒了，梦到和小麻谈恋爱了，不知怎么的麻就失踪了，自己躺在床上还得了病，想的全是和小麻在上海迪士尼一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“seaside桑——！行かないでー！”（圣经咏唱）
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9601#       发表于 2021-2-27 16:14
+
+
+
+
+播tc了，是吃播
+
+
+
+
+
+                             
