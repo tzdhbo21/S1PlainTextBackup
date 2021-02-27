@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 08:41** 
+> ## **本文件最后更新于2021-02-27 15:37** 
 
 
 
@@ -10540,4 +10540,733 @@ md猜错了
 
 
 
-                             
+
+
+-----
+
+####  路人辰  
+##### 9602#       发表于 2021-2-27 16:44
+
+
+
+
+20210227东京16点（1、2）
+
+
+<img src="https://img.saraba1st.com/forum/202102/27/164401yg7o3qkcz18nf8ww.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7E80A220-A68F-4A58-80A6-E67CB50F59EE.jpeg</strong> (438.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 16:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9603#       发表于 2021-2-27 18:27
+
+
+
+
+晚上还播吗……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9604#       发表于 2021-2-27 18:46
+
+
+
+
+下午居然tc了<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+有人repo嘛
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9605#       发表于 2021-2-27 19:41
+
+
+
+ 本帖最后由 A2014720 于 2021-2-27 20:52 编辑 
+
+我擦才看到，某些人不至于吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/27/194146c0gs7k3y39847lv5.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-02-27 194011.png</strong> (31.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 19:41 上传
+
+
+
+
+
+
+前因：<img src="https://p.sda1.dev/1/d9d145f84a55f1fbefb6b934bb8cc211/IMG_CMP_167482289.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人辰|-1|但是因为没有在这里讨论的必要（所以扣回来.|
+| 路人庚| + 1|这是因为他被转发评论定义为了“巨魔”.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9606#       发表于 2021-2-27 20:11
+
+
+
+
+啥玩意
+
+
+
+
+
+
+
+-----
+
+####  肥到终点  
+##### 9607#       发表于 2021-2-27 20:15
+
+
+
+
+不懂前因，后果大概是“谁跟你是一家”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9608#       发表于 2021-2-27 20:18
+
+
+
+ 本帖最后由 rosevalley46 于 2021-2-27 20:19 编辑 
+
+拒绝二手那啥,从我做起
+
+麻不播也可以讨论下九条和noe要联动了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说神乐组那个楼是不是都捞不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9609#       发表于 2021-2-27 20:22
+
+
+
+
+你麻都不怎么给小弟喂饭的 有热度才怪了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9610#       发表于 2021-2-27 20:27
+
+
+
+
+虽然不排除反串的可能性，但是因为这破防了的话…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不多说了
+
+神乐组就现在这边的观众情况来看，既不是两大箱也不算亲b，讨论度高起来很难吧
+
+这noe九条联动和某人跟noe联动完全不同呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9611#       发表于 2021-2-27 20:48
+
+
+
+
+神乐组就是个讨论组啊，为什么要当箱看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还真有因为那个b博破防的贝贝人吗，要是真的那可笑死我了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9612#       发表于 2021-2-27 20:52
+
+
+
+
+今天翻推发现很神秘的一点神乐组五个人全关注了momoshiki，你麻的硬性要求吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9613#       发表于 2021-2-27 20:52
+
+
+
+
+找个借口罢了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9614#       发表于 2021-2-27 21:12
+
+
+
+
+光明纯爱贝贝人废垃不堪，暗黑牛头贴贴人武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9615#       发表于 2021-2-27 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迷惑，话说记者既不是光明贴贴人也不是塔防符文，这唱的哪出
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9616#       发表于 2021-2-27 21:25
+
+
+
+
+又是前世贴贴破防啊?!
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9617#       发表于 2021-2-27 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50460450&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-2-27 19:41</a>
+
+我擦才看到，某些人不至于吧
+
+
+前因：</blockquote>
+啊，这就是在11月那晚宣布某女士不来然后和飞狗等人大哭咩夸，我的咩夸的黄泉先生吗，或者是正义的什么都知道的记者大人吗，狗咬狗真的是我最喜欢看的了
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9618#       发表于 2021-2-27 22:37
+
+
+
+
+那动态不是开玩笑的吗  看不懂
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9619#       发表于 2021-2-27 22:37
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 9620#       发表于 2021-2-27 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都是啥跟啥啊
+
+
+
+
+
+
+
+-----
+
+####  Day_One  
+##### 9621#       发表于 2021-2-27 22:45
+
+
+
+
+不想多了解  只能说所有互动都是观众圈传统特色不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻...麻...寂しい...
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9622#       发表于 2021-2-27 22:46
+
+
+
+
+学麻麻对藤原发情？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9623#       发表于 2021-2-27 22:53
+
+
+
+
+待机间开了（多线操作神乐咩
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9624#       发表于 2021-2-27 22:57
+
+
+
+
+可以可以 勤快了啊 要是直播内容有点变化就更好了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9625#       发表于 2021-2-27 23:06
+
+
+
+
+开幕就对fuji君发情，摇头
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9626#       发表于 2021-2-27 23:07
+
+
+
+
+西内<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9627#       发表于 2021-2-27 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后mixi被ban了（悲
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9628#       发表于 2021-2-27 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/293.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9629#       发表于 2021-2-27 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461064&amp;ptid=1973472" target="_blank">clvan_ 发表于 2021-2-27 20:52</a>
+
+今天翻推发现很神秘的一点神乐组五个人全关注了momoshiki，你麻的硬性要求吗 ...</blockquote>
+神乐组偶像服有吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9630#       发表于 2021-2-27 23:15
+
+
+
+
+年初多歌回固固粉挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+后面可以多整点活
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9631#       发表于 2021-2-27 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462128&amp;ptid=1973472" target="_blank">Day_One 发表于 2021-2-27 22:45</a>
+
+不想多了解  只能说所有互动都是观众圈传统特色不得不品尝再怎么样互联网过了几天这页就会翻过去   ...</blockquote>
+当纯良发情人就不会被过激河豚千里追杀吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9632#       发表于 2021-2-27 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462428&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-27 23:15</a>
+
+当纯良发情人就不会被过激河豚千里追杀吗</blockquote>
+大家明明都这么喜欢打架 但当刀口对向自己时又不愿意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9633#       发表于 2021-2-27 23:16
+
+
+
+
+我在想这人天天直播公开发情将来会不会真被藤君的粉丝出警<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9634#       发表于 2021-2-27 23:20
+
+
+
+
+你把fuji君当成林俊杰，然后假想一下对应的情况，也就差不多了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9635#       发表于 2021-2-27 23:25
+
+
+
+
+那麻麻能来一首江南吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9636#       发表于 2021-2-27 23:27
+
+
+
+
+老女人又卖萌
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9637#       发表于 2021-2-27 23:28
+
+
+
+
+emoi..
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 9638#       发表于 2021-2-27 23:30
+
+
+
+
+uihara又锁推了，点进去粉丝列表一看最顶上又是好几个的简介里写中国/china/dd/crew/mea单推。算了算了涨粉就涨粉吧，希望她两边事业顺利人也能开心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  肥到终点  
+##### 9639#       发表于 2021-2-27 23:31
+
+
+
+
+突击苦情歌
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9640#       发表于 2021-2-27 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462550&amp;ptid=1973472" target="_blank">sgssk 发表于 2021-2-27 23:30</a>
+
+uihara又锁推了，点进去粉丝列表一看最顶上又是好几个的简介里写中国/china/dd/crew/mea单推。算了算了涨粉 ...</blockquote>
+u18r日常锁推你说什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
