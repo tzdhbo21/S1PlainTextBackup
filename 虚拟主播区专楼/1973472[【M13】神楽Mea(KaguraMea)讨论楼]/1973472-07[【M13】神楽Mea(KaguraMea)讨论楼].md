@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 15:37** 
+> ## **本文件最后更新于2021-02-27 16:57** 
 
 
 
@@ -11269,4 +11269,585 @@ u18r日常锁推你说什么呢<img src="https://static.saraba1st.com/image/smil
 
 
 
-                            
+
+
+-----
+
+####  路人庚  
+##### 9641#       发表于 2021-2-27 23:38
+
+
+
+ 本帖最后由 路人庚 于 2021-2-27 23:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天是恋爱曲专场，向fuji君献上爱的花束，好！
+
+
+
+
+
+
+
+-----
+
+####  Day_One  
+##### 9642#       发表于 2021-2-27 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462436&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-27 23:16</a>
+大家明明都这么喜欢打架 但当刀口对向自己时又不愿意了</blockquote>
+那就学某群体鸵鸟算了，两年多过来还没立地成佛么    除了你麻颜出之外<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">没有任何事能掀起我心中的丝丝波澜
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9643#       发表于 2021-2-27 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462436&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-27 23:16</a>
+
+大家明明都这么喜欢打架 但当刀口对向自己时又不愿意了</blockquote>
+我挺乐意的，可惜我最想干碎的某些人只能缩在他们组水群叫<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9644#       发表于 2021-2-27 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462641&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-2-27 23:38</a>
+
+今天是恋爱曲专场，向fuji君献上爱的花束，好！</blockquote>
+“这是我和fuji君的结婚曲”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9645#       发表于 2021-2-27 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462684&amp;ptid=1973472" target="_blank">ashero 发表于 2021-2-27 23:44</a>
+
+“这是我和fuji君的结婚曲”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">咩阿fuji贴贴！！
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 9646#       发表于 2021-2-27 23:46
+
+
+
+
+结婚区hhh
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9647#       发表于 2021-2-27 23:47
+
+
+
+
+都成年变姨了还不能满足一下肉体厨吗？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9648#       发表于 2021-2-27 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 9649#       发表于 2021-2-27 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462618&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-27 23:36</a>
+
+u18r日常锁推你说什么呢</blockquote>
+印象里开始频繁开锁关锁的也就去年年中往后，至少19年后半到20年前半相对少，这会儿我是看着粉丝列表忍不住想发散一下，想想算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是少阴湿多阳光吧
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9650#       发表于 2021-2-27 23:54
+
+
+
+
+ハッピーエンド这歌就觉得这人唱的比原唱要合口味，歌词也是基本全中好球带
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9651#       发表于 2021-2-28 00:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50462751&amp;ptid=1973472" target="_blank">sgssk 发表于 2021-2-27 23:54</a>
+
+印象里开始频繁开锁关锁的也就去年年中往后，至少19年后半到20年前半相对少，这会儿我是看着粉丝列表忍不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是，你咩姐上周末直播时候厄介sc都刷上天了，俺也是一直在寻思到底该怎样做，才能最终约束一下那些过于自由的人们（不过你在这大概是找不到什么答案的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9652#       发表于 2021-2-28 00:02
+
+
+
+ 本帖最后由 路人庚 于 2021-2-28 00:04 编辑 
+
+看你咩姐乐的，方言都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，序言，真好啊
+
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9653#       发表于 2021-2-28 00:04
+
+
+
+ 本帖最后由 Unlimited290 于 2021-2-28 00:06 编辑 
+
+プロローグ也是极好的。开幕的时候点了一下，唱了就好wdnmd，我今晚是什么黄姓人士附体吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9654#       发表于 2021-2-28 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太久不唱是这样的，翻的透彻，听个气氛算辽
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9655#       发表于 2021-2-28 00:11
+
+
+
+
+今晚起码嗓子状况不错，可惜我心心念念的无情术曲连唱回不知道要几万年之后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9656#       发表于 2021-2-28 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兰熊又来抓羊了还行，通宵预定
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9657#       发表于 2021-2-28 00:16
+
+
+
+
+草 这吊人约了兰酱要溜了 **倒是播啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9658#       发表于 2021-2-28 00:16
+
+
+
+
+阴间滴神复活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9659#       发表于 2021-2-28 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">又是绿熊又是绿熊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9660#       发表于 2021-2-28 00:21
+
+
+
+
+兰熊待机间都开起来了，20分后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兰熊你好急啊
+[https://www.youtube.com/watch?v=i0XdsPcMqFQ](https://www.youtube.com/watch?v=i0XdsPcMqFQ)
+
+▽参加メンバー▽
+
+私（兰熊）
+
+カワセ
+
+神楽めあ
+
+獅子神レオナ
+
+英リサ
+
+瀬戸あさひ
+
+おだのぶ
+
+神成きゅぴ
+
+ととみ
+
+香月ネロ
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9661#       发表于 2021-2-28 00:22
+
+
+
+
+一代版本一代神 绿熊yyds<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9662#       发表于 2021-2-28 00:25
+
+
+
+
+人狼就这么好玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9663#       发表于 2021-2-28 00:26
+
+
+
+ 本帖最后由 thisisaspider 于 2021-2-28 00:28 编辑 
+
+听说上次mea三杀了 或许杀出自信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[del]是成年了该参加联谊了，要提前适应被15个男人轮流上[/del]
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9664#       发表于 2021-2-28 00:29
+
+
+
+
+那我就是第15个了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9665#       发表于 2021-2-28 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然她去年就说过之前经常私下里玩阿莫阿斯还用蹩脚英语跟野人聊了（现在能播出来大概算是进步8
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9666#       发表于 2021-2-28 00:32
+
+
+
+
+野男人就这么香？<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9667#       发表于 2021-2-28 00:34
+
+
+
+
+野男人我🦈了你，希望今晚做梦还能梦见小麻，这次一定把事给办了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9668#       发表于 2021-2-28 00:48
+
+
+
+
+这名字上次就想吐槽了
+
+算是ass公然暴露吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9669#       发表于 2021-2-28 00:49
+
+
+
+[https://mitsuya-magazine.com/yumeno-lilith](https://mitsuya-magazine.com/yumeno-lilith)
+
+你楼的bs粉能来鉴别一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+2つ目の理由としては、夢乃リリスさんの活動開始時期とさやまぐさんの活動休止したタイミングに違和感が無いということです。
+
+
+夢乃リリスさんは2021年1月15日に活動を開始していますが、さやまぐさんは2021年1月1日を最後に動画の更新がありません。
+
+
+夢乃リリスさんのTwitterは2020年12月1日より始動しており、さやまぐさんの活動時期と被っていますが、
+
+
+Twitterはそこまで負担がかからないため、充分に並行活動可能です。
+
+
+以上から、夢乃リリスの中の人(声優)の前世はさやまぐさんである可能性は十分にありそうです。
+
+
+
+我觉得太扯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9670#       发表于 2021-2-28 00:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9671#       发表于 2021-2-28 00:53
+
+
+
+ 本帖最后由 thisisaspider 于 2021-2-28 00:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463128&amp;ptid=1973472" target="_blank">proxima 发表于 2021-2-28 00:49</a>
+[https://mitsuya-magazine.com/yumeno-lilith](https://mitsuya-magazine.com/yumeno-lilith)
+
+你楼的bs粉能来鉴别一下吗</blockquote>
+那必然太扯了啊 对谈会没看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要不再安插个在虹箱，BS就要控制全V圈了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9672#       发表于 2021-2-28 00:56
+
+
+
+
+什么无形大手，有点离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                           
