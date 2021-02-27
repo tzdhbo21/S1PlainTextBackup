@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 16:57** 
+> ## **本文件最后更新于2021-02-27 20:34** 
 
 
 
@@ -11850,4 +11850,359 @@ Twitterはそこまで負担がかからないため、充分に並行活動可�
 
 
 
-                           
+
+
+-----
+
+####  GRMeA104  
+##### 9673#       发表于 2021-2-28 00:58
+
+
+
+
+你也知道很扯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9674#       发表于 2021-2-28 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463152&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-28 00:53</a>
+
+那必然太扯了啊 对谈会没看吗
+
+要不再安插个在虹箱，BS就要控制全V圈了？
+
+ ...</blockquote>
+那bfm转生帕里坡是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太V了，我受不了了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9675#       发表于 2021-2-28 01:00
+
+
+
+ 本帖最后由 ashero 于 2021-2-28 01:09 编辑 
+
+不是 之前没往这边想也没怎么看saya直播 现在一对比一听是真的挺像
+
+现在只能说可能 不能说锤了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9676#       发表于 2021-2-28 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463195&amp;ptid=1973472" target="_blank">proxima 发表于 2021-2-28 01:00</a>
+
+那bfm转生帕里坡是真的吗
+
+太V了，我受不了了</blockquote>
+目前感觉八九不离十 不敢说死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9677#       发表于 2021-2-28 01:05
+
+
+
+
+不过就b最近这势头去了感觉也拿不到多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9678#       发表于 2021-2-28 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463227&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-2-28 01:05</a>
+
+不过就b最近这势头去了感觉也拿不到多少啊</blockquote>
+bfm感觉不是很强烈的想赚钱 说不定玩腻了 又回TC了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9679#       发表于 2021-2-28 01:09
+
+
+
+
+天天跟野男人玩<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9680#       发表于 2021-2-28 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463128&amp;ptid=1973472" target="_blank">proxima 发表于 2021-2-28 00:49</a>
+
+https://mitsuya-magazine.com/yumeno-lilith
+
+你楼的bs粉能来鉴别一下吗</blockquote>
+看群友讨论 似乎不止一个觉得像的 要看她是否恰萌音或模仿哆啦A梦时的声音吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9681#       发表于 2021-2-28 01:11
+
+
+
+ 本帖最后由 Unlimited290 于 2021-2-28 01:13 编辑 
+
+第一把被秒杀都没听到几句说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9682#       发表于 2021-2-28 01:32
+
+
+
+
+好一出师徒亲爱和谐的一把<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9683#       发表于 2021-2-28 01:45
+
+
+
+
+草 兰酱被杀了还一直指出mea不能说这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我要成为贴贴人了
+
+结果mea居然在第五层 一手做了自己身份 一手迷惑了所有人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9684#       发表于 2021-2-28 01:46
+
+
+
+ 本帖最后由 Unlimited290 于 2021-2-28 01:49 编辑 
+
+这女人怎么这几晚之后杀人泼脏水都这么熟悉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9685#       发表于 2021-2-28 01:50
+
+
+
+
+明明什么都没做 被人复盘带走了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9686#       发表于 2021-2-28 01:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463415&amp;ptid=1973472" target="_blank">Unlimited290 发表于 2021-2-28 01:46</a>
+
+这女人怎么这几晚之后杀人泼脏水都这么熟悉了老女人的力量吗这就是 SYL 正道的光，照在了大地上[f:0 ...</blockquote>
+你怎么不说兰酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9687#       发表于 2021-2-28 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463426&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-28 01:50</a>
+
+你怎么不说兰酱</blockquote>
+也有兰酱的功劳，就是时间太杀人了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">以前的阿兰还是健康作息的好孩子的呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9688#       发表于 2021-2-28 02:11
+
+
+
+
+怎么忽然追加禁止skip的规则了，好家伙，搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9689#       发表于 2021-2-28 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463247&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-2-28 01:09</a>
+
+看群友讨论 似乎不止一个觉得像的 要看她是否恰萌音或模仿哆啦A梦时的声音吧 ...</blockquote>
+这么说的话其实和你麻对谈那次还真没怎么看，可以研究下
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9690#       发表于 2021-2-28 02:38
+
+
+
+
+新名字get MEAGOMI 经典自称乐色还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9691#       发表于 2021-2-28 04:03
+
+
+
+ 本帖最后由 ashero 于 2021-2-28 04:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这六个人怎么那么耐久 别人都跑了他们还想玩
+
+
+绝了 绿熊点集合的同时被咩宝杀了 
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9692#       发表于 2021-2-28 04:25
+
+
+
+
+因为6个人是暂时的啊，半夜野生熬夜人以阿兰的power，这不马上召唤来了吗，wdnmd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
