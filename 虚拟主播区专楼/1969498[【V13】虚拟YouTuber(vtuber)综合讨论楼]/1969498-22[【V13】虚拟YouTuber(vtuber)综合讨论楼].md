@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 12:51** 
+> ## **本文件最后更新于2021-02-27 06:39** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_FSoux" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_NEsOG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_W7U0a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_F3P65" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_ALX2W" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_WXzXK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_LyzC0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_kGFfW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17791,8 +17791,9 @@ Niji fes现在发推数8万3，杏2nd50万，bloom40万，综上一杏最少等�
 
 
 
+ 本帖最后由 SuperCK 于 2021-2-27 13:24 编辑 
 
-nijifes录了，抓的b站直播流，需要的私信我票根截图
+编辑
 
 
 
@@ -17850,4 +17851,613 @@ https://www.youtube.com/watch?list=TLGGuaDizgmMW4My ...</blockquote>
 
 
 
-                  
+
+
+-----
+
+####  Porsche  
+##### 32434#       发表于 2021-2-26 21:00
+
+
+
+
+fes官网不出意料的被挤爆了
+那群还没开卖就分赃完毕的谷团是哪来的自信能买到的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32435#       发表于 2021-2-26 21:52
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1go1a0aj3kxj20ys0ln467.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32436#       发表于 2021-2-26 21:59
+
+
+
+
+Bsyl，今天的合照
+
+<img src="https://img.saraba1st.com/forum/202102/26/215405zgn2240zimm711i4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【#にじFes2021 前夜祭 記念写真公開！】 .jpg</strong> (485.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 21:54 上传
+
+
+
+
+
+
+
+Syl，阿葵的祝花，柄绘是なな(@Nana_yume87)様
+
+<img src="https://img.saraba1st.com/forum/202102/26/215654v8upmztdb8d2pyzg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>本間ひまわりフラスタ企画 @Honmaflower .jpg</strong> (458.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 21:56 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/215654p5mg1yttrkkr5k5t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>にじFesひまちゃん宛のフラスタイラスト、描かせていただきましたヒマワリ.jpg.jpg</strong> (703.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 21:56 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Hachimanhiki| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 32437#       发表于 2021-2-26 22:12
+
+
+
+
+ar软件是自己写的，ickr有点厉害啊
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32438#       发表于 2021-2-26 22:21
+
+
+
+
+nico怎么还没死呢
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 32439#       发表于 2021-2-26 22:39
+
+
+
+
+我也很想问nico为什么还不死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32440#       发表于 2021-2-26 23:06
+
+
+
+ 本帖最后由 十四洲 于 2021-2-26 23:44 编辑 
+
+叶玩nijileague不是完全暴露了自己不关心同事的事实吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ 屈指可数的正解，回答对了露露，江良和爱丽丝的问题
+
+
+草答不出来静凛和德龙的组合名两次强行bug回避
+
+感觉要被开除了
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32441#       发表于 2021-2-26 23:09
+
+
+
+ 本帖最后由 CielChloe 于 2021-2-27 00:17 编辑 
+
+没事，昨天安洁也没过
+
+
+syl，虽然感觉这都是导演好的，但我还是看笑了，谢谢你刷题大哥哥
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32442#       发表于 2021-2-26 23:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-27 00:00 编辑 
+
+叶师你还会个什么，你第一关耐久吗，还好意思唱社歌<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+回答个自己会社的题目也要靠刷，快进到先迈左脚
+
+
+<img src="https://img.saraba1st.com/forum/202102/27/000021gdtsk1uedqyji1e3.png" referrerpolicy="no-referrer">
+
+
+<strong>にじリーグ | 実は僕デビュー早めなんです。【にじさんじ:叶】.png</strong> (141.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 00:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32443#       发表于 2021-2-26 23:25
+
+
+
+
+宝可梦钻石珍珠重制预计冬季出，还会有那样的彩虹杯吗，
+郡道倒是爽到的样子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 32444#       发表于 2021-2-26 23:48
+
+
+
+
+宝可梦的彩虹杯不像V甲子园和司那么有渊源，有人想办就能办吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32445#       发表于 2021-2-27 00:40
+
+
+
+
+是说看今天买谷这个炸来炸去的样子，虹今年冬天前估计会完蛋啦（玩笑
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32446#       发表于 2021-2-27 01:14
+
+
+
+
+草 叶之前不是和静凛天天恰鸡
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 32447#       发表于 2021-2-27 04:37
+
+
+
+
+管人无关
+
+kokia开b站账号了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 32448#       发表于 2021-2-27 06:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50454654&amp;ptid=1969498" target="_blank">ひびき 发表于 2021-2-27 04:37</a>
+管人无关
+
+kokia开b站账号了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">声音跟CD一对比也太姨了
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 32449#       发表于 2021-2-27 07:00
+
+
+
+
+免费快来排一手kokia
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32450#       发表于 2021-2-27 10:11
+
+
+
+
+黛灰对各个liver的解体新书到底是…？？？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32451#       发表于 2021-2-27 10:12
+
+
+
+
+黑客这真就是暴力引流啊，矢车叶子jiyu 有福了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32452#       发表于 2021-2-27 10:48
+
+
+
+
+黛灰真是铁血虹人
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32453#       发表于 2021-2-27 11:33
+
+
+
+
+尊妈汉字写的不错啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32454#       发表于 2021-2-27 11:51
+
+
+
+
+你虹免费场这边同接一直在4w-7w左右，差不多等于1/2到1/3个gbf或者fgo
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32455#       发表于 2021-2-27 12:04
+
+
+
+ 本帖最后由 qq845629713 于 2021-2-27 12:05 编辑 
+
+这小蜜蜂的3D质量，真高啊
+
+不过节目真虚无啊
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32456#       发表于 2021-2-27 12:05
+
+
+
+
+梅丽莎好可爱啊，害羞的样子也好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32457#       发表于 2021-2-27 12:10
+
+
+
+
+梅丽莎看样子好小女孩，估计年纪挺小的，芙莲有点姨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32458#       发表于 2021-2-27 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我是观众看虚无1、2switch我要退票的
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32459#       发表于 2021-2-27 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50456664&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-2-27 12:10</a>
+梅丽莎看样子好小女孩，估计年纪挺小的，芙莲有点姨</blockquote>
+高兴的时候会跳起来好青春好元气<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32460#       发表于 2021-2-27 13:28
+
+
+
+ 本帖最后由 Suny08 于 2021-2-27 13:49 编辑 
+
+梅丽莎真就3d绝不开嗓啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这不安也到一种境界了，可以称为0二号了吧
+
+夜见出道以来第一次直播里哭出来了，有点触动，当一周真mmr了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|生日歌也是歌|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32461#       发表于 2021-2-27 13:29
+
+
+
+
+夜见哭了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">好可爱
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32462#       发表于 2021-2-27 13:55
+
+
+
+
+啊，卡页了
+
+Bsyl，梅丽今年应该22左右，和油男差不多同岁，女骑士25，都还年轻<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32463#       发表于 2021-2-27 14:10
+
+
+
+
+夜见真的可爱，gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                 

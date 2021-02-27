@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 02:04** 
+> ## **本文件最后更新于2021-02-27 06:40** 
 
 
 
@@ -9058,4 +9058,560 @@ q娃这几年只要稳当就可以了 然而去年女人中途还是搞出恶心
 
 
 
-                                
+
+
+-----
+
+####  最强惠酱  
+##### 512#       发表于 2021-2-23 17:40
+
+
+
+ 本帖最后由 最强惠酱 于 2021-2-23 17:43 编辑 
+
+居然是两部电影同时上映，预告作画看起来不错，夏哥好逗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/8d140f70bfb5ada160233a1f7671ad41/20210223_174229.jpg" referrerpolicy="no-referrer">
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 513#       发表于 2021-2-23 17:43
+
+
+
+
+<img src="http://wx3.sinaimg.cn/large/006wIUUEly1gnxljy8k1zj30ku0db0vt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/006wIUUEly1gnxljzkk4sj30ku0v943i.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/006wIUUEly1gnxlk092d0j30ku0v90x2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/006wIUUEly1gnxlk14cllj30ku0v943b.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/006wIUUEly1gnxlk2niadj30ku0v9jv9.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/006wIUUEly1gnxlk3cc9vj30ku0v9tdr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/006wIUUEly1gnxlk3yb9aj30ku0a9772.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 514#       发表于 2021-2-23 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50418365&amp;ptid=1963832" target="_blank">HGCG+ 发表于 2021-02-23 17:43:00</a></blockquote>花守这扮相，真的越来越中气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 515#       发表于 2021-2-23 18:01
+
+
+
+
+热带的小剧场版居然也有打戏
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4607810496036945?from=old_pc_videoshow)
+
+
+红好帅
+<img src="http://wx1.sinaimg.cn/large/9657fdc2ly1gnxmcxajykj21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2ly1gnxmd3k69vj21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2ly1gnxmd8eo87j21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2ly1gnxmd9du8nj21hc0u04qq.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 516#       发表于 2021-2-23 18:06
+
+
+
+
+网袜也太不健全了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 517#       发表于 2021-2-23 19:09
+
+
+
+
+所以封面是从天上掉下来的时候抓拍是吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 518#       发表于 2021-2-23 19:50
+
+
+
+
+剧场版里的画面剪出来就行了
+剧场版因为不会随便放波所以遇到小怪的时候总得打两下
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 519#       发表于 2021-2-24 15:03
+
+
+
+
+红好帅啊
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 520#       发表于 2021-2-24 16:35
+
+
+
+
+五个q娃三个露脐（人鱼怎么看都是钦定的）
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 521#       发表于 2021-2-24 18:19
+
+
+
+<blockquote>Sliurus 发表于 2021-2-24 16:35
+五个q娃三个露脐（人鱼怎么看都是钦定的）</blockquote>
+之前的玩具偷跑视频完全就说明是钦定了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 522#       发表于 2021-2-24 18:47
+
+
+
+
+官方玩具视频
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4608158077747237?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 523#       发表于 2021-2-24 19:44
+
+
+
+<blockquote>Sliurus 发表于 2021-2-24 16:35
+五个q娃三个露脐（人鱼怎么看都是钦定的）</blockquote>
+彩和红都是只露肚皮不露脐吧
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 524#       发表于 2021-2-24 19:46
+
+
+
+
+儿童志
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gnyns3z82kj20u01404ac.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74ly1gnyns4y69hj21400u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gnynse57mvj21400u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gnyns9xb18j21400u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gnyns438xej20u0140qfh.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gnynsfylobj21400u04qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gnyns8zvvuj20u0140k3q.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 525#       发表于 2021-2-24 21:18
+
+
+
+
+现在看
+
+似乎是彩紫逗比
+
+黄红正经？
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 526#       发表于 2021-2-24 21:18
+
+
+
+
+人鱼的全名：
+
+Laura Apollodorus Hyginus La Mer
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 527#       发表于 2021-2-24 23:58
+
+
+
+
+为什么红不是女子大生<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 528#       发表于 2021-2-25 00:27
+
+
+
+
+劳拉阿波罗多罗斯希吉努斯拉梅儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 529#       发表于 2021-2-25 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429708&amp;ptid=1963832" target="_blank">HGCG+ 发表于 2021-2-24 19:46</a>
+儿童志</blockquote>
+劳拉是来自人鱼国的人鱼？简直是在凑字数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 530#       发表于 2021-2-25 17:54
+
+
+
+<img src="https://p.sda1.dev/1/138d26e2815bb4f44037c9e1472d6d60/2021-02-25_17-54-08.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 531#       发表于 2021-2-25 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437040&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-2-25 15:09</a>
+劳拉是来自人鱼国的人鱼？简直是在凑字数</blockquote>
+谁记得白雪姬的全名的意思？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 532#       发表于 2021-2-25 18:48
+
+
+
+ 本帖最后由 lyflyflxf 于 2021-2-25 19:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50439140&amp;ptid=1963832" target="_blank">王留美 发表于 2021-2-25 18:40</a>
+
+谁记得白雪姬的全名的意思？</blockquote>
+说得好。坐等今年的劳拉自报全名<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+话说当年白雪姬是不是练过贯口？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  李霞  
+##### 533#       发表于 2021-2-25 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50439140&amp;ptid=1963832" target="_blank">王留美 发表于 2021-2-25 18:40</a>
+
+谁记得白雪姬的全名的意思？</blockquote>
+小公主还行，到是那天马一长串没什么印象了
+
+
+Himelda Window Curequeen of the Blue Sky
+
+Himelda 本名：希美尔达
+
+Window 这个有点摸不著头脑，不过想到有白雪公主的梗 大概是取自开篇 “皇后在窗边扎破手，血滴到窗台的白雪上，就决定给公主取名白雪”
+
+Curequeen of the Blue Sky 皇室姓氏和头衔，看蓝天国跟蓝神的关系，祖上大概没少出Q娃... 
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 534#       发表于 2021-2-25 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50439692&amp;ptid=1963832" target="_blank">李霞 发表于 2021-2-25 19:50</a>
+
+小公主还行，到是那天马一长串没什么印象了
+
+
+Himelda Window Curequeen of the Blue Sky</blockquote>
+天马？
+
+不是天马没印象，是甜点没印象
+
+
+
+
+
+
+
+-----
+
+####  DOACAON  
+##### 535#       发表于 2021-2-26 00:29
+
+
+
+
+编纂希腊神话的Apollodorus，编纂罗马神话的Hyginus，这俩名字凑一起那就是要往神话上靠了？
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 536#       发表于 2021-2-26 19:42
+
+
+
+
+海外版预告？
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4608799948865585?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 537#       发表于 2021-2-26 21:10
+
+
+
+<blockquote>DOACAON 发表于 2021-2-26 00:29
+编纂希腊神话的Apollodorus，编纂罗马神话的Hyginus，这俩名字凑一起那就是要往神话上靠了？ ...</blockquote>
+居然是这样吗
+
+
+
+
+
+
+
+-----
+
+####  HGCG3  
+##### 538#       发表于 2021-2-27 10:37
+
+
+
+
+光子力射线！
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1go1vvvx1dbj20zk0k0dhw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 539#       发表于 2021-2-27 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今年人间体素质这么高的吗……负重后空翻上楼……
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 540#       发表于 2021-2-27 12:32
+
+
+
+
+今年op傻吊是够傻吊的，就是没去年高素质
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 541#       发表于 2021-2-27 14:28
+
+
+
+
+拜托了肌肉！
+<img src="http://wx3.sinaimg.cn/large/ac3b09faly1go20wx3qnlg20dc07ie82.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
