@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 13:33** 
+> ## **本文件最后更新于2021-02-27 14:35** 
 
 
 
@@ -6414,4 +6414,1153 @@ rsq就好这口
 
 
 
-                                     
+
+
+-----
+
+####  光明莫斯利安  
+##### 3370#       发表于 2021-2-27 21:34
+
+
+
+
+什么性转yyf
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3371#       发表于 2021-2-27 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">急了急了急了急了急了急了急了急了急了急了急了急了
+
+这么多美食都不能尝试。
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3372#       发表于 2021-2-27 21:37
+
+
+
+
+向晚这个应该是真的吧，反正我通宵第二天会精神一上午
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3373#       发表于 2021-2-27 21:39
+
+
+
+
+草，这个爬墙到底是啥，问点能回的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 3374#       发表于 2021-2-27 21:39
+
+
+
+
+向晚和贝拉不懂什么是爬墙?
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3375#       发表于 2021-2-27 21:39
+
+
+
+
+哈人<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JWJking  
+##### 3376#       发表于 2021-2-27 21:40
+
+
+
+
+裸奔还行hso
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3377#       发表于 2021-2-27 21:40
+
+
+
+
+不懂爬墙有点假了
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3378#       发表于 2021-2-27 21:40
+
+
+
+
+向晚，草，我的晚。裸奔小向晚<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3379#       发表于 2021-2-27 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也没懂爬墙，查了一下才知道
+
+
+
+
+
+
+
+-----
+
+####  Seteor  
+##### 3380#       发表于 2021-2-27 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">向晚不懂可以理解，贝拉练习生也能不懂的吗
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3381#       发表于 2021-2-27 21:41
+
+
+
+
+裸奔小向晚<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弗朗索瓦·欧根  
+##### 3382#       发表于 2021-2-27 21:41
+
+
+
+
+爬墙啥意思呀 是不是要去找豆友问问<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3383#       发表于 2021-2-27 21:42
+
+
+
+
+草，我也没懂，我还以为是科学那啥
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3384#       发表于 2021-2-27 21:42
+
+
+
+
+草 弹幕有条“毕生所学”给整笑了
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3385#       发表于 2021-2-27 21:43
+
+
+
+
+晚晚总是101，毕生所学是吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3386#       发表于 2021-2-27 21:43
+
+
+
+
+晚指导你就靠着这点老底混吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3387#       发表于 2021-2-27 21:43
+
+
+
+
+是说骑墙么？
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Seteor  
+##### 3388#       发表于 2021-2-27 21:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是墙头粉，换推的意思，比如你今天推向晚明天又去推嘉然了
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 3389#       发表于 2021-2-27 21:44
+
+
+
+
+墙头指自己的推，爬墙是指换自己单推的对象。
+
+
+裸奔是指不掩饰自己粉籍去安利
+
+不裸奔就是自己说自己纯路人，然后再去安利
+
+↑以上是视奸豆瓣得来的成果<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3390#       发表于 2021-2-27 21:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/27/214419qax1gmg1asb6669k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (128.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 21:44 上传
+
+
+
+
+
+应该是第二个意思
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3391#       发表于 2021-2-27 21:45
+
+
+
+
+毕生所学ー拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3392#       发表于 2021-2-27 21:45
+
+
+
+ 本帖最后由 绯想天の天子 于 2021-2-27 21:46 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3393#       发表于 2021-2-27 21:48
+
+
+
+
+我傻了 这也太冷了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 3394#       发表于 2021-2-27 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461496&amp;ptid=1974517" target="_blank">Seteor 发表于 2021-2-27 21:41</a>
+
+向晚不懂可以理解，贝拉练习生也能不懂的吗</blockquote>
+还是有可能的, 乐华练习生有两个来源,   自己去面试的和星探挖来的, 星探经常会去艺校挖人,  这种被挖的本身其实不一定对娱乐圈饭圈感兴趣,  再加上乐华比较看重的练习生会扔到韩国进行没收手机的封闭训练,  乐华的艺人刚出道时经常会表现出火星两三年以上的情况
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3395#       发表于 2021-2-27 21:48
+
+
+
+
+晚指导操控天气的能力还是没变
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3396#       发表于 2021-2-27 21:50
+
+
+
+
+碗指导人工降水这块懂得透彻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3397#       发表于 2021-2-27 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火星两三年还行。太狠了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3398#       发表于 2021-2-27 21:52
+
+
+
+
+蹦蹦跳跳的晚晚活脱脱地像个可爱的傻口<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3399#       发表于 2021-2-27 21:54
+
+
+
+
+“我又变色了，我满了”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  尿完抖两下  
+##### 3400#       发表于 2021-2-27 21:56
+
+
+
+
+嘉然mua的时候，向晚被击中**口，但是……怎么手和胸的模型中间空这么多？那么向晚真的胸该有多大……巨乳小向晚？<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3401#       发表于 2021-2-27 21:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 豆友提了一嘴 贝拉设定是播音“主持”专业
+
+
+
+
+
+
+
+-----
+
+####  JWJking  
+##### 3402#       发表于 2021-2-27 21:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461623&amp;ptid=1974517" target="_blank">尿完抖两下 发表于 2021-2-27 21:56</a>
+
+嘉然mua的时候，向晚被击中**口，但是……怎么手和胸的模型中间空这么多？那么向晚真的胸该有多大……巨乳 ...</blockquote>
+白花花<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 3403#       发表于 2021-2-27 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461623&amp;ptid=1974517" target="_blank">尿完抖两下 发表于 2021-2-27 21:56</a>
+
+嘉然mua的时候，向晚被击中**口，但是……怎么手和胸的模型中间空这么多？那么向晚真的胸该有多大……巨乳 ...</blockquote>
+她们的本体比模型大一号
+
+
+上半身和手尤其
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3404#       发表于 2021-2-27 21:58
+
+
+
+
+呜呜呜呜呜呜说不出话咧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Seteor  
+##### 3405#       发表于 2021-2-27 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461623&amp;ptid=1974517" target="_blank">尿完抖两下 发表于 2021-2-27 21:56</a>
+嘉然mua的时候，向晚被击中**口，但是……怎么手和胸的模型中间空这么多？那么向晚真的胸该有多大……巨乳 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敏感小向晚，看得出来比模型大了不止一圈
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3406#       发表于 2021-2-27 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">我飘了
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 3407#       发表于 2021-2-27 21:59
+
+
+
+
+然然<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 3408#       发表于 2021-2-27 22:00
+
+
+
+
+嘉然这首歌真好听啊，好甜
+
+
+
+
+
+
+
+-----
+
+####  尿完抖两下  
+##### 3409#       发表于 2021-2-27 22:00
+
+
+
+
+
+嘉然这歌，我快被甜死了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3410#       发表于 2021-2-27 22:01
+
+
+
+
+然<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3411#       发表于 2021-2-27 22:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">然然太甜了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3412#       发表于 2021-2-27 22:06
+
+
+
+
+大胡子贝拉绷不住了
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3413#       发表于 2021-2-27 22:06
+
+
+
+
+美髯公关羽附体草，笑死我了
+
+—— 来自 vivo V2025A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3414#       发表于 2021-2-27 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 没事了 确实是播音系的
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3415#       发表于 2021-2-27 22:10
+
+
+
+
+贝拉的声音好酷啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我好怕她下一秒就破音了
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3416#       发表于 2021-2-27 22:10
+
+
+
+
+跳的太好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3417#       发表于 2021-2-27 22:10
+
+
+
+
+讲道理这唱的有点拉
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3418#       发表于 2021-2-27 22:11
+
+
+
+
+木偶好耶！
+
+
+
+
+
+
+
+-----
+
+####  Hirosue  
+##### 3419#       发表于 2021-2-27 22:11
+
+
+
+
+说一下，qvq在22点4分和5分转了两个微博<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不攻自破了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3420#       发表于 2021-2-27 22:11
+
+
+
+
+确实 声线不稳 听着太不自然了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3421#       发表于 2021-2-27 22:11
+
+
+
+
+虚拟关羽拿不下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3422#       发表于 2021-2-27 22:12
+
+
+
+
+卡页
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3423#       发表于 2021-2-27 22:12
+
+
+
+
+贝拉拉了，声线没拗过来<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsifan  
+##### 3424#       发表于 2021-2-27 22:12
+
+
+
+
+晚晚血盆大嘴？
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 3425#       发表于 2021-2-27 22:13
+
+
+
+
+捕梦网的歌....
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 3426#       发表于 2021-2-27 22:13
+
+
+
+
+浴室跳舞也太色了，硬色情啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3427#       发表于 2021-2-27 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么鬼混响
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3428#       发表于 2021-2-27 22:14
+
+
+
+
+这什么东西啊，工具人我给你吗一拳<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3429#       发表于 2021-2-27 22:14
+
+
+
+
+这是nm直接拿着播音机放的吧，工具人我要杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">就这还能拿字节的2w月薪吗
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3430#       发表于 2021-2-27 22:15
+
+
+
+
+球球你们吧现在这个音频的开了吧
+上次qa是不是说到负责音频的新工具人三月就上任来着？
+
+—— 来自 vivo V2025A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  张元英  
+##### 3431#       发表于 2021-2-27 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461805&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-27 22:13</a>
+
+什么鬼混响</blockquote>
+不是混响, 音频没推流,  是外放被麦克风重新收录出来的
+
+
+
+
+
+
+
+-----
+
+####  テロメア  
+##### 3432#       发表于 2021-2-27 22:15
+
+
+
+
+贝拉那个也是音监主要责任……感觉是问题出最多的地方了
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 3433#       发表于 2021-2-27 22:15
+
+
+
+
+工具人我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！！！！
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3434#       发表于 2021-2-27 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">工具人我鲨了你。今晚要入土多少次了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3435#       发表于 2021-2-27 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461824&amp;ptid=1974517" target="_blank">张元英 发表于 2021-2-27 22:15</a>
+
+不是混响, 音频没推流,  是外放被麦克风重新收录出来的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"> 推流一般不会关的吧 我觉着是音源找了个现场版的
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3436#       发表于 2021-2-27 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3437#       发表于 2021-2-27 22:26
+
+
+
+
+放了这么久的快快快居然没有彩蛋<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 3438#       发表于 2021-2-27 22:27
+
+
+
+
+qa里说的音频专项负责人从年后说到了3月，请问asoul毕业前我还能看到他到位么？
+
+
+
+
+
+                                   

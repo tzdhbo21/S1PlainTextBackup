@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 06:36** 
+> ## **本文件最后更新于2021-02-27 14:30** 
 
 
 
@@ -8941,11 +8941,9 @@ Q谁来打？大和？
 
 
 
+ 本帖最后由 evangelina 于 2021-2-27 08:31 编辑 
 
-这展开怎么感觉山治成了罗宾的垫脚石.......
-
-
-还有这一把鼻涕一把泪还高喊不来救我就要被杀的样子，像不像等着被骑士救的人质公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这展开感觉山治成了罗宾的垫脚石
 
 
 
@@ -9218,4 +9216,586 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 
 
 
-                                 
+
+
+-----
+
+####  cdfjg  
+##### 54484#       发表于 2021-2-26 16:22
+
+
+
+
+下次打黑胡子的时候就是加洛特救山治了！
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 54485#       发表于 2021-2-26 17:26
+
+
+
+
+大和这角色戏份少性格莫名其妙，人气居然还挺高的，果然是看脸的时代
+
+
+<img src="https://img.saraba1st.com/forum/202102/26/172642wtwk8au9e9udftlu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>112r21r.jpg</strong> (41.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 17:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  gg326  
+##### 54486#       发表于 2021-2-26 18:44
+
+
+
+
+以前山治打敌方女干部好歹还是误打误撞，这次是明知自己不打女人还直接奔着肯定都是女敌人的敌方妓院去，完全就是故意帮倒忙，我看你才是卧底吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 54487#       发表于 2021-2-26 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50449899&amp;ptid=98922" target="_blank">gg326 发表于 2021-2-26 18:44</a>
+
+以前山治打敌方女干部好歹还是误打误撞，这次是明知自己不打女人还直接奔着肯定都是女敌人的敌方妓院去，完 ...</blockquote>
+闯妓院是之前潜入的时候 结果里面没人山治又跑回来了 黑玛丽是爬塔时在宴会厅撞上的
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 54488#       发表于 2021-2-26 21:07
+
+
+
+
+厨子为了不伤害女人宁可受伤也不用武装色防御，真是傻的可爱
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 54489#       发表于 2021-2-26 21:21
+
+
+
+ 本帖最后由 banglian 于 2021-2-26 21:27 编辑 
+
+厨子太久没精彩战斗才是日益被读者迫害化的关键原因吧。回忆了下上次厨师年重在把妹做蛋糕图一乐，再往前竟然是7，8年前和维尔戈对腿骨裂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕他有点像剑士斩莫奈（斩皮卡程度的就别想了）程度的战斗，都不至于如此搞笑化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 54490#       发表于 2021-2-26 21:47
+
+
+
+ 本帖最后由 svmkty 于 2021-2-27 01:16 编辑 
+
+擦。。原来大家看的是和谐版。。。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202102/27/011610glawtt6m8acrgcaz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>244t3t34ty3y5.jpg</strong> (99.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 01:16 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 54491#       发表于 2021-2-26 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451840&amp;ptid=98922" target="_blank">svmkty 发表于 2021-2-26 21:47</a>
+擦。。原来大家看的是和谐版。。。</blockquote>
+啊这。。
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 54492#       发表于 2021-2-26 23:58
+
+
+
+
+所以之前那个人影还在卖关子是吧
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54493#       发表于 2021-2-27 00:56
+
+
+
+
+山治求救和御田跳舞，同一个味道啊
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 54494#       发表于 2021-2-27 02:08
+
+
+
+
+还可以吧，一方面相信同伴，另一方面为了保存实力忍辱求救也算说得过去的
+
+
+
+
+
+
+
+-----
+
+####  Archi  
+##### 54495#       发表于 2021-2-27 08:37
+
+
+
+
+谁给我讲讲桃子身上有啥闪光点吗，俺满脑子只有他好色和身世特权，相当的不爽。
+
+
+
+
+
+
+
+-----
+
+####  晴岚  
+##### 54496#       发表于 2021-2-27 09:20
+
+
+
+
+同样是色批,你看看布鲁克,再看看厨子。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54497#       发表于 2021-2-27 09:35
+
+
+
+
+这一话让我产生巨大的困惑……不明白wt脑子里想的是什么。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54498#       发表于 2021-2-27 09:37
+
+
+
+<blockquote>晴岚 发表于 2021-2-27 09:20
+同样是色批,你看看布鲁克,再看看厨子。</blockquote>
+布鲁克蛋糕岛篇章是奇兵，山治 :D
+
+
+
+
+
+
+
+-----
+
+####  晴岚  
+##### 54499#       发表于 2021-2-27 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455351&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-2-27 09:37</a>
+
+布鲁克蛋糕岛篇章是奇兵，山治 :D</blockquote>
+布鲁克逐渐取代了厨子成为了两年前厨子的定位,厨子还不如就留在蛋糕岛跟布林结婚。现在看就像是个多余的角色（。
+
+
+
+
+
+
+
+-----
+
+####  弯弓射山猪  
+##### 54500#       发表于 2021-2-27 09:53
+
+
+
+
+看了专楼拉低了期待
+
+去看了下漫画感觉还行
+
+不就是复刻了司法岛罗宾的求救
+
+不过是继续坚定山治不打女人的人设
+
+顺便抬罗宾一手
+
+还ok的辣
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 54501#       发表于 2021-2-27 11:17
+
+
+
+
+这求救还是全岛广播公开处刑<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">希望最后收拾掉一个三灾挽回点面子吧
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 54502#       发表于 2021-2-27 11:43
+
+
+
+
+凯多你这个没用的东西你当时把桃之助直接掐死不就好了？！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 54503#       发表于 2021-2-27 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451840&amp;ptid=98922" target="_blank">svmkty 发表于 2021-2-26 21:47</a>
+
+擦。。原来大家看的是和谐版。。。</blockquote>
+喷了
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54504#       发表于 2021-2-27 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451840&amp;ptid=98922" target="_blank">svmkty 发表于 2021-2-26 21:47</a>
+
+擦。。原来大家看的是和谐版。。。</blockquote>
+你看日版的情报就知道是改的
+
+
+
+
+
+
+
+-----
+
+####  青菜子  
+##### 54505#       发表于 2021-2-27 14:24
+
+
+
+
+这都多少年没个爽快的打戏了。。。这打戏感觉在刮痧
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54506#       发表于 2021-2-27 14:50
+
+
+
+
+实不相瞒，我没看懂杰克是怎么突然冲出来对话的。
+
+
+
+
+
+
+
+-----
+
+####  FBIwarning  
+##### 54507#       发表于 2021-2-27 16:25
+
+
+
+
+山治完全可以很硬气地叫罗宾来帮忙 哪用这一把鼻涕一把泪的
+
+<img src="https://img.saraba1st.com/forum/202102/27/162532dxaxphwdcan53o5z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>sanji.jpg</strong> (31.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 16:25 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 54508#       发表于 2021-2-27 16:34
+
+
+
+ 本帖最后由 谁说法海不懂爱 于 2021-2-27 16:45 编辑 
+
+看了熟肉，反派毒奶破功，还有我都把人叫来了，你还不放我这种台词，感觉是两年前的乌索普才会说的。厨子你还是搞笑角色啊。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54509#       发表于 2021-2-27 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455411&amp;ptid=98922" target="_blank">晴岚 发表于 2021-2-27 09:47</a>
+
+布鲁克逐渐取代了厨子成为了两年前厨子的定位,厨子还不如就留在蛋糕岛跟布林结婚。现在看就像是个多余的 ...</blockquote>
+WT给了他战斗服，还有战斗的定位的。
+
+不战斗的时候就做饭...
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54510#       发表于 2021-2-27 22:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">厨子这就是那种你尴尬你就输了的状况 但我不尴尬啊 你拿我怎样
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 54511#       发表于 2021-2-27 22:14
+
+
+
+
+为什么尾田会画大和敞开衣服让桃之助钻进去的桥段啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lqchina  
+##### 54512#       发表于 2021-2-27 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455026&amp;ptid=98922" target="_blank">Archi 发表于 2021-2-27 08:37</a>
+
+谁给我讲讲桃子身上有啥闪光点吗，俺满脑子只有他好色和身世特权，相当的不爽。 ...</blockquote>
+旧主之子，既得旧臣拥护，也继承了旧主的民心吧。
+
+
+价值就是和路飞关系好，日后可以直接带着整个和国投靠路飞。
+
+
+不然你票选一个八杆子打不着的首相出来，路飞一路上的陪玩护驾之功岂不都打水漂了。
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54513#       发表于 2021-2-27 22:26
+
+
+
+
+桃之助还不错了 你不能要求一个真正的孩子是个传奇 
+
+他光是能面对凯多已经够格了
+
+战乱塞衣服里面其实我也觉得比之前跟娜美罗宾一起洗澡正常多了
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 54514#       发表于 2021-2-27 22:28
+
+
+
+
+桃之助比起那几个公主有骨气多了，他爹比不上他
+
+
+
+
+
+                                
