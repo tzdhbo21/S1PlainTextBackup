@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-22 09:20** 
+> ## **本文件最后更新于2021-02-27 10:56** 
 
 
 
@@ -3604,4 +3604,316 @@ pvp好像如果没觉醒打有觉醒就完全没法打，不过这次开觉醒�
 
 
 
-                                           
+
+
+-----
+
+####  trb315  
+##### 195#       发表于 2021-2-23 14:45
+
+
+
+
+再过两个礼拜就可以吃保底拿到觉醒老太了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  岩窟王  
+##### 196#         楼主| 发表于 2021-2-23 22:32
+
+
+
+
+明天早上维护更新
+ <blockquote>《新增》主線劇情EP.5 [困難]
+
+
+《新增》開放躍入 41-45 層
+
+
+《新增》SSR 制裁者 - 弗雷德里克·多馬
+
+
+《新增》SR 制裁者 - 弗雷德里克·游馬
+
+
+《新增》商店相關禮包</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 197#       发表于 2021-2-24 09:40
+
+
+
+
+这俩新角色如何？画风有点微妙。。。
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 198#       发表于 2021-2-24 10:26
+
+
+
+
+直接送一套T6，这新加的几层塔奖励还不错。
+
+
+
+
+
+
+
+-----
+
+####  丢人居士  
+##### 199#       发表于 2021-2-24 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423773&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-2-24 09:40</a>
+
+这俩新角色如何？画风有点微妙。。。</blockquote>
+那个ssr的实力其实还成，但总体建议仓住
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 200#       发表于 2021-2-24 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50424274&amp;ptid=1982769" target="_blank">拍不到脑袋 发表于 2021-2-24 10:26</a>
+
+直接送一套T6，这新加的几层塔奖励还不错。</blockquote>
+试着打了下，难度也够高的。。四队有一队扛不住都难过啊
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 201#       发表于 2021-2-24 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50424765&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-2-24 11:10</a>
+
+试着打了下，难度也够高的。。四队有一队扛不住都难过啊</blockquote>
+配队也要利用好支援，确实对练度要求很高
+
+
+
+
+
+
+
+-----
+
+####  superwza  
+##### 202#       发表于 2021-2-24 17:43
+
+
+
+ 本帖最后由 superwza 于 2021-2-24 17:44 编辑 
+
+这游戏核心玩法是不是跟第七史诗差不多…
+
+
+
+
+
+
+
+-----
+
+####  岩窟王  
+##### 203#         楼主| 发表于 2021-2-24 17:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">没玩过e7 不知道怎么回答
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 204#       发表于 2021-2-24 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428702&amp;ptid=1982769" target="_blank">superwza 发表于 2021-2-24 17:43</a>
+这游戏核心玩法是不是跟第七史诗差不多…</blockquote>
+如果指的是最终都是在拼装备词条的话，是的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  superwza  
+##### 205#       发表于 2021-2-24 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428819&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-2-24 17:56</a>
+如果指的是最终都是在拼装备词条的话，是的
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v1. ...</blockquote>
+谢谢
+
+
+
+
+
+
+
+-----
+
+####  trb315  
+##### 206#       发表于 2021-2-25 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428702&amp;ptid=1982769" target="_blank">superwza 发表于 2021-2-24 17:43</a>
+
+这游戏核心玩法是不是跟第七史诗差不多…</blockquote>
+具体战斗差挺多的，这游戏对战需要手操，根据对方阵容实时下子
+
+
+
+
+
+
+
+-----
+
+####  浩二先辈  
+##### 207#       发表于 2021-2-26 11:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没想到这周还能蹭上黄金，虽然遇到眼罩必输，可以开启半养老模式了
+
+
+
+
+
+
+
+-----
+
+####  fancyui  
+##### 208#       发表于 2021-2-27 00:30
+
+
+
+
+3051121，求工会落脚<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 209#       发表于 2021-2-27 10:33
+
+
+
+
+请教一下，韩服现在最新的剧情到哪儿啦？台服打完ep5体验真的不错，剧情特别王道，配合剧情进地图战斗很有感觉，不知道后面还有多少故事？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  岩窟王  
+##### 210#         楼主| 发表于 2021-2-27 12:02
+
+
+
+
+to 208# 工会已邀请
+
+剧情你这个问题我在贴吧看到别人问过，直接给你复制粘贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ <blockquote>我们这就是2.0版本，韩服现在刚更新3.0
+
+韩服一周年主要更新的东西，之后就是一些bug修复，其实我称这为3.0也是看群友说的，具体的我没去多了解
+
+
+一周年开始更主线第六章，两节两节的更，这周刚更到第四节，之前主线出比较慢，不过支线的剧情也不少，都是能当外传看的那种，就是时间跨度比较大，不容易连起来</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  完全武装希耶尔  
+##### 211#       发表于 2021-2-27 17:48
+
+
+
+<blockquote>caliburn 发表于 2021-2-27 10:33
+请教一下，韩服现在最新的剧情到哪儿啦？台服打完ep5体验真的不错，剧情特别王道，配合剧情进地图战斗很有 ...</blockquote>
+才ep6……台服赶进度赶的快，韩服剧情写的慢。
+
+
+不过有几个外传
+
+
+
+
+
+                                          
