@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 06:39** 
+> ## **本文件最后更新于2021-02-28 05:37** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_NEsOG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_dEIZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_WXzXK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_LyzC0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_kGFfW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_BWw23" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_a8FQD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_XuPEy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -18460,4 +18460,631 @@ Bsyl，梅丽今年应该22左右，和油男差不多同岁，女骑士25，都
 
 
 
-                 
+
+
+-----
+
+####  墨白凌  
+##### 32464#       发表于 2021-2-27 15:51
+
+
+
+
+各位有没有啥假小子系的V推荐啊？
+
+要那种中之人是女的，V的设定是女生只是剪了个短头发看上去像男生，一眼看上去认不出是女生的那种
+
+如果换了皮或者其它皮像女孩子的就不算了（像486这种）
+
+不要跨性别不要跨性别不要跨性别
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 32465#       发表于 2021-2-27 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50458438&amp;ptid=1969498" target="_blank">墨白凌 发表于 2021-2-27 15:51</a>
+
+各位有没有啥假小子系的V推荐啊？
+
+要那种中之人是女的，V的设定是女生只是剪了个短头发看上去像男生，一眼 ...</blockquote>
+風見くく、紡音れい
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32466#       发表于 2021-2-27 17:05
+
+
+
+[https://www.youtube.com/watch?v=r7UDPjZ8iL8](https://www.youtube.com/watch?v=r7UDPjZ8iL8)
+
+【 #チューバウト​ 】「TUBEOUT! Vol.5」冒頭無料生配信！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32467#       发表于 2021-2-27 18:00
+
+
+
+
+那个，3D偶像服嘞？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32468#       发表于 2021-2-27 18:47
+
+
+
+
+（忙完了打算来看下楼内repo但是好像没什么人聊的感觉
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32469#       发表于 2021-2-27 18:55
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-27 19:58 编辑 
+
+复仇公演反正是b站源ng不少，n站源的画质懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还行，剩最后一天了知道发ng数了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32470#       发表于 2021-2-27 19:45
+
+
+
+
+明天fes一共要切6首，电音部重灾区，看hh和bls 的情况歌曲版权的锅应该主要是在ickr的问题，今天这舆论环境你虹这中国进出又是刚准备发力就没了，不知道下一次发力是什么时候呢
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32471#       发表于 2021-2-27 19:45
+
+
+
+
+这么拉垮有啥好聊的
+
+找个n站源再看一遍再聊
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 32472#       发表于 2021-2-27 20:04
+
+
+
+
+12fanclub被ban真是笑掉大牙， yhm唱中文给yhm听，b站？静音了。好了，repo完了，n站什么时候才能爆炸？
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32473#       发表于 2021-2-27 20:25
+
+
+
+ 本帖最后由 flyskywalker92 于 2021-2-27 20:36 编辑 
+
+nico怎么还没死 
+
+
+
+2021了 要么付费看低清 要么付费没录播未知ng 嗨
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32474#       发表于 2021-2-27 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> nico：“彩虹死，我都不会死啊，册佬“
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32475#       发表于 2021-2-27 20:56
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1go2e0kbdzlj20xs0iuahi.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32476#       发表于 2021-2-27 21:04
+
+
+
+
+总不会要求观众用啊b的视频源加上Nico的音频源拼个高清无ng出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32477#       发表于 2021-2-27 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461177&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-2-27 21:04</a>
+
+总不会要求观众用啊b的视频源加上Nico的音频源拼个高清无ng出来吧</blockquote>
+看nga虹楼 貌似是在这么整
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32478#       发表于 2021-2-27 21:43
+
+
+
+
+原来2000说的葵皇3月底回来是口嗨，有点失望，还以为真在和葵皇私联的
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 32479#       发表于 2021-2-27 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50457365&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-2-27 13:29</a>
+
+夜见哭了好可爱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">有视频吗？我最喜欢女生哭了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|王立魔法騎士学園ステージ|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Abyssmarionette  
+##### 32480#       发表于 2021-2-27 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50458715&amp;ptid=1969498" target="_blank">colodes 发表于 2021-2-27 16:29</a>
+
+風見くく、紡音れい</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纺音胸部还挺大的吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32481#       发表于 2021-2-27 23:32
+
+
+
+
+今天azki和律可的tubeout免费部分拖下来了，azki用的新皮，就是收音太拉了
+[https://www.bilibili.com/video/BV1rA411K7Cq](https://www.bilibili.com/video/BV1rA411K7Cq)
+
+
+下届是Marpril和MZM，下下届是uta部和cocotsuki
+
+
+
+
+
+
+
+
+
+1.png
+(87.45 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-27 23:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/27/233228ku0u782666n24uhm.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32482#       发表于 2021-2-28 00:06
+
+
+
+
+蓝莓今天晚上新3D模型live，还带着春原和副部长一起升级
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/000624wi6loarn4cs7risk.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (25.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 00:06 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32483#       发表于 2021-2-28 00:11
+
+
+
+
+终于要换掉那个一看就是免费素材的模型了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 32484#       发表于 2021-2-28 00:14
+
+
+
+
+连名字都改了 叫MaiR
+
+以后只剩唯一mea了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 32485#       发表于 2021-2-28 00:42
+
+
+
+
+甚至不知道新名字要怎么读。买阿鲁？
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 32486#       发表于 2021-2-28 00:59
+
+
+
+
+假名是まいあ？
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 32487#       发表于 2021-2-28 01:03
+
+
+
+
+发音肯定还是mea 只是改拼写了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32488#       发表于 2021-2-28 10:38
+
+
+
+
+为了啥？避讳？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32489#       发表于 2021-2-28 11:31
+
+
+
+ 本帖最后由 lhawp 于 2021-2-28 11:32 编辑 
+
+草死，日本虹人们对版主的印象已经是“live中裤链没拉的那个人”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 32490#       发表于 2021-2-28 11:43
+
+
+
+
+葉山3D真不错，背后那小书包挺别致
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32491#       发表于 2021-2-28 13:19
+
+
+
+
+这次fes的免费场做的是真的不错，确实要夸一下
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32492#       发表于 2021-2-28 13:24
+
+
+
+
+你虹让这些人在这搞什么「No.1は誰だ!? にじさんじ歌うま選手権!!」就离谱，走姐levi不能上台live吗，不能给插队吗
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 32493#       发表于 2021-2-28 13:25
+
+
+
+
+喜欢轰京子和相羽初叶的那个免费环节
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32494#       发表于 2021-2-28 13:28
+
+
+
+
+这就是2k预言的2D立绘唱歌环节吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32495#       发表于 2021-2-28 13:30
+
+
+
+
+电音部yyds<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 32496#       发表于 2021-2-28 13:30
+
+
+
+
+她们没3d形象吧
+
+
+
+
+
+                
