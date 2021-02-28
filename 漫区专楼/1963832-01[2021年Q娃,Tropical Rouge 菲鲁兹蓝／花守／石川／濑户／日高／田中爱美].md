@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 04:43** 
+> ## **本文件最后更新于2021-02-28 13:36** 
 
 
 
@@ -10163,4 +10163,517 @@ ed还是省钱3d 劳拉直接上纸片</blockquote>
 
 
 
-                              
+
+
+-----
+
+####  renkan119  
+##### 574#       发表于 2021-2-28 13:02
+
+
+
+<blockquote>三合一出现 发表于 2021-2-28 12:17
+不破啥事了？
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+人鱼要找能打开变身化妆盒的人 然后推上就开始刷不破强行把盒子掰开
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 575#       发表于 2021-2-28 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50465838&amp;ptid=1963832" target="_blank">renkan119 发表于 2021-2-28 13:02</a>
+人鱼要找能打开变身化妆盒的人 然后推上就开始刷不破强行把盒子掰开</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">福娃哥既然能做**，自然也能做q娃
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 576#       发表于 2021-2-28 13:40
+
+
+
+
+第一集，中规中矩吧
+真夏这变身应该是偏演示性，后面几个应该会花里胡哨起来
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 577#       发表于 2021-2-28 14:11
+
+
+
+
+这设定总感觉有点熟悉，怠惰魔女是不是被幕后黑手控制的。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 578#       发表于 2021-2-28 14:13
+
+
+
+
+罗拉这人鱼国都没干劲了都还想着女王真是没心没肺<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+真夏这体术还是性格，果然还是隔壁prichan跑过来的把ww
+
+第一集质量对比前两部都好很多，小女孩都画的肉肉的，周日的狂气动画终于要追加到三部了，等游戏王过来了就是狂气周日朝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 579#       发表于 2021-2-28 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50466170&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-2-28 13:40</a>
+
+第一集，中规中矩吧
+
+真夏这变身应该是偏演示性，后面几个应该会花里胡哨起来 ...</blockquote>
+主角都是偏简单的，方便小女孩模仿
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 580#       发表于 2021-2-28 15:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是女王，果然懒
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 581#       发表于 2021-2-28 15:33
+
+
+
+
+我怀疑今年是不是没有真正意义上的坏人，都是些小打小闹。像微笑那样灾后（虽然现在都还没过去）整些脱线剧情
+
+小夏这完全是少年漫土包子主角，还是古早少年漫。变身的时候倒是颜值拉满
+
+化妆鼓励人心……我觉得不行
+
+“我都准备收工了，快滚”，打工仔典范啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 582#       发表于 2021-2-28 15:38
+
+
+
+
+那个什么魔女还带着面罩，八成是幕后黑手给的
+这样说的话那一段闪电演出可能也是在吸取她“干掉precure”的干劲
+我这边看小怪叫罢/工魔，这是不是有点……
+叫什么怠惰怪还好点，拳打罢/工魔，整得跟什么黑心工厂请的保安一样
+这干劲的图标，为啥是一个爱心连两个小爱心，我刚看还以为东映给小怪上淫纹了
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 583#       发表于 2021-2-28 15:45
+
+
+
+
+问下，女生共用唇膏算不算间接接吻
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 584#       发表于 2021-2-28 15:49
+
+
+
+
+第一集各种表现都很用力，如果能持续下去肯定有意思，问题是这可能吗？
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 585#       发表于 2021-2-28 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467007&amp;ptid=1963832" target="_blank">待宵 发表于 2021-02-28 15:49:22</a>
+第一集各种表现都很用力，如果能持续下去肯定有意思，问题是这可能吗？</blockquote>年番能把关键回做好了就阿弥陀佛了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要啥自行车啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 586#       发表于 2021-2-28 15:57
+
+
+
+
+夏哥还是男子力高，而且感觉和mana或者响哥都不太一样
+
+
+
+
+
+
+
+-----
+
+####  本间日阳  
+##### 587#       发表于 2021-2-28 16:05
+
+
+
+ 本帖最后由 本间日阳 于 2021-2-28 16:06 编辑 
+
+我觉得你们别想太多了，这第一集从开场到结尾每一秒都流露出一股谐气，今年估计就要从头傻闹到尾了，连反派都这么傻，肯定最后全都要洗白。
+
+像这个监督土田，以前在Q娃棚做的基本都是搞笑回，大凶颜就是他的手笔。系构横谷我不太了解，不过他以前担任系构的那一季宝宠我看过一半，记得脑洞很大。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 588#       发表于 2021-2-28 16:12
+
+
+
+
+说来必杀技是飞吻，太色了这次的q娃<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 589#       发表于 2021-2-28 16:12
+
+
+
+
+说来必杀技是飞吻，太色了这次的q娃<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 590#       发表于 2021-2-28 16:14
+
+
+
+
+第一集真不错啊，去年一年之后看一年轻松搞笑的也不错
+
+以为是飞吻其实是吹泡泡糖笑死了
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 591#       发表于 2021-2-28 17:45
+
+
+
+
+软糖广告
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4609522141167627?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 592#       发表于 2021-2-28 18:29
+
+
+
+
+好有趣！这几年Q娃里最有趣的开局了！ 
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 593#       发表于 2021-2-28 19:06
+
+
+
+
+这次的屑人鱼比过去的懦弱公主，废柴魔法学生之类（下限）更进一步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 594#       发表于 2021-2-28 19:11
+
+
+
+[@入间妖绘](https://www.weibo.com/u/3659910414?from=feed&amp;loc=nickname)
+热q现状
+
+凉村珊瑚改名叫烫村珊瑚吧
+
+
+<img src="http://wx3.sinaimg.cn/large/da25cd0egy1go3bvxn70vj21t10u0tuo.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/da25cd0egy1go3bw2apesj21t10u0ttu.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/da25cd0egy1go3bw9i20hj20u01t17o9.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/da25cd0egy1go3bwl6gfej21t10u0qoo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 595#       发表于 2021-2-28 19:14
+
+
+
+
+不过人鱼倒是有一条挺明确的成长线了
+从“光美就是我成为女王的弃子”到“光之美少女竟然是我自己”，肯定会有一个契机(虽然可能一集限定)
+再加上作为追加开篇就登场，应该不会像一些前辈一样游离于主角团之外
+op把路人也拉了不少进来，不知道有没有什么深意。我觉得应该不会从头谐到尾，毕竟主角还有句“做眼下最重要的事”。这句台词不会只是口号……吧，求求你，不要只是口号啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 596#       发表于 2021-2-28 19:16
+
+
+
+
+从OP开始的沙雕欢乐气氛还真是有趣
+
+只是我最近玩DQ11刚玩到人鱼那里，被人鱼悲剧的剧情致郁到不行，又看到这么个欢脱的人鱼心情真是复杂
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 597#       发表于 2021-2-28 19:41
+
+
+
+
+人鱼还以为是乖宝宝那一类结果这么屑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我喜欢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 598#       发表于 2021-2-28 20:22
+
+
+
+
+夏哥看着超能打的，不愧是你，筋肉少女，前面还真以为她要像不破桑那样硬开<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 599#       发表于 2021-2-28 20:46
+
+
+
+
+看了下推，还真是3年连续不破，星qフワ，千优的笑点，夏哥的掰变身盒<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/787453e21a41f234f44639da12e012a2/20210228_204645.jpg" referrerpolicy="no-referrer">
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 600#       发表于 2021-2-28 21:11
+
+
+
+
+今年的第一个ED感觉不如去年那个
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 601#       发表于 2021-2-28 21:11
+
+
+
+ 本帖最后由 SRyeB 于 2021-2-28 21:18 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/211718hn9zzr6n1lwbb6lf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (47.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 21:17 上传
+
+
+
+
+
+好耶
+
+今年的居然是这种搞笑风格
+
+
+
+
+
+                             
