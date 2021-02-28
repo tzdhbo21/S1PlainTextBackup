@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 14:39** 
+> ## **本文件最后更新于2021-02-28 15:36** 
 
 
 
@@ -9199,4 +9199,280 @@ Snipaste_2021-02-28_19-55-30.png
 
 
 
-                                
+
+
+-----
+
+####  拖S1后腿  
+##### 3535#       发表于 2021-2-28 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470126&amp;ptid=1974517" target="_blank">cao1rui2 发表于 2021-2-28 22:33</a>
+
+打嗝切片呢？
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+[https://www.bilibili.com/video/BV18p4y1H7CQ](https://www.bilibili.com/video/BV18p4y1H7CQ)
+
+
+43分48秒开始<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3536#       发表于 2021-2-28 22:42
+
+
+
+ 本帖最后由 抄袭炉石的垃圾 于 2021-2-28 22:49 编辑 
+
+看录播感觉越来越真了，晚指导突然叫工具人拿吉他，假装练手让然然出去擦脸，还有然然一开口嗓子哑了唱不下去，然然这段时间连播压力大而且今天一开始弹幕也群魔乱舞这真哭了，晚指导我的超人，总之一切都很真，上头了入脑了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鳳凰院クレア  
+##### 3537#       发表于 2021-2-28 22:43
+
+
+
+
+今晚太快乐了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">嘉晚饭牢不可破，团内第一cp坐稳了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3538#       发表于 2021-2-28 22:51
+
+
+
+
+我仔细听了下其实还好，打个哈哈就能过去了，然然偶像包袱好重哦
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3539#       发表于 2021-2-28 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我已经分不清真假，该参考一下演员的自我修养了
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 3540#       发表于 2021-2-28 23:01
+
+
+
+
+看了下好像真哭了，在这个臊皮而且人人都脸皮厚的时代真是少见，即使是在偶像里面应该也不多。
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3541#       发表于 2021-2-28 23:03
+
+
+
+
+然然后半段多少有点放飞自我了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3542#       发表于 2021-2-28 23:06
+
+
+
+
+然然对嘉心糖又日常少了一分信任，多了一分戒备。晚上睡觉时习惯性地在被子里抹起了眼泪。翻身的时候还是撞到了有点凹陷的墙面。想到明天动态下面发病的嘉心糖，然然恶心得打了个嗝<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| YFIIII| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3543#       发表于 2021-2-28 23:08
+
+
+
+
+希望是真的哭了，假哭的话演技过于好了当套皮人太浪费了。
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 3544#       发表于 2021-2-28 23:10
+
+
+
+
+如果这都能rp ，建议录播送审奥斯卡，必然最佳外语片<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WAS-LX2J, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3545#       发表于 2021-2-28 23:12
+
+
+
+
+感觉直播员能演的很少吧，直播放大情绪倒是真的。能维持设定已经很难了，然然说漏嘴：“以前上学的时候”，马上改口 “初中的时候”，还蛮乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 3546#       发表于 2021-2-28 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470459&amp;ptid=1974517" target="_blank">OldGlory 发表于 2021-02-28 23:08:25</a>
+希望是真的哭了，假哭的话演技过于好了当套皮人太浪费了。</blockquote>咋还盼上人哭了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，都说嘉然向晚cp营业，我觉得向晚安慰嘉然时更像两个玩的很好的幼儿园女孩。尽力安慰不哭不哭，“她给我的感觉一切都很真”<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3547#       发表于 2021-2-28 23:17
+
+
+
+
+但是我觉得她今晚整体还是很开心的啊，好几次笑得绷不住声线
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 3548#       发表于 2021-2-28 23:19
+
+
+
+
+打嗝那段抹了好几次眼泪，真哭了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rxds  
+##### 3549#       发表于 2021-2-28 23:22
+
+
+
+
+嘉晚饭重回t0<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
