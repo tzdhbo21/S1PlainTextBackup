@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 05:37** 
+> ## **本文件最后更新于2021-02-28 09:37** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_dEIZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_uJDFO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_BWw23" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_a8FQD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_XuPEy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_tOU2l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Hp26P" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_aZnD4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -19087,4 +19087,592 @@ nico怎么还没死
 
 
 
-                
+
+
+-----
+
+####  lhawp  
+##### 32497#       发表于 2021-2-28 13:39
+
+
+
+
+刚才走姐的0083 OP唱得太顶了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+虹fes看下来果然还是免费舞台的部分更有意思啊
+live虽好，但还是更想看这些能展现liver个性的panel
+可惜转线上导致后者被砍了大半，现在的fes性质上更偏向音乐节而不是文化祭/漫展了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32498#       发表于 2021-2-28 14:15
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-28 14:26 编辑 
+
+社长这也太顶了
+
+不破live可以啊，模型也好看
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/141724nukk4knk4iyzveuu.png" referrerpolicy="no-referrer">
+
+
+<strong>#にじFes2021 VACHSSステージ.png</strong> (48.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 14:17 上传
+
+
+
+
+
+[https://live2.nicovideo.jp/watch/lv330236076](https://live2.nicovideo.jp/watch/lv330236076)
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/142612za0iu0scqwau0zqs.png" referrerpolicy="no-referrer">
+
+
+<strong>#にじFes2021 VACHSSステージ-2.png</strong> (39.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 14:26 上传
+
+
+
+
+
+
+真的C位
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32499#       发表于 2021-2-28 14:17
+
+
+
+ 本帖最后由 黑之和 于 2021-2-28 14:19 编辑 
+
+fuwa亲也太帅了
+是不是只有叶的模没修过了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|修了，只不过模型丑而已|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32500#       发表于 2021-2-28 14:21
+
+
+
+ 本帖最后由 Suny08 于 2021-2-28 14:49 编辑 
+
+正儿八经玩过音乐开过live的人的台风确实强，不破这fes过后可以封神进入虹男真顶流了
+
+
+被不破唱服气了，以后不酸他钓虹女了，真酸不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32501#       发表于 2021-2-28 14:28
+
+
+
+ 本帖最后由 黑之和 于 2021-2-28 14:31 编辑 
+
+有料男人梦追翔
+
+有一说一，确实丑，ickr能不能给点给点
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32502#       发表于 2021-2-28 14:37
+
+
+
+
+男人真嗨啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32503#       发表于 2021-2-28 14:41
+
+
+
+
+社长梦追快一年没一起唱歌了吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32504#       发表于 2021-2-28 14:49
+
+
+
+
+yagoo和田角的给度需要调和一下惹（玩笑）
+
+其实本人心中值得一提的表演力突出虹男还有力一，rd快来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32505#       发表于 2021-2-28 15:08
+
+
+
+
+機 材 ト ラ ブ ル<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32506#       发表于 2021-2-28 15:28
+
+
+
+
+ban大合唱
+真有你的啊阿b<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  撕叁  
+##### 32507#       发表于 2021-2-28 16:10
+
+
+
+
+不破太爱抖露了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32508#       发表于 2021-2-28 16:34
+
+
+
+
+RD新的3d？？？小红帽不来太可惜了吧，身体早日康复啊。。。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32509#       发表于 2021-2-28 16:39
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-28 16:45 编辑 
+
+RD小红帽没来，遗憾
+
+<img src="https://img.saraba1st.com/forum/202102/28/163932smmx668mnahmv3zn.png" referrerpolicy="no-referrer">
+
+
+<strong>#にじFes2021 月ノ美兎＆樋口楓＆Rain Dropsステージ-1.png</strong> (68.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 16:39 上传
+
+
+
+
+
+
+很帅气
+
+<img src="https://img.saraba1st.com/forum/202102/28/164527uoutjror1kzkjjq3.png" referrerpolicy="no-referrer">
+
+
+<strong>#にじFes2021 月ノ美兎＆樋口楓＆Rain Dropsステージ-2.png</strong> (50.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 16:45 上传
+
+
+
+
+
+[https://live2.nicovideo.jp/watch/lv330236283](https://live2.nicovideo.jp/watch/lv330236283)
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32510#       发表于 2021-2-28 16:41
+
+
+
+
+衣服还是统一了的比较帅
+
+阿菜现在还有上台的心气吗
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32511#       发表于 2021-2-28 16:54
+
+
+
+
+所以啊菜呢
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32512#       发表于 2021-2-28 16:57
+
+
+
+ 本帖最后由 CielChloe 于 2021-2-28 16:59 编辑 
+
+不得不说环球很会挑人，这6人充分考虑了声音组合的相性，明那和力一合唱好戳
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32513#       发表于 2021-2-28 17:00
+
+
+
+
+阿菜在修养呢
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32514#       发表于 2021-2-28 17:03
+
+
+
+
+趁同事不在编排同事是否也是一种80（玩笑
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32515#       发表于 2021-2-28 17:03
+
+エモ
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-28 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467387&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-2-28 16:54</a>
+
+所以啊菜呢</blockquote>
+活在其他人的编排中，感觉RD关系还挺好的，第一次成团配信的尴尬气氛已经是过去式了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+一起做小红帽的狼爪姿势还挺エモ
+
+
+Syl，你虹绝对不是播片，好虚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32516#       发表于 2021-2-28 17:07
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-28 17:09 编辑 
+
+小红帽在发推特（
+童田...还改歌词了，她们好好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32517#       发表于 2021-2-28 17:16
+
+
+
+
+真·全社一个人都没在播，全在看fes，可能这就是kemt吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32518#       发表于 2021-2-28 17:16
+
+
+
+
+月之…我的月之…
+开麦的吐息声好色…
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 32519#       发表于 2021-2-28 17:20
+
+
+
+
+月之6啊，敢生唱
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 32520#       发表于 2021-2-28 17:25
+
+
+
+ 本帖最后由 蛋炒蜂窝煤 于 2021-2-28 17:26 编辑 
+
+好耶<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">生唱之后虚弱得说话都要咬出来，太爽了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32521#       发表于 2021-2-28 17:25
+
+
+
+
+最初爱上月之的一首歌，哭了，
+已经不是在卡拉ok的青涩土妹了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32522#       发表于 2021-2-28 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 椎名和笹木换了情侣头像，然后还有重大发表，
+
+
+会不会组合开live啊
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32523#       发表于 2021-2-28 17:32
+
+
+
+ 本帖最后由 FCCHua 于 2021-2-28 17:36 编辑 
+
+兔头进步好大<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 嗑到一期生了，贴贴
+辛苦了，看着就累
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32524#       发表于 2021-2-28 17:35
+
+
+
+
+这真的是那个兔头吗，太强了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32525#       发表于 2021-2-28 17:36
+
+
+
+
+没听错的话应该是fes唯一一个生唱的
+
+
+
+
+
+               
