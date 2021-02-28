@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 06:40** 
+> ## **本文件最后更新于2021-02-28 04:43** 
 
 
 
@@ -9614,4 +9614,553 @@ Himelda Window Curequeen of the Blue Sky</blockquote>
 
 
 
-                               
+
+
+-----
+
+####  天邪鬼  
+##### 542#       发表于 2021-2-27 14:42
+
+
+
+ 本帖最后由 天邪鬼 于 2021-2-27 15:01 编辑 
+
+真的有人能做到吗？高低杠运动员都没这么夸张吧
+应该是纯搞笑，还是别深究了。这箱子时轻时重，彩主还能无借力鲤鱼打挺(只有箱子接触地面，腿一蹬站起来了)
+op感觉没啥信息量，四人棒子合于一处使出的是团体技吗？现在就出来了？
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 543#       发表于 2021-2-27 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">这op怎么充满廉价气息，估计真夏跟人鱼是沙雕担当了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 544#       发表于 2021-2-27 15:39
+
+
+
+
+神仙人间体，这代估计不会吃瘪一路平推吧（确信）
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 545#       发表于 2021-2-27 15:43
+
+
+
+<blockquote>Sliurus 发表于 2021-2-27 15:39
+神仙人间体，这代估计不会吃瘪一路平推吧（确信）</blockquote>
+人间体的素质又不一定跟Q娃的战绩挂钩。
+
+
+
+
+
+
+
+-----
+
+####  本间日阳  
+##### 546#       发表于 2021-2-27 15:45
+
+
+
+
+看OP感觉所有人都是笨蛋角色……
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 547#       发表于 2021-2-27 16:33
+
+
+
+
+今年的打戏我觉得不用期待了，大概就是前五集好点，之后一路拉跨到追加，追加出来秀一下，然后谐星化
+微笑虽然老被说剧情重复，卖玩具严重，但就因为每集框架都定了，所以staff能更好的在框架内发挥，反正打死后反派跑路光美这有新玩具。不需要给什么主题，整体思想让路。还能把yes5的绝望回放中段塑造角色
+这次八成有个追加，要复刻微笑也不好搞，大家绝望，追加来救场很正常。而且tropical rouge是啥也不清楚，喊口号的可能性比较大
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 548#       发表于 2021-2-27 18:18
+
+
+
+
+彩主这体术 让我想起某个第一集一口气从塔底爬到塔顶的某人<img src="https://static.saraba1st.com/image/smiley/carton2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 549#       发表于 2021-2-27 18:31
+
+
+
+
+第五人，Cure Lamer
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4609279039307837?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 550#       发表于 2021-2-27 18:33
+
+
+
+
+这未来有机会肉身艹怪吗<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 551#       发表于 2021-2-27 20:08
+
+
+
+ 本帖最后由 天邪鬼 于 2021-2-27 20:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50459842&amp;ptid=1963832" target="_blank">新HGCG 发表于 2021-2-27 18:31</a>
+第五人，Cure Lamer
+
+https://weibo.com/tv/show/1034:4609279039307837?from=old_pc_videoshow</blockquote>
+人鱼名字里也有La Mer，算实锤了吧
+“今日もいい天气”饼干
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 552#       发表于 2021-2-27 20:33
+
+
+
+
+还有个先行放送2，不过这都市好危险，涂个口红压压惊是什么思路？虽然八成有个什么“妈妈的东西，用了有种妈妈陪着自己的感觉”，但我觉得只是消费主义入脑了。还有眼睛里画爱心，东映是收编了什么本子画师吗？
+其实微笑当初有一点做得很好，就是糖糖她妈早死了这个反转。一下子把最后的希望干碎了，再加上是分集播，所以我觉得绝望感的渲染比剧场版还好
+这集人鱼家被偷了，女王跟个没事人一样坐着等萝拉来，不知道是不是啥伏笔，希望能整点好活出来吧
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 553#       发表于 2021-2-27 23:09
+
+
+
+
+明天新女人就开播了吧，有地方能看直播吗？新的一年准备蹲一下第一集
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 554#       发表于 2021-2-27 23:40
+
+
+
+
+原来是la mer不是lamer<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 555#       发表于 2021-2-27 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50458378&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-2-27 15:43</a>
+
+人间体的素质又不一定跟Q娃的战绩挂钩。</blockquote>
+想想当年能跳起码五六米体能爆表的牛郎会长
+
+
+
+
+
+
+
+-----
+
+####  HGCG3  
+##### 556#       发表于 2021-2-28 08:00
+
+
+
+
+第一集果然力道十足
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 557#       发表于 2021-2-28 08:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50459862&amp;ptid=1963832" target="_blank">宅音 发表于 2021-2-27 18:33</a>
+
+这未来有机会肉身艹怪吗</blockquote>
+竟然真的肉身打大怪，虽然打不动
+
+
+
+
+
+
+
+-----
+
+####  hummysiren  
+##### 558#       发表于 2021-2-28 08:41
+
+
+
+
+不是粉主待遇就蹭蹭涨啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 559#       发表于 2021-2-28 09:48
+
+
+
+
+变身曲不行 配不上作画
+ed还是省钱3d 劳拉直接上纸片
+
+劳拉是q娃第一个不是q娃和妖精的的主要角色 现在扒出来99%追加 也安定了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">  以后有脚给一个身份一起上学吧
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 560#       发表于 2021-2-28 10:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50464309&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-2-28 09:48</a>
+
+变身曲不行 配不上作画
+
+ed还是省钱3d 劳拉直接上纸片</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">你忘记抱狗了吗 虽然不是太主要的戏份也不算少
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 561#       发表于 2021-2-28 10:19
+
+
+
+
+271上了吗？
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 562#       发表于 2021-2-28 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50464470&amp;ptid=1963832" target="_blank">199april 发表于 2021-2-28 10:15</a>
+你忘记抱狗了吗 虽然不是太主要的戏份也不算少</blockquote>
+它就是一个抱狗丫鬟
+早说过了 它就是柴田留下孽种 用来⌚️的 好歹公主其他士大夫把这个角色处理好了
+这样还不如一哥身边两个小姬友
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 563#       发表于 2021-2-28 11:14
+
+
+
+
+氪金化妆品广告的前摇也太长了
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 564#       发表于 2021-2-28 11:40
+
+
+
+
+今年变身都会是从头到脚全打扮一遍吗www
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 565#       发表于 2021-2-28 11:43
+
+
+
+
+终于除了ed外的地方也能看到3d建模了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 566#       发表于 2021-2-28 11:48
+
+
+
+
+感觉这集的演出比剧情强，而演出又是今年的总导演负责。期待今年能傻乐一年吧
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 567#       发表于 2021-2-28 11:53
+
+
+
+
+夏哥有一种小太妹的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 568#       发表于 2021-2-28 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这OP，应该说是复古吧，昭和风
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 569#       发表于 2021-2-28 11:59
+
+
+
+ 本帖最后由 dragrass 于 2021-2-28 12:02 编辑 
+
+唐突化妆<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+妈妈也很好看<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 570#       发表于 2021-2-28 12:01
+
+
+
+
+因为新Q娃而成为推特趋势第一的不破桑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 571#       发表于 2021-2-28 12:04
+
+
+
+
+这夏哥和罗拉有一种未来和lico见面的感觉啊
+
+
+倒贴粉和傲娇紫<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 572#       发表于 2021-2-28 12:17
+
+
+
+
+不破啥事了？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 573#       发表于 2021-2-28 12:40
+
+
+
+
+这妈妈看着像姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">说实话我感觉重复要素也太多了，组曲的技能，微笑的沙雕，土包子属性和还有跟mana那样异于常人的身体素质
+
+
+
+
+
+                              
