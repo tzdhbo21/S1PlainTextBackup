@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 09:37** 
+> ## **本文件最后更新于2021-02-28 11:33** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_uJDFO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_M3K3C" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_tOU2l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Hp26P" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_aZnD4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_K3j3s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_WddOh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_dCDPr" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -19634,10 +19634,11 @@ Syl，你虹绝对不是播片，好虚啊<img src="https://static.saraba1st.com
 
 
 
- 本帖最后由 FCCHua 于 2021-2-28 17:36 编辑 
+ 本帖最后由 FCCHua 于 2021-2-28 18:11 编辑 
 
 兔头进步好大<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 嗑到一期生了，贴贴
 辛苦了，看着就累
+德龙太帅了吧，体力真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
 
@@ -19675,4 +19676,514 @@ Syl，你虹绝对不是播片，好虚啊<img src="https://static.saraba1st.com
 
 
 
-               
+
+
+-----
+
+####  OldGlory  
+##### 32526#       发表于 2021-2-28 17:53
+
+
+
+
+通风口这套还是怎么看怎么丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32527#       发表于 2021-2-28 17:55
+
+
+
+
+哭完回来了，
+能不能再拐个inui等级的来<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32528#       发表于 2021-2-28 17:56
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-28 18:04 编辑 
+
+印象中前夜祭有唱串，Vachss叶师跑调了好几处、运动会后也有气音和破音，不过都没有阿花这个气音大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Syl，你虹的拉普摆头大会有没有机会办啊，FES三天好多人都能来两句呢
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 32529#       发表于 2021-2-28 17:57
+
+
+
+
+只凭印象的话，前夜祭最后几首和flow合唱的明显是生唱，中间的live应该有穿插部分生唱。
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 32530#       发表于 2021-2-28 18:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天德龙打鸡血了？跟aim那天判若两人
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32531#       发表于 2021-2-28 18:27
+
+
+
+
+怀疑底下坐烂铁领导了，好拼，表现也很好，亲女儿体验再续半年
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 32532#       发表于 2021-2-28 18:51
+
+
+
+
+樱高基音部
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32533#       发表于 2021-2-28 18:51
+
+
+
+
+说好的三小只3d在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32534#       发表于 2021-2-28 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 看错了
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32535#       发表于 2021-2-28 19:00
+
+
+
+
+没关系，奶一个闭幕式重大发表，3小只3D主流出道，好吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32536#       发表于 2021-2-28 19:06
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-2-28 19:19 编辑 
+
+就知道黑屁三小只，三小只给你虹当牛做马容易吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+草，台本呢
+
+
+Syl，
+
+3.0L2D 4月3JK开始配置
+
+金银铜签环球出道
+
+<img src="https://img.saraba1st.com/forum/202102/28/191156yttkb8bhdwqqnkzl.png" referrerpolicy="no-referrer">
+
+
+<strong>【#にじFes2021​】にじさんじ Anniversary Festival 2021 公式無料生放送【DAY2】.pn.png</strong> (95.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 19:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/191636oak1yea1znf62nkg.png" referrerpolicy="no-referrer">
+
+
+<strong>【#にじFes2021​】にじさんじ Anniversary Festival 2021 公式無料生放送【DAY2】-2..png</strong> (87.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 19:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32537#       发表于 2021-2-28 19:06
+
+
+
+
+jk组闭幕式一开始就是熟悉的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 32538#       发表于 2021-2-28 19:10
+
+
+
+ 本帖最后由 fastary 于 2021-2-28 19:18 编辑 
+
+不要音乐节不要音乐节不要音乐节不要主流出道不要主流出道不要主流出道<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+彩虹是主播公会不要变成艺能事务所啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+一个主播会有意向素质当艺人的才是人上人，为什么会这样……
+
+
+3.0实装，也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+不过这么多人，不知道跟2.0比起来实装速度怎么样
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32539#       发表于 2021-2-28 19:12
+
+
+
+
+3.0 update，田角不忘技术，感动虹人<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32540#       发表于 2021-2-28 19:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 您家2.0还没实装完，3D也没实装完，就给一期、二期谋划3.0了吧，
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 32541#       发表于 2021-2-28 19:16
+
+
+
+
+环球主流出道！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32542#       发表于 2021-2-28 19:17
+
+
+
+
+金银铜环球出道<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 32543#       发表于 2021-2-28 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三大只
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32544#       发表于 2021-2-28 19:17
+
+
+
+
+3.0好耶！西子凛兴致好高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虹多少环球出道的啦<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，不过环球专业度高待遇好，多点也好
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32545#       发表于 2021-2-28 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 小蜜蜂、阿床：“？”
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32546#       发表于 2021-2-28 19:20
+
+
+
+
+憨憨赢麻了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32547#       发表于 2021-2-28 19:20
+
+
+
+
+重大发表就这俩？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 32548#       发表于 2021-2-28 19:20
+
+
+
+
+这饼也画得太小了，果然没半年了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32549#       发表于 2021-2-28 19:22
+
+
+
+
+这饼就这就这？那你虹拉得到个锤子投资啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32550#       发表于 2021-2-28 19:23
+
+
+
+
+说起来为啥是金银铜 我还以为这个组合是谐星意义上的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32551#       发表于 2021-2-28 19:24
+
+
+
+
+金憨憨爆哭，虽然感觉有那个电脑崩了的原因<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32552#       发表于 2021-2-28 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我不知道除了登台fes这几十个人之外，彩虹三周年、四周年对其他人有什么实际意义，
+
+
+三周年大家都在看着的时候，所有人都期待有什么重大发表，
+
+
+然后结果呢？
+
+
+一个看不到实质内容的3.0，一个金银铜三个人的企划，
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32553#       发表于 2021-2-28 19:33
+
+
+
+
+继续拉屎 别想太多
+
+
+
+
+
+              
