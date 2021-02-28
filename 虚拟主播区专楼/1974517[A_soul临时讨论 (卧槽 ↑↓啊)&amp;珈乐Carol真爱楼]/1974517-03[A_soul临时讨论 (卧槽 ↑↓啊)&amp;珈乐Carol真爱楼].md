@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 14:35** 
+> ## **本文件最后更新于2021-02-28 12:45** 
 
 
 
@@ -7563,4 +7563,713 @@ qa里说的音频专项负责人从年后说到了3月，请问asoul毕业前我
 
 
 
-                                   
+
+
+-----
+
+####  海底铁锚  
+##### 3439#       发表于 2021-2-27 22:37
+
+
+
+ 本帖最后由 海底铁锚 于 2021-2-27 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461854&amp;ptid=1974517" target="_blank">弈秋 发表于 2021-2-27 22:17</a>
+
+这都在字节拿一狗</blockquote>
+不知道什么岗位，但研发岗给一狗/月属于赶跑人的薪酬<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3440#       发表于 2021-2-27 22:47
+
+
+
+
+编辑了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3441#       发表于 2021-2-27 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">错过了什么
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 3442#       发表于 2021-2-28 03:00
+
+
+
+
+test
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 3443#       发表于 2021-2-28 15:47
+
+
+
+
+版本答案今晚再次上演，希望工具人不要拉跨
+之前好像每次都拉了
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3444#       发表于 2021-2-28 16:02
+
+
+
+
+前天刚回顾了之前的山洞混响，然后昨天拉的更彻底，可能是故意营造一种现场live感，让观众更加代入吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3445#       发表于 2021-2-28 18:02
+
+
+
+
+嘉然肯定有过很多男朋友吧，虽然平时在rp幼女，但是怎么钩男人全给她玩明白了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3446#       发表于 2021-2-28 18:02
+
+
+
+
+那也不能两千个人跑几万人的场子啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">就离谱
+
+
+
+
+
+
+
+-----
+
+####  我尊敬的父亲  
+##### 3447#       发表于 2021-2-28 18:20
+
+
+
+
+差不多得了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3448#       发表于 2021-2-28 18:28
+
+
+
+
+然然好涩<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+Snipaste_2021-02-28_18-27-35.png
+(17.11 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-28 18:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/182749nmqehtmwzeiuc277.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3449#       发表于 2021-2-28 18:34
+
+
+
+
+这动态<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">回事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 3450#       发表于 2021-2-28 18:39
+
+
+
+
+嘉然从首播开始就是怪话超人，结果健身环后，被弹幕车成了纯洁圣嘉然，hso<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3451#       发表于 2021-2-28 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">圣嘉然怪话摩多摩多
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3452#       发表于 2021-2-28 19:57
+
+
+
+
+四千人待机是吧，什么大物<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+Snipaste_2021-02-28_19-55-30.png
+(21.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-2-28 19:56 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/195649vqriojg0hj0citzm.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ti-82  
+##### 3453#       发表于 2021-2-28 19:59
+
+
+
+
+快快快快快快<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3454#       发表于 2021-2-28 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工具人又是开场就入土
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3455#       发表于 2021-2-28 20:02
+
+
+
+
+双倍血压预感<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3456#       发表于 2021-2-28 20:03
+
+
+
+ 本帖最后由 qw945 于 2021-2-28 20:06 编辑 
+
+这个游戏界面倒是不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+连体人+狗，是版本答案没错了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3457#       发表于 2021-2-28 20:04
+
+
+
+
+一看就是好玩不好看的游戏.但我是经历了健身环的成熟嘉心糖<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3458#       发表于 2021-2-28 20:05
+
+
+
+
+休闲类升压游戏，非常升压
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3459#       发表于 2021-2-28 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">看出了晚晚阿姨带然然小朋友春游的感觉
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3460#       发表于 2021-2-28 20:12
+
+
+
+
+向晚真的在玩游戏，嘉然在直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3461#       发表于 2021-2-28 20:12
+
+
+
+
+还好今晚打游戏不怎么看弹幕，这tm都是啥啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3462#       发表于 2021-2-28 20:12
+
+
+
+
+可她喜欢的是猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3463#       发表于 2021-2-28 20:13
+
+
+
+
+嘉然小姐的狗竟然是真的
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3464#       发表于 2021-2-28 20:13
+
+
+
+
+弹幕自己玩起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3465#       发表于 2021-2-28 20:16
+
+
+
+
+晚晚今天是练舞累了吗，怎么这么有气无力的
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3466#       发表于 2021-2-28 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">upup
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3467#       发表于 2021-2-28 20:22
+
+
+
+
+节目效果总算来了
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3468#       发表于 2021-2-28 20:22
+
+
+
+
+然然绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3469#       发表于 2021-2-28 20:23
+
+
+
+
+真遭不住女孩子小声说话<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3470#       发表于 2021-2-28 20:38
+
+
+
+
+连体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3471#       发表于 2021-2-28 20:44
+
+
+
+
+偶像破裂
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3472#       发表于 2021-2-28 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">然然这破音吓到我了
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3473#       发表于 2021-2-28 20:44
+
+
+
+
+这是笑出猪叫了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">蚌埠住了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3474#       发表于 2021-2-28 20:44
+
+
+
+
+嘉然笑得好开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3475#       发表于 2021-2-28 20:45
+
+
+
+
+晚晚你别唱了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  万花筒  
+##### 3476#       发表于 2021-2-28 20:45
+
+
+
+
+今天嘉然很活泼啊
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3477#       发表于 2021-2-28 20:45
+
+
+
+
+我没听到
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                                  
