@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 13:37** 
+> ## **本文件最后更新于2021-02-28 14:39** 
 
 
 
@@ -8777,4 +8777,426 @@ Snipaste_2021-02-28_19-55-30.png
 
 
 
-                                 
+
+
+-----
+
+####  yuzu98k  
+##### 3509#       发表于 2021-2-28 21:37
+
+
+
+
+看全程的血压跟过山车一样
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3510#       发表于 2021-2-28 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贝武圣原来不会游泳。要被水淹七军擒了
+
+
+
+
+
+
+
+-----
+
+####  醒了就睡觉  
+##### 3511#       发表于 2021-2-28 21:50
+
+
+
+
+
+很难不磕嘉晚饭
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 3512#       发表于 2021-2-28 21:51
+
+
+
+
+七擒贝拉<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 3513#       发表于 2021-2-28 21:51
+
+
+
+
+别尬黑，武圣才是用水淹七军的那个，乐华水军石锤了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明莫斯利安  
+##### 3514#       发表于 2021-2-28 21:54
+
+
+
+
+晚晚弹吉他的手指好灵活<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰结镜界的伊甸  
+##### 3515#       发表于 2021-2-28 21:56
+
+
+
+
+又拉又好，就好这口
+
+
+
+
+
+
+
+-----
+
+####  M_ath  
+##### 3516#       发表于 2021-2-28 21:58
+
+
+
+
+今天贴麻了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3517#       发表于 2021-2-28 21:59
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3518#       发表于 2021-2-28 22:00
+
+
+
+
+嘉晚饭日常真棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3519#       发表于 2021-2-28 22:00
+
+
+
+
+嘉门🤗
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3520#       发表于 2021-2-28 22:02
+
+
+
+
+又拉又好，又好又拉<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+[www.douban.com/group/topic/213192189/](http://www.douban.com/group/topic/213192189/)
+
+
+豆友总结的前两次团播嘉晚饭偷偷小互动，总之一切都很真
+
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3521#       发表于 2021-2-28 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今晚看嘉晚饭贴的真开心。🔒死了
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 3522#       发表于 2021-2-28 22:08
+
+
+
+
+好看的 就喜欢这种氛围
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3523#       发表于 2021-2-28 22:08
+
+
+
+
+嘉晚饭甜死我了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3524#       发表于 2021-2-28 22:09
+
+
+
+
+该去复习本音跟打嗝了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 3525#       发表于 2021-2-28 22:09
+
+
+
+
+河豚今天爽死了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3526#       发表于 2021-2-28 22:13
+
+
+
+
+害羞小嘉然安排上<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 3527#       发表于 2021-2-28 22:14
+
+
+
+
+为什么嘉晚饭这么真<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">因为一个是吃货一个管饱完美互补
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 3528#       发表于 2021-2-28 22:18
+
+
+
+
+我看到一个更好的v圈正在冉冉升起，终有一天，8u，泥哥，萌萌人，乐子人会停止互相争斗，石油佬，二创人，鼠鼠人不再有身份高低，人们团聚在圣嘉然的直播间，手拉着手合唱quiet，啊，那场景真是让人期待。嘉门🙏
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 3529#       发表于 2021-2-28 22:20
+
+
+
+ 本帖最后由 IDIDIDIDID 于 2021-2-28 22:25 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 3530#       发表于 2021-2-28 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3531#       发表于 2021-2-28 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">别说 看到录播这个打嗝声确实
+
+
+
+
+
+
+
+-----
+
+####  cao1rui2  
+##### 3532#       发表于 2021-2-28 22:33
+
+
+
+
+打嗝切片呢？
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3533#       发表于 2021-2-28 22:36
+
+
+
+<img src="https://p.sda1.dev/1/f8af52055cefa0947c8e2f49153b56bd/1614522949612.jpg" referrerpolicy="no-referrer">偷个图
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3534#       发表于 2021-2-28 22:37
+
+
+
+
+狗不理包子！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                

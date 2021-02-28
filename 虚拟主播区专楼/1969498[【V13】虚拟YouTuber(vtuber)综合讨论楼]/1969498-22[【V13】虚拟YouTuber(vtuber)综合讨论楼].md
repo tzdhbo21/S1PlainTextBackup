@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 11:33** 
+> ## **本文件最后更新于2021-02-28 14:37** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_M3K3C" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_N8lIr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_K3j3s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_WddOh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_dCDPr" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_F1R6f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_NexIB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_HYadA" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -20186,4 +20186,786 @@ jk组闭幕式一开始就是熟悉的感觉<img src="https://static.saraba1st.c
 
 
 
-              
+
+
+-----
+
+####  死体残留  
+##### 32554#       发表于 2021-2-28 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">没有下个event信息 这次live不知道也能不能回本，ickr估计今年就倒了
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 32555#       发表于 2021-2-28 19:40
+
+
+
+
+你虹重大发表那么多基本都是live发歌出道，也就一个3.0像主播公会<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+不过也是，live发歌赚钱，多搞几个节目企划就是赚吆喝，毕竟你虹v人均对赚钱没啥追求<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32556#       发表于 2021-2-28 19:43
+
+
+
+
+环球出道没有什么想象空间了，不如电音部这种听起来就酷炫的多媒体企划<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32557#       发表于 2021-2-28 19:47
+
+
+
+
+看节目的时候忘记刷推，原来还有月之猫猫糖，流泪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，
+我的谷子一点消息也没有，流泪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">。
+省一楼，看fes对liver有没有意义可以参考发的相关推特数，带tag的都是好虹liver，至于压根没发的…<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">，194那三个全部献祭来复活童田吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32558#       发表于 2021-2-28 19:48
+
+
+
+<blockquote>OldGlory 发表于 2021-2-28 19:43
+环球出道没有什么想象空间了，不如电音部这种听起来就酷炫的多媒体企划 ...</blockquote>
+就是发歌开live啊，本身主流出道也就是干这些事，选她们三个出道的原因可能有比较重要的一点就是她们三个都是全职主播，有时间去弄这些，你虹挺多歌势都挺摸的，怕是顶不住主流出道的强度
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32559#       发表于 2021-2-28 19:54
+
+
+
+
+又是技术升级又是主流出道，真好啊。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32560#       发表于 2021-2-28 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50468746&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-2-28 19:48</a>
+
+就是发歌开live啊，本身主流出道也就是干这些事，选她们三个出道的原因可能有比较重要的一点就是她们三个 ...</blockquote>
+我的意思就是主流出道喊了一年多了不新鲜了，木口明明什么都没有扔个pv出来还能给人想象的空间。
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 32561#       发表于 2021-2-28 20:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹也有个和对面对标的 palette企划啊，第一弹是两首原创曲
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 32562#       发表于 2021-2-28 20:11
+
+
+
+
+说好的口了呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32563#       发表于 2021-2-28 20:17
+
+
+
+[https://www.youtube.com/watch?v=E7Tph-9VeL8](https://www.youtube.com/watch?v=E7Tph-9VeL8)<strong>
+</strong>
+【新3D発表】MaiR - Shout My Live -【星乃めあ】[#シャウトマイライブ](https://www.youtube.com/hashtag/%E3%82%B7%E3%83%A3%E3%82%A6%E3%83%88%E3%83%9E%E3%82%A4%E3%83%A9%E3%82%A4%E3%83%96)
+
+
+
+你也变成圆脸了
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/201718gko3qn5f7aanadnd.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (63.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 20:17 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/201719ptq66xjgbxhhbsqx.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (66.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 20:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 32564#       发表于 2021-2-28 20:19
+
+
+
+
+无论多少圆脸，想掐想烫的垃圾圆脸都只有一个
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32565#       发表于 2021-2-28 20:23
+
+
+
+
+二次元女人走到最后都是圆脸<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 32566#       发表于 2021-2-28 20:35
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-2-28 20:37 编辑 
+
+b站转播的弹幕里有人说了句“脸挺圆的”，我赶紧看了眼他id
+不是免费，可能是免费的小号
+---
+你们不过是二次元圆脸，怎么比得过人家三次元也是圆脸的？
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32567#       发表于 2021-2-28 20:56
+
+
+
+ 本帖最后由 獅白ぼたん 于 2021-2-28 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">Asoul这舞台模型身段不是吊着彩虹木口套皮主播打，不过学不到yhm的emo粉丝自我感动的核心竞争力
+
+国v走了一年多不够虚拟的弯路，现在斗鱼化粉丝的钱都榨出来了，视频势的坏影响不可估量
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32568#       发表于 2021-2-28 20:57
+
+
+
+
+技术力吊打虹杏的那不太多了，还用的着asoul啊......
+
+
+
+省一楼，这也太圆了
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/205740dm6zjb6vh6oa8iok.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (40.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 20:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 32569#       发表于 2021-2-28 21:00
+
+
+
+
+杏？那不是技术力单位吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 32570#       发表于 2021-2-28 21:01
+
+
+
+
+当年虹靠一台iphone一个l2d就干趴了四天王。技术？啥技术？
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32571#       发表于 2021-2-28 21:11
+
+
+
+
+2021年还有技术力冠军粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32572#       发表于 2021-2-28 21:13
+
+
+
+
+技术力 游戏力 质，三个说出来就暴露是傻逼的名词。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| gtcab111| + 1|毕竟虹太监喜欢吹，喜欢这几样干嘛看V圈这.|
+| Zhudhh| + 1|不准骂空集|
+| gogomw| + 1|VO最质葛皇APEX,杏奴不要不服|
+| wiig| + 1|少个歌力|
+| 间隙白垢|-1|杏奴眼中的世界|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 32573#       发表于 2021-2-28 21:16
+
+
+
+
+吹身段就算了，最后还是得看优化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">asoul动得太细致有点恐怖谷效应了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32574#       发表于 2021-2-28 21:17
+
+
+
+
+别在这说呀，colo综不是每页必提“质”的吗.......
+
+虽然我也觉得一定要在V圈找技术力没啥大意思，都是下游，买现成的方案设备
+
+
+说到引导粉丝自我感动的核心竞争力呀，看看烂货圆脸，这会正在大谈特谈自己去横滨体育场的“梦想”呢。不得不说脸不光要圆，还得厚，一般人要是唱这个鸟样肯定不敢说自己要去这去那的，真不愧是大杏的开山人物。
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32575#       发表于 2021-2-28 21:17
+
+
+
+
+虹刚宣布3.0，楼友就大呼技术力不重要，这么看不得我虹好吗。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32576#       发表于 2021-2-28 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 虹3.0披露就一个口号，甚至连个效果动画都没有，你们还真的期待啊，
+
+
+3D玩不过别人，就继续玩2D，
+
+
+3.0第一批还是JK组，这时候又不狼性按订阅排了？
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32577#       发表于 2021-2-28 21:30
+
+
+
+
+也就jk组论外，她们三个过后肯定是黑黑
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 32578#       发表于 2021-2-28 21:35
+
+
+
+<blockquote>nowaki 发表于 2021-2-28 21:13
+技术力 游戏力 质，三个说出来就暴露是傻逼的名词。</blockquote>
+那歌力呢
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32579#       发表于 2021-2-28 21:36
+
+
+
+
+这个模型虽然很像（
+
+但是确实比之前那个过于可爱的模型不一样了
+
+能更好的发挥自己帅气的声线了呢，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32580#       发表于 2021-2-28 21:41
+
+
+
+ 本帖最后由 winda 于 2021-2-28 21:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技术力真的重要那riot music,avex,gems就都该起飞了。
+顺便看了下推，对虹底边来说与自己无关的fes大概还没fes黑猫有意思吧。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32581#       发表于 2021-2-28 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469655&amp;ptid=1969498" target="_blank">超能力者stven 发表于 2021-2-28 21:35</a>
+
+那歌力呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">歌力不就一个人轮，还需要这个词暴露嘛？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32582#       发表于 2021-2-28 21:44
+
+
+
+
+说到歌力，歌力图做了一个男版的，不知道会不会被女粉追杀啊
+
+男V看的少啊，就认识这么几个
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/214443vchmu0vs0mym07g1.png" referrerpolicy="no-referrer">
+
+
+<strong>vsinger名字男.png</strong> (149.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 21:44 上传
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 2|首先声明我和楼友没有任何关系.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32583#       发表于 2021-2-28 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人玩嗨了的通通感想配信呢，底边没有参与感不要怪ichikara官方啊
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32584#       发表于 2021-2-28 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，底边在哪都没参与感，bloom也没mrr是吧
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 32585#       发表于 2021-2-28 21:53
+
+
+
+
+free哥已经是小免了 还搞男V排行版 真不怕被女粉追杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32586#       发表于 2021-2-28 21:54
+
+
+
+ 本帖最后由 CielChloe 于 2021-2-28 22:22 编辑 
+
+等等，免费你们是有铃木胜的塔，能确定性别吗？我看他（她？）不多，来个懂哥<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+顺便，我一直以为她rp男V
+
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 32587#       发表于 2021-2-28 21:59
+
+
+
+
+看了塔老师科普后就懒得看榜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">挑v唱歌不如按歌找v，指望歌回能不跑调的也就a+吧，a+下面的对我来说没啥区别，宁愿听准备过的
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32588#       发表于 2021-2-28 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469735&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-2-28 21:46</a>
+
+人玩嗨了的通通感想配信呢，底边没有参与感不要怪ichikara官方啊</blockquote>
+别尬黑，参加了的也没动静<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不知道和哪里的野男人野女人出去玩了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32589#       发表于 2021-2-28 22:14
+
+
+
+
+铃木胜到底该分哪边？
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32590#       发表于 2021-2-28 22:29
+
+
+
+
+2000拉虚脱了吧，月撇那么大个脸还摁说没效果动画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32591#       发表于 2021-2-28 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怀疑是2000近视
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32592#       发表于 2021-2-28 22:37
+
+
+
+
+按皮的性别的话，阿胜算男v
+
+
+
+
+
+             
