@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 13:36** 
+> ## **本文件最后更新于2021-03-01 16:58** 
 
 
 
@@ -13100,10 +13100,11 @@ Among us+歌回，2月的王
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 缺陷电气杨永信| + 1|好评加鹅|
 | Cushaw| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
 | A2014720| + 1|好评加鹅|
@@ -13805,4 +13806,562 @@ tc了
 
 
 
-                       
+
+
+-----
+
+####  呓亘  
+##### 9782#       发表于 2021-3-1 21:46
+
+
+
+
+你楼有没有人猜一下明天连线都有谁呀 我猜一个润姨
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9783#       发表于 2021-3-1 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480097&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-3-1 21:46</a>
+
+你楼有没有人猜一下明天连线都有谁呀 我猜一个润姨
+
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+兔妈妈兔鞠伊东几乎必有 五元其次 再其次星川郡道  苔箱自己那几个联动过的
+
+杏要是有就是润姨和内位 大概就这样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9784#       发表于 2021-3-1 21:54
+
+
+
+
+苔苔喂神乐组一口饭吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9785#       发表于 2021-3-1 21:54
+
+
+
+
+兔鞠舞元圭利大概率有
+
+其实苔本一段时间内都差不多的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9786#       发表于 2021-3-1 21:56
+
+
+
+
+希望有星川 ！
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9787#       发表于 2021-3-1 21:59
+
+
+
+
+希望老爱会来
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9788#       发表于 2021-3-1 21:59
+
+
+
+
+想看兔头和阿咩交流啊……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9789#       发表于 2021-3-1 22:00
+
+
+
+
+还有 关于阿夸会不会来这件事 你楼有没有赌鹅的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9790#       发表于 2021-3-1 22:07
+
+
+
+
+有啥好赌的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9791#       发表于 2021-3-1 22:17
+
+
+
+ 本帖最后由 A2014720 于 2021-3-1 22:19 编辑 
+
+既是兔头又是老爱的，不加个鲨鱼？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+某人的事还是去某楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+我还是希望能多看到些组内互动
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9792#       发表于 2021-3-1 22:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">赌啊。我话放这里，粉毛必不可能来
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9793#       发表于 2021-3-1 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我赌一个木口一个都没好吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9794#       发表于 2021-3-1 22:43
+
+
+
+
+我赌不来，苔苔不会没有逼数吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9795#       发表于 2021-3-1 22:55
+
+
+
+
+讲道理 老爱现在不是那么高不可攀了吧
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9796#       发表于 2021-3-1 22:56
+
+
+
+
+苔苔和老爱联动几次了都
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9797#       发表于 2021-3-1 23:13
+
+
+
+
+道理我都懂，リリス是さやまぐ么？声音像的很，而且尾音都有一样的失真，有人研究了和你麻对谈那次的直播么？这大手也太哈人了，凛子输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9798#       发表于 2021-3-1 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480790&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-3-1 23:13</a>
+
+道理我都懂，リリス是さやまぐ么？声音像的很，而且尾音都有一样的失真，有人研究了和你麻对谈那次的直播么 ...</blockquote>
+可能性还挺高 那次联动我重新看了下还挺玩味的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9799#       发表于 2021-3-1 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 9800#       发表于 2021-3-1 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9801#       发表于 2021-3-1 23:38
+
+
+
+
+对saya唯一的印象就是当年你麻念稿子哭的稀里哗啦后面接着这位姐为了缓和气氛欢天喜地庆毕业了（
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9802#       发表于 2021-3-1 23:40
+
+
+
+
+夢乃リリス = さやまぐ应该是基本上没有问题的。
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9803#       发表于 2021-3-1 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480995&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-3-1 23:38</a>
+ 对saya唯一的印象就是当年你麻念稿子哭的稀里哗啦后面接着这位姐为了缓和气氛欢天喜地庆毕业了（ ...</blockquote>
+有视频吗？求求了，多谢！
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9804#       发表于 2021-3-1 23:43
+
+
+
+ 本帖最后由 Dualist彩 于 2021-3-1 23:45 编辑 
+
+你楼大失败，这俩对谈没被人发现也太巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">       
+
+今后还会有控诉无断转载么<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9805#       发表于 2021-3-1 23:44
+
+
+
+
+嘤嘤嘤 体谅一下情弱嘛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9806#       发表于 2021-3-1 23:46
+
+
+
+
+苔箱不是只收苔苔的朋友吗？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9807#       发表于 2021-3-1 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50481022&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-3-1 23:41</a>
+
+有视频吗？求求了，多谢！</blockquote>
+紧急放送——狼人杀【下篇】
+
+（顺便一提上篇和中篇都可以搜一下看看
+
+
+syl，
+
+
+毕竟梦乃捏嗓子捏的太狠了，我反正是没怎么听出来（真不熟
+
+只是那晚联动的时候感觉这人确实蛮自来熟的（你咩演的好啊
+
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9808#       发表于 2021-3-1 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50481084&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-3-1 23:49</a>
+ 紧急放送——狼人杀【下篇】 （顺便一提上篇和中篇都可以搜一下看看  </blockquote>
+多谢！手机端加鹅不方便 回头用电脑补上
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 9809#       发表于 2021-3-1 23:53
+
+
+
+
+https://b23.tv/8tXBVJ
+这个吗？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9810#       发表于 2021-3-2 00:21
+
+
+
+
+真的假的？情弱感到十分震惊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+跟直播时只发现了又在车轱辘的苔苔，已经成为车轱辘gachi了。
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9811#       发表于 2021-3-2 00:47
+
+
+
+
+要是真的saya那还蛮草的
+
+谷子滞销,救救小麻
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9812#       发表于 2021-3-2 00:58
+
+
+
+
+是蛮草的，怎么就跑海苔男那当了，不会是你麻介绍的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9813#       发表于 2021-3-2 00:58
+
+
+
+
+说是滞销其实也只剩6件了 这动态看着像只卖了6件一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
