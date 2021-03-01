@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 14:37** 
+> ## **本文件最后更新于2021-03-01 06:41** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_N8lIr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_oE92W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_F1R6f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_NexIB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_HYadA" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_gbals" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_dKXoy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_CiTIT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -20564,10 +20564,12 @@ b站转播的弹幕里有人说了句“脸挺圆的”，我赶紧看了眼他i
 
 
 
- 参与人数 5战斗力 +3
+ 参与人数 7战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|管人观众都是傻逼|
+| Map-2| + 1|总结，不爱看别看|
 | gtcab111| + 1|毕竟虹太监喜欢吹，喜欢这几样干嘛看V圈这.|
 | Zhudhh| + 1|不准骂空集|
 | gogomw| + 1|VO最质葛皇APEX,杏奴不要不服|
@@ -20789,10 +20791,11 @@ b站转播的弹幕里有人说了句“脸挺圆的”，我赶紧看了眼他i
 
 
 
- 参与人数 1战斗力 +2
+ 参与人数 2战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士|-1|店长是男v吗？胜君是男v吗？|
 | nowaki| + 2|首先声明我和楼友没有任何关系.|
 
 
@@ -20968,4 +20971,618 @@ free哥已经是小免了 还搞男V排行版 真不怕被女粉追杀<img src="
 
 
 
-             
+
+
+-----
+
+####  qq845629713  
+##### 32593#       发表于 2021-2-28 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 可能我平时看的V，升级2.0效果就够好了，
+
+
+
+
+
+
+
+-----
+
+####  黑暗剑  
+##### 32594#       发表于 2021-2-28 22:42
+
+
+
+
+为什么你们默认2k有买票
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32595#       发表于 2021-2-28 22:46
+
+
+
+
+カナハル排到了B，个人一直觉得他们唱歌都挺一般的；七瀬タク唱歌张不开嘴，（在我这）感觉和メイカ差不多，比蒔田陽丸差点...
+
+没有BOOGEY VOXX Fra，他魂音泉的吧
+
+顺便叶师歌力比ピーナッツ高免费不心虚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Syl，重大发表不需要买票
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32596#       发表于 2021-2-28 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不要你们平时一直看面瘫的V，就觉得彩虹2.0所有人效果都一样好吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32597#       发表于 2021-2-28 22:55
+
+
+
+
+fra和yaca这种纯rap的就不列进去了
+
+七濑比歌衣强不少的吧，hima食堂那两位...店长比伙计肯定强的，不过到不了B吧（大概）
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32598#       发表于 2021-2-28 23:01
+
+
+
+
+烂货圆脸明晚还要重大告知，这个烂货现在除了天天吹牛逼要去横滨体育场还会干啥？烂货一个，抓紧毕业吧，垃圾
+
+烂货
+
+烂货
+
+烂货
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32599#       发表于 2021-2-28 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道了，会去看的
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32600#       发表于 2021-2-28 23:37
+
+
+
+
+海爱也要3d了啊，h君也快了吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32601#       发表于 2021-2-28 23:50
+
+
+
+
+@BoraNun2434
+
+いっぱい話せて楽しかった～～メン限ありがとう！！！
+
+明日19時からはしぃしぃ先輩とAPEXします！
+
+今日も一日お疲れ様でした～３月もよろしくね
+
+
+看来椎名也不是命中注定和KR女人八字不合啊，
+
+
+给gamers成员暗送秋波，代替假한민족，成为真正的女主角，
+
+
+但难关也是有的，笹木太难攻略了，油盐不进，
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 32602#       发表于 2021-3-1 00:12
+
+
+
+
+草，看到外野批判b站放松电台的贴子，就随便看看到底有多不堪，点进去就看到这个<img src="https://p.sda1.dev/1/5676673fa807d5ac710fa9061023ef56/IMG_CMP_178983784.jpeg" referrerpolicy="no-referrer">
+阿夸，我的阿夸 你怎么跑b站直播asmr了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 32603#       发表于 2021-3-1 00:42
+
+
+
+
+说起来，CY新游戏马娘目前势头挺猛的，有V直播玩这个吗？
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 32604#       发表于 2021-3-1 00:55
+
+
+
+
+h君和necomi老师关系感觉越来越好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+到时候h君转生，necomi老师不知道会不会搞张皮出来玩一玩
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32605#       发表于 2021-3-1 07:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50471082&amp;ptid=1969498" target="_blank">物流大亨常凯申 发表于 2021-3-1 00:42</a>
+说起来，CY新游戏马娘目前势头挺猛的，有V直播玩这个吗？</blockquote>
+樱巫女
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32606#       发表于 2021-3-1 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50471082&amp;ptid=1969498" target="_blank">物流大亨常凯申 发表于 2021-3-1 00:42</a>
+
+说起来，CY新游戏马娘目前势头挺猛的，有V直播玩这个吗？</blockquote>
+虹的牛姨，杏的miko都玩过，这游戏buff还挺强的，俩人玩的同接都比他们正常水平高不少。
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32607#       发表于 2021-3-1 09:46
+
+
+
+
+马娘热度还是挺高的，就是育成时间有点长，不跳剧情播一次太久了
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 32608#       发表于 2021-3-1 09:54
+
+
+
+
+马娘这游戏重点在育成，感觉游戏周期挺长的，不知道活动会怎么做
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32609#       发表于 2021-3-1 12:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/122200k73j4yzoxo4ugy36.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【▽▲TRiNITY▲▽　メジャーデビュー決定！】.jpg</strong> (435.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 12:22 上传
+
+
+
+
+
+
+【▽▲TRiNITY▲▽　メジャーデビュー決定！】
+
+にじさんじ所属ライバーの 鷹宮リオン、葉加瀬冬雪、フレン・E・ルスタリオのユニット
+
+「▽▲TRiNITY▲▽」が、NBCユニバーサル・エンターテイメントよりメジャーデビューが決定いたしました！
+
+
+
+にじさんじ初のボイスドラマCD2本同時リリース！2021年3月1日(月)12時より予約開始！
+
+<img src="https://img.saraba1st.com/forum/202103/01/122909k20vx7uxcv7y60f6.png" referrerpolicy="no-referrer">
+
+
+<strong>「黒鉄のフォークロア」.png</strong> (61.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 12:29 上传
+
+
+
+
+
+
+■ にじさんじボイスドラマ -スチームパンク- 「黒鉄のフォークロア」
+スチームパンクを題材とした手に汗握る 熱き蒸気の戦い！
+
+
+「トレイン・ファイト」と呼ばれる機関車同士のレースがすべてを決める世界。
+
+曾祖父が遺した壊れた機関車を再び走らせることを夢見る少年クレイは、
+
+自分の街を守るため、勝算のない戦いへ挑んでいく。
+
+
+＜出演ライバー＞
+
+シスター・クレア / 相羽ういは / シェリン・バーガンディ / 加賀美ハヤト
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/122200ir63ll37c3i3il33.jpg" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじボイスドラマ「シンギュラリティ・オラトリオ」.jpg</strong> (513.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 12:22 上传
+
+
+
+
+
+
+■ にじさんじボイスドラマ -サイバーパンク- 「シンギュラリティ・オラトリオ」
+
+
+サイバーパンクの世界観で描かれる、師弟の物語！
+
+自我を持った機械と人間が、対立している世界。
+
+
+機械に育てられた青年カイトは、名の売れた賞金稼ぎセイに師事し、
+
+アンドロイドのヨツハと共に、一人前の賞金稼ぎを目指していた。
+
+そんな中、カイトは猟奇的事件に巻き込まれていく――
+
+
+＜出演ライバー＞
+
+甲斐田晴 / 星川サラ / 黛灰 / ジョー・力一
+
+
+■ ゲスト出演ライバー
+
+各ボイスドラマに豪華ライバーがゲスト出演！
+
+
+＜ゲストライバー＞
+
+愛園愛美 / 白雪巴 / ベルモンド・バンデラス / 成瀬鳴 / 矢車りね / 夢追翔
+
+
+■ 担当イラストレーター
+
+黒鉄のフォークロア
+
+灸場メロ様：[https://twitter.com/9baMelo](https://twitter.com/9baMelo)
+
+シンギュラリティ・オラトリオ
+
+Lowro様：[https://twitter.com/Lowro_](https://twitter.com/Lowro_)
+[https://twitter.com/nijisanji_app/status/1366223520892551175](https://twitter.com/nijisanji_app/status/1366223520892551175)
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/122200cfgdjrfeg72jej1x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじホワイトデーグッズ2021 受注販売決定！】.jpg</strong> (636.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 12:22 上传
+
+
+
+
+
+
+【にじさんじホワイトデーグッズ2021 受注販売決定！】
+
+本日3/1(月)19:00より「にじさんじホワイトデーグッズ2021」を、にじさんじ公式BOOTHにて受注販売開始いたします！
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32610#       发表于 2021-3-1 13:01
+
+
+
+
+前几天忙成狗没看成nijifes，翻了一下这是再续500年了？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32611#       发表于 2021-3-1 13:10
+
+
+
+
+请各位日语大师教导我，
+郡东司neru的剪辑中十分十八秒处（[https://youtu.be/ki-JsolhSWA](https://youtu.be/ki-JsolhSWA)），那个かわ的笑点是啥<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 32612#       发表于 2021-3-1 14:20
+
+
+
+[https://gamebiz.jp/?p=289969](https://gamebiz.jp/?p=289969)
+
+「にじさんじプロジェクト」で知られる、いちから株式会社の2020年4月期の決算は、最終利益が3243万5000円だったもようだ
+
+
+对比：
+
+カバーの2020年3月期（第4期）の決算は、最終利益が1億6800万円だった。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32613#       发表于 2021-3-1 14:25
+
+
+
+
+我推算的1杏=5虹看来非常的正确
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32614#       发表于 2021-3-1 14:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个意义真的不大，虹线下扩张需要的成本以及人员数量增长和技术飞跃的支出可远大于木口这原地踏步的支出。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32615#       发表于 2021-3-1 14:30
+
+
+
+ 本帖最后由 CAserlumos 于 2021-3-1 14:32 编辑 
+
+看昨天感想配信这次参加fes的liver吃住全报销我还以为ichikara多有钱，就这<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32616#       发表于 2021-3-1 14:33
+
+
+
+
+正因为舍得为v花钱利润才这么点。反观某个利润高达1億6800万円的会社，收来的钱都拿去孵蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32617#       发表于 2021-3-1 14:33
+
+
+
+
+截止2020 4月的财报感觉一点意思没有啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32618#       发表于 2021-3-1 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 赚来的钱分红给各位liver不好么，每个人都能买东京别墅，反而nichikara本身不赚钱，投资人的钱也浪费光了，liver住桥洞，
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32619#       发表于 2021-3-1 14:37
+
+
+
+ 本帖最后由 Ketestrait 于 2021-3-1 14:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50474883&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-1 13:10</a>
+
+请各位日语大师教导我，
+
+郡东司neru的剪辑中十分十八秒处（[https://youtu.be/ki-JsolhSWA](https://youtu.be/ki-JsolhSWA)），那个かわ的笑 ...</blockquote>
+笑点不是后面司的かわだけに么，标准的谐音冷笑话冰冻全场变笑点
+
+
+syl
+
+
+无脑扩张→成本暴增→利润被吊打→半年，完了
+
+
+
+
+
+            
