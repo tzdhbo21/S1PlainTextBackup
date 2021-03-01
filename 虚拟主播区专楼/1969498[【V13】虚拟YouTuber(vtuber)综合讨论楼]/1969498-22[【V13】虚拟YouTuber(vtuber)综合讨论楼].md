@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 08:41** 
+> ## **本文件最后更新于2021-03-01 12:50** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_C5Lne" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_RMNoz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_V4j6D" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_weX70" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_uUd7D" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_CO83h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_KKOET" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_kwrrz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -22031,4 +22031,824 @@ mybora和my大福，👍
 
 
 
-           
+
+
+-----
+
+####  winda  
+##### 32644#       发表于 2021-3-1 16:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50476779&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-1 16:25</a>
+虹人可能只是想看新人“首播”，次播大概就不认识了
+不过我个人希望来个游戏力拉满的女v
+别tm管人金游+任天 ...</blockquote>
+本来就有玩guiltygear和moba玩的好的，但是彩虹风格独食不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32645#       发表于 2021-3-1 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50476986&amp;ptid=1969498" target="_blank">winda 发表于 2021-3-1 16:47</a>
+本来就有玩guiltygear和moba玩的好的，但是彩虹风格独食不播</blockquote>
+小鬼子不行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32646#       发表于 2021-3-1 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 免费又在cue狐皇了 那不然你大葵适合mc还是圆脸适合mc阿
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32647#       发表于 2021-3-1 17:02
+
+
+
+ 本帖最后由 free 于 2021-3-1 17:04 编辑 
+
+大葵又不是没主持过业界节目，这一个唱歌节目，跟这五音不全的老肥 逼有什么关系？真的倒胃口，没有这老肥 逼我没准还看看。现在一想到这老肥 逼报幕：下面请富士葵出场，就浑身恶心，你也配叫我们家大葵的名字
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32648#       发表于 2021-3-1 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+场景回想：
+
+一个猜想，免费白上肉体厨
+
+
+-2  by免费
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|提前回血|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32649#       发表于 2021-3-1 17:06
+
+
+
+
+希望免费能等到大葵和圆脸同台mc的那一天。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32650#       发表于 2021-3-1 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫露喵难道就不是圆脸吗？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32651#       发表于 2021-3-1 17:08
+
+
+
+
+游戏力拉满的新人Liver是给你虹那些游戏上手设定的Liver拆台吗，同类型会不会被被前辈discord长文警告<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+「忖度」
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32652#       发表于 2021-3-1 17:10
+
+
+
+
+我不是说了女v嘛
+你看bora就混的风生水起的
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32653#       发表于 2021-3-1 17:17
+
+
+
+
+上手的不知道，玩不来游戏的估计是找不出几个了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32654#       发表于 2021-3-1 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50476662&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-3-1 16:13</a>
+
+https://www.v-carnival.jp/
+
+免费盗播吗</blockquote>
+DAY1值得买票，DAY2比较纠结
+
+可恶，为什么神椿绑定的是杏不是虹
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 32655#       发表于 2021-3-1 17:42
+
+
+
+
+草，小狮子理芽加一大堆木口day2，好烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，普通可爱ackt（[https://twitter.com/tktiau/status/1366320626265284610](https://twitter.com/tktiau/status/1366320626265284610)）
+
+<img src="https://img.saraba1st.com/forum/202103/01/174155uzndn1ydqhapd10q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvYlXdZVEAMz2QO.jpg</strong> (171.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 17:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32656#       发表于 2021-3-1 17:49
+
+
+
+
+雀魂四象战怎么每次都有假货楠栞桜（魂天）和郡道美玲的弟子啊，到底是谁啊这么厉害😅
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32657#       发表于 2021-3-1 18:06
+
+
+
+ 本帖最后由 NBXX 于 2021-3-1 18:07 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/180558u6g6scp6vezkiszh.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210301190523.png</strong> (114.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 18:05 上传
+
+
+
+
+
+
+居然还有中文字幕吗
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 32658#       发表于 2021-3-1 18:13
+
+
+
+<blockquote>rzrbtk 发表于 2021-3-1 17:49
+雀魂四象战怎么每次都有假货楠栞桜（魂天）和郡道美玲的弟子啊，到底是谁啊这么厉害😅 ...</blockquote>
+这假siosio好强啊
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32659#       发表于 2021-3-1 18:38
+
+
+
+
+叶这英灵神殿换了一批人玩还是社外的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虹有多少人玩了？静凛 谢林 ？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32660#       发表于 2021-3-1 18:53
+
+
+
+
+烂货圆脸的重大告知原来就是新衣服，就这种烂货，穿成什么样，不也就是个傻圆脸？傻了吧唧的
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/185324s4z3gzt341nymuaa.png" referrerpolicy="no-referrer">
+
+
+<strong>圆脸.png</strong> (54.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 18:53 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32661#       发表于 2021-3-1 18:55
+
+
+
+
+惊，八点えらちゃん新衣服，新画师是谁
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32662#       发表于 2021-3-1 18:57
+
+
+
+[https://twitter.com/OtogibaraEra/status/1366340654394077184](https://twitter.com/OtogibaraEra/status/1366340654394077184) <blockquote>21時から～！
+
+
+【新衣装】久々に着替えた【御伽原江良】 [https://youtu.be/UihkZx7WmI0](https://youtu.be/UihkZx7WmI0)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/01/185825qqqftgvgfffczgoq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvY3ftgVgAE9Ynk.jpg</strong> (182.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 18:58 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32663#       发表于 2021-3-1 19:18
+
+
+
+
+家主?！
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32664#       发表于 2021-3-1 19:21
+
+
+
+
+确实有种马戏团感，但很色，，我先好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32665#       发表于 2021-3-1 19:25
+
+
+
+
+花里胡哨本来就是虹皮的特点，木口不要碰瓷
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32666#       发表于 2021-3-1 19:39
+
+
+
+
+终于有新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32667#       发表于 2021-3-1 19:41
+
+
+
+
+这不就是小丑服吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32668#       发表于 2021-3-1 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 以后新衣服是要给新人了，老屁股就别来占用资源了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32669#       发表于 2021-3-1 20:02
+
+
+
+[https://www.bilibili.com/video/BV125411N7an](https://www.bilibili.com/video/BV125411N7an)
+
+GEMS的官方自我介绍视频
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/200241zc9z5w54pki0kwc5.png" referrerpolicy="no-referrer">
+
+
+<strong>gems.png</strong> (72.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 20:02 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32670#       发表于 2021-3-1 20:02
+
+
+
+
+新人？哪里来的新人？最新的新人都过完半周年了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32671#       发表于 2021-3-1 20:03
+
+
+
+
+GBR：距离我上次出音声，已经过去了1年半，缺钱了.jpg
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32672#       发表于 2021-3-1 20:04
+
+
+
+<blockquote>https://www.bilibili.com/video/BV125411N7an
+
+GEMS的官方自我介绍视频</blockquote>
+
+
+
+亮点：“抖音贴吧快手”
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 32673#       发表于 2021-3-1 20:06
+
+
+
+
+很久没在这楼看到关于holoen的消息了 凉了吗？
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32674#       发表于 2021-3-1 20:08
+
+
+
+ 本帖最后由 CielChloe 于 2021-3-1 20:11 编辑 
+
+如果按出道后直播时长算，那么语部纺是新人；如果按V自己定义，那么阿喵喵也是新人。。。懒得编了
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32675#       发表于 2021-3-1 20:11
+
+
+
+
+GBR这头是P上去的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32676#       发表于 2021-3-1 20:14
+
+
+
+
+是不是去扭曲仙境偷了男人的衣服啊！
+
+身材曲线太显眼了，感觉很危险
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32677#       发表于 2021-3-1 20:20
+
+
+
+
+裙子也能脱？怕不是会限<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32678#       发表于 2021-3-1 20:21
+
+
+
+ 本帖最后由 十四洲 于 2021-3-1 20:24 编辑 
+
+这花得有点看不懂了，不看头以为是船长……很在意为什么要把脖子也整个包住，好怪
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 32679#       发表于 2021-3-1 20:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/202333s8timz2omohz3bbb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210301202304.png</strong> (15.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 20:23 上传
+
+
+
+
+
+最大2万8，励志
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32680#       发表于 2021-3-1 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479049&amp;ptid=1969498" target="_blank">shanzihao 发表于 2021-3-1 20:06</a>
+
+很久没在这楼看到关于holoen的消息了 凉了吗？</blockquote>
+[[综合] Hololive English讨论楼](https://bbs.saraba1st.com/2b/thread-1989758-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32681#       发表于 2021-3-1 20:34
+
+
+
+
+楼友都在说就看了下，这也太花了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">太过复杂导致没有重点。。。
+
+远看一坨什么乱七八糟的根本看不出来一套衣服。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32682#       发表于 2021-3-1 20:46
+
+
+
+
+上个图<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/204539cgwg16a481qmm84w.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装】久々に着替えた【御伽原江良】.png</strong> (117.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 20:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32683#       发表于 2021-3-1 20:48
+
+
+
+
+弄个大蝴蝶结，还有猫耳，太重复了，猫耳给蝴蝶结都挡上了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32684#       发表于 2021-3-1 20:50
+
+
+
+
+lizeinui即将翻唱紫坂的大影响家，是否可以从翻唱不同组合歌曲看虹派系变化
+
+
+
+
+
+          

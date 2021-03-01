@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 05:32** 
+> ## **本文件最后更新于2021-03-01 12:45** 
 
 
 
@@ -12833,7 +12833,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_xZ825" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_xO816" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13541,4 +13541,532 @@ BV1CN411X7Bw
 
 
 
-                        
+
+
+-----
+
+####  soraku  
+##### 11252#       发表于 2021-2-23 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11253#       发表于 2021-2-23 18:38
+
+
+
+
+绫总不是骨子里就会的吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11254#       发表于 2021-2-23 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实仔细想想绫总会跟外人说自己在直播的事嘛
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11255#       发表于 2021-2-23 20:53
+
+
+
+
+外人指哪种程度的外人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那几个推友好像全都知道哦<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11256#       发表于 2021-2-23 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">当然是她口中的占卜师
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11257#       发表于 2021-2-23 23:34
+
+
+
+
+2个小时的电影起码吃了半个小时零食
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11258#       发表于 2021-2-23 23:37
+
+
+
+
+进食ASMR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11259#       发表于 2021-2-24 00:30
+
+
+
+
+好家伙不喜欢用line直接跟野男人连麦是吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11260#       发表于 2021-2-24 11:28
+
+
+
+
+大胆点，面对面
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11261#       发表于 2021-2-24 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">浓度又回来了 这是好的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11262#       发表于 2021-2-25 11:52
+
+
+
+
+网瘾发作了?居然下午上班了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11263#       发表于 2021-2-25 12:52
+
+
+
+
+这也寄吧没开待机啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11264#       发表于 2021-2-25 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">大白天的开播 这是刮的什么妖风
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11265#       发表于 2021-2-25 13:44
+
+
+
+
+全社只有绫总在上班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/25/134440lmab4l7a3kmbakl7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>無人深空.JPG</strong> (33.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-25 13:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11266#       发表于 2021-2-25 13:50
+
+
+
+
+震惊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11267#       发表于 2021-2-25 14:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉还是动力小子适合绫总啊  玩起来跟疯狗一样 恶灵玩的畏畏缩缩的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11268#       发表于 2021-2-25 14:56
+
+
+
+
+说实话单纯为了打的秀刷伤害高就别玩恶灵 恶灵是要带着全队转移或者走但侦查的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11269#       发表于 2021-2-25 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这直播真的不是混时长吗？
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11270#       发表于 2021-2-25 15:08
+
+
+
+
+反正派派这玩意不直播也肯定会打就是了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 11271#       发表于 2021-2-25 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">呜呜呜，连绫总都摸不了鱼的时代来临了吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11272#       发表于 2021-2-25 20:21
+
+
+
+<img src="https://p.sda1.dev/1/fb2223a4ea9b2c8b5e7b0a861f930e37/IMG_CMP_25150342.jpeg" referrerpolicy="no-referrer">
+有点吓人
+而且日后绫总毕业了不会很尴尬吗
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 11273#       发表于 2021-2-25 20:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/25/203902pqjeoqaj4kaqjeab.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1cd653f3ae716f08.jpg</strong> (77.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-25 20:39 上传
+
+
+
+
+
+上次画到一半的奶牛装发哪里了吗，是不是鸽了?
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11274#       发表于 2021-2-25 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看到有流传出来的 应该是鸽了吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11275#       发表于 2021-2-25 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明显鸽了，我也找过好几次。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11276#       发表于 2021-3-1 08:20
+
+
+
+
+好安静<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11277#       发表于 2021-3-1 11:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这说明病情好转  这是好事儿
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11278#       发表于 2021-3-1 13:32
+
+
+
+
+绫总能摸，我们也能摸，说白了就是感情淡了
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11279#       发表于 2021-3-1 15:16
+
+
+
+
+赶紧先把电脑买了再播apex吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11280#       发表于 2021-3-1 18:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2月收了那么多钱，又可以摸一段日子了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11281#       发表于 2021-3-1 19:58
+
+
+
+
+挺好的 别学同事一窝蜂的播ut
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11282#       发表于 2021-3-1 20:43
+
+
+
+
+绫总是时候该发病了
+
+
+
+
+
+                       
