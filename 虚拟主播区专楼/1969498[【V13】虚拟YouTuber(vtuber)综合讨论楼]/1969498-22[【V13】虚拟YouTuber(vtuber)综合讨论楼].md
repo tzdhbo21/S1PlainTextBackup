@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 12:50** 
+> ## **本文件最后更新于2021-03-01 15:37** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_RMNoz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_kZJbD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_CO83h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_KKOET" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_kwrrz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_wqf1j" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_kU323" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_xyy4K" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -22720,6 +22720,25 @@ GBR这头是P上去的吗<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|伤害不高，侮辱性极大|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -22851,4 +22870,342 @@ lizeinui即将翻唱紫坂的大影响家，是否可以从翻唱不同组合歌
 
 
 
-          
+
+
+-----
+
+####  OldGlory  
+##### 32685#       发表于 2021-3-1 20:54
+
+
+
+[https://od.yjsnpi.monster/?/%E3% ... Stream.niconico.mp4](https://od.yjsnpi.monster/?/%E3%81%AB%E3%81%98%E3%81%95%E3%82%93%E3%81%98%20Anniversary%20Festival%202021%20%E5%89%8D%E5%A4%9C%E7%A5%AD%20feat.%20FLOW.720P.LiveStream.niconico.mp4)
+
+
+虹fes前夜祭nico
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 32686#       发表于 2021-3-1 20:56
+
+
+
+ 本帖最后由 北山玖公 于 2021-3-1 20:57 编辑 
+
+这头p的吧……色调完全不搭，哪个憨货设计的……
+
+
+而且呆呆的猴王还拿了个灰色调的背景，配合上全身的黑丝覆盖，不知道的还以为飞头蛮呢，飞头蛮还能长个狗尾巴出来。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32687#       发表于 2021-3-1 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479049&amp;ptid=1969498" target="_blank">shanzihao 发表于 2021-3-1 20:06</a>
+
+很久没在这楼看到关于holoen的消息了 凉了吗？</blockquote>
+从话题度的角度看的话是凉透了。en的头牌鲨鱼订阅日增从1w掉到了5k左右，直播数据干不过jp头牌兔子。除开订阅外，en的其它所有数据放jp里看只能算中规中矩。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32688#       发表于 2021-3-1 21:05
+
+
+
+
+把飞斧做成待机画面的月之已经可以说是维京人了
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 32689#       发表于 2021-3-1 21:11
+
+
+
+
+cover的钱哪里去了，当然是进了yagoo叔叔的腰包啊，叔叔我啊，不出手了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32690#       发表于 2021-3-1 21:24
+
+
+
+
+第一个想法就是这得难死二创画师了
+复杂设是画师之敌
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32691#       发表于 2021-3-1 21:35
+
+
+
+
+白雪reid终于和big star组排上大师了，最协时说好的卡钻三呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+倒是以后看不到他分数诈欺了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32692#       发表于 2021-3-1 21:53
+
+
+
+ 本帖最后由 free 于 2021-3-1 22:12 编辑 
+
+烂货圆脸后天新衣服
+[https://www.youtube.com/watch?v=f6ZtHsHHTvA](https://www.youtube.com/watch?v=f6ZtHsHHTvA)
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/215314o0xpdn09j2ynlhpb.png" referrerpolicy="no-referrer">
+
+
+<strong>傻圆脸.png</strong> (66.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 21:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32693#       发表于 2021-3-1 21:57
+
+
+
+ 本帖最后由 rzrbtk 于 2021-3-1 22:12 编辑 
+
+月之热聊3.0的时候因为面部捕捉问题嘴一直张不开，一种浪费感<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（玩笑）。
+
+说到鬼屋和人偶和live上的call还是有遗憾感，月之也说很想和观众一起在一起call&amp;respond，希望下次能实现啊。
+
+月之说有些liver的表演还没看呢，个人很期待梅丽莎，被提醒没唱之后惊了，说很喜欢歇斯底里girl，希望以后能听到，还推荐了一下ado的歌（大概）。
+
+
+笑到，这几天听ptr的asmr睡的
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 32694#       发表于 2021-3-1 22:10
+
+
+
+ 本帖最后由 ylssb10438 于 2021-3-1 22:40 编辑 
+
+江良这新衣服太怪了吧，虽然质量很高但是太怪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 32695#       发表于 2021-3-1 22:28
+
+
+
+ 本帖最后由 JoelBirch 于 2021-3-1 22:29 编辑 
+
+虽然画得过于生草但这个描述实在太形象了，让人不由自主开始想象<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/c3e60d05f39251a591795aec2c0d8f26/IMG_CMP_96826704.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/a31769898f53e51af858e10bbd87e43e/20210301_222400.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32696#       发表于 2021-3-1 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479247&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-3-1 20:21</a>
+这花得有点看不懂了，不看头以为是船长……很在意为什么要把脖子也整个包住，好怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32697#       发表于 2021-3-1 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480593&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-1 22:55</a>
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+不得不说，包肚黑丝确实有点船
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32698#       发表于 2021-3-1 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480611&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-1 22:57</a>
+不得不说，包肚黑丝确实有点船</blockquote>
+草生 这个元素确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32699#       发表于 2021-3-1 23:04
+
+
+
+
+审美高低先不管，阿江这个衣服问题太大了，头肩比这么离谱看得有点吓人，然后花样最多的部分都在肩膀以下，也就是说直播的时候基本看不到……
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32700#       发表于 2021-3-1 23:06
+
+
+
+
+卍Ψ鬼神Ψ卍
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">风格很强烈的队伍名啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32701#       发表于 2021-3-1 23:12
+
+
+
+
+gbr这新衣服是自己找人做的，还是彩虹运营帮忙安排的？
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32702#       发表于 2021-3-1 23:20
+
+
+
+
+emmm看上去是卡页了，只卡了一层。
+
+
+
+
+
+         
