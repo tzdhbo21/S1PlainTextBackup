@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 13:36** 
+> ## **本文件最后更新于2021-03-01 08:43** 
 
 
 
@@ -10676,4 +10676,563 @@ op把路人也拉了不少进来，不知道有没有什么深意。我觉得应
 
 
 
-                             
+
+
+-----
+
+####  shimmy1996  
+##### 602#       发表于 2021-2-28 21:37
+
+
+
+
+反派的召唤兽意外的魔性wwww（像恶魔人里的psycho Jenny
+op黄战士人间体跳舞完全没表情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+人鱼的尾巴原来这么灵活<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+收场台词是victory超帅气好评<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+感觉已经可以看到大结局的元やる気玉了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 603#       发表于 2021-2-28 21:48
+
+
+
+
+第一集的风格上最像的还真是奸笑 说起来奸笑当年就是为了给灾后人们打气搞成沙雕搞笑剧的 虽然其实疫情还没过去 但和去年正好撞上搞得畏首畏尾来说今年有比较大的空间
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 604#       发表于 2021-2-28 21:53
+
+
+
+
+对了今年的 怪雪飘翻译成摸鱼怪<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 605#       发表于 2021-2-28 22:24
+
+
+
+
+为了鼓劲就要涂唇彩稍稍有点尬，别的都挺不错的，被工作摧残到头秃的社畜就需要这样欢乐的摸鱼动画治愈身心。说来这祖传口红搁海里泡这么久还能涂，以及变身后就直接变成魔棒，老妈怕不是前代q娃，开局就给女儿安排好神器了
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 606#       发表于 2021-2-28 22:28
+
+
+
+
+屑人鱼在城市里找人的时候是不是钻臭水沟来着，有个镜头是从井盖下面探出头，还有个镜头是路边草丛里。真就下水道的美人鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 607#       发表于 2021-2-28 22:28
+
+
+
+
+才发现这代人间体没有纯正意义上的粉蓝黄毛，蓝毛像紫色的，黄毛像棕色的，粉毛干脆没有
+
+倒是红毛 相当纯正<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  只等待明天  
+##### 608#       发表于 2021-2-28 22:29
+
+
+
+
+抓尾巴hso<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://s3.ax1x.com/2021/02/28/6C762D.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 609#       发表于 2021-2-28 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469674&amp;ptid=1963832" target="_blank">shimmy1996 发表于 2021-2-28 21:37</a>
+
+反派的召唤兽意外的魔性wwww（像恶魔人里的psycho Jenny
+
+op黄战士人间体跳舞完全没表情
+
+人鱼的尾巴 ...</blockquote>
+与其说是人鱼，不如说是蛇精
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/222947mwo353b2w54dedef.png" referrerpolicy="no-referrer">
+
+
+<strong>20210228222918.png</strong> (74.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 22:29 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202102/28/222948oh5v5j020jyjzx26.png" referrerpolicy="no-referrer">
+
+
+<strong>20210228222755.png</strong> (175.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 22:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  三尖酸努努  
+##### 610#       发表于 2021-2-28 22:35
+
+
+
+
+今年Q娃是要走沙雕风格吗？
+
+—— 来自 Xiaomi Redmi K30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 611#       发表于 2021-2-28 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50456888&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-2-27 12:32</a>
+今年op傻吊是够傻吊的，就是没去年高素质</blockquote>
+op大地丙，够沙雕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 612#       发表于 2021-2-28 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">突然发现奶Q回复量只有3000，星Q都有7000.希望今年能恢复正常
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 613#       发表于 2021-2-28 22:46
+
+
+
+
+第一集感觉不错，有一些夸张化的段落，效果挺好的，那个椰子树怪有点不适，不知道有没有小友会怕。今年是传说中的战士，我记得魔法师和蛋糕改了，后几年没注意忘了是传说中的啥了。虽然在日本应该很常见了，但是还要说一句忽悠小学女生这样化妆真的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 614#       发表于 2021-2-28 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470077&amp;ptid=1963832" target="_blank">199april 发表于 2021-2-28 22:28</a>
+才发现这代人间体没有纯正意义上的粉蓝黄毛，蓝毛像紫色的，黄毛像棕色的，粉毛干脆没有
+
+倒是红毛 相当纯正 ...</blockquote>
+蓝毛怕不是追加
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 615#       发表于 2021-2-28 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470279&amp;ptid=1963832" target="_blank">宅音 发表于 2021-2-28 22:46</a>
+
+蓝毛怕不是追加</blockquote>
+看泄露，应该是
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 616#       发表于 2021-2-28 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470277&amp;ptid=1963832" target="_blank">千叶铁矢 发表于 2021-2-28 22:46</a>
+第一集感觉不错，有一些夸张化的段落，效果挺好的，那个椰子树怪有点不适，不知道有没有小友会怕。今年是传 ...</blockquote>
+好像是美旋还哪部动画搞出来的
+有时候看化妆前和化妆后，感觉化妆前很好看，化完妆丑死了
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 617#       发表于 2021-2-28 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470257&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-02-28 22:44:14</a>
+突然发现奶Q回复量只有3000，星Q都有7000.希望今年能恢复正常</blockquote>星Q靠的抱Q福利
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 618#       发表于 2021-2-28 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470257&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-2-28 22:44</a>
+
+突然发现奶Q回复量只有3000，星Q都有7000.希望今年能恢复正常</blockquote>
+星q是有抱q余温，后面讨论度就下来了
+
+今年走搞笑向的话，没啥悬念讨论度应该也不会太高
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 619#       发表于 2021-2-28 23:27
+
+
+
+
+第一集好好看啊，搞笑风还挺有趣的，干劲满满的女主也很对我胃口，变身之后不知为什么，感觉脸有点像月野兔，蜜汁幻视<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">以及这次的**怪就很真实，感觉身边一直都有这种怪物存在，要是我也是Q娃就好了，sigh
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 620#       发表于 2021-2-28 23:55
+
+
+
+
+黄色的眼睛光线结果是用了道具，但是动作太可爱了
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 621#       发表于 2021-3-1 01:47
+
+
+
+
+第一话不比前两年好？甚至连作画也是。请骗我东映能保持下去
+
+这是要正面pk甜梦猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 622#       发表于 2021-3-1 07:22
+
+
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1go3knlvcxtj21hc0u0q8q.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1go3knn6uogj21hc0u0jvl.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1go3knnul33j21hc0u0dlt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1go3knoaytkj20zk0k0jul.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1go3knopq9zj20ug0kuq5i.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1go3knp93o9j21hc0xcae9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 623#       发表于 2021-3-1 09:53
+
+
+
+
+话说珊瑚在小友群体里人气挺高啊
+
+
+但感觉和拉拉不一样，拉拉在大友里人气也挺高
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 624#       发表于 2021-3-1 09:54
+
+
+
+
+干部吸完就收工，难道还有每日份额吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 625#       发表于 2021-3-1 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50472644&amp;ptid=1963832" target="_blank">雷之 发表于 2021-3-1 09:54</a>
+干部吸完就收工，难道还有每日份额吗
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+搞不好还有KPI
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 626#       发表于 2021-3-1 11:45
+
+
+
+
+希望屑人鱼继续屑下去，不要才过几集就变小天使了
+
+
+
+
+
+
+
+-----
+
+####  阿渣兄  
+##### 627#       发表于 2021-3-1 11:52
+
+
+
+<blockquote>csolfans 发表于 2021-2-28 22:44
+突然发现奶Q回复量只有3000，星Q都有7000.希望今年能恢复正常</blockquote>
+因为奶q很多人都弃坑了啊
+
+
+
+
+
+
+
+-----
+
+####  Azusayyy  
+##### 628#       发表于 2021-3-1 12:39
+
+
+
+
+狂気，开局有趣，第一集作画诚意十足，东映开始意识到危机感了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 629#       发表于 2021-3-1 14:51
+
+
+
+<blockquote>阿渣兄 发表于 2021-3-1 11:52
+因为奶q很多人都弃坑了啊</blockquote>
+啊？为什么？因为疫情中断播放？
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 630#       发表于 2021-3-1 15:03
+
+
+
+
+和隔壁甜梦猫一样，OP的作曲、编曲都是EFFY，看来是要狂气和搞笑拉满了
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 631#       发表于 2021-3-1 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50475797&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-03-01 14:51:06</a>
+啊？为什么？因为疫情中断播放？</blockquote>奶Q太无聊了，剧情淡如水，能追完四十五集真的很累<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                            

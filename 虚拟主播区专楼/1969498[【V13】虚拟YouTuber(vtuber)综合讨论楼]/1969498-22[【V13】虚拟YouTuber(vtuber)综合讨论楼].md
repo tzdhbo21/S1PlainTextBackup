@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 06:41** 
+> ## **本文件最后更新于2021-03-01 08:41** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_oE92W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_C5Lne" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_gbals" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_dKXoy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_CiTIT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_V4j6D" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_weX70" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_uUd7D" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -21585,4 +21585,450 @@ syl
 
 
 
-            
+
+
+-----
+
+####  fromsaitama  
+##### 32620#       发表于 2021-3-1 14:44
+
+
+
+
+紫宝这么划 一定是在东京找到小男友了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32621#       发表于 2021-3-1 14:59
+
+
+
+
+初始40抽刷了个八虹，这不是只能玩了吗…
+通宵养马两天了
+这游戏有毒
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 32622#       发表于 2021-3-1 15:21
+
+
+
+
+如果当初线下不租场馆是不是成本能低很多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">即使是Nico屎一样的720p看摄屏也太蛋疼了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 32623#       发表于 2021-3-1 15:25
+
+
+
+<img src="https://p.sda1.dev/1/5a170d150ebdda12308ebaa7284e3e97/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/3a5454174c48e909022046e212226123/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/862307cdf4597a55cdc2e2e5b004da69/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32624#       发表于 2021-3-1 15:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">将钱投到各个行业，带动了消费，是虚假的日企
+
+反观壁画公司，钱都不知道哪去了，是真正的日企
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32625#       发表于 2021-3-1 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50475672&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-3-1 14:37</a>
+笑点不是后面司的かわだけに么，标准的谐音冷笑话冰冻全场变笑点
+
+
+syl</blockquote>
+感谢！感谢！！！
+省一楼，ars美丽新衣服备选（[https://twitter.com/pomei_yoshino/status/1365981695967563776?s=21](https://twitter.com/pomei_yoshino/status/1365981695967563776?s=21)），美丽到我觉得会因为技术原因做不出来
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32626#       发表于 2021-3-1 15:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">liver人数两倍，收益五分之一，这就是无脑扩展臃肿企业的缩影么
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32627#       发表于 2021-3-1 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 明眼人都看得出来，ichikara=圈子严重，组织臃肿，形式大于实际的老“OO”形象，
+
+
+而力八一会社是新时代企业形象，
+
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 32628#       发表于 2021-3-1 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50476123&amp;ptid=1969498" target="_blank">noHentai 发表于 2021-3-1 15:25</a></blockquote>
+Cover的财报是半年前的？那就是去年下半年的增长还没算进去吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32629#       发表于 2021-3-1 16:06
+
+
+
+
+别的黑屁不管，彩虹人确实多了田角自己都清楚，你看抽卡节奏。
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 32630#       发表于 2021-3-1 16:09
+
+
+
+
+fes还在打招liver的广告呢
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32631#       发表于 2021-3-1 16:11
+
+
+
+
+明明是观众自己想看新人，你看现在半年没抽卡了多少人都在喊赶紧出新人了，然而现在你虹已经养不起新人了，说不定五绝就是最后的五张船票
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32632#       发表于 2021-3-1 16:12
+
+
+
+
+企业着眼的方向不一样吧。
+
+ickr在等上市，利润不重要，上市成功就发达，就算没成功把饼画大后转让股权也是美滋滋。
+
+cover的重点是拿liver直播的分成和live/谷子等的收入给股东分成，要说在等什么的话，应该是在等死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 32633#       发表于 2021-3-1 16:13
+
+
+
+[https://www.v-carnival.jp/](https://www.v-carnival.jp/)
+
+免费盗播吗
+
+<img src="https://img.saraba1st.com/forum/202103/01/161304e1zfe7z2u8i5esq1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvYMa7uVcAE00TC.jpg</strong> (173.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/161304tcd5rnin5n1niaci.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvYMwO0UcAYTouW.jpg</strong> (183.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:13 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32634#       发表于 2021-3-1 16:19
+
+
+
+
+这活动木口的V怎么这么多，怒<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32635#       发表于 2021-3-1 16:20
+
+
+
+
+我想了一下
+在虹通宵干活
+在杏躺着拿钱
+作为打工人，支持哪边应该不用想了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32636#       发表于 2021-3-1 16:21
+
+
+
+
+彩虹观众真的想看新人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿红阿黄什么时候银盾啊。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32637#       发表于 2021-3-1 16:25
+
+
+
+
+虹人可能只是想看新人“首播”，次播大概就不认识了
+不过我个人希望来个游戏力拉满的女v
+别tm管人金游+任天堂了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32638#       发表于 2021-3-1 16:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/162355yurrrq1ufzgrfwno.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210301162353.jpg</strong> (83.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:23 上传
+
+
+
+
+
+
+
+kmm满脸写着高兴、开心的样子，
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32639#       发表于 2021-3-1 16:25
+
+
+
+
+老逼糊坦怎么啥活动都要蹭一蹭，真恶心
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32640#       发表于 2021-3-1 16:29
+
+
+
+
+不过虹这个这个摊子大小能做成黑字确实牛逼，毕竟和隔壁明摆着躺赚的模式不一样。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32641#       发表于 2021-3-1 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹这资本金规模已经是五倍木口了。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32642#       发表于 2021-3-1 16:36
+
+
+
+
+mybora和my大福，👍
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 32643#       发表于 2021-3-1 16:41
+
+
+
+
+这么多就业岗位 能维持盈利不错了
+
+
+
+
+
+           

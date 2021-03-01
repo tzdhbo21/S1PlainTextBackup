@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 15:36** 
+> ## **本文件最后更新于2021-03-01 08:43** 
 
 
 
@@ -9475,4 +9475,456 @@ syl，都说嘉然向晚cp营业，我觉得向晚安慰嘉然时更像两个玩
 
 
 
-                               
+
+
+-----
+
+####  OldGlory  
+##### 3550#       发表于 2021-2-28 23:52
+
+
+
+<img src="https://p.sda1.dev/1/2f04f1e38f23f75558914295330afe8c/6F78BE1AB51E73AF34E62C92E2458EB7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3551#       发表于 2021-3-1 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">嘉然还会每天看自己动态下的评论吗，我很好奇看到清一色的发病文会是什么想法
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3552#       发表于 2021-3-1 01:26
+
+
+
+[https://www.bilibili.com/video/BV1pK4y1J71p?zw](https://www.bilibili.com/video/BV1pK4y1J71p?zw)
+
+高雅像素二创，资瓷捏<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  intotherain9  
+##### 3553#       发表于 2021-3-1 08:44
+
+
+
+
+然然应该是真哭了，能宣泄下压力也好
+
+—— 来自 blackshark SHARK KLE-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3554#       发表于 2021-3-1 08:50
+
+
+
+
+把切片看了好多遍，嘉晚饭的一切都很纯真<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+没想到是以这样的方式看到可爱小嘉然，出了类似的音声我一定会买的<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3555#       发表于 2021-3-1 10:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">然然心防这么高，只有在喜欢直率的晚晚面前才放的下来吧
+
+
+
+
+
+
+
+-----
+
+####  海底铁锚  
+##### 3556#       发表于 2021-3-1 10:18
+
+
+
+
+我看了好几遍都感觉是笑哭啊🤣你们太入脑了吧。
+
+
+
+
+
+
+
+-----
+
+####  某甲245  
+##### 3557#       发表于 2021-3-1 10:57
+
+
+
+
+果然是童星，怪不得这么会<img src="https://p.sda1.dev/1/f23b52bd0d04a6da99269dc9e4926965/IMG_CMP_17974936.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3558#       发表于 2021-3-1 10:59
+
+
+
+
+挖到什么了？
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 3559#       发表于 2021-3-1 11:01
+
+
+
+
+火星救援
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3560#       发表于 2021-3-1 11:20
+
+
+
+
+老活老整
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3561#       发表于 2021-3-1 11:22
+
+
+
+
+然然怎么十几年没长高啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 3562#       发表于 2021-3-1 11:22
+
+
+
+
+这里有没有人觉得向晚最近状态不好？过年那几天算晚指导巅峰了，结果第二天请假以后就觉得整个人很僵硬。
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3563#       发表于 2021-3-1 11:26
+
+
+
+
+挺好的，状态太好反而很假
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3564#       发表于 2021-3-1 11:32
+
+
+
+
+有点感觉，昨天一开头没什么精神<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3565#       发表于 2021-3-1 11:40
+
+
+
+
+估计是上课练习累到了吧，多方面来看向晚的确是学生
+
+
+
+
+
+
+
+-----
+
+####  老贝  
+##### 3566#       发表于 2021-3-1 11:42
+
+
+
+
+和心态也有关系吧，换我整天训练节目结果被观众说拉胯和不拉不看也开心不起来。
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3567#       发表于 2021-3-1 11:59
+
+
+
+
+一定是因为大聪明回正义披露，说贝拉是个地狱管家，结果私下被贝拉拉去练舞了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3568#       发表于 2021-3-1 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 看到晚晚舞台跳舞的样子贝拉很难不高血压，观众都看急了
+
+
+
+
+
+
+
+-----
+
+####  intotherain9  
+##### 3569#       发表于 2021-3-1 14:02
+
+
+
+
+舞力排名应该是 贝拉 珈乐 嘉然 乃琳 向晚
+
+这样吧
+
+—— 来自 blackshark SHARK KLE-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 3570#       发表于 2021-3-1 15:13
+
+
+
+
+高强度看了昨天的录播，整个人都升华了。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+变成连体人的我除了嘉晚饭什么都不想。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3571#       发表于 2021-3-1 15:14
+
+
+
+
+过早的让嘉晚饭贴的太美好就是在透支这个企划未来的未来！
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 3572#       发表于 2021-3-1 15:54
+
+
+
+
+只希望晚晚能越来越好<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3573#       发表于 2021-3-1 15:57
+
+
+
+
+嘉晚饭该削弱了，下个版本就加强超级嘉贝<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3574#       发表于 2021-3-1 16:01
+
+
+
+
+这楼是不是翻页bug了？
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3575#       发表于 2021-3-1 16:12
+
+
+
+
+版本更新，会有贝贝珈t0的那天吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+前天开始就卡页了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3576#       发表于 2021-3-1 16:17
+
+
+
+ 本帖最后由 yuzu98k 于 2021-3-1 16:24 编辑 
+
+SE也搞了个虚拟偶像？(编辑:出挺久了，今天发了个中文宣传片)
+
+女团不卖姬迟早变糊逼，嘉晚饭快给我死命地贴<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+很早就开始卡页了，但是这楼同接少，影响不是很大啊
+
+
+
+
+
+
+                              
