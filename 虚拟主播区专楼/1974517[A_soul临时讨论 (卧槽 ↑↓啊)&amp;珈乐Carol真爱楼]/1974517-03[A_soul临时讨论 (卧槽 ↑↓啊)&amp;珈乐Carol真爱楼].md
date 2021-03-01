@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 08:43** 
+> ## **本文件最后更新于2021-03-01 11:03** 
 
 
 
@@ -9927,4 +9927,473 @@ SE也搞了个虚拟偶像？(编辑:出挺久了，今天发了个中文宣传�
 
 
 
-                              
+
+
+-----
+
+####  intotherain9  
+##### 3577#       发表于 2021-3-1 16:55
+
+
+
+
+今晚没直播了，寂寞的夜寂寞的我…
+
+—— 来自 blackshark SHARK KLE-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3578#       发表于 2021-3-1 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 模型也就上个世代的水平 这还不是直播效果，唯一的优势就是场景比as好，别的稍稍，看MV我还不如看v家可比这好多了（安利一哈国v（vocaloid）平行四界的“五维介质”）
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3579#       发表于 2021-3-1 17:08
+
+
+
+
+谁去开个as的正式楼
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 3580#       发表于 2021-3-1 17:26
+
+
+
+
+as别的我都懂
+女粉浓度是咋回事，这么多
+做的二创又多又好
+相比之下男粉确实不行
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3581#       发表于 2021-3-1 17:34
+
+
+
+ 本帖最后由 音稻 于 2021-3-1 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477419&amp;ptid=1974517" target="_blank">poipanchao 发表于 2021-3-1 17:26</a>
+
+as别的我都懂
+
+女粉浓度是咋回事，这么多
+
+做的二创又多又好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">男粉大部分还是v圈 女粉大部分都是圈外的吧。
+
+男粉想提高二创浓度建议多去相关区引流。
+
+但是相关圈子的人员的专业或者工作领域多多少少跟as这样的形式有些重合，想吸粉还挺难的，工具人和小姐姐们要加油
+
+
+
+
+
+
+
+-----
+
+####  Anonekoy  
+##### 3582#       发表于 2021-3-1 17:46
+
+
+
+
+因为有不少引流来的饭圈小姐姐啊🥰
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 3583#       发表于 2021-3-1 17:47
+
+
+
+
+看到好几个饭圈小姐姐属实有能<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3584#       发表于 2021-3-1 17:49
+
+
+
+
+然然的生日宣传动态开始了
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3585#       发表于 2021-3-1 17:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 怎么没
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3586#       发表于 2021-3-1 17:57
+
+
+
+ 本帖最后由 绯想天の天子 于 2021-3-1 18:00 编辑 
+
+楼友午夜推得二创怎么被官号蹭了个联合投稿啊
+
+
+
+
+
+
+
+-----
+
+####  音稻  
+##### 3587#       发表于 2021-3-1 18:00
+
+
+
+
+官号不是血赚 届到了
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 3588#       发表于 2021-3-1 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477716&amp;ptid=1974517" target="_blank">绯想天の天子 发表于 2021-3-1 17:57</a>
+
+楼友午夜推得二创怎么被官号蹭了个联合投稿啊</blockquote>
+[https://www.bilibili.com/read/cv9344038](https://www.bilibili.com/read/cv9344038)
+
+这里提过联合投稿
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 3589#       发表于 2021-3-1 18:04
+
+
+
+
+嘉然也动态抽奖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看这波能涨多少粉
+
+[https://b23.tv/ngKXC6](https://b23.tv/ngKXC6)
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3590#       发表于 2021-3-1 18:06
+
+
+
+ 本帖最后由 抄袭炉石的垃圾 于 2021-3-1 18:08 编辑 
+
+才抽1w，我还以为10w呢
+
+太惨惹，隔壁几家都几十万的抽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3591#       发表于 2021-3-1 18:07
+
+
+
+
+要亲自回复才送<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">机器人什么臭鱼烂虾
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3592#       发表于 2021-3-1 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477762&amp;ptid=1974517" target="_blank">yuzu98k 发表于 2021-3-1 18:02</a>
+https://www.bilibili.com/read/cv9344038
+
+这里提过联合投稿</blockquote>
+原来是制作人邀请的。
+不过说的七日内审核完成。结果不到24小时就完毕了。工具人这么速度的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3593#       发表于 2021-3-1 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477819&amp;ptid=1974517" target="_blank">绯想天の天子 发表于 2021-3-1 18:08</a>
+原来是制作人邀请的。
+不过说的七日内审核完成。结果不到24小时就完毕了。工具人这么速度的嘛 ...</blockquote>
+大概应该能转的二创太少了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3594#       发表于 2021-3-1 18:11
+
+
+
+
+应该是有意限制抽奖涨粉吧，不好交代<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘉然小姐的宠物  
+##### 3595#       发表于 2021-3-1 18:11
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3596#       发表于 2021-3-1 18:12
+
+
+
+
+女粉有个联合投稿了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好像让赛博朋克狗也联合啊
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人mk2  
+##### 3597#       发表于 2021-3-1 18:13
+
+
+
+
+控评了吗，刚刚看到的吐槽显卡价格的一瞬消失了
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 3598#       发表于 2021-3-1 18:17
+
+
+
+
+现在3080不到1w也差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还不一定能买到
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 3599#       发表于 2021-3-1 18:17
+
+
+
+
+只想快进到然然生日<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绯想天の天子  
+##### 3600#       发表于 2021-3-1 18:18
+
+
+
+
+说起来生日回在周日。然然这周不会又要上四天班吧
+然然，我的然然<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪空  
+##### 3601#       发表于 2021-3-1 18:22
+
+
+
+
+人多起来了啊，还是换栋楼吧
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 3602#       发表于 2021-3-1 18:26
+
+
+
+
+然然连续加班，生日会的礼物还是从自己工资里出的，昨天哭了后也许还挨了顿铁棍，为什么受苦的永远是你<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  雪空  
+##### 3603#       发表于 2021-3-1 18:27
+
+
+
+
+新楼 [https://bbs.saraba1st.com/2b/thread-1990412-0-1.html](https://bbs.saraba1st.com/2b/thread-1990412-0-1.html)
+
+
+
+
+
+                             

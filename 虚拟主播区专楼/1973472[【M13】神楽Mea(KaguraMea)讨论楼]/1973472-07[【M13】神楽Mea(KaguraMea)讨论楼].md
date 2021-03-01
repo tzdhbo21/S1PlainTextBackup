@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-28 11:36** 
+> ## **本文件最后更新于2021-03-01 11:02** 
 
 
 
@@ -12747,4 +12747,865 @@ syl，今天东京22点勃
 
 
 
-                         
+
+
+-----
+
+####  呓亘  
+##### 9723#       发表于 2021-2-28 21:06
+
+
+
+
+切片素材有了 你麻被警方盘问了 好像是因为打扮
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9724#       发表于 2021-2-28 21:07
+
+
+
+
+带了指套？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9725#       发表于 2021-2-28 21:15
+
+
+
+
+晚上出门戴墨镜，不逮你逮谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9726#       发表于 2021-2-28 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469413&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-2-28 21:07</a>
+带了指套？
+
+ -- 傲娇地来自 Stage1未知客户端</blockquote>
+指套什么鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你听的是个啥啊
+
+要真是指套未免太色了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">麻 麻段位应该没这么高
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 9727#       发表于 2021-2-28 21:19
+
+
+
+ 本帖最后由 iuhehc 于 2021-2-28 21:53 编辑 
+
+不会是那种铆钉的指环吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9728#       发表于 2021-2-28 21:20
+
+
+
+
+是我段位太低了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9729#       发表于 2021-2-28 21:26
+
+
+
+
+？
+
+你麻也太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 9730#       发表于 2021-2-28 22:39
+
+
+
+
+5000档真的有头像抽选吗，我从半道开始换档，到换没中过。 仔细一看fanbox都开了3年了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9731#       发表于 2021-2-28 22:53
+
+
+
+
+去年11月开始有的，而且她一共也没出来3年啊）
+
+
+
+
+
+
+
+-----
+
+####  文仟  
+##### 9732#       发表于 2021-2-28 23:01
+
+
+
+
+我还记得太古开出五千档头像那会儿动态跳脸
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 9733#       发表于 2021-2-28 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470336&amp;ptid=1973472" target="_blank">Cla0221 发表于 2021-2-28 22:53</a>
+去年11月开始有的，而且她一共也没出来3年啊）</blockquote>
+18年12月 怎么不是3年（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9734#       发表于 2021-2-28 23:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你再仔细数数18年12月到现在是几年
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9735#       发表于 2021-2-28 23:33
+
+
+
+
+天天晚上都能听歌，最近播的好勤啊
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 9736#       发表于 2021-2-28 23:36
+
+
+
+
+ 三年目也是三年（
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9737#       发表于 2021-2-28 23:50
+
+
+
+
+还是多给鼓励吧 多夸夸她
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 9738#       发表于 2021-2-28 23:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9739#       发表于 2021-2-28 23:59
+
+
+
+
+那就亲一个表示鼓励
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 9740#       发表于 2021-3-1 00:07
+
+
+
+
+2021.2直播时长统计
+
+Among us+歌回，2月的王
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/000706fgezz17zeshlh2hh.png" referrerpolicy="no-referrer">
+
+
+<strong>02c.PNG</strong> (58.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 00:07 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/000706ly1ww2p44xx2zcd5.png" referrerpolicy="no-referrer">
+
+
+<strong>02a.PNG</strong> (83 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 00:07 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/000706ubc88lsn0l5cs8mc.png" referrerpolicy="no-referrer">
+
+
+<strong>02b.PNG</strong> (52.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 00:07 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
+| A2014720| + 1|好评加鹅|
+| 呓语nnnnt| + 1|好评加鹅|
+| llconforever| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 9741#       发表于 2021-3-1 01:28
+
+
+
+
+麻了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9742#       发表于 2021-3-1 01:40
+
+
+
+
+tc了
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 9743#       发表于 2021-3-1 02:32
+
+
+
+
+下了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9744#       发表于 2021-3-1 15:58
+
+
+
+
+今天感觉摸了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9745#       发表于 2021-3-1 16:01
+
+
+
+ 本帖最后由 A2014720 于 2021-3-1 16:25 编辑 
+
+该回老家了
+
+我日明天是和苔苔一起逆凸<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+莫名害怕啊<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+兔妈妈，我的兔妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9746#       发表于 2021-3-1 16:35
+
+
+
+
+突然有不好的预感<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9747#       发表于 2021-3-1 16:46
+
+
+
+
+苔姨许久不见就想整点猛的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9748#       发表于 2021-3-1 16:48
+
+
+
+
+怕啥 联动是在苔姨直播间 要炸也是炸她的
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9749#       发表于 2021-3-1 16:50
+
+
+
+
+看看能整什么新活
+
+应该不至于整出事来的，这方面还能勉强信过苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9750#       发表于 2021-3-1 17:25
+
+
+
+
+你咩姐之前的所谓无准备逆突都是先问好了才打电话的，苔苔这边自然更是会事先联系好才搞（问题就是苔苔准备找哪些人了，总之奶一个舞元先
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 9751#       发表于 2021-3-1 17:26
+
+
+
+
+别人频道耍宝整活，自己频道脑死唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">她再唱半年估计只有S1这几个粉丝了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9752#       发表于 2021-3-1 17:26
+
+
+
+
+好吧我就想知道去年消费黑精灵，今年会消费谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9753#       发表于 2021-3-1 17:34
+
+
+
+
+距离十人discord还剩半年？那可太好了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9754#       发表于 2021-3-1 17:38
+
+
+
+
+要相信苔本好吧，话说阿苔什么时候再拉莉莉丝和你麻联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9755#       发表于 2021-3-1 17:43
+
+
+
+
+苔本能相信个锤子 苔本就是车轱辘
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9756#       发表于 2021-3-1 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信苔本拉个木口人来联动吗？我确实觉得这个可能性至少有三成（不过有六成可能性被你咩姐提前ban掉
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9757#       发表于 2021-3-1 17:47
+
+
+
+
+看苔组转不转就知道了，阿苔会背刺字幕组吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9758#       发表于 2021-3-1 17:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我也想看给木口打电话
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9759#       发表于 2021-3-1 17:50
+
+
+
+
+大概率连个润姨
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9760#       发表于 2021-3-1 17:51
+
+
+
+
+打给某人来个十年之约？然后苔苔在旁边拱火？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+差不多得了嗷
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9761#       发表于 2021-3-1 17:53
+
+
+
+
+什么有妻徒刑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+《多谢犬山哥》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9762#       发表于 2021-3-1 17:55
+
+
+
+
+管他们咋搞,逆凸对观众不就是一个完全黑箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一切解释权归海苔男所有<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 9763#       发表于 2021-3-1 17:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔本虽然车轱辘，但好歹不会弄出啥意外
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9764#       发表于 2021-3-1 17:59
+
+
+
+ 本帖最后由 A2014720 于 2021-3-1 18:01 编辑 
+
+去年和兔鞠伊东玩的很有意思，但也有些没味了…
+
+期待多抓点不熟的吧，不过就一场估计也搞不起来啥…
+
+你麻某人还和九条没联动呢！
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9765#       发表于 2021-3-1 18:00
+
+
+
+
+我觉得马自立会来，但是马自立非常安全
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 9766#       发表于 2021-3-1 18:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">苔姨整的联动，看都不看
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9767#       发表于 2021-3-1 18:06
+
+
+
+
+不是狐心蝗就没事
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 9768#       发表于 2021-3-1 18:14
+
+
+
+
+苔本再车轱辘企划能力也够麻姨学个十年的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9769#       发表于 2021-3-1 19:00
+
+
+
+
+还是跟黄兔子学学企划吧
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+                        
