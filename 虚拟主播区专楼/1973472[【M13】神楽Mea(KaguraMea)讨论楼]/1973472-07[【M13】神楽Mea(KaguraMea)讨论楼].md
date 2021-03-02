@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 11:30** 
+> ## **本文件最后更新于2021-03-02 14:31** 
 
 
 
@@ -14916,4 +14916,521 @@ tc直播你们都怎么看啊，昨天用什么节点都连不上
 
 
 
-                     
+
+
+-----
+
+####  A2014720  
+##### 9843#       发表于 2021-3-2 19:36
+
+
+
+
+梯子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9844#       发表于 2021-3-2 19:55
+
+
+
+
+tc直连就行了啊，用网页的，一直很流畅
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9845#       发表于 2021-3-2 19:58
+
+
+
+
+联动完之后有时间的话还会播 这丫头这么勤快了啊
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9846#       发表于 2021-3-2 20:49
+
+
+
+ 本帖最后由 Dualist彩 于 2021-3-2 20:52 编辑 
+
+你麻一直都很勤快，指在阴间时间pua阿宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等一个今天先打电话给rua再打给リリス，最后打给圣皇的巨魔苔本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 9847#       发表于 2021-3-2 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50489652&amp;ptid=1973472" target="_blank">clvan_ 发表于 2021-3-2 19:55</a>
+
+tc直连就行了啊，用网页的，一直很流畅</blockquote>
+可能因为我用的是苹果手机上的客户端吧
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9848#       发表于 2021-3-2 21:02
+
+
+
+
+说归说,今天不管打给谁还都挺期待的,最好来点好活
+
+视节目效果决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9849#       发表于 2021-3-2 21:05
+
+
+
+
+苔本下限你们又不是没数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望苔苔做个人
+
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9850#       发表于 2021-3-2 21:25
+
+
+
+
+苔本虽然烂但safe啊，总不会来木口人吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9851#       发表于 2021-3-2 21:27
+
+
+
+
+看动态下面有人说无转播 那就是有木口人了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9852#       发表于 2021-3-2 21:31
+
+
+
+
+只是存在可能性8（
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9853#       发表于 2021-3-2 21:32
+
+
+
+
+苔姨你坏事做尽😭😭😭😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9854#       发表于 2021-3-2 21:51
+
+
+
+ 本帖最后由 Dualist彩 于 2021-3-2 21:54 编辑 
+
+光明贴贴人的脑补评论怎么还能当真的，他说有meaqua就有了？你们根本不在乎有没有木口人，你们只是想黑屁苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说这群阳光贴贴人真的不是傻逼么？这也太弱智了吧我以为这波操作之后他们病情会好转一点的<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9855#       发表于 2021-3-2 21:55
+
+
+
+
+黑P苔苔是你楼重要一环，不爽不要玩.jpg <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9856#       发表于 2021-3-2 22:03
+
+
+
+
+啊，我基本已经看到会有舞元汗圭利了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9857#       发表于 2021-3-2 22:04
+
+
+
+
+那不挺好，我这一赞先取消了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9858#       发表于 2021-3-2 22:06
+
+
+
+
+星川和德龙联动中，兔鞠伊东郡道在搓麻，2434还有谁会来啊，舞元吗草
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9859#       发表于 2021-3-2 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">久违的舞元活
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9860#       发表于 2021-3-2 22:11
+
+
+
+
+把你卡了一嗓子痰的变声器收收吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+时雨妈妈，<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9861#       发表于 2021-3-2 22:15
+
+
+
+
+兔奶奶，想不到的人呢
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 9862#       发表于 2021-3-2 22:16
+
+
+
+
+原来组长带妈直播就是为了这种时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9863#       发表于 2021-3-2 22:18
+
+
+
+
+大亏疑似在会限，你们估计等不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9864#       发表于 2021-3-2 22:19
+
+
+
+
+说实话我一直好期待咩妈！什么时候咩能学习黄兔子。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 9865#       发表于 2021-3-2 22:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不会真有人期待大亏吧，不会吧不会吧
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9866#       发表于 2021-3-2 22:20
+
+
+
+
+五元：卡古拉没牙得斯<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9867#       发表于 2021-3-2 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 9868#       发表于 2021-3-2 22:21
+
+
+
+ 本帖最后由 Joffre✔ 于 2021-3-2 22:22 编辑 
+
+五元也选小麻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9869#       发表于 2021-3-2 22:22
+
+
+
+
+该开泥头车了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9870#       发表于 2021-3-2 22:24
+
+
+
+
+梦追翔？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9871#       发表于 2021-3-2 22:25
+
+
+
+
+但如果不选你咩就只能选苔苔了啊（
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9872#       发表于 2021-3-2 22:26
+
+
+
+
+不都是老女人，有差别吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9873#       发表于 2021-3-2 22:26
+
+
+
+
+那我选麻麻给你苔苔吧
+
+
+
+
+
+                    
