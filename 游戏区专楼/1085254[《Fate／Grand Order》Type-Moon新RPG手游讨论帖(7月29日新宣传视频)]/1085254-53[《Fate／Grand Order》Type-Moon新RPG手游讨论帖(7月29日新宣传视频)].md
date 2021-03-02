@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-26 14:36** 
+> ## **本文件最后更新于2021-03-02 01:04** 
 
 
 
@@ -1687,4 +1687,532 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 
 
 
-                                              
+
+
+-----
+
+####  黑上シグマ  
+##### 78093#       发表于 2021-2-26 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">去年圣诞无限池塞得满满当当的狗粮，在村正，仇凛，义经，天狗，黑狗，卡莲，羽蛇神的连番攻势下，已经连渣都不剩了…………
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">旧剑没狗粮喂………………
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78094#       发表于 2021-2-26 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452231&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-2-26 22:32</a>
+
+每次看你豹的时候你这个签名感觉就很怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我就是那天启抽卡流创始人
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78095#       发表于 2021-2-26 23:00
+
+
+
+
+欧，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想要旧剑
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78096#       发表于 2021-2-26 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452312&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-26 22:41</a>
+去年圣诞无限池塞得满满当当的狗粮，在村正，仇凛，义经，天狗，黑狗，卡莲，羽蛇神的连番攻势下， ...</blockquote>
+欧，羡慕，我狗粮都用不完了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78097#       发表于 2021-2-28 15:53
+
+
+
+
+陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  v22325  
+##### 78098#       发表于 2021-2-28 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
+
+陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">道满出了之后图好多 我也不晓得喜欢他哪里 可能是小物臭吃瘪的地方吧
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78099#       发表于 2021-2-28 16:39
+
+
+
+
+街机的第六章直接就不一样了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78100#       发表于 2021-2-28 16:41
+
+
+
+
+枪呆没介入的世界呗
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78101#       发表于 2021-2-28 16:45
+
+
+
+
+看来以后可以出fgo remake了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78102#       发表于 2021-2-28 17:11
+
+
+
+
+艹啊，还以为怪盗是新角色，结果是天艹灵衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78103#       发表于 2021-2-28 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这？
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78104#       发表于 2021-2-28 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467329&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-28 16:45</a>
+
+看来以后可以出fgo remake了</blockquote>
+特异点的特异点，异闻带的异闻带<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  炙热之狐  
+##### 78105#       发表于 2021-2-28 17:28
+
+
+
+
+街机出独占新卡，手游就灵衣，孰轻孰重一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78106#       发表于 2021-2-28 17:29
+
+
+
+
+结论：浪费了两个小时的人生<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78107#       发表于 2021-2-28 22:08
+
+
+
+
+哈哈，终于有一个呼符都不会丢的池子了。
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78108#       发表于 2021-2-28 23:35
+
+
+
+
+海豹们呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78109#       发表于 2021-2-28 23:39
+
+
+
+
+没有第一时间看，看了看回放，安生气色好了很多啊，估计是人手有余工作量没那么大了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78110#       发表于 2021-2-28 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470635&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-28 23:35</a>
+
+海豹们呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">又没池子
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 78111#       发表于 2021-2-28 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
+
+陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
+女粉多吧，那个满破卡面我都觉得是奔着女玩家钱包来的，性格上这种一直想作恶但是又一直干不成事更好容易洗白（可以参考杀狐狸）
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78112#       发表于 2021-2-28 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
+
+陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
+道门在日本女性人气很高的，这种邪气的帅哥估计很受欢迎吧。你不见隔壁LGA也一堆人喜欢吗。
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 78113#       发表于 2021-3-1 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
+
+陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
+CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78114#       发表于 2021-3-1 11:13
+
+
+
+
+来了来了，天草的怪盗灵衣脖子上挂了把钥匙，今年情人节的4星女帝礼装锁头上的人影看来确定是天草无误了。你游在情人节杀狗上真是不遗余力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78115#       发表于 2021-3-1 13:22
+
+
+
+<blockquote>白金口袋 发表于 2021-2-28 15:53
+陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
+道满对某些人来说相当于一个性转版的杀生院祈荒...
+
+
+这么说能明白点吧...
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 78116#       发表于 2021-3-1 13:23
+
+
+
+
+街机这个是谁哦 一开始还以为是老崔 后来发现不是长发是个帽子
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78117#       发表于 2021-3-1 13:23
+
+
+
+
+我记得当初FGO1.6最初设定也是耶路撒冷来着吧，结果后来由于宗教原因还是撤掉樱井临时改成圆桌了.....现在街机又拿回来用，看来是钱多了腰板硬了？（大雾）
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78118#       发表于 2021-3-1 15:50
+
+
+
+ 本帖最后由 UNISONIA 于 2021-3-1 15:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50475030&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-3-1 13:23</a>
+
+我记得当初FGO1.6最初设定也是耶路撒冷来着吧，结果后来由于宗教原因还是撤掉樱井临时改成圆桌了.....现在 ...</blockquote>
+1.最初灰色的章节图标是“神聖円卓領域 エルサレム”，开服前的PV给的副标题是“輝けるアガートラム”，后面因为敏感问题把エルサレム改成了キャメロット（还专门发了个公告）。因为主标题“神聖円卓領域”和副标题“輝けるアガートラム（指贝狄威尔）”都没改，以及卡美洛实际上就是建在耶路撒冷上面，这一地名叫法的变动大概率不涉及剧情的大幅度改动，第六章最初就设定成贝狄威尔和圆桌们的故事。
+
+
+2.樱井不是因为宗教原因撤掉的，公开原因是说工期落下，可能也有奈须想自己写的原因。实际上成品还是采用了相当一部分的樱井写的内容，只不过并不是原本约定的合写的分工比例了。
+
+
+3.六章/zero是第六章推出之后奈须在竹帚给的设定大纲，没有详细的设定和描写。虽然有一些能推测原（本该死在半路上的但是被盖提亚塞了圣杯所以就没死的）十字军领袖以及魔人理查身份的线索，顺带一提伪十字军算是魔人理查的能力，街机拿回来用大概也是基于六章/zero发展开去的新设了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Jamaisvu| + 1|多谢认真科普！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 78119#       发表于 2021-3-1 17:20
+
+
+
+
+第六章我记得是蘑菇听了坂本真绫的歌之后灵感爆发，把剧本重写了
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 78120#       发表于 2021-3-1 17:29
+
+
+
+
+成功被街机版伯爵+南丁的灵衣恶心到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+比起做得难看，更让人恶心的还是往角色DNA里刻CP这件事。
+
+说的就是你，樱井。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78121#       发表于 2021-3-2 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477365&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-3-1 17:20</a>
+
+第六章我记得是蘑菇听了坂本真绫的歌之后灵感爆发，把剧本重写了</blockquote>
+这个部分算是后面迦勒底ACE的说法对第六章转到奈须手里的原因做了一些美化了……很多内容跟一部六章出之前的说法不一样，甚至还刻意回避了跟成田曾经起过一些分歧的事情。
+
+
+例如迦勒底ACE访谈武内刚提到因为第五章大受好评（这恐怕是平行世界的FGO……剧本风评开始转变难道不是第六章吗？）才决定好好制作第六章和第七章（第五章实装时间是16年3月30日，当年的AnimeJapan之后），后面奈须就说是15年11月就决定【重写】第六章和第七章了——估计是这部分访谈内容连本家的OKSG都没校对，所以连同篇访谈的内部都出现了显而易见的前后矛盾吧
+
+
+不过LIVE上听了レプリカ（黑钢的OP）找到了创作灵感这点还是有点靠谱的（只不过这个应该是果而不是因了）。因为这首歌里面有如下的歌词：
+
+人類の欠点は　見えもしないくせに　愛とか絆とか信じられること
+
+僕の罪はうたがったこと　差し伸べられた君の右手　初めて見たヒカリ
+
+
+
+
+
+                                             
