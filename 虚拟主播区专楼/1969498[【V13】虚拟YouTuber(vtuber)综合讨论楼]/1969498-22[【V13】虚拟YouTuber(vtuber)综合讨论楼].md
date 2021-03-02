@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 08:40** 
+> ## **本文件最后更新于2021-03-02 16:51** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_aiass" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_s89xu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_YN116" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_E7T0M" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_AmCfV" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_ozS1l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_RGeU2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_z4SkG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23864,4 +23864,627 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-        
+
+
+-----
+
+####  死体残留  
+##### 32735#       发表于 2021-3-2 16:46
+
+
+
+
+宝石社这名字本土化太有梗了
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 32736#       发表于 2021-3-2 16:47
+
+
+
+
+用点力还是能把水科葵捧起来的，3d弹唱直播爽死，唱功至少是ktv水平上
+
+
+
+
+
+
+
+-----
+
+####  franklau  
+##### 32737#       发表于 2021-3-2 17:27
+
+
+
+
+水科葵要是高频率B限肯定能起来，不过这多平台入驻给我的感觉就是B限没了或者直播都没有
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32738#       发表于 2021-3-2 18:46
+
+
+
+ 本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
+
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_t6tVs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+感叹做V不如做去xvideo福利姬容易的現よみ小姐
+
+（虽然好像也不是第一次暴言了）
+
+————————————————————
+
+理解错了意思，正确的请见32741#
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32739#       发表于 2021-3-2 18:46
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32740#       发表于 2021-3-2 19:05
+
+
+
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 32741#       发表于 2021-3-2 19:12
+
+
+
+
+現よみ那两条，字面义应该是“老娘好累啊，看个xvideo爽爽吧，涩晴太棒了”吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 2|重新读了遍确实 感谢指正|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32742#       发表于 2021-3-2 19:24
+
+
+
+
+组长也近代麻将漫画连载了，最近很忙的样子
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32743#       发表于 2021-3-2 20:06
+
+
+
+
+皇女穿偶像服开感想，是在催偶像服3d吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32744#       发表于 2021-3-2 20:30
+
+
+
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_lm7ZV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+[https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
+
+【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32745#       发表于 2021-3-2 20:45
+
+
+
+ 本帖最后由 十四洲 于 2021-3-2 20:46 编辑 
+
+今天你虹有没有希望诞生第一个大师【狼宝猎杀论外
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32746#       发表于 2021-3-2 20:57
+
+
+
+
+单排还是太难，bora放弃了
+
+找队友去了
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 32747#       发表于 2021-3-2 20:57
+
+
+
+
+富士葵怎么玩起了拼高达？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32748#       发表于 2021-3-2 21:00
+
+
+
+
+这已经是第二次拼高达了，以前就拼过一回的
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 32749#       发表于 2021-3-2 21:32
+
+
+
+
+可是人家写的是“人生初”
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 32750#       发表于 2021-3-2 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490054&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-3-2 20:45</a>
+
+今天你虹有没有希望诞生第一个大师【狼宝猎杀论外</blockquote>
+维阿算不算虹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/02/214629vulsp6h65z1v77va.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-03-02_21-45-41.png</strong> (41.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 21:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32751#       发表于 2021-3-2 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490447&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-3-2 21:32</a>
+
+可是人家写的是“人生初”</blockquote>
+这次是“人生初次拼完”，上次才是“人生初”
+
+[https://www.youtube.com/watch?v=wm3SydDlXwg](https://www.youtube.com/watch?v=wm3SydDlXwg)
+[https://www.youtube.com/watch?v=e7dMbb2AElQ](https://www.youtube.com/watch?v=e7dMbb2AElQ)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 32752#       发表于 2021-3-2 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490569&amp;ptid=1969498" target="_blank">kk89897 发表于 2021-3-2 21:46</a>
+维阿算不算虹</blockquote>
+雷岁是阿b电竞的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+但也是个立派的虹人啦
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32753#       发表于 2021-3-2 22:28
+
+
+
+[https://twitter.com/kinnotamadx/status/1366756497850474503](https://twitter.com/kinnotamadx/status/1366756497850474503) <blockquote>私からで恐縮ですが…配信で使用不可のスカートOFF版です
+
+#ギバラ新衣装</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/02/222842xnqddf4kgzjs2nkd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvexkMYVcAw3Gsa.jpg</strong> (145.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 22:28 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|色哦|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32754#       发表于 2021-3-2 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490569&amp;ptid=1969498" target="_blank">kk89897 发表于 2021-3-2 21:46</a>
+
+维阿算不算虹</blockquote>
+首先都排除了狼宝
+
+其次岁子哥真的不是VR
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32755#       发表于 2021-3-2 22:31
+
+
+
+
+叶师开播第一局，13kill4200dmg双锤了，队友只剩两队的时候给他留了伤害
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32756#       发表于 2021-3-2 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490569&amp;ptid=1969498" target="_blank">kk89897 发表于 2021-3-2 21:46</a>
+维阿算不算虹</blockquote>
+你好歹先举例星宸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32757#       发表于 2021-3-2 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490569&amp;ptid=1969498" target="_blank">kk89897 发表于 2021-3-2 21:46</a>
+
+维阿算不算虹</blockquote>
+虽然岁子哥算半个虹人但还是有区别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qingr0028  
+##### 32758#       发表于 2021-3-2 23:02
+
+
+
+
+岁子哥比维阿百分之九十的人虹多了 
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 32759#       发表于 2021-3-2 23:15
+
+
+
+ 本帖最后由 JoelBirch 于 2021-3-2 23:17 编辑 
+
+新的fanart，恐山曲绘！胸！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/12d6fe49f6d7a22d05fc7c194050af0f/IMG_CMP_201927767.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  瓜来SparkleBar  
+##### 32760#       发表于 2021-3-2 23:22
+
+
+
+
+不是首先排除掉星宸嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32761#       发表于 2021-3-2 23:40
+
+
+
+
+还记得黛灰姐贵之前痛诉黛灰没物料，结果现在fes也上了，有巨潮的赛博谷，亲妈还画了美丽图，
+
+好羡慕惹<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32762#       发表于 2021-3-2 23:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/02/234111gj7sbhkhjtksbs7z.png" referrerpolicy="no-referrer">
+
+
+<strong>【Apex Legends】マスターまでの道は遠い【ゲーム配信】.png</strong> (260.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 23:41 上传
+
+
+
+
+
+
+彩虹APEX的脊梁，花芽姐陪着上了钻1
+[https://www.youtube.com/watch?v=Jn_lcTxFZoA&amp;feature=emb_logo](https://www.youtube.com/watch?v=Jn_lcTxFZoA&amp;feature=emb_logo)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32763#       发表于 2021-3-2 23:55
+
+
+
+
+那个赛博图根本看不出是黛灰
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32764#       发表于 2021-3-2 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491650&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-2 23:43</a>
+
+彩虹APEX的脊梁，花芽姐陪着上了钻1
+
+https://www.youtube.com/watch?v=Jn_lcTxFZoA&amp;feature=emb_logo
+
+ ...</blockquote>
+这图文略不符？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">bora是从钻一掉下去又回来的，花芽姐中途来了又走了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|之前没截图|
+
+
+
+查看全部评分
+
+
+
+
+       
