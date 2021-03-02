@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 15:37** 
+> ## **本文件最后更新于2021-03-02 08:40** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_kZJbD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_aiass" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_wqf1j" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_kU323" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_xyy4K" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_YN116" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_E7T0M" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_AmCfV" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23208,4 +23208,660 @@ emmm看上去是卡页了，只卡了一层。
 
 
 
-         
+
+
+-----
+
+####  rzrbtk  
+##### 32703#       发表于 2021-3-1 23:45
+
+
+
+
+画师是金蛋爹，画了江花封面的热情江良粉丝，应该是自己找的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32704#       发表于 2021-3-1 23:56
+
+
+
+
+你虹任何一件丑衣服的出现彩虹运营都是无辜的
+
+
+在高度自由的条件下决定衣服美丑的主要因素是<strong>liver的个人审美</strong>和画师的心
+
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 32705#       发表于 2021-3-2 00:09
+
+
+
+
+🇰🇷🦊
+
+<img src="https://img.saraba1st.com/forum/202103/02/000710f2pdh7o33da9o293.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvYlo3MVIAcUl5r.jpg</strong> (368.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 00:07 上传
+
+
+
+
+
+[https://twitter.com/_talestalker/status/1366321097415663617](https://twitter.com/_talestalker/status/1366321097415663617)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32706#       发表于 2021-3-2 00:55
+
+
+
+
+其实凪白还画了一个tw🦊，声音很有台妹味
+[https://www.youtube.com/channel/UCb_9R8SZy_HSJi53zxVh7kg](https://www.youtube.com/channel/UCb_9R8SZy_HSJi53zxVh7kg)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32707#       发表于 2021-3-2 01:23
+
+
+
+
+灰色的狐狸……
+感觉和国V差距不大嘛（）
+据我有限的国V阅历，有点像miki
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 32708#       发表于 2021-3-2 01:30
+
+
+
+
+关于认为猴王新皮脑袋是p的那件事
+
+<img src="https://img.saraba1st.com/forum/202103/02/013039e0xfh3p1x0mm333p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-1227c4d53e13c24c.jpg</strong> (229.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 01:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32709#       发表于 2021-3-2 10:00
+
+
+
+
+听完夜见两天的fes杂谈过后的感想就是你虹这次fes是真的按照全线下的方式来做的，不管是免费场还是付费场3d还是2d，所有人都是来现场播的节目，说实话这种机会真的太难得了，不管是对于粉丝还是liver，能让几十个liver线下聚到一起的机会可能一年也就这一次了，听完夜见讲的感觉完全就是修学旅行的氛围是真的蛮舒服的，这次砍了很多节目导致还有很多人没能来确实太可惜了，虽然在2000等人的眼里这就是大型yin pa了不过一年就这一次这样的机会yin pa就yin pa吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32710#       发表于 2021-3-2 10:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 哪个学校的修学旅行这么过分啊，
+
+
+把尖子班、关系户带去关岛旅游，
+
+
+然后把差生留在学校里，每天按时上课，是不是对差生有点过分了啊
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32711#       发表于 2021-3-2 10:20
+
+
+
+
+草，贷款替2k黑屁yin pa就没必要了。
+
+这种大型活动的机会失去一次可能就永远没了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32712#       发表于 2021-3-2 10:21
+
+
+
+
+yinpa好啊，<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+我现在比较担心黑黑第二套3d用偶像服，那是真的不行
+这样下去黑黑还不如cn黑黑了
+连010都3套3d了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32713#       发表于 2021-3-2 10:26
+
+
+
+<blockquote>qq845629713 发表于 2021-3-2 10:14
+哪个学校的修学旅行这么过分啊，
+
+
+把尖子班、关系户带去关岛旅游，
+</blockquote>
+你自己看看原来的节目表，基本上算是全社出动了吧，连五绝都有节目的，连维啊那边都说的要去线下的，现在阉割版的你说是底边不配参加确实没问题，但按正常的计划就是全社线下的节奏
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 32714#       发表于 2021-3-2 10:31
+
+
+
+
+我看mmd偶像服king的挺好看的 叶的丑了点 但你虹欠着一堆3d 按30w线也是先2姐 3姐先出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32715#       发表于 2021-3-2 10:34
+
+
+
+
+听了兔头fes唱的凉宫op，百分百是真唱跳，没修音，很偶像<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32716#       发表于 2021-3-2 10:46
+
+
+
+
+宝石社官方投的视频下面怎么那味那么浓厚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32717#       发表于 2021-3-2 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50483762&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-3-2 10:26</a>
+
+你自己看看原来的节目表，基本上算是全社出动了吧，连五绝都有节目的，连维啊那边都说的要去线下的，现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer"> 按照正常的时间线考虑，东京组被影响到开不了得时候，我们姑且相信nichikara开始筹备三周年fes，
+
+
+这么大的外部因素影响下，fes还是按照“全社”大联欢准备是不是有点欠考虑了，
+
+
+计划好的修学旅行，大家一起去关岛，然后因为外部因素，只有一部分人去成了，其他人还是被留下了，
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|也确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 32718#       发表于 2021-3-2 10:49
+
+
+
+ 本帖最后由 耻照 于 2021-3-2 11:05 编辑 
+
+又想着气泥哥呗，虽然这种不人气又不去泥巢提前备案的泥哥一般都不稀得看👋
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上回他们气泥哥可是光速破防缴械上瘾蚂蚁爬把自己都搭进去了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32719#       发表于 2021-3-2 10:52
+
+
+
+
+别尬黑，日本人还想开奥运会呢
+开个fes怎么了
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 32720#       发表于 2021-3-2 11:14
+
+
+
+
+宝石社太惨了，一脸懵逼卷入v吧nga这两帮小屁孩的论坛大战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 32721#       发表于 2021-3-2 12:02
+
+
+
+ 本帖最后由 耻照 于 2021-3-2 12:10 编辑 
+
+底下评论基本全是8蛆嗯钓，都说了泥哥不稀得看的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没关系，最后肯定还是8蛆几分钟投降，直播间满屏抽语刷起，8蛆看烦了再搞一次内斗切割宝畜
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 32722#       发表于 2021-3-2 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50484333&amp;ptid=1969498" target="_blank">Aminor 发表于 2021-03-02 11:14:24</a>
+宝石社太惨了，一脸懵逼卷入v吧nga这两帮小屁孩的论坛大战</blockquote>未必是坏事，说不定能吸一波黑流量，不至于上来就爆死
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32723#       发表于 2021-3-2 12:13
+
+
+
+
+虽然是副产品 但是客观来说8u这不就看到好技术了，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 32724#       发表于 2021-3-2 12:21
+
+
+
+
+有一说一，爱好是很难改变，NGA终究是喜欢低技术的人，v8终究是喜欢高技术的人，最终大概也是只有大量v8去看（如果他们真搞3D直播的话）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审|-1|雪皇，请再次指导他们|
+| Map-2| + 1|雪皇，请再次指导我们🙇🏻‍♂️.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32725#       发表于 2021-3-2 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">资本入场警告，万恶资本投资的高技术企划是入不得nga正统v的。
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32726#       发表于 2021-3-2 13:00
+
+
+
+
+真尼哥哪看企业势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32727#       发表于 2021-3-2 13:06
+
+
+
+
+喜欢真情流露的yhm又有什么错，喜欢讨论今天做了什么梦，吃了什么，在哪吃的，会哭，会笑，
+
+这样才是真正的人，
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32728#       发表于 2021-3-2 13:44
+
+
+
+
+那还是不要真情流露的好，狂小贝真情流露了一下就被赶出b站了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 32729#       发表于 2021-3-2 13:57
+
+
+
+ 本帖最后由 huanshen 于 2021-3-2 14:08 编辑 
+
+u1s1，美波七海这种主打亲尼哥牌的企业势尼哥还是会看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+谁叫尼哥和新时代观众要扶的P家和CCLL有一大堆种种原因从企业离开的，不打出企业势原罪论怎能把P家和CCLL捧上去
+
+
+syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+企业势原罪论又将有新的例子了吧
+
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 32730#       发表于 2021-3-2 14:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏也是企业势，泥哥该批判不还是要批判
+
+
+大人气日v&gt;没人气但经泥窝备案、政审的日v&gt;经泥窝备案、政审的国v
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32731#       发表于 2021-3-2 14:46
+
+
+
+
+美好的半天从V综认知尼哥结束
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32732#       发表于 2021-3-2 16:09
+
+
+
+
+一分钟完售的四格漫画补货了，挺好
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32733#       发表于 2021-3-2 16:10
+
+
+
+[https://www.bilibili.com/video/BV1mU4y1H7Cg](https://www.bilibili.com/video/BV1mU4y1H7Cg)
+
+[宝石社]GEMS COMPANY成员介绍
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32734#       发表于 2021-3-2 16:21
+
+
+
+
+不知道mmr看到这么多（已毕业）是什么感想<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
