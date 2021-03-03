@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 16:51** 
+> ## **本文件最后更新于2021-03-03 09:39** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_s89xu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_n4nhx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_ozS1l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_RGeU2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_z4SkG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_EO2j1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Mj9Hh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_DRain" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_t6tVs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_qNqMz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_lm7ZV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_iZd8J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -24487,4 +24487,655 @@ https://www.youtube.com/watch?v=Jn_lcTxFZoA&amp;feature=emb_logo
 
 
 
-       
+
+
+-----
+
+####  lhawp  
+##### 32765#       发表于 2021-3-3 01:42
+
+
+
+
+だから僕は音楽をやめた／森中花咲(cover)
+[https://www.youtube.com/watch?v=cp-tFxATq68](https://www.youtube.com/watch?v=cp-tFxATq68)
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32766#       发表于 2021-3-3 09:04
+
+
+
+
+https://panora.tokyo/archives/21561
+匿名クラブ、現役VTuberが手掛ける専門誌「ぶいちゅ～ぶ！」を創刊　掲載ライバーを4月20日まで募集 
+
+<img src="https://img.saraba1st.com/forum/202103/03/090433l4wg7r23hsvpatck.jpg" referrerpolicy="no-referrer">
+
+
+<strong>491ab5e1247b42d.jpg</strong> (62.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 09:04 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32767#       发表于 2021-3-3 09:10
+
+
+
+
+突然得知，轰京子的外星人3D的扮演者是那个搅了两小时纳豆的野良猫经纪人，再搞这种怪东西下个月怕不是要辞职了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32768#       发表于 2021-3-3 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490569&amp;ptid=1969498" target="_blank">kk89897 发表于 2021-3-2 21:46</a>
+
+维阿算不算虹</blockquote>
+大师的面子还是要蹭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 32769#       发表于 2021-3-3 10:21
+
+
+
+<img src="https://p.sda1.dev/1/51c4851df234b946d999b08bee7dba78/IMG_CMP_127776078.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 32770#       发表于 2021-3-3 10:55
+
+
+
+
+黑黑登顶的日子不远了。不破应该会上位成男三
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32771#       发表于 2021-3-3 11:04
+
+
+
+
+这几天看到久槛夜出现的比较多，去听了听，声音不错阿~可爱
+
+才发现是react的……打枪又强，还是泰国人……
+
+嘶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 32772#       发表于 2021-3-3 11:38
+
+
+
+
+露露这谜语人推特看着有点吃不消
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32773#       发表于 2021-3-3 11:46
+
+
+
+
+露露这推我第一反应就是跟运营有矛盾
+半年到了
+跟月之一起退吧
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 32774#       发表于 2021-3-3 11:56
+
+
+
+
+原来岁子哥不是维阿啊，真维阿的狼宝也不算虹人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+露露年纪本来就不小了，有点想法很正常
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32775#       发表于 2021-3-3 12:01
+
+
+
+ 本帖最后由 十四洲 于 2021-3-3 12:04 编辑 
+
+狼宝猎杀论外一开始就写着，不要看话看半句就急着反驳啊
+
+syl，久槛夜唱歌也不错的
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32776#       发表于 2021-3-3 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50495440&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-3-3 12:01</a>
+
+狼宝猎杀论外一开始就写着，不要看话看半句就急着反驳啊
+
+
+syl，久槛夜唱歌也不错的</blockquote>
+感觉有些日语歌有点生过头了，是因为是泰国人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32777#       发表于 2021-3-3 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你葵和露露商量一起退出ichikara，自立山头当大王，结果你葵被田角招安当了“宋江”
+
+
+那就怪不得露皇气炸停播了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32778#       发表于 2021-3-3 12:17
+
+
+
+[https://twitter.com/TAMU_USAGI/status/1366945648340135943](https://twitter.com/TAMU_USAGI/status/1366945648340135943)
+
+平田不是……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/03/121716r3w3dd82ww36w4s2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (523.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 12:17 上传
+
+
+
+
+<blockquote>VTuberオリジナル楽曲ノンストップMIX-CD第2弾「VirtuaREAL MIX.02 mixed by DJ TAMU」が3月28日に発売！
+
+
+総勢38組VTuber参加&amp;リリース記念イベント開催！
+
+
+前作から約1年、待望のMIX-CD第2弾を作りました。
+
+参加頂いたVTuberの方々から沢山コメントも頂きました！</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32779#       发表于 2021-3-3 12:45
+
+
+
+
+你虹快半年没隐退人了确实挺反常的，出云霞是多久走的？
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32780#       发表于 2021-3-3 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50496026&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-3-3 12:45</a>
+
+你虹快半年没隐退人了确实挺反常的，出云霞是多久走的？</blockquote>
+去年10月底
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32781#       发表于 2021-3-3 13:18
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-3 13:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50496026&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-3-3 12:45</a>
+
+你虹快半年没隐退人了确实挺反常的，出云霞是多久走的？</blockquote>
+山神昨天刚发了推
+ちょっとだけおしらせ！
+
+今日からすこしだけ配信おやすみします！山籠りして修行頑張ってくる…！！
+次配信するときに、ちょっと今までと違う山神で会えるように、色々見つめ直してきちゃお！の前向きなおやすみなのでよろしくお願いします！
+修行して己の中身を磨いてくる〜～！！
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 32782#       发表于 2021-3-3 13:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/131752nau3ror32io00ha9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1-15110G12051.jpg</strong> (5.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 13:17 上传
+
+
+
+
+
+
+
+
+
+
+不省一楼，
+
+这条居然没人转发么，那我来吧。
+ <blockquote>花谱2nd ONE-MAN LIVE「不可解弐Q2」将在bilibili免费播出！请大家一定要来观看！
+
+
+2021年3月13日（周六）
+
+开场 18:00 / 开演 18:15（预定）
+
+※日本时间为19:00/19:15
+
+※在bilibili免费播出
+
+※不留档
+
+
+#花谱# #神椿工作室#</blockquote>
+[https://live.bilibili.com/22030718](https://live.bilibili.com/22030718)
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/131819q110gbllxghbn44y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1614748694388.jpg</strong> (133.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 13:18 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 32783#       发表于 2021-3-3 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491639&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-2 23:40</a>
+
+还记得黛灰姐贵之前痛诉黛灰没物料，结果现在fes也上了，有巨潮的赛博谷，亲妈还画了美丽图，
+
+
+好羡慕惹[f: ...</blockquote>
+没事，咱们有妈谷，挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32784#       发表于 2021-3-3 14:47
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-3-3 15:08 编辑 
+
+来点前夜祭感想
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/144748kxqwt1jzvtv4v4t1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (90.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 14:47 上传
+
+
+
+
+
+看这个舞台我是懂holo傻在哪了
+
+弄个那么宽的屏逼人家看侧面视角
+
+屏还不高舞台景深没有
+
+活该被说壁画
+
+你们这个开场mc冷场是不是有点多阿……没台本吗？六个人上来mc确实比较难安排好像？
+
+<img src="https://img.saraba1st.com/forum/202103/03/150227ho7ce8fxxgcqc8as.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (52.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 15:02 上传
+
+
+
+
+
+
+网络特供ar视角，好嘛这点也有诚意多了，早早改线上的cover咋就没想到呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/03/150727dxvb74tjgccrj5e0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (35.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 15:07 上传
+
+
+
+
+
+
+哦哦哦，能跑到侧面屏幕上阿，这屏幕利用和效果，牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32785#       发表于 2021-3-3 15:21
+
+
+
+
+积极进取和混吃等死的区别。
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32786#       发表于 2021-3-3 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50496456&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-3 13:18</a>
+
+山神昨天刚发了推
+
+ちょっとだけおしらせ！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">差点以为山神隐退
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 32787#       发表于 2021-3-3 15:24
+
+
+
+
+杏fes2nd到bloom,也是有进步的，别尬黑
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32788#       发表于 2021-3-3 15:49
+
+
+
+
+你杏做成这个烂样又不影响粉丝自我感动高潮一波接一波的打钱
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32789#       发表于 2021-3-3 15:54
+
+
+
+
+可愛さ溢れててすごかった！！！！全部オリジナル曲って改めてすごくね！？めちゃ可愛かったまつりちゃん素敵な世界を見せてくれてありがとう………………………🌸
+ #花咲くホロライブ
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32790#       发表于 2021-3-3 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 顶多除了空友 正常又没人是为了live打钱  
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 32791#       发表于 2021-3-3 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498996&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-3 16:38</a>
+顶多除了空友 正常又没人是为了live打钱</blockquote>
+不还有免费吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iLLuMina  
+##### 32792#       发表于 2021-3-3 17:26
+
+
+
+
+都巴不得虹v隐退是吧
+
+
+
+
+
+      

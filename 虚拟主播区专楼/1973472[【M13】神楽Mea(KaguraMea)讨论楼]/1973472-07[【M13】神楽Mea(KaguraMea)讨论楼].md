@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 15:34** 
+> ## **本文件最后更新于2021-03-03 09:40** 
 
 
 
@@ -16129,4 +16129,442 @@ saya:我选mea,因为她个子高骨架大又贫乳
 
 
 
-                   
+
+
+-----
+
+####  rosevalley46  
+##### 9914#       发表于 2021-3-3 09:30
+
+
+
+
+同好会转了下昨天直播的文字版简述,没看的可以去看下<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9915#       发表于 2021-3-3 10:34
+
+
+
+
+希望今天除了生日会还有一播
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9916#       发表于 2021-3-3 10:48
+
+
+
+
+当你觉得她会播的时候，她必不播<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+除非是凌晨tc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 9917#       发表于 2021-3-3 11:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9918#       发表于 2021-3-3 11:49
+
+
+
+
+昨天联动太有意思了以至于想复盘<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+就是突然想看v骚，也不知道为啥没了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9919#       发表于 2021-3-3 15:17
+
+
+
+
+黄兔子上次V骚是啥时候
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9920#       发表于 2021-3-3 15:32
+
+
+
+
+怅然若失
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9921#       发表于 2021-3-3 15:49
+
+
+
+
+v骚三个前还是两个月前有一个，她本人一年没参加了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9922#       发表于 2021-3-3 15:50
+
+
+
+
+我这辈子能看到你麻玩马娘吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9923#       发表于 2021-3-3 15:51
+
+
+
+
+你可以出钱让她玩
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9924#       发表于 2021-3-3 15:52
+
+
+
+
+怎么出钱让她玩....
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9925#       发表于 2021-3-3 15:53
+
+
+
+
+虽然每次手游直播的时候都在复读好可爱，发情
+
+但是我觉得她应该对这些个二次元手游真没啥兴趣
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9926#       发表于 2021-3-3 16:06
+
+
+
+ 本帖最后由 路人庚 于 2021-3-3 16:09 编辑 
+
+pichipichi的美少女会对死宅萌豚game有兴趣才更奇怪8？
+
+虽然pichipichi和美少女都是自称
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9927#       发表于 2021-3-3 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">要品鉴男人
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9928#       发表于 2021-3-3 16:20
+
+
+
+
+手游萌豚滚出克啊，怎么又是全世界都在玩系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9929#       发表于 2021-3-3 16:39
+
+
+
+
+被限定商法吃的死死的傻女人
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9930#       发表于 2021-3-3 17:03
+
+
+
+
+所以黄兔子今晚那个连麦有机会抓肥婆打点什么新游戏不，狗屎桃铁没了也行就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 9931#       发表于 2021-3-3 17:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真巧，竟然只有一票。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9932#       发表于 2021-3-3 17:08
+
+
+
+
+为什么投东京22点之后开播的这么多？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9933#       发表于 2021-3-3 17:09
+
+
+
+
+不是惯例嘛<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9934#       发表于 2021-3-3 17:11
+
+
+
+
+你咩有一票否决权 投个锤子
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 9935#       发表于 2021-3-3 17:14
+
+
+
+
+不是今晚要连麦吗，还是说同时进行也无妨的话那我希望7点开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 9936#       发表于 2021-3-3 17:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能挑时间的话大概今晚不是歌回？
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9937#       发表于 2021-3-3 17:20
+
+
+
+
+对哦要连麦…一定是这人忘了这事才出这投票<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9938#       发表于 2021-3-3 17:20
+
+
+
+
+姐姐 咱打打游戏吧 单纯唠唠嗑也成啊
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9939#       发表于 2021-3-3 17:22
+
+
+
+
+歌回不就是唠嗑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真要嗑早开tc了
+
+
+
+
+
+                  

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 07:34** 
+> ## **本文件最后更新于2021-03-03 09:35** 
 
 
 
@@ -17650,4 +17650,608 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 
 
 
-                    
+
+
+-----
+
+####  Cray  
+##### 2373#       发表于 2021-3-2 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50484746&amp;ptid=1915171" target="_blank">狂风DKC 发表于 2021-3-2 11:48</a>
+
+话说你们mk2都用的啥手机壳/套，我买得是青山绿所有想要一个背面透光率高些的套子，结果买了两个商 ...</blockquote>
+可以买香蕉壳 当然价格感人
+
+
+
+
+
+
+
+-----
+
+####  flymop  
+##### 2374#       发表于 2021-3-2 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486807&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 15:14</a>
+
+更新完长按电源键还是黑屏，技术的索尼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">sony传统艺能，正版手机的标志
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2375#       发表于 2021-3-2 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482567&amp;ptid=1915171" target="_blank">猫空 发表于 2021-3-2 08:31</a>
+
+我国行5ii play里显示支持龙约
+
+
+—— 来自 Sony XQ-AS72, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/02/154926cupup3cj5nuvveie.png" referrerpolicy="no-referrer">
+
+
+<strong>0210302154843.png</strong> (12.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 15:49 上传
+
+
+
+
+
+
+
+难道是日区有毒？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2376#       发表于 2021-3-2 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50487236&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-2 15:50</a>
+
+难道是日区有毒？</blockquote>
+<img src="http://ww1.sinaimg.cn/mw690/0071IHsAly1go5nleoycmj30a40b2t94.jpg" referrerpolicy="no-referrer">
+
+我也是日区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2002126  
+##### 2377#       发表于 2021-3-2 16:51
+
+
+
+<blockquote>我很费纸 发表于 2021-3-2 15:22
+充会儿电看亮不亮呼吸灯。一直不亮就拔了电源，长按电源+音量上，用强制重启试试
+
+
+—— 来自 Sony XQ-AS7 ...</blockquote>
+我说的是长按电源键弹出的菜单
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2378#       发表于 2021-3-2 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50487962&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 16:51</a>
+
+我说的是长按电源键弹出的菜单</blockquote>
+那就没事了，继续吊翔移工程师路灯就完事了
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2379#       发表于 2021-3-2 17:14
+
+
+
+<blockquote>引用第2375楼猫空于2021-03-02 16:45发表的  :
+
+引用:Cray 发表于 2021-3-2 15:50难道是日区有毒？我也是日区</blockquote>
+这是什么缘故 ？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2380#       发表于 2021-3-2 17:18
+
+
+
+<blockquote>引用第2377楼我很费纸于2021-03-02 16:56发表的  :
+
+引用:2002126 发表于 2021-3-2 16:51我说的是长按电源键弹出的菜单那就没事了，继......</blockquote>
+安卓11那个界面就是黑的啊，顶部按钮 其他黑 黑的那些是显示智能设备的
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  zxc786  
+##### 2381#       发表于 2021-3-2 19:20
+
+
+
+
+为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 2382#       发表于 2021-3-2 19:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/02/192528yl8scyrdbz0wc1c5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210302192517.png</strong> (32.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 19:25 上传
+
+
+
+
+
+
+看你们在那说，我也去看了看。。。我那个华为老手机上明明是下载玩过的
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2383#       发表于 2021-3-2 19:33
+
+
+
+<blockquote>引用第2380楼zxc786于2021-03-02 19:20发表的  :
+
+为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…</blockquote>
+你开省电模式了吧   那个STAmina
+
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  zxc786  
+##### 2384#       发表于 2021-3-2 19:38
+
+
+
+ 本帖最后由 zxc786 于 2021-3-2 19:43 编辑 
+<blockquote>Cray 发表于 2021-3-2 19:33
+你开省电模式了吧   那个STAmina
+
+
+</blockquote>
+没有开，低电量模式开stamina，和普通状态没啥区别。
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2385#       发表于 2021-3-2 19:52
+
+
+
+
+害，连我车上蓝牙的间歇断连还是没修
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2386#       发表于 2021-3-3 09:24
+
+
+
+<blockquote>zxc786 发表于 2021-3-2 19:20
+为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…</blockquote>
+是从安装了什么 App 之后开始的吗
+
+手机上装了多少程序，有多少每天会频繁弹通知
+
+试试把所有程序都加入节电优能？
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2387#       发表于 2021-3-3 09:26
+
+
+
+<blockquote>黑之月 发表于 2021-3-2 19:52
+害，连我车上蓝牙的间歇断连还是没修
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+有试过和车重新匹配吗？
+
+我倒是从来没有间歇断连过，但在升级前就一直是如果一段时间没连汽车，启动汽车后就不会自动连接并播放音乐，必须打开屏幕进入音乐 App 才行。就好像蓝牙功能被休眠了要手动启动
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2388#       发表于 2021-3-3 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50493341&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-3 09:26</a>
+有试过和车重新匹配吗？
+
+我倒是从来没有间歇断连过，但在升级前就一直是如果一段时间没连汽车，启动汽车 ...</blockquote>
+这倒没试过，因为播放和连接都还正常。就是连上后会不停的卡顿，最迷的其实还是卡个几分钟就有几率完全恢复正常，完全摸不着头脑。
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  2002126  
+##### 2389#       发表于 2021-3-3 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50488244&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-2 17:18</a>
+
+安卓11那个界面就是黑的啊，顶部按钮 其他黑 黑的那些是显示智能设备的
+
+
+----发送自 Sony H8296,Android 9 ...</blockquote>
+- -没有智能设备的路过
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2390#       发表于 2021-3-3 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486807&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 15:14</a>
+
+更新完长按电源键还是黑屏，技术的索尼</blockquote>
+不知道你说的黑屏是什么意思。
+
+我的5M2没见过这问题。
+
+<img src="https://img.saraba1st.com/forum/202103/03/110206kfm4y1ytz4ieuemf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>114715635738920655.jpg</strong> (314.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 11:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2002126  
+##### 2391#       发表于 2021-3-3 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494543&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-3-3 11:02</a>
+
+不知道你说的黑屏是什么意思。
+
+我的5M2没见过这问题。</blockquote>
+就是安卓11的设备控制器，用来控制智能家居这种
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2392#       发表于 2021-3-3 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494559&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-3 11:03</a>
+
+就是安卓11的设备控制器，用来控制智能家居这种</blockquote>
+这个不就是长按电源键的菜单吗？我家没有智能家居，没法直观感受你的问题。
+
+
+
+
+
+
+
+-----
+
+####  2002126  
+##### 2393#       发表于 2021-3-3 11:07
+
+
+
+<blockquote>无印凉粉 发表于 2021-3-3 11:05
+这个不就是长按电源键的菜单吗？我家没有智能家居，没法直观感受你的问题。 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/03/110729x5ydyotc5tqnnob1.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210303-110656.png</strong> (15.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-3 11:07 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2394#       发表于 2021-3-3 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494618&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-3 11:07</a></blockquote>
+不好意思我还真是第一次见这样的关机界面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 2395#       发表于 2021-3-3 11:29
+
+
+
+
+想起来去外网搜了下“android 11 bluetooth keeps stopping” 这问题的人还挺多了。按一些帖子里提到的清掉了蓝牙应用的缓存和用户数据，晚上回家再试试
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2396#       发表于 2021-3-3 12:05
+
+
+
+<blockquote>无印凉粉 发表于 2021-3-3 11:16
+不好意思我还真是第一次见这样的关机界面</blockquote>
+如果连接了 Google Home 的话这里会显示各类智能家居的开关。国内看有没有人适配吧，我看悬
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2397#       发表于 2021-3-3 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494736&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-3-3 11:16</a>
+
+不好意思我还真是第一次见这样的关机界面</blockquote>
+这可是原生安卓11的醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2398#       发表于 2021-3-3 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50489428&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-3-2 19:27</a>
+看你们在那说，我也去看了看。。。我那个华为老手机上明明是下载玩过的 ...</blockquote>
+看来马克兔也不行啊，。那就是任地狱故意的了。<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  初蘅  
+##### 2399#       发表于 2021-3-3 16:59
+
+
+
+
+美版也终于推送安卓11了<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">看了楼里决定先不更
+
+— from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  他言無用  
+##### 2400#       发表于 2021-3-3 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50489365&amp;ptid=1915171" target="_blank">zxc786 发表于 2021-3-2 19:20</a>
+
+为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…</blockquote>
+是长时间没有关机吗？之前我一个半月没关机之后某天连后台都拉不出来了，关机再开机就好了。希望对你有帮助<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞翔的兔子  
+##### 2401#       发表于 2021-3-3 17:22
+
+
+
+
+新的更新，终于解决了手势的问题了～～～<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
