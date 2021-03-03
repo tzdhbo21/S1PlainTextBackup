@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-03 17:06** 
+> ## **本文件最后更新于2021-03-03 17:50** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_ylee9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_NQneJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_Pqy2h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_D55Xn" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_rIsqY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_OaguA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_af6UZ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_W082H" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_AXYiw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_mC1DY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_JpPED" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_MI444" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -26095,9 +26095,9 @@ ema不也是急流勇退，gbr后期摸得和谢拉一样勤快，退也很正�
 
 
 
- 本帖最后由 CielChloe 于 2021-3-4 00:12 编辑 
+ 本帖最后由 CielChloe 于 2021-3-4 01:34 编辑 
 
-如果petit fleur要继续下去，想到一种办法是从主播毕业，但虚拟偶像继续当，虹还是能从中受益，不然真乱套了
+如果仅从主播毕业，虚拟偶像继续当，ichikara仍类似事务所享有权益，petit fleur或许还能继续下去，不然真乱套了。
 
 
 但说实话pf也没多火，两边都毕业才更合理吧
@@ -26816,4 +26816,419 @@ gbr没了素人主播的养成感，还有多少人会去看
 
 
 
-    
+
+
+-----
+
+####  IDIDIDID  
+##### 32880#       发表于 2021-3-4 01:09
+
+
+
+
+一天没看管这都是啥玩意啊我操……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+萌木你不得好死（
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32881#       发表于 2021-3-4 01:12
+
+
+
+
+别尬黑，萌木给猴子的衣服不比金蛋的正常多了？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32882#       发表于 2021-3-4 01:13
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-4 01:16 编辑 
+
+你虹总共才几个50W+的，还是最能打钱的一个虹女，田角快点连夜跪在人家门口吧。
+
+SYL：
+
+所以这事kaza知道吗？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32883#       发表于 2021-3-4 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 田角：“不影响到我家男v，你愿意怎么样就怎么样吧！”
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 32884#       发表于 2021-3-4 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真要跪早就跪了，现在大局已定
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32885#       发表于 2021-3-4 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503821&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-4 00:54</a>
+突然想到，这么一通乱说不会传到最后变成郡道80gbr导致其毕业吧，
+这两好歹是扭曲仙境和迪斯尼好伙 ...</blockquote>
+怎么都发散到这个了
+
+你累了，先休息一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32886#       发表于 2021-3-4 01:18
+
+
+
+
+所以露皇休止原因说清楚了没有？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32887#       发表于 2021-3-4 01:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 没有，之前楼友提过你葵回老家的时候和露皇商量过什么事，
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32888#       发表于 2021-3-4 01:21
+
+
+
+ 本帖最后由 winda 于 2021-3-4 01:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">江皇被特定那事后估计就和ickr对不上眼了，今年复出想冲冲数据发现自己过气后就彻底不想干了。
+syl露皇还发了个生存报告+继续休止，平成统合组到签约窗口期事情都来了啊
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 32889#       发表于 2021-3-4 01:22
+
+
+
+
+翻了几页想起以前本菜打滚，在？出来发表两句感想？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32890#       发表于 2021-3-4 01:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 萌木，是你吗？你就是毁灭彩虹的那一片落叶吗？
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32891#       发表于 2021-3-4 01:23
+
+
+
+
+露记得是油管直播间开不出来吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32892#       发表于 2021-3-4 01:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你虹的阴间操作我就直说了吧，从去年天选棒球组19w开始，到机台笹木、社成为主持，再到fes，
+
+
+lize-lulu电台牵扯了俩人多少精力，又有什么回报？
+
+
+江花更是直接变成吸金工具人，
+
+
+而真正冲订阅、数据的节目呢？给了谁？
+
+
+棒球六人到机台主持、再到新年特番，这些人才是得到了资源大头倾斜的，
+
+
+这种状况下，既得利益者不愿意走，那走的人自然不用我说了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32893#       发表于 2021-3-4 01:28
+
+
+
+
+2000过年了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32894#       发表于 2021-3-4 01:28
+
+
+
+
+差不多得了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32895#       发表于 2021-3-4 01:30
+
+
+
+
+我特想知道如果2000坐在田角哥哥的位置上要怎么操作......
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32896#       发表于 2021-3-4 01:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">能为社和笹木专门开一栏热门3D节目，难道就不能为露露、江皇开一栏么？其他人呢？
+
+
+又不是所有人都像养老主播那样无所谓，想有所建树、想实现什么的人，先天就被其他人占据了位置，
+
+
+机台这节目，难道是因为先有的节目才选的人么？
+
+
+难道不是有想捧红的人，才有了这个节目的吗？
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 32897#       发表于 2021-3-4 01:31
+
+
+
+
+很难想象这个激昂文字的2000是那个不认识未来人的2000<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 32898#       发表于 2021-3-4 01:31
+
+
+
+
+2000 cbddl<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  咬合秒针  
+##### 32899#       发表于 2021-3-4 01:35
+
+
+
+
+麻了 江良算是真正把我带进这圈子的人，这下可寄了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32900#       发表于 2021-3-4 01:45
+
+
+
+
+总觉得V也该退潮了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32901#       发表于 2021-3-4 01:48
+
+
+
+
+0000当年很早就一脸干不下去的样子所以宣布隐退的时候其实也就还好，**这个真的震到我了。
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 32902#       发表于 2021-3-4 01:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虹有半年没抽过卡了吧？还折一名大将。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32903#       发表于 2021-3-4 01:49
+
+
+
+
+给19江开个节目行，给20江真不行。
+
+
+
+
+
+   
