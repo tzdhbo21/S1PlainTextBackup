@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-03 09:39** 
+> ## **本文件最后更新于2021-03-03 17:06** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_n4nhx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_ylee9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_EO2j1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_Mj9Hh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_DRain" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_Pqy2h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_D55Xn" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_rIsqY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_qNqMz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_AXYiw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_iZd8J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_JpPED" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -25138,4 +25138,1682 @@ syl，久槛夜唱歌也不错的</blockquote>
 
 
 
-      
+
+
+-----
+
+####  空集  
+##### 32793#       发表于 2021-3-3 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50499171&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2021-3-3 16:50</a>
+不还有免费吗？</blockquote>
+那不就是空友么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32794#       发表于 2021-3-3 18:14
+
+
+
+
+烂货圆脸今天新衣服，怎么还开了油管会员的，直播间这一排排加入会员的
+
+就这种烂货，有多少会员穿什么衣服也是一个圆脸烂货
+
+圆脸烂货
+
+圆脸烂货
+
+圆脸烂货
+
+[https://www.youtube.com/watch?v=f6ZtHsHHTvA](https://www.youtube.com/watch?v=f6ZtHsHHTvA)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 32795#       发表于 2021-3-3 18:39
+
+
+
+
+知道了，天天都得提一次，会去看的。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32796#       发表于 2021-3-3 18:47
+
+
+
+
+lize和inui新翻唱紫曲顶爆，曲绘也顶爆<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32797#       发表于 2021-3-3 18:53
+
+
+
+
+已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 32798#       发表于 2021-3-3 19:17
+
+
+
+
+一色佬，我的超人
+<img src="https://p.sda1.dev/1/e2a1184fb9a5af59fecf48c4fe4a3298/63276d9df22059f7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 32799#       发表于 2021-3-3 19:50
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-3-3 20:11 编辑 
+
+e-ma e-ma 是什么来头……为什么找了那么多底边v做工商？
+---
+syl 不会让小免失望的，这就去点个踩
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32800#       发表于 2021-3-3 19:58
+
+
+
+
+免费非常贴心地放了地址，楼友不要让免费失望啊。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32801#       发表于 2021-3-3 20:10
+
+
+
+
+这身倒是比偶像装顺眼一点，以后就穿这个吧，反正也是天天打游戏的烂货
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/201036cpch8mnmysqn9cpr.png" referrerpolicy="no-referrer">
+
+
+<strong>圆脸.png</strong> (65.07 KB, 下载次数: 1)
+
+下载附件
+
+2021-3-3 20:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32802#       发表于 2021-3-3 20:14
+
+
+
+
+免费发大水没有？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32803#       发表于 2021-3-3 20:16
+
+
+
+
+看来免费很满意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32804#       发表于 2021-3-3 20:17
+
+
+
+
+holo的麦怎么还是这么烂，吐了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32805#       发表于 2021-3-3 20:20
+
+
+
+
+问，免费是多久之前吐槽麦烂来着<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32806#       发表于 2021-3-3 20:21
+
+
+
+ 本帖最后由 -rm7- 于 2021-3-3 20:22 编辑 
+
+Holo的麦怎么还是这么烂(可惜了人唱的很好)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32807#       发表于 2021-3-3 20:21
+
+
+
+ 本帖最后由 屑屑代沟尼亚 于 2021-3-3 22:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">圆脸唱歌时小动作好多哦 可爱
+
+syl：
+
+群友们p了这张图给免费
+
+ 高清重置
+
+
+
+
+
+
+QQ图片20210303222734.jpg
+(98.69 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2021-3-3 22:28 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/222831hk0wwl0iwzircyvw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 10战斗力 +11
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zhudhh| + 1||
+| UnhappyTails| + 1||
+| -rm7-| + 1|属实好活|
+| katern| + 1|好活|
+| Porsche| + 1|把文字放下面垫个黑背景吧，上面根本看不清.|
+| 划水的B612| + 1|good job|
+| asdhai| + 2|喷了|
+| alcoholic1000| + 1|爆笑|
+| NBXX| + 1|今日首笑|
+| wiig| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32808#       发表于 2021-3-3 20:21
+
+
+
+
+ktv就是这个音质，很还原<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 32809#       发表于 2021-3-3 20:29
+
+
+
+
+眼镜一出，免费的心都化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32810#       发表于 2021-3-3 20:32
+
+
+
+
+星川参与了hw的官方翻唱专辑？
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 32811#       发表于 2021-3-3 21:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501583&amp;ptid=1969498" target="_blank">FCCHua 发表于 2021-3-3 20:32</a>
+
+星川参与了hw的官方翻唱专辑？</blockquote>
+星川サラ发亮的星Sara Hoshikawa
+
+@Sara_Hoshikawa
+
+|HoneyWorksさんの新アルバムに出させて頂くことになりました！！！！！┗|∵|┓|
+
+大好きな告白実行委員会のキャラ、服部樹里ちゃんの曲です！闪片
+
+
+昔からハニワが**大好きな星川の事を見つけて貰えて、動画まで見て貰えて、声をかけて貰えて、
+
+言葉で言い表せないくらい幸せです。生きてて良かった。
+<img src="https://i.loli.net/2021/03/03/ca5ECvWx9tjyY6U.jpg" referrerpolicy="no-referrer">
+
+下午8:52 · 2021年3月3日·Twitter for Android
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 32812#       发表于 2021-3-3 21:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/211630q4zbgnge9b744loq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>圆脸.jpg</strong> (162.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 21:16 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32813#       发表于 2021-3-3 22:24
+
+
+
+
+距离虹MC夏祭已有半年多，何时才能再有假的完美百合漫画情节降临
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32814#       发表于 2021-3-3 23:41
+
+
+
+
+这什么鬼？！郡噶吃要难受死了
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 32815#       发表于 2021-3-3 23:43
+
+
+
+
+gbr要在出道两周年的时候毕业？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32816#       发表于 2021-3-3 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50496026&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-3-3 12:45</a>
+你虹快半年没隐退人了确实挺反常的，出云霞是多久走的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">然后gbr现在貌似要退了
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32817#       发表于 2021-3-3 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你楼这什么开光嘴
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32818#       发表于 2021-3-3 23:47
+
+
+
+
+服了你楼了
+
+
+
+
+
+
+
+-----
+
+####  qingr0028  
+##### 32819#       发表于 2021-3-3 23:53
+
+
+
+
+你楼这功力可以啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32820#       发表于 2021-3-3 23:55
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-3-3 23:56 编辑 
+
+【非不基德zqsg】
+
+
+如果事情属实，那么一个和天下虹那个夏天绑定的女人，以及一个也算可以定义你juan风口的主播将要（至少目前看）彻底退圈了
+
+
+现下完全没有实感，至今仍然记得她出道去找杏仁玩，还跟小肥妹说有人说她们两个很像。没过多久，猴子就随着几个大火梗乘风成为了上位，然后就是一系列不愉快的事情，如今居然已经要走了
+
+
+不知所言
+
+
+你juan还剩三个月
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32821#       发表于 2021-3-3 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50499674&amp;ptid=1969498" target="_blank">iLLuMina 发表于 2021-3-3 17:26</a>
+
+都巴不得虹v隐退是吧</blockquote>
+...?
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32822#       发表于 2021-3-3 23:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">gbr这待遇和人气完全想不出毕业的理由啊，她毕业之后主流出道的组合会咋样呢。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 32823#       发表于 2021-3-3 23:57
+
+
+
+
+gbr要毕业了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+突然发觉自己看V已经是很久之前了，旧时代的感觉已经来了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+为什么是两周年啊
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 32824#       发表于 2021-3-3 23:57
+
+
+
+
+虹只剩下半年了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 32825#       发表于 2021-3-3 23:59
+
+
+
+
+听说她很久之前在会限说过不想播了?<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32826#       发表于 2021-3-3 23:59
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-4 00:33 编辑 
+
+合同签的两年吧，实际上第二年基本就是在混了
+
+听说带皮跑，环球继续做（已证否）
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32827#       发表于 2021-3-4 00:00
+
+
+
+
+……
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32828#       发表于 2021-3-4 00:02
+
+
+
+
+ema不也是急流勇退，gbr后期摸得和谢拉一样勤快，退也很正常
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32829#       发表于 2021-3-4 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503436&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-3 23:59</a>
+
+合同签的两年吧，实际上第二年基本就是在混了
+
+听说带皮跑，环球继续做（未验证）</blockquote>
+疯了？带皮跑？田角要做慈善？
+
+
+以后是不是有人要都可以带皮跑？彩虹给人当职业中介来了？还真是对德龙话的完美理解啊？
+
+
+带皮跑这口子一开，彩虹的主流不是时刻都可能被人干掉中间商？还干不干了？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32830#       发表于 2021-3-4 00:03
+
+
+
+
+带皮跑太夸张了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32831#       发表于 2021-3-4 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503461&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-3-4 00:03</a>
+
+疯了？带皮跑？田角要做慈善？
+
+
+以后是不是有人要都可以带皮跑？彩虹给人当职业中介来了？还真是对德龙话 ...</blockquote>
+你第一次见吗？
+
+说是虚拟AKB当然要全套啦
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32832#       发表于 2021-3-4 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 带皮跑这种话还有人信？
+
+
+那是不是森中也要带皮一起跑啊
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 32833#       发表于 2021-3-4 00:05
+
+
+
+
+啊……震惊的我睡不着了，本来都打算睡了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32834#       发表于 2021-3-4 00:07
+
+
+
+
+能带皮跑 cncrew卖房子不都得给大亏买出来
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32835#       发表于 2021-3-4 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带皮跑可太离谱了，那欢迎sme，环球，lantis来彩虹菜市场买菜
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 32836#       发表于 2021-3-4 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503491&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-3-4 00:07</a>
+
+能带皮跑 cncrew卖房子不都得给大亏买出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">能跑去哪里？
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 32837#       发表于 2021-3-4 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503491&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-3-4 00:07</a>
+
+能带皮跑 cncrew卖房子不都得给大亏买出来</blockquote>
+怕是凛子小姐自己不愿跑哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没了凛子，还有缇雅不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32838#       发表于 2021-3-4 00:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">作为曾经的楼友 很关心本蔡现在的情况，好像说了视频也得删掉，粉丝早点全扒下来吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32839#       发表于 2021-3-4 00:10
+
+
+
+
+咱也不是王侯，不算了解，看她自己选择吧
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 32840#       发表于 2021-3-4 00:11
+
+
+
+
+美好的一天，从你急三级乙烷开始<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32841#       发表于 2021-3-4 00:11
+
+
+
+ 本帖最后由 CielChloe 于 2021-3-4 00:12 编辑 
+
+如果petit fleur要继续下去，想到一种办法是从主播毕业，但虚拟偶像继续当，虹还是能从中受益，不然真乱套了
+
+
+但说实话pf也没多火，两边都毕业才更合理吧
+
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 32842#       发表于 2021-3-4 00:12
+
+
+
+
+有没有觉得好几个突然隐退的都是刚公布了新衣服不久？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虹的几个，还有hnst的那个
+是什么可怕flag
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32843#       发表于 2021-3-4 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503524&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-3-4 00:10</a>
+作为曾经的楼友 很关心本蔡现在的情况，好像说了视频也得删掉，粉丝早点全扒下来吧。
+
+—— 来自 Xi ...</blockquote>
+我也很想知道本菜现在在干嘛
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32844#       发表于 2021-3-4 00:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 其实也没什么不好理解的，猴子本来就有恐男人设，在你虹阳盛阴衰的大前提下，不和男人玩的女v慢慢被排挤也是很正常的，
+
+
+“在我们彩虹，你要是不和哪个男v有暧昧、有CP、有固定联动，都不好意思出来直播~~~”
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KaboomMirai|-1|好评加鹅|
+| ror|-1||
+| argaregeasr|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32845#       发表于 2021-3-4 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503285&amp;ptid=1969498" target="_blank">UnhappyTails 发表于 2021-3-3 23:41</a>
+这什么鬼？！郡噶吃要难受死了</blockquote>
+你是不是看不起杂食党的大心脏啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，我觉得很好，下一步翻唱孤独兄弟！
+省一楼，如果能搞到psyqui那梅丽莎给你花谱也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32846#       发表于 2021-3-4 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503542&amp;ptid=1969498" target="_blank">Porsche 发表于 2021-3-4 00:12</a>
+有没有觉得好几个突然隐退的都是刚公布了新衣服不久？
+虹的几个，还有hnst的那个
+是什么可怕flag ...</blockquote>
+毕业肯定是早都决定好的 不如说是在引退前把能展示的资源全部展示出来。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32847#       发表于 2021-3-4 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503547&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-4 00:12</a>
+你是不是看不起杂食党的大心脏啊，我觉得很好，下一步翻唱孤独兄弟！
+省一楼，如果能搞到psyqui那 ...</blockquote>
+最后一曲孤独兄弟吗，你成功把我破防了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 32848#       发表于 2021-3-4 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503514&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-4 00:09</a>
+
+怕是凛子小姐自己不愿跑哦
+
+没了凛子，还有缇雅不是</blockquote>
+你真的懂阿夸？
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/001415ik9whlmlzlhhzrbm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210304001357.png</strong> (4.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 00:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 32849#       发表于 2021-3-4 00:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/001524bbageeillzgasveb.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (149.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 00:15 上传
+
+
+
+
+
+
+Kiara桌面宠物
+[下载地址](https://drive.google.com/file/d/1C5nI69fSig84qdKyF5LLG1QGm6LJ9aFV/view)
+[原文链接](https://twitter.com/__akkanen/status/1367049445674610688)
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 32850#       发表于 2021-3-4 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">cover江河日下，虹大量清退，你圈真剩·半年
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32851#       发表于 2021-3-4 00:16
+
+
+
+
+和不和男人玩都没用了，虹女已经全面崩溃了。
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 32852#       发表于 2021-3-4 00:17
+
+
+
+
+gbr没了素人主播的养成感，还有多少人会去看
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 32853#       发表于 2021-3-4 00:18
+
+
+
+
+我还想看她玩有生之年出来的ns节奏天国<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 32854#       发表于 2021-3-4 00:22
+
+
+
+
+基本上还是个人原因，除了粉丝之外的影响大概不会很大。
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 32855#       发表于 2021-3-4 00:24
+
+
+
+
+说带皮跑的也太扯了吧，带皮跑还没有带球跑的可能性大呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32856#       发表于 2021-3-4 00:25
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-4 00:31 编辑 
+
+我是听楼友最关心的那位repo的，结果确实是误repo
+
+
+简简单单毕业，留档一周以后全删
+
+理由下次说
+
+
+杏六期（）
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32857#       发表于 2021-3-4 00:29
+
+
+
+
+太突然了 我就玩了会仁王<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 32858#       发表于 2021-3-4 00:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">gbr好像除了摸没咋事情吧
+突然就要退了？
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32859#       发表于 2021-3-4 00:33
+
+
+
+
+这种时候就会开始担心自己推，谁知道yhm咋想的
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 32860#       发表于 2021-3-4 00:34
+
+
+
+
+哦，突然想起来，所以gbr的家这么看是不是算永远搬不完了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 32861#       发表于 2021-3-4 00:35
+
+
+
+
+上位势摸鱼，除非因为忙别的事，本来就是一种不打算干下去的预兆
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 32862#       发表于 2021-3-4 00:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">早就不想干了吧,不然呢?
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 32863#       发表于 2021-3-4 00:40
+
+
+
+
+虹上位势摸鱼的还不少，半年开始了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32864#       发表于 2021-3-4 00:42
+
+
+
+
+从两国到fes，能做的基本都做过了，半年之期来了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 32865#       发表于 2021-3-4 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503735&amp;ptid=1969498" target="_blank">ygysh0505 发表于 2021-3-4 00:40</a>
+虹上位势摸鱼的还不少，半年开始了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+夏天的几十人同时毕业第二季？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32866#       发表于 2021-3-4 00:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 谁知道呢，我看你虹形势不是小好，而是一片大好啊，男v个个数据无敌，人气爆炸，
+
+
+女v还有各种签约唱片，现在不过是阵痛罢了，
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32867#       发表于 2021-3-4 00:45
+
+
+
+
+两周年毕业好啊，3bk和露的两周年也不远了，你虹头部女v一半要没了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32868#       发表于 2021-3-4 00:46
+
+
+
+
+头部女V除了gamers就是19上五虎
+
+漫长的半年终于到了
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 32869#       发表于 2021-3-4 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">很久没看虹 这事还是有点触动 
+
+—— 来自 HUAWEI JNY-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32870#       发表于 2021-3-4 00:48
+
+
+
+
+会再见之感非常强烈有点悲不起来，毕业潮要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32871#       发表于 2021-3-4 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 只要男v和愿意和男v玩的女v还在就行，反正现在女v也是男v的挂件，
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 32872#       发表于 2021-3-4 00:48
+
+
+
+ 本帖最后由 死体残留 于 2021-3-4 00:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">谷乡比田角唯一精明的地方在于不会去招素人，经验者都会用脑子想想利弊，挂个名两周播一次收会员费下半生都不用愁了，总之还是杏又赢，虹又输
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32873#       发表于 2021-3-4 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹杏其中一家爆炸另一家就只剩半年
+
+加油 半年之期
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32874#       发表于 2021-3-4 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">19年上半年/平成统合组除了3bk抽卡也太地狱了，现在是要为当初乱抽卡还债了。
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 32875#       发表于 2021-3-4 00:53
+
+
+
+
+忍不住发散了，小红帽留得住吗……
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32876#       发表于 2021-3-4 00:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 虽然人决定毕业了这么说很KY，但这和他当初直球养gachi粉不无关系，粉丝恶堕也没办法，
+
+
+就算去了杏，也避不开这些人，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32877#       发表于 2021-3-4 00:54
+
+
+
+
+突然想到，这么一通乱说不会传到最后变成郡道80gbr导致其毕业吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，
+这两好歹是扭曲仙境和迪斯尼好伙伴惹
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 32878#       发表于 2021-3-4 00:55
+
+
+
+
+阿菜如果单纯身体不好应该没啥
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 32879#       发表于 2021-3-4 00:56
+
+
+
+
+阿菜年纪也不小了,而且也摸的厉害
+
+
+
+
+
+    

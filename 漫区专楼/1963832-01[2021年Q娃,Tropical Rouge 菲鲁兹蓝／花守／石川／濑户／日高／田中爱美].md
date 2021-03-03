@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-01 08:43** 
+> ## **本文件最后更新于2021-03-03 17:07** 
 
 
 
@@ -11235,4 +11235,557 @@ op大地丙，够沙雕<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 
-                            
+
+
+-----
+
+####  wind4rap  
+##### 632#       发表于 2021-3-1 17:08
+
+
+
+
+我不管，我喜欢奶Q，主角团全都可爱。
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 633#       发表于 2021-3-1 17:14
+
+
+
+<blockquote>阿姆罗二世 发表于 2021-3-1 15:45
+奶Q太无聊了，剧情淡如水，能追完四十五集真的很累
+
+
+  -- 来自 能手机投票的 Stage1官方 And ...</blockquote>
+越说越伤心，当年追快警很好看香村阿姨。想不到今年如此摸
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 634#       发表于 2021-3-1 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477298&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-3-1 17:14</a>
+越说越伤心，当年追快警很好看香村阿姨。想不到今年如此摸</blockquote>
+快警好看我觉得动作设计跟特效占大头，放光美这边就没那个能力了
+要说改剧本快警应该也改了点，把原本警察的玩具给了快盗跟鲁邦。再加上最后几集才出来的改密码能力，也不知道把原来警察的戏份给了多少到快盗身上
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 635#       发表于 2021-3-1 18:43
+
+
+
+
+今年是一个阴险小人，一个愣头青，一个策划者，一个老好人，还有一个成天健身的？
+是不是从什么工作小组找的角色灵感
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 636#       发表于 2021-3-1 19:07
+
+
+
+
+红要第五集入队
+<img src="http://wx4.sinaimg.cn/mw690/e7cbae74gy1go4fsfnityj216t0grtkc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 637#       发表于 2021-3-1 20:19
+
+
+
+<blockquote>天邪鬼 发表于 2021-3-1 18:18
+快警好看我觉得动作设计跟特效占大头，放光美这边就没那个能力了
+
+要说改剧本快警应该也改了点，把原本警 ...</blockquote>
+快警打动我的更多是因为角色塑造
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 638#       发表于 2021-3-1 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477298&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-3-1 17:14</a>
+
+越说越伤心，当年追快警很好看香村阿姨。想不到今年如此摸</blockquote>
+香村阿姨我个人认为她写角色单元回很不错(兽王者、快警)
+
+但是到了主线，就有点不是很行。
+
+而且快警又有被财团B介入的强烈痕迹，导致观感确实不是那么好，好在角色的好塑造拉回了些许观感。
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 639#       发表于 2021-3-1 20:35
+
+
+
+
+愈q给我的感觉就是大家都很可爱，没了，没有那种多余的情感，习惯让我追着看完
+
+
+
+
+
+
+
+-----
+
+####  csolfans  
+##### 640#       发表于 2021-3-1 21:17
+
+
+
+<blockquote>宅音 发表于 2021-3-1 20:35
+愈q给我的感觉就是大家都很可爱，没了，没有那种多余的情感，习惯让我追着看完 ...</blockquote>
+的确，对于我来说可能很大程度没有她们长大的样子，她们的故事还在继续
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 641#       发表于 2021-3-1 23:31
+
+
+
+
+我说这OP怎么一股90年代的沙雕风，一看stuff表原来是是大丙
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 642#       发表于 2021-3-2 00:00
+
+
+
+
+今年的女人，行！
+
+
+OP沙雕又复古，ED差点意思，最近好看的ED还是治Q的ED1，镜头比较多变，现在这个太规矩了
+
+今年的女人真强啊，变身后竟然没有跳起来一蹦三尺高。。这强度可以跟春春或者会长比了吧？
+
+
+变身后唇膏出来喷出光时我一个激灵：今年要出光剑？！结果没有，变成了普通的法杖
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 643#       发表于 2021-3-2 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470277&amp;ptid=1963832" target="_blank">千叶铁矢 发表于 2021-2-28 22:46</a>
+
+第一集感觉不错，有一些夸张化的段落，效果挺好的，那个椰子树怪有点不适，不知道有没有小友会怕。今年是传 ...</blockquote>
+我觉得是反过来，日本小朋友喜欢化妆，所以东大妈才孜孜不倦地加入化妆要素吸引小友来看
+
+
+
+
+
+
+
+-----
+
+####  ReginaldMorgan  
+##### 644#       发表于 2021-3-2 01:50
+
+
+
+
+这第一集有点好玩的，好几个地方都出乎意料，又有了新的盼头
+
+看了一下星闪看了九集，healin看了十三集，希望今年能让我多看几集甚至说追完。hugtto真的是太强了啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 645#       发表于 2021-3-2 07:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50481223&amp;ptid=1963832" target="_blank">reficul 发表于 2021-3-2 00:03</a>
+
+我觉得是反过来，日本小朋友喜欢化妆，所以东大妈才孜孜不倦地加入化妆要素吸引小友来看 ...</blockquote>
+某种意义上也是恶性循环
+
+小孩子偷偷扮大人很常见，但是偶尔扮扮和不扮就会被嘲笑土是不同的，万恶的资本主义把人变成了鬼
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 646#       发表于 2021-3-2 08:51
+
+
+
+
+今年第一次变身没有跳高环节啊，真夏这个女人不笑的时候都好帅啊
+
+
+
+
+
+
+
+-----
+
+####  nervpp  
+##### 647#       发表于 2021-3-2 09:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50475797&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-3-1 14:51</a>
+
+啊？为什么？因为疫情中断播放？</blockquote>
+我是疫情中断后直接跳到大结局……
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 648#       发表于 2021-3-2 19:35
+
+
+
+<img src="http://wx4.sinaimg.cn/mw690/0083ExGCgy1go5nnwtv0wj30lc0lc4pp.jpg" referrerpolicy="no-referrer">
+
+贝壳造型 芒果口味  的 蜜瓜包 ​
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 649#       发表于 2021-3-2 23:30
+
+
+
+
+孩子很喜欢，够沙雕，希望成为微笑第二<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 650#       发表于 2021-3-2 23:37
+
+
+
+
+星q和奶q后面看的都平淡如水，希望热q能给点力啊
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 651#       发表于 2021-3-3 01:20
+
+
+
+
+几年没追Q娃了，热Q第一话个人感觉能打90分以上，角色脚本设定战斗音乐都比较满意
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 652#       发表于 2021-3-3 06:51
+
+
+
+
+第一集感觉很好啊
+
+
+
+
+
+
+
+-----
+
+####  新HGCG  
+##### 653#       发表于 2021-3-3 07:38
+
+
+
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1go6d8uw097j20u00u04qr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1go6d92jiemj20u00u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1go6d95yy4yj20u00u0u0v.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1go6d9ctparj20u00u07sw.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1go6d9h833nj20u00u0nai.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 654#       发表于 2021-3-3 08:30
+
+
+
+ 本帖最后由 lyflyflxf 于 2021-3-3 08:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50492704&amp;ptid=1963832" target="_blank">新HGCG 发表于 2021-3-3 07:38</a></blockquote>
+屑人鱼哪儿有这么乖巧
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 655#       发表于 2021-3-3 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50492894&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-3-3 08:30</a>
+
+屑人鱼哪儿有这么乖巧</blockquote>
+商用表情啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坂上あゆみ  
+##### 656#       发表于 2021-3-3 14:54
+
+
+
+
+屑人鱼：客人（人类）不来一件吗~<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海克托尔  
+##### 657#       发表于 2021-3-3 15:22
+
+
+
+
+前面放广告那个软糖有附送可收集品吗，看超市进口区有卖的，之前有星q的小背包实在没法用没有买
+
+
+
+
+
+
+
+-----
+
+####  阿渣兄  
+##### 658#       发表于 2021-3-3 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50475797&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-3-1 14:51</a>
+
+啊？为什么？因为疫情中断播放？</blockquote>
+奶Q应该是用奶油那部吧……起码我的意思是）
+
+那部就是因为 肉搏禁止外加剧情无聊呗。。。
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 659#       发表于 2021-3-3 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502641&amp;ptid=1963832" target="_blank">阿渣兄 发表于 2021-03-03 22:28:55</a>
+奶Q应该是用奶油那部吧……起码我的意思是）
+
+那部就是因为 肉搏禁止外加剧情无聊呗。。。
+
+ ...</blockquote>Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precure A la mode一般简称为甜点或者闪q<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 660#       发表于 2021-3-3 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502737&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-3 22:40</a>
+Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precure A la mode一般简称为甜点或者闪q[f ...</blockquote>
+那star.twink 是啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 661#       发表于 2021-3-3 23:47
+
+
+
+
+我还以为口红是钥匙，结果是放波用<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 662#       发表于 2021-3-4 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502925&amp;ptid=1963832" target="_blank">千叶铁矢 发表于 2021-3-3 23:02</a>
+
+那star.twink 是啥呀</blockquote>
+星Q
+
+
+
+
+
+                           
