@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 01:16** 
+> ## **本文件最后更新于2021-03-04 04:45** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_HHPmm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_DBTBQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_TbZhd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_ONpT4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_OuVVs" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_E79An" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_V4sUN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_rQrBP" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_pBBhB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_BgILI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_DWE0T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_BIcCI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -26316,10 +26316,11 @@ Kiara桌面宠物
 
 
 
- 参与人数 1战斗力 +2
+ 参与人数 2战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士| + 1|遥想公瑾当年|
 | asdhai| + 2|好!|
 
 
@@ -27503,4 +27504,556 @@ v和网红差不多，流行热点随时都可能发生巨变。许多v也到了
 
 
 
-  
+
+
+-----
+
+####  iLLuMina  
+##### 32919#       发表于 2021-3-4 09:40
+
+
+
+
+过去一年都被鲜血追猎，当事人不堪其扰，换成我，我也跑路，万一哪天那句话说的不对被人杀了，岂不是血亏
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 32920#       发表于 2021-3-4 09:59
+
+
+
+
+什么？gbr要毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32921#       发表于 2021-3-4 10:30
+
+
+
+
+不要奶露露，不要奶露露
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 32922#       发表于 2021-3-4 10:32
+
+
+
+
+想起了b综那个江良推的巧克力厂老板
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 32923#       发表于 2021-3-4 10:35
+
+
+
+
+好久没上5ch，什么时候专门开了个板放虹杏串
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32924#       发表于 2021-3-4 10:35
+
+
+
+
+一个想法，你虹今年说不定人数不增反减，虽说对底边肯定是大利好，但是田角血压估计要拉满了
+
+
+
+
+
+
+
+-----
+
+####  Guadalcanal  
+##### 32925#       发表于 2021-3-4 10:41
+
+
+
+
+青光眼对视功能的损伤是不可逆的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 32926#       发表于 2021-3-4 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504592&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-3-4 07:59</a>
+这下子三傻压力确实大了，估计要永远活在前辈的阴影之下了，不知道顶得住不。讲道理主播不该这么短命的，我 ...</blockquote>
+这个其实讨论过，也是虹杏最大的区别。
+
+我自己的结论是：杏确实是一群真正把主播当做一个赖以生存的职业并以此为生的人，所以肝也好摸也罢，一定总是能回归直播呆下去的，但虹只有少数人是这样。当然，这之间只是观念不同而没有好坏之分。
+
+简单用你虹某位liver的话说，就是虹内大多数人本来就只打算干个两三年。
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 32927#       发表于 2021-3-4 11:06
+
+
+
+
+又有人要走了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 32928#       发表于 2021-3-4 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503986&amp;ptid=1969498" target="_blank">CAserlumos 发表于 2021-3-4 01:23</a>
+
+露记得是油管直播间开不出来吧</blockquote>
+别像nga那边那样那么傻乐观啊，油管直播间开不出来怎么可能持续半个月以上，最后直播的是马里奥又没任何违规的内容，而且如果真油管开不出，运营干啥去了...
+
+之前几次多于1周不播的情况推特都是正常说明原因的，这次呢？两次发推特都是说不播，但啥原因就是不说，明显的不对劲
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32929#       发表于 2021-3-4 11:14
+
+
+
+
+哈哈，ickr惹えらちゃん粉丝生气了
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 32930#       发表于 2021-3-4 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原因是说了，只是我们不信直播间开不了而已
+
+
+
+
+
+
+
+-----
+
+####  iLLuMina  
+##### 32931#       发表于 2021-3-4 11:21
+
+
+
+
+小熊猫拿回频道才几天，有人因为技术问题半个月开不开直播间我是不信的
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 32932#       发表于 2021-3-4 11:23
+
+
+
+
+露之前一直在练舞，中之人都发练舞视频了 ，然而自己个人live黄了，fes完全是个打酱油的，心里估计有想法了
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 32933#       发表于 2021-3-4 11:30
+
+
+
+ 本帖最后由 phaie 于 2021-3-4 11:31 编辑 
+
+怎么皇女也开始玩白金了，就不怕下半年那原汁原味的dp复刻玩起来无聊吗
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 32934#       发表于 2021-3-4 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506060&amp;ptid=1969498" target="_blank">兔耳僵尸 发表于 2021-3-4 10:35</a>
+
+好久没上5ch，什么时候专门开了个板放虹杏串</blockquote>
+2月初。YouTube板禁止实况。所以就转移到了streaming実況，之后HOLO串（无ID）又转移到了ニュース速報（杉浦綾乃）。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32935#       发表于 2021-3-4 11:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gbr会限消息推上传疯了，这里面还有ichr一份功。
+这公司真没法待了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32936#       发表于 2021-3-4 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 只要金银铜代替了花江，一切都会好起来的，
+
+
+没有人在乎你，你走了，自然会有人顶替你的位置，
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 32937#       发表于 2021-3-4 11:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">另外我再神经质一下，露露推特最近反常的点赞了很多同人图和粉丝回复，完全不是她的作风，思恐至极我甚至怀疑3月3号那推特不是她发的（点赞是从发那推特开始的）
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32938#       发表于 2021-3-4 11:53
+
+
+
+
+意思作为虹女中流砥柱的19上要全军覆没了么，3baka还顶得住不
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 32939#       发表于 2021-3-4 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32940#       发表于 2021-3-4 12:05
+
+
+
+
+panora来回横跳还行
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 32941#       发表于 2021-3-4 12:09
+
+
+
+
+新人取代前辈的位置不是好事？如果前辈退下来下面的新人都不去抢彩虹才是真的药丸<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32942#       发表于 2021-3-4 12:09
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-4 12:39 编辑 
+
+推特删了啊，这不就是个蹭热度的自媒体吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+还锁推了？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32943#       发表于 2021-3-4 12:17
+
+
+
+<img src="https://p.sda1.dev/1/4312004e2078a546fadc10cad82db4e7/IMG_CMP_183829243.png" referrerpolicy="no-referrer">
+独特的爱称
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  kakera9576  
+##### 32944#       发表于 2021-3-4 12:20
+
+
+
+
+耐久歌回，目标1000关注，声音挺好听的
+[https://youtu.be/8-Y0bdnmAPU](https://youtu.be/8-Y0bdnmAPU)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32945#       发表于 2021-3-4 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感谢ickr在gbr毕业这药丸事上再添傻逼的一笔
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32946#       发表于 2021-3-4 12:22
+
+
+
+
+说到19上，想起今天是19上某人的生日，让我们祝她生日快乐🎂
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|我算知道当时伤害有多大了|
+| Kojimaru| + 1|0|
+| winda| + 1|0|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32947#       发表于 2021-3-4 12:28
+
+
+
+
+这种时候回忆起19年接触虹的时候的想法来真是感慨万千。
+
+虚拟关怀式的直播，一旦彻底没了，那可不这样了嘛。
+
+直播员明明是个熬时间的职业，偏偏顶上了网红流量呢。
+
+大浪淘沙留下来的粉丝，支持与否，背叛也罢。人和人的关系就这样脆弱掉了阿。
+
+是束缚也是抱团取暖，这还真够日式的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iLLuMina  
+##### 32948#       发表于 2021-3-4 12:31
+
+
+
+
+是的，今天是3月4日，千岁的生日🎂
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32949#       发表于 2021-3-4 12:31
+
+
+
+
+我笑死 这种时候居然有人重点是panora写手身份<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+ 
