@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 06:42** 
+> ## **本文件最后更新于2021-03-04 08:43** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_hffFa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_bCN4l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_D6I8W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_kdptu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_XGavg" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_u2lR1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_F515U" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_gqiQ7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_rhnqZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_C8SDv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_b92BG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_SN54m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -28596,10 +28596,384 @@ q娃还是美妙天堂这种声优铁饭碗不是更费劲<img src="https://stat
 
 
 
+ 本帖最后由 poipanchao 于 2021-3-4 14:45 编辑 
 
 楼友之前有个论点还是挺对的
-年轻人缺少社会的毒打
+年轻人缺少社会的毒打，还向往着梦想，自由，尊严
 就算在杏基本上也是老阿姨玩命捞钱，年轻人一个比一个摸
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32979#       发表于 2021-3-4 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50508871&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-4 14:35</a>
+
+你楼又在贷款黑屁了
+
+
+Syl，真去...？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草生  但是应该不会有人逆向进入声优业界这种暗黑世界吧（）
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 32980#       发表于 2021-3-4 14:43
+
+
+
+
+老板不持铁棍后面站着监督就没事。
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 32981#       发表于 2021-3-4 14:48
+
+
+
+
+不是因为有梦想才会玩命吗？
+
+
+就是因为没有梦想，觉得自己摸鱼都能胜利，所以才开始摸鱼吧……
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32982#       发表于 2021-3-4 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等江皇声优火了，就能一睹江皇的美貌了，
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 32983#       发表于 2021-3-4 14:50
+
+
+
+
+holo要坐实是虹的便器了么
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 32984#       发表于 2021-3-4 15:02
+
+
+
+
+快进到以后虹只有男，杏只有女<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32985#       发表于 2021-3-4 15:03
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-4 15:13 编辑 
+
+这倒是，做出点什么是梦想，赚大钱也是梦想
+bba们要抓住难得的机会把一辈子的钱都赚了
+只有缺少毒打的年轻人才会不珍惜，被毒打过的大亏就很懂了，月之本间也差不多
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32986#       发表于 2021-3-4 15:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在别家当v是给履历镀金，进了1/1200的holo才是成功人生
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32987#       发表于 2021-3-4 15:16
+
+
+
+
+你综的黑屁有黑成真的吗？
+
+
+PS：尼哥缺的不是人手是账号，掏钱买号才是正道。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32988#       发表于 2021-3-4 15:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 50w订阅的简历递到人木口面试官那，还得搭人情才能送到，目前的虹女还没出现有资格去木口的
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 32989#       发表于 2021-3-4 15:18
+
+
+
+
+杏不是一直只有女吗，咋滴星还能算在杏里的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 32990#       发表于 2021-3-4 15:21
+
+
+
+
+holo什么时候倒啊，很急，反正都觉得都是要靠直播吃饭的，那在哪里播不是播，holo倒了就转生继续播
+
+而且只要holo倒了楼友就能随便看了，对楼友是好事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Caa  
+##### 32991#       发表于 2021-3-4 15:21
+
+
+
+
+感觉如果猴王去做了偶像声优，是不是就可以一睹你虹颜值天花板的芳容了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32992#       发表于 2021-3-4 15:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  那你找个holo外第二个那么好捞钱的平台啊，在哪里播都是播，但是收入不一样。
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 32993#       发表于 2021-3-4 15:26
+
+
+
+
+这么关心收入干嘛，没收入还不是要播，还更有可能播爆，楼友更不是要大力继续看，况且没收入楼友就不看了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 32994#       发表于 2021-3-4 15:28
+
+
+
+
+天下的19组，嗷的一声就要没了，柱尚存，梁将折，大厦将倾<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32995#       发表于 2021-3-4 15:31
+
+
+
+
+又要追梦，又不想直播，又要维持这个花钱如流水的生活，木口肯定是满足不了江皇了，要不自己开个箱玩复仇者联盟吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32996#       发表于 2021-3-4 15:33
+
+
+
+
+虹三大基石gamers，种系，19top
+
+我一直觉得虹还是不够狼性，没人气空有资历的该扔就扔，还给这么多资源真是纯粹浪费
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32997#       发表于 2021-3-4 15:36
+
+
+
+
+没收入那直接找男人接盘了，播个吉尔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32998#       发表于 2021-3-4 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509386&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-4 15:26</a>
+
+这么关心收入干嘛，没收入还不是要播，还更有可能播爆，楼友更不是要大力继续看，况且没收入楼友就不看了吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  能高收入为什么不高收入 ，能有2万人看为什么要回到200人看，能每日有大量二创图产出为啥要回到默默无闻，这么简单的道理难道真有人不懂？ 
+
+何况还有很多花钱的东西，回去nico做mikarine想挥霍都挥霍不出去。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32999#       发表于 2021-3-4 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509447&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-3-4 15:31</a>
+又要追梦，又不想直播，又要维持这个花钱如流水的生活，木口肯定是满足不了江皇了，要不自己开个箱玩复仇者 ...</blockquote>
+找个男人不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33000#       发表于 2021-3-4 15:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509516&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-4 15:37</a>
+
+能高收入为什么不高收入 ，能有2万人看为什么要回到200人看，能每日有大量二创图产出为啥要回到 ...</blockquote>
+我说的是holo倒了，跟主播意愿没关系
 
 
 

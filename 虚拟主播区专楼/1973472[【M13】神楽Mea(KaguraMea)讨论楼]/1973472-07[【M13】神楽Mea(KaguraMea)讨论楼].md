@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 04:47** 
+> ## **本文件最后更新于2021-03-04 08:46** 
 
 
 
@@ -17497,4 +17497,1275 @@ oh shit<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" ref
 
 
 
-                
+
+
+-----
+
+####  路人辰  
+##### 9996#       发表于 2021-3-4 12:53
+
+
+
+
+不过你咩也说过“koyori ブス”（
+
+
+所以在你咩姐眼里，苔苔&gt;自己（美人）&gt;koyori（ブス）？
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 9997#       发表于 2021-3-4 12:59
+
+
+
+
+总不能联动的时候说苔苔（一个光明正大露脸的）长得一般吧。
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 9998#       发表于 2021-3-4 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你麻的颜值评定好像是紫&gt;麻≈绿吧。看样子是不会欣赏大额头的美
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9999#       发表于 2021-3-4 13:08
+
+
+
+
+不要啊麻 麻<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">果然不要露脸了吧
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10000#       发表于 2021-3-4 13:17
+
+
+
+
+朋友之间的话 一般是对方长得好看才会放心骂ブス的吧 真长得丑就会刻意回避这个词了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10001#       发表于 2021-3-4 13:35
+
+
+
+
+蜗居的原因找到啦<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10002#       发表于 2021-3-4 13:49
+
+
+
+
+快来点麻图稳定军心<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10003#       发表于 2021-3-4 13:57
+
+
+
+
+楼友要的麻图
+
+<img src="https://img.saraba1st.com/forum/202103/04/135716xxf4kndegea1cd88.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>src=http___image.cnhnb.com_image_jpeg_head_2019_09_04_0b0ab2cf405946bba8261ad832.jpeg</strong> (550.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-4 13:57 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 10004#       发表于 2021-3-4 14:38
+
+
+
+<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_z23Dz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://gss0.baidu.com/9fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/4034970a304e251fcfbd8ab1a586c9177f3e5334.jpg" referrerpolicy="no-referrer">
+
+芝麻也是麻
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10005#       发表于 2021-3-4 14:54
+
+
+
+
+还挺护眼的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10006#       发表于 2021-3-4 14:56
+
+
+
+
+百度查到的 小麻：属于新型dp。 主要作用于:使用锡纸烧,产生烟雾.用瓶子,管子,过水吸食.吸食后兴奋。睡不着觉,肚子也不觉得饥饿.男人吸食后性功能下降,女性则反之.
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10007#       发表于 2021-3-4 15:00
+
+
+
+
+小麻太丑又接受不了，小麻太美又怕被相亲的叔叔拐走。
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 10008#       发表于 2021-3-4 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">别发麻图了 要幻灭了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10009#       发表于 2021-3-4 15:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都m13了.你麻五官都被挨个发过了,脑补一下没问题吧
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10010#       发表于 2021-3-4 15:11
+
+
+
+
+土肥丑坦克罢了，不会真有人以为她不肥吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10011#       发表于 2021-3-4 15:12
+
+
+
+
+那些麻图都是啥时候的了 早过期了 现在指不定啥肥猪样呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10012#       发表于 2021-3-4 15:12
+
+
+
+
+麻鼻还是没有
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10013#       发表于 2021-3-4 15:22
+
+
+
+
+那就成了，找张狐皇的图当麻图看就行
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10014#       发表于 2021-3-4 15:25
+
+
+
+
+我脑补的小麻差不多就是这个样子的
+
+<img src="https://img.saraba1st.com/forum/202103/04/152458urk8rp4srev4ebej.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (64.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 15:24 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10015#       发表于 2021-3-4 15:41
+
+
+
+
+一千个天狗眼里有一千个小麻，然而没有一个有鼻子
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10016#       发表于 2021-3-4 15:53
+
+
+
+
+梦里见到的小麻不仅不肥还是超级美少女，可惜梦是反的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10017#       发表于 2021-3-4 15:57
+
+
+
+
+【犬山たまき 发布】
+内容：【💙配信告知💙】
+
+🐕【2.0お披露目&amp;ゲスト多数】ご注文はメイドですか?
+🐕3月5日23時~24時
+https://t.co/Q1PajnqnVg
+犬山たまき2.0メイド服…ついにお披露目🐶💙
+
+GUEST▶愛園愛美/伊東ライフ/因幡はねる/神楽めあ/白雪みしろ/鷹宮リオン/湊あくあ/癒月ちょこ/夜見れな
+配信タグ▶️#犬山たまき新モデル https://t.co/n3KRS8rM9j
+时间：2021-03-04 15:51:18 UTC+08:00
+
+
+
+
+
+
+
+还记得去年犬山整的活嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+犬山，暂时的神！
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10018#       发表于 2021-3-4 15:59
+
+
+
+
+海苔男你坏事做尽😭😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10019#       发表于 2021-3-4 16:01
+
+
+
+
+卧槽,苔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 10020#       发表于 2021-3-4 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10021#       发表于 2021-3-4 16:03
+
+
+
+
+在群里发了还没看全，直到看到图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑嘻了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10022#       发表于 2021-3-4 16:07
+
+
+
+
+那么问题来了，这是不是big angle必将如闪电般归来的前兆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 10023#       发表于 2021-3-4 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10024#       发表于 2021-3-4 16:08
+
+
+
+
+神乐mea要用她的职业生命来换某人的回归吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太甜了太甜了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10025#       发表于 2021-3-4 16:09
+
+
+
+
+很抱歉以这种方式和大家说再见，我先run了🏃🏻‍♂️🏃🏻‍♂️🏃🏻‍♂️🏃🏻‍♂️
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10026#       发表于 2021-3-4 16:10
+
+
+
+
+那有一说一，可能性对半分啊，去年哪次来着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10027#       发表于 2021-3-4 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又在发什么疯
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10028#       发表于 2021-3-4 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">苔苔窝莎了妮
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10029#       发表于 2021-3-4 16:13
+
+
+
+
+别让你咩起节奏就行
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10030#       发表于 2021-3-4 16:13
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-4 16:15 编辑 
+
+顺带一提，犬山这狗屎L2D新脸有没有说谁做的来着，不会还是那个臭几把脸吧，建议楼友可以当做麻酱4-5月的新皮的预演可能性之一做个心理准备嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">syl 起不起节奏那就不知道了，毕竟泥哥的brain我无法分析构造的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10031#       发表于 2021-3-4 16:14
+
+
+
+
+人都要没了还新皮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10032#       发表于 2021-3-4 16:14
+
+
+
+
+整的什么jb烂活
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 10033#       发表于 2021-3-4 16:15
+
+
+
+ 本帖最后由 kerfars 于 2021-3-4 16:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毒唯和贴贴人的发帖一目了然啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10034#       发表于 2021-3-4 16:16
+
+
+
+
+以尼哥的构造看，反正杏肯定没事，别人就不知道了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10035#       发表于 2021-3-4 16:17
+
+
+
+
+往好点想，不在一起出场就没事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不在一起出场都要烤的话...... <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">那可真的是闲到脑子出问题啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10036#       发表于 2021-3-4 16:18
+
+
+
+
+那你确实低估了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10037#       发表于 2021-3-4 16:18
+
+
+
+
+等海苔男补一句你麻特意要求一起上节奏起飞<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10038#       发表于 2021-3-4 16:18
+
+
+
+
+爷现在自由人，反正起节奏也不关我事，毕竟案例都有，不起的可能性去年还真有一例，借机黑屁一波某废物组织开心得很<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+希望到时候飞狗大人这类人不要因为起节奏了来骂【毒唯】就好了，呜呜，毕竟我半句话没说过，也没办法通过discord和mea进行任何交流的，私密马森~
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10039#       发表于 2021-3-4 16:18
+
+
+
+
+只要不是一起出场+放官号 大概率没事
+
+
+
+
+
+
+
+-----
+
+####  zz_hina  
+##### 10040#       发表于 2021-3-4 16:19
+
+
+
+
+一不一起上不是问题，反正连体人会自己脑补<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10041#       发表于 2021-3-4 16:19
+
+
+
+
+也没必要这么紧张 NGA也不是谁和杏联动就车谁吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10042#       发表于 2021-3-4 16:19
+
+
+
+
+连体人看宣传图其他人脸都是糊哒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+主要你楼都对这个有ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10043#       发表于 2021-3-4 16:20
+
+
+
+
+确实不是任何人都车啊，但总有人得车嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10044#       发表于 2021-3-4 16:22
+
+
+
+
+确实不是谁都车,但是你麻这种重点关照对象肯定是往死里打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10045#       发表于 2021-3-4 16:22
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-4 16:24 编辑 
+
+去年起节奏那会儿他们马甲都不带换的直接烤了也没啥节奏啊，不过泥哥怎么想的谁知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然他们现在应该没啥power了，不过也难说，毕竟不打到自己头上想必他们也是能重拳出击的。希望谷雨嘴巴灵验一次，让我看看啥走向，反正不关我半毛钱事syl 倒不是紧张的问题，而是次次都这样我都快懒得扯了，反正到时候随便丢点东西就吃瓜快乐，she跟我说的好，老害的确死就死了，反正这人也不会死，关我屁事
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 10046#       发表于 2021-3-4 16:23
+
+
+
+
+平常心来看吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10047#       发表于 2021-3-4 16:23
+
+
+
+
+衷心祈祷是你楼反应过度实际上没有风波那谁谁也没有互动.... <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10048#       发表于 2021-3-4 16:26
+
+
+
+
+我不是有人和我说都懒得来，没事黑屁肥婆那粗象腿充实多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10049#       发表于 2021-3-4 16:26
+
+
+
+
+我是挺烦这种操作的，明明可以不这样的
+
+
+等你麻拿命换来某人回来后希望她别后悔了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10050#       发表于 2021-3-4 16:28
+
+
+
+
+又看见死人名字，晦气。一天好心情毁了一半。
+
+节奏估计不至于多大，连体弱智又要在粉头带领下糟蹋评论区了，真tm晦气
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10051#       发表于 2021-3-4 16:29
+
+
+
+<blockquote>A2014720 发表于 2021-3-4 16:26
+我是挺烦这种操作的，明明可以不这样的
+
+</blockquote>
+这也快进太多了……
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10052#       发表于 2021-3-4 16:30
+
+
+
+
+泥哥: 治不了杏还治不了你？🤮🤮🤮
+
+
+
+
+
+
+
+-----
+
+####  zz_hina  
+##### 10053#       发表于 2021-3-4 16:30
+
+
+
+
+连体人不是日常糟蹋评论区么
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 10054#       发表于 2021-3-4 16:31
+
+
+
+
+上百赞的贴贴评论有停过吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10055#       发表于 2021-3-4 16:35
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-4 16:38 编辑 
+
+能后悔什么，人傻是没人能救的，我一直信奉着一句话，尽人事，听天命。
+
+正所谓性格是能够决定命运的，局外人把能做的都做了，那剩下的就交由给上帝，交给必然的未来去。
+
+我每次看到事业民都觉得很可惜
+
+因为每次这群人发作到高峰的时候，命运的大手就会告诉他们，什么叫做注定的，不可回避的，以及事业民还是该土里埋掉的事实。
+
+说难听点，早就在11月份那时候，你就该明白，不管是外在渠道还是内在的自我想法来说，官组乃至不少粉丝中的不少人只会觉得自己的咩夸没了很可惜，然后该半死不活继续半死不活，一到这种时候管他是谁，总会有那个东西觉得我可以那就弄了，至于节奏，我觉得无所谓那就无所谓。你麻不在乎这个，那自然那些人也不在乎。只会觉得什么狗屁残党要饿死了，赶紧吃一顿。所以今时今日就是现在这样，虽然也有些泥哥之类的因素，但现在数据彻底拉跨到连我这种一万年不想看一眼官组一次的人都能一眼看出来的地步，只能说至少批站这边是真的爱谁谁了，404难听点就是，说不定这些个狗屁互动反而还能给她涨点粉。
+
+躺平这说法我不太喜欢，只能建议404多互动，点点歌，至少我还能找点开心和乐趣。
+
+至于官组评论区这东西，都车两年啦，能不看就不看，我已经我用我能做的一切证明了我没有官组这玩意儿一样能看肥婆开开心心，只能奉劝一句早放下早开心
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10056#       发表于 2021-3-4 16:36
+
+
+
+
+连体人才是b站正统 糟蹋评论区的是你们毒唯吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10057#       发表于 2021-3-4 16:36
+
+
+
+
+那可能是我拉黑的比较多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一般推fleet底下画风还算正常
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 10058#       发表于 2021-3-4 16:37
+
+
+
+
+**怪，大概率一个一个的连线到你楼怎么就成了绑定，难道你们真想看绑定？<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10059#       发表于 2021-3-4 16:39
+
+
+
+
+确实，又想到我的S1“毒唯”言论被NGA正义贴贴人挂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl我也确实衷心希望这就是反应过度，结果屁事没有。但是ptsd这个东西倒没这么容易好
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10060#       发表于 2021-3-4 16:39
+
+
+
+
+咩宝都同意了，你们又能怎样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+               
+
+当然光明贴贴人也不是什么好东西罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10061#       发表于 2021-3-4 16:40
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-4 16:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510188&amp;ptid=1973472" target="_blank">fsfs_freeze 发表于 2021-3-4 16:37</a>
+
+**怪，大概率一个一个的连线到你楼怎么就成了绑定，难道你们真想看绑定？ ...</blockquote>
+你这问题我不知道怎么回答，毕竟说难听点这东西我上面说过了，还是有先例的，你要是百分百确定不会那也是你的情报来源，我只能谢谢分享。syl，光明贴贴人是什么东西，一堆后面入坑的然后被diver那几个满嘴毒唯的带画师忽悠进了个死人坑的新生主力？那挺有意思的，按我看法难听点就是，一个互动极少只有虚空产出的老梗玩意儿还能成为一些人的精神支柱的话，那某种意义上来说主播的确可以说是不思进取好呢，还是新活儿远不如前，或者某些阴湿虹人以前说的啥来着，江郎才尽？
+
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 10062#       发表于 2021-3-4 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我说啊，都因为差不多的事情炎过这么多次了，毒唯还没习惯吗？
+
+哦，我也在ptsd啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10063#       发表于 2021-3-4 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说了你楼才是贴贴楼正统
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10064#       发表于 2021-3-4 16:41
+
+
+
+
+可不敢乱说话，杏v在尼哥潭是受保护的，不开心反手就把你车了
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 10065#       发表于 2021-3-4 16:41
+
+
+
+
+我也希望是反应过度阿，可是你楼这么反应真的有点哈人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如该干嘛干嘛
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10066#       发表于 2021-3-4 16:42
+
+
+
+ 本帖最后由 clvan_ 于 2021-3-4 16:43 编辑 
+
+你楼大部分已经ptsd晚期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实际上是一个一个还是绑定对连体人没区别，已经开始到处弱智发散了，不然也不会这么晦气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要说出事没大手搞事那估计不至于
+
+
+
+
+
+
+
+-----
+
+####  うどん  
+##### 10067#       发表于 2021-3-4 16:44
+
+
+
+
+回s1一看还是这个味我就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10068#       发表于 2021-3-4 16:46
+
+
+
+
+我习惯不习惯跟我扯两句也没关系啊，本质看反应而已，还有毒唯不毒唯的，你也是有意思，去年我还翻译过这过世CP互动呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我连五元坏话都没说过半句hhhh。
+
+
+
+
+
+              
