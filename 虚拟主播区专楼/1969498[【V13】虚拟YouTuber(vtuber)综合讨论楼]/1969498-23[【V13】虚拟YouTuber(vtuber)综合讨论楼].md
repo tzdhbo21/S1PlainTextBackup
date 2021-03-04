@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 13:40** 
+> ## **本文件最后更新于2021-03-04 17:02** 
 
 
 
@@ -1239,13 +1239,620 @@ holo的森林在公路海滩边上 还真是便利的设定<img src="https://sta
 
 
 
+ 本帖最后由 十四洲 于 2021-3-4 22:24 编辑 
 
 毕竟黛灰真的有趣
 
 今天也在搞奇奇怪怪的企划
 
+syl，因为不是同一批人
+
+
+zsyl，这么刺激的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">细说
 
 
 
 
-                                               
+
+
+
+-----
+
+####  白金口袋  
+##### 33068#       发表于 2021-3-4 21:44
+
+
+
+
+我咋记得黑客刚出来那阵泥楼还都说是过于装13之类的
+
+怎么现在突然就风向180度大逆转了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33069#       发表于 2021-3-4 21:49
+
+
+
+
+我现在还是觉得过于装啊，只不过能做企划的人不多了嘴下要留情。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33070#       发表于 2021-3-4 21:59
+
+
+
+
+现在这个虹楼你敢说男人的不是要被私信到死的
+
+不是楼层回复
+
+是私信
+
+哈人
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 33071#       发表于 2021-3-4 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50513541&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-4 21:59</a>
+
+现在这个虹楼你敢说男人的不是要被私信到死的
+
+不是楼层回复
+
+是私信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+这么哈人的吗？
+
+
+应该只限定于那两个人吧
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33072#       发表于 2021-3-4 22:05
+
+
+
+
+真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33073#       发表于 2021-3-4 22:10
+
+
+
+
+要么你们去试试呗
+
+记得不要直球喷，要似是而非一点
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 33074#       发表于 2021-3-4 22:15
+
+
+
+
+有那么闲的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33075#       发表于 2021-3-4 22:16
+
+
+
+[https://twitter.com/AZKi_VDiVA/status/1367474998294716416](https://twitter.com/AZKi_VDiVA/status/1367474998294716416)
+
+【🎉#音楽を止めるな3 開催🎉】
+
+
+3/19～3/21の期間、Vtuberオリジナル楽曲ノンストップ配信 #音楽を止めるな3 開催します！前回250組以上800曲以上の参加があったお祭り企画の第三弾です✌️
+
+
+本日からエントリー募集開始！！3/15まで！！
+
+今回はAZKiのSpecial Liveもあります！
+
+
+詳細は画像をみてね✨
+
+
+
+
+
+第三波要来了
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33076#       发表于 2021-3-4 22:35
+
+
+
+
+？你楼还有女粉丝在视奸？还是说男粉丝也这么闲啊
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 33077#       发表于 2021-3-4 22:37
+
+
+
+ 本帖最后由 fastary 于 2021-3-4 22:45 编辑 
+
+代表我自己，我可从来不私信，有理有据喷也只当审美口味不同
+
+不过如果是2000式的“不是”，我肯定会出来理论的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+黛灰去年差不多十月难得发了个日程表，右下角小字写到6月底有什么，“之后什么都没有”。
+
+也一直对当V没什么执着感(毕竟不开会员不开SC不想上live也和粉丝保持距离，没什么能留住他的)，所以就算真二周年毕业恐怕大部分粉丝也做好了大半年的心理准备
+
+……说是这么说，哪有v毕业粉丝不破防的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+zsyl
+
+他出道直播确实有种装13感啊，不过人直播也一年多了，好企划搞了不少自然评价会有变化，这有什么大惊小怪的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1||
+| alcoholic1000| + 1|黑客解好久不见！感谢黑客出企划.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33078#       发表于 2021-3-4 22:43
+
+
+
+
+不是，泥楼出来说话的女粉都不少，更何况还有nga视奸的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候产生了这楼没女粉的错觉
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33079#       发表于 2021-3-4 22:46
+
+
+
+
+好图我看<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/1b4cbd811d3a174f2c595c40df736c30/IMG_CMP_70829417.jpeg" referrerpolicy="no-referrer">
+[https://twitter.com/mayotheika/status/1367423117140783106](https://twitter.com/mayotheika/status/1367423117140783106)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33080#       发表于 2021-3-4 22:47
+
+
+
+
+你楼女粉一个个战斗力爆炸好不好
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 33081#       发表于 2021-3-4 23:32
+
+
+
+
+还有私信这回事？神奇，楼友不要慌，直接怼回去啊<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+自从我在nga发现叶楼之后，我都变成repo萌萌人了，虹楼我基本不看了，我本来逛论坛也是想多看点叶repo来着，这家伙的档实在是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33082#       发表于 2021-3-4 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514215&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-4 22:47</a>
+
+你楼女粉一个个战斗力爆炸好不好</blockquote>
+不是4ID你口说无凭啊
+
+
+来点直球挂人，重拳出击啊，聊天记录安排上，实在不行把id遮了呗
+
+
+syl
+
+今天下午的蜂窝煤老哥不好看惹，还以为那么久不见风采依旧，没想到居然连你楼团建杏奴视lga风评为粪土都无法理解<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+zsyl
+
+4ID你怎么这么油腻，万一江皇就是在了解了声优世界的残酷以后还大胆追梦呢？可不可能江皇就是梦想的女儿呢？一个想法，不一定对嗷<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+不能因为你在MCN干着给梦想标价的工作，就否认别人智昏追梦的合理性好吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33083#       发表于 2021-3-4 23:52
+
+
+
+
+我在微博看到过六个以上喷过v综的女粉（疑似）…
+但说真的很感谢女粉，和ickr捆绑销售结合在一起让我次次都能低价拿郡谷<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33084#       发表于 2021-3-4 23:58
+
+
+
+
+v综在微博这么火吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33085#       发表于 2021-3-5 00:04
+
+
+
+
+其实我一直很好奇郡gachi怎么摸到人家微博的，感觉已经是熟练的生态观察，我每次想吃瓜都找不到战场
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33086#       发表于 2021-3-5 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50515140&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-3-5 00:04</a>
+其实我一直很好奇郡gachi怎么摸到人家微博的，感觉已经是熟练的生态观察，我每次想吃瓜都找不到战场 ...</blockquote>
+就是普通的关键词搜索+各论坛重用名啊，适当控制微博账号的活动率就更能搜到黑泥用小号这样，结合圈内使用的伏字就更好搜了，管人粉交流欲这么强看到一个就会发现一群了吧，现在很好奇某个锁号的内容但又懒得再建号装某人粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">。
+省一楼，看完EVA的郡道好像升天了（比喻）的样子
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33087#       发表于 2021-3-5 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该说郡噶吃搜索能力强呢还是太闲了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33088#       发表于 2021-3-5 00:18
+
+
+
+
+为什么这么熟练啊，这种能力用在推特不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 33089#       发表于 2021-3-5 00:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/081714jgaaag33xqqr3qpa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ehgo1p6361l61.jpg</strong> (284.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 00:17 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/081718cu9avvdt5v4l7559.jpg" referrerpolicy="no-referrer">
+
+
+<strong>wa075p6361l61.jpg</strong> (121.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 00:17 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/081800jivi5bvlaajatnse.jpg" referrerpolicy="no-referrer">
+
+
+<strong>oc0ojp6361l61.jpg</strong> (177.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 00:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33090#       发表于 2021-3-5 00:19
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-5 00:24 编辑 
+
+只要不看管人粉丝，我的看管生活就会很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+Syl，有楼友入虹的fanclub了吗，觉得值吗？想获得信息又不想支持ickr的这种粉丝群行为
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33091#       发表于 2021-3-5 00:23
+
+
+
+
+因为如果去推特搞这个的话就会是，搜索郡道—发现有人说自己被block—点进账号，“很过分的骂人的话”—关闭。
+心会很痛，受不了这个
+
+说实话kck的时候都不用搜，摆在眼前了都<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33092#       发表于 2021-3-5 00:26
+
+
+
+
+对于郡gachi来说观察管人粉丝就是乐子的重要来源吧，不过为了视奸这种事要建小号也实在超出了我的想象，如果郡gachi去写一本管人粉丝微博生态报告我一定捧场
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33093#       发表于 2021-3-5 00:33
+
+
+
+
+fanclub 鹰宫的我是没感觉有啥信息浓度
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|感谢，我考虑一下|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 33094#       发表于 2021-3-5 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510219&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2021-3-4 16:39</a>
+
+杏an很可以搞一个转生后多少时间超过尸体订阅的记录来缺缺德</blockquote>
+公主啊，直接x5
+
+
+
+
+
+                                              
