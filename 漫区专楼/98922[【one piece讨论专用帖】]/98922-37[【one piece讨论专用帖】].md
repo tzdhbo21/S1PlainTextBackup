@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-27 14:30** 
+> ## **本文件最后更新于2021-03-04 03:35** 
 
 
 
@@ -2203,7 +2203,14 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  裤袜大落  
 ##### 54117#       发表于 2020-12-30 13:50
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+一天天的好起来啦
+
+
+
+
 
 
 
@@ -4811,7 +4818,16 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  裤袜大落  
 ##### 54252#       发表于 2021-1-16 12:05
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
+现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错了 应该是“草帽一伙 战斗员 厨师 山治”
+显然没有机会 起码绿藻头还是个干部
+
+
+
+
 
 
 
@@ -4876,7 +4892,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  裤袜大落  
 ##### 54256#       发表于 2021-1-17 15:21
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨子再也没有过去单人带线打野必偷家的辉煌了
+
+
+
+
 
 
 
@@ -5588,7 +5610,15 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ####  裤袜大落  
 ##### 54293#       发表于 2021-1-29 01:26
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50176725&amp;ptid=98922" target="_blank">灰狼 发表于 2021-1-29 00:55</a>
+talkop看了一个采访里说“原本在连载前预计在五年内完结海贼王是大家已经熟知的，不过根据和月的说法，尾田 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个十年是现在开始算？
+
+
+
+
 
 
 
@@ -9798,4 +9828,624 @@ WT给了他战斗服，还有战斗的定位的。
 
 
 
-                                
+
+
+-----
+
+####  icewolf01  
+##### 54515#       发表于 2021-2-27 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">卷卷眉这一嗓子的作用大概是暴露了各地的监视器？不过还是太丢人了OTL
+
+
+罗宾大姐头有点帅
+
+
+
+
+
+
+
+-----
+
+####  游蜓  
+##### 54516#       发表于 2021-2-28 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50453989&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-02-27 00:56:33</a>
+山治求救和御田跳舞，同一个味道啊</blockquote>差远了吧，御田跳舞本质上不就是不信任自己的手下和人民吗
+山治这是完全信任伙伴啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 54517#       发表于 2021-2-28 00:42
+
+
+
+
+忽然想到一个大家都没提起的点。乌索普能第一时间发现贴符的“目视者”，是不是进一步说明了他的见闻色觉醒？
+
+
+
+
+
+
+
+-----
+
+####  309465205  
+##### 54518#       发表于 2021-2-28 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455026&amp;ptid=98922" target="_blank">Archi 发表于 2021-2-27 08:37</a>
+
+谁给我讲讲桃子身上有啥闪光点吗，俺满脑子只有他好色和身世特权，相当的不爽。 ...</blockquote>
+你把他当成有骨气且好色的刘禅就行
+
+刘禅再无能诸葛亮等人也会尊他为帝,因为"灭曹兴刘"是季汉政权的一面旗帜
+
+同理,桃之助也是和之国反抗凯多-大蛇的一面旗帜
+
+刘禅/桃之助本人其实有没有能力都不重要,只要他们起到工具人的作用.具体的工作交给诸葛亮/锦卫门就行了
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54519#       发表于 2021-2-28 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463082&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-2-28 00:42</a>
+
+忽然想到一个大家都没提起的点。乌索普能第一时间发现贴符的“目视者”，是不是进一步说明了他的见闻色觉醒 ...</blockquote>
+砂糖那里就觉醒了吧，关键是会不会灵活用的问题嘛
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 54520#       发表于 2021-2-28 23:08
+
+
+
+
+罗宾的脸怎么越来越圆了，都快成饼脸了，以前不是这样的。
+
+
+
+
+
+
+
+-----
+
+####  烈士鲮鱼  
+##### 54521#       发表于 2021-3-1 09:18
+
+
+
+
+看前几页觉得尾田仔就是在跟我们山治厨过不去，看到罗宾那个全身图我突然就原谅他了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+话又说回来，山治作为战斗员被冷藏是不是因为他的战斗方式很难搞出新意？
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54522#       发表于 2021-3-1 10:43
+
+
+
+<blockquote>烈士鲮鱼 发表于 2021-3-1 09:18
+看前几页觉得尾田仔就是在跟我们山治厨过不去，看到罗宾那个全身图我突然就原谅他了
+
+话又说回来，山 ...</blockquote>
+是两年后一直在战斗方面没表现，一直吃瘪
+
+
+
+
+
+
+
+-----
+
+####  yth329  
+##### 54523#       发表于 2021-3-1 10:51
+
+
+
+
+山治都拉成这样了人气投票还是第三，看来还有继续浪的空间
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 54524#       发表于 2021-3-1 10:56
+
+
+
+<blockquote>烈士鲮鱼 发表于 2021-3-1 09:18
+看前几页觉得尾田仔就是在跟我们山治厨过不去，看到罗宾那个全身图我突然就原谅他了
+
+话又说回来，山 ...</blockquote>
+山治是厨子，又不是战斗员，战斗员就是索隆。
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 54525#       发表于 2021-3-1 11:01
+
+
+
+
+御田父子这对杰克苏真是恶心透了
+
+
+尾田但凡把给御田这对傻逼父子的父爱割一点给山治，海贼都不至于崩成这狗样
+
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 54526#       发表于 2021-3-1 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50473327&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-3-1 10:56</a>
+
+山治是厨子，又不是战斗员，战斗员就是索隆。</blockquote>
+说是这么说但大家都门清他之前的定位就是3号战斗员啊，少年漫里占重头的打斗部分，10人主角团不可能只有2个战斗员。虽然画到现在戏份变了但之前排得挺清楚的 甚至每人对应的CP9对手战力值都定的一清二楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fmchar  
+##### 54527#       发表于 2021-3-1 11:37
+
+
+
+
+有个揩油小屁孩不是日漫传统吗？
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 54528#       发表于 2021-3-1 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50473861&amp;ptid=98922" target="_blank">fmchar 发表于 2021-3-1 11:37</a>
+
+有个揩油小屁孩不是日漫传统吗？</blockquote>
+那是传统日漫的传统了
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 54529#       发表于 2021-3-1 12:45
+
+
+
+
+现在山治还有前三吗，弗兰奇将军和甚平稳压他一头，布鲁克最近的表现也很出彩，这都还没算上未来必成为船员的大和
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 54530#       发表于 2021-3-1 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461968&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-27 22:28</a>
+
+桃之助比起那几个公主有骨气多了，他爹比不上他</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">我奈菲鲁塔丽·薇薇实名不服
+
+
+
+
+
+
+
+-----
+
+####  proselyte  
+##### 54531#       发表于 2021-3-3 16:13
+
+
+
+
+1006话标题：侠客花之豹五郎
+
+保皇发现桃之助一行人。
+
+山治犹豫是去锦卫门那边、还是去桃之助那边，经过深思熟虑后选择（不确定是否抉择完成）。
+
+加洛特败给了佩罗斯佩罗（大妈长子）。
+
+豹五郎和德雷克在保护正在调制解药的乔巴。
+
+豹五郎感染了冰鬼。
+
+豹五郎使用了花之一刀流（有招式名称）。
+
+马尔科一对二，King和Queen（出现了几个招式，即自绘情报图）。
+
+佩罗斯佩罗发现了马尔科。
+
+豹五郎，由于冰鬼效应停下战斗，拜托部下杀死自己。
+
+下周不休刊
+
+
+
+
+
+
+
+-----
+
+####  陶矢  
+##### 54532#       发表于 2021-3-3 16:19
+
+
+
+
+你马尔科这么厉害顶上战争怎么没见过
+
+jinzhang
+
+
+
+
+
+
+
+-----
+
+####  proselyte  
+##### 54533#       发表于 2021-3-3 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498728&amp;ptid=98922" target="_blank">陶矢 发表于 2021-3-3 16:19</a>
+
+你马尔科这么厉害顶上战争怎么没见过
+
+jinzhang</blockquote>
+马尔科顶上和三个大将都打过可以了
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 54534#       发表于 2021-3-4 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498728&amp;ptid=98922" target="_blank">陶矢 发表于 2021-3-3 16:19</a>
+你马尔科这么厉害顶上战争怎么没见过
+
+jinzhang</blockquote>
+小马哥顶上的主要对手是三大将+卡普，不说别的，这四个人从出场到现在吃过几回瘪？
+赤犬被白胡子痛殴，最后还能爬起来开无双。青稚目前唯一一次点明的败绩是十天十夜输给赤犬。黄猿和卡普不演的情况下目前还没有败绩。
+说到底只有世上最强男和未来的元帅能在这四个人身上占到便宜，小马这发挥已经很不错了。
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 54535#       发表于 2021-3-4 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498728&amp;ptid=98922" target="_blank">陶矢 发表于 2021-3-3 16:19</a>
+
+你马尔科这么厉害顶上战争怎么没见过
+
+jinzhang</blockquote>
+马尔科是顶上唯一一个没放水还控了场的强者啊。弹回了黄猿，在路飞昏过去之后也是他和甚平互换牵制住赤犬的。
+
+
+
+
+
+
+
+-----
+
+####  ネオグランゾン  
+##### 54536#       发表于 2021-3-4 05:11
+
+
+
+
+马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
+
+老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔科可以短时间面对King和Queen不败，那么钻石和维斯塔合力怕不是瞬间把Jack打出屎来。以藏这个等级的人在白船上估计也有7、8个。更别提白团这时还有艾斯和黑胡子。真打起来，百兽海贼团只有单方面被屠杀的份。
+
+
+
+
+
+
+
+-----
+
+####  faust123  
+##### 54537#       发表于 2021-3-4 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
+
+马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
+
+老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔 ...</blockquote>
+白胡子这人个人感觉还是挺。。爱好和平的？
+
+能大碗吃肉大碗喝酒儿女满堂的经济条件满足了，仗能不打就不打
+
+毕竟是个渴望家人的过日子人
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 54538#       发表于 2021-3-4 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
+马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
+
+老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔 ...</blockquote>
+沾上御田的剧情，不合理才是常态
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 54539#       发表于 2021-3-4 10:28
+
+
+
+<blockquote>ネオグランゾン 发表于 2021-3-4 05:11
+马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
+
+老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔 ...</blockquote>
+答案是智皇的人设营销唬到白胡子了。
+
+
+
+
+
+
+
+-----
+
+####  proselyte  
+##### 54540#       发表于 2021-3-4 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
+马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
+
+老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还能洗，当时白团实力没到顶上时候的水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  ceruleancard  
+##### 54541#       发表于 2021-3-4 10:53
+
+
+
+
+白胡子老实说我觉得还是符合人设的，他不喜欢复仇，在意还活着的人
+
+
+艾斯要去找黑胡子复仇，白胡子也是阻止了的，只是没拦住，御田同理，知道的时候人都死了很久了，为死的人把生的人搭进去，不符合他的人设
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 54542#       发表于 2021-3-4 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50474619&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-3-1 12:45</a>
+
+现在山治还有前三吗，弗兰奇将军和甚平稳压他一头，布鲁克最近的表现也很出彩，这都还没算上未来必成为船员 ...</blockquote>
+求求尾田大和这弱智不要上船
+
+
+
+
+
+
+
+-----
+
+####  ceruleancard  
+##### 54543#       发表于 2021-3-4 11:00
+
+
+
+
+大和都看过剧本了，必不可能成为船员，凯多败后，他手下的小喽啰要有地方安置，目测大和会统领他们，成为盟友甚至草帽大船团的一部分
+
+
+
+
+
+
+
+-----
+
+####  memo2  
+##### 54544#       发表于 2021-3-4 11:18
+
+
+
+
+每次更新我都要无能狂怒，大骂一波御田父子能不能消失......没哪个篇章看得像和之国这么痛苦的，蛋糕岛都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 54545#       发表于 2021-3-4 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506271&amp;ptid=98922" target="_blank">ceruleancard 发表于 2021-3-4 10:53</a>
+
+白胡子老实说我觉得还是符合人设的，他不喜欢复仇，在意还活着的人
+
+
+艾斯要去找黑胡子复仇，白胡子也是阻止 ...</blockquote>
+就是不肯承认我大凯多威名<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+区区白胡子红发，一起上吧，凯多赶时间
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 54546#       发表于 2021-3-4 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463345&amp;ptid=98922" target="_blank">309465205 发表于 2021-2-28 01:29</a>
+
+你把他当成有骨气且好色的刘禅就行
+
+刘禅再无能诸葛亮等人也会尊他为帝,因为"灭曹兴刘"是季汉政权的一面旗 ...</blockquote>
+阿斗要是这德行，皇叔第一个废了他的继承权
+
+
+前面还在批后汉所以倾颓也，这边弄个这种货色当继承人，跟着的兄弟们怎么想
+
+
+
+
+
+                               

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 01:04** 
+> ## **本文件最后更新于2021-03-04 03:40** 
 
 
 
@@ -2215,4 +2215,600 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 
 
 
-                                             
+
+
+-----
+
+####  miro112233  
+##### 78122#       发表于 2021-3-2 17:21
+
+
+
+ 本帖最后由 miro112233 于 2021-3-2 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482775&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 08:56</a>
+
+这个部分算是后面迦勒底ACE的说法对第六章转到奈须手里的原因做了一些美化了……很多内容跟一部六章出之 ...</blockquote>
+15年11月开始写6章的说法还挺靠谱的，证据就是开服拆包里没有的崔斯坦。第六章在16年6月实装，按照说了多少次的做一个从者要做半年，那崔斯坦也应该是在15年底之前决定放进剧本的
+
+
+不过菌类关于1.6又和成田有什么冲突了，伪理查吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么1.6有冲突之后1.7还能整出恩奇都和金谷的烂摊子让成田亲自在幕间擦屁股，还有2.4两边的医神人设冲突。
+
+真就把FSF扔给成田随便玩，但是FGO这边搞事也不会考虑FSF咯？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78123#       发表于 2021-3-2 21:50
+
+
+
+
+你游机器人又出动了，就隔了4个小时不到，登游戏一看进账了1W5友情点……
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78124#       发表于 2021-3-2 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50488278&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-2 17:21</a>
+
+15年11月开始写6章的说法还挺靠谱的，证据就是开服拆包里没有的崔斯坦。第六章在16年6月实装，按照说了多 ...</blockquote>
+啊发现miro老师（本来想隔壁搭话的但是我没有在手游区活动的隔壁号）
+
+
+老崔做的时机其实挺微妙的，不知道您有没有注意到，老崔是一部六章新出的五个圆桌相关人员里，唯一一个是初期模组的头身比的，别的四位都算是一部中期的风格了，这一点是挺奇怪……
+
+不过整体上我也觉得阿菌提的15年11月的时间点没问题，不过当时是改写了自己负责的部分（尤其是贝狄威尔和狮子王的故事主轴，这部分到来年看完maaya的LIVE以后才彻底完成），或许不包括来年春让他把樱井落下的部分也补了的事情（这部分推测包括众哈桑的互动、俩法老后期的剧情，可能也包括把跟皮克特人做交易的部分删掉的内容←这个实在是太无厘头了，要是加进去会很草生）
+
+
+一部六章跟成田的分歧按照当时编辑说法推测来应该是围绕“要不要在六章加入理查”的，最后伪理查应该是折中的方案，而且六章/ZERO其实对伪理查的身份给了点不算太详细的线索……
+
+至于恩奇都……小恩其实不算是出处算入FSF的角色，最早是武内做完人设以后交给森井画然后用在愚人节策划的FSF里的（地位近似于FA用了贞德一样），成田后面也算是在奈须搞砸以后收拾残局吧
+
+两边的态度我现在是倾向于各自为政（虽然有些微妙的cue来cue去的要素）。不止是医神人设出入，关于希波和彭忒的描述也是有很多对不上的，不过最重要的还是成田对于乌鲁克组的描写，成田是在刻意展现出他跟奈须迥然不同的理解的
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 78125#       发表于 2021-3-2 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490774&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 22:09</a>
+
+啊发现miro老师（本来想隔壁搭话的但是我没有在手游区活动的隔壁号）
+
+
+老崔做的时机其实挺微妙的，不知道 ...</blockquote>
+不用这么称呼我怪不好意思的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+我猜测菌类写1.6章剧情可能不止写了一遍吧，在写完基础剧情，又做了一些删改，阿格规文可能也是在之后的润色过程中加上的。而且直到最近菌类还在改1.6的剧情，比如说前几天发现的玛修出身年份的修改
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78126#       发表于 2021-3-2 23:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491343&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-2 23:03</a>
+
+不用这么称呼我怪不好意思的
+
+
+我猜测菌类写1.6章剧情可能不止写了一遍吧，在写完基础剧情，又做了 ...</blockquote>
+对，其实现存旧包里有一些一部六章和七章的细微改动，例如一些正式版本没用上的NPC立绘
+
+
+玛修出生年份的修改愿闻其详，我只注意过FSN时间莫名其妙的变动（发生于UBW TV前期，从2002年改为了2004年），以及因为这个导致的奥尔加玛丽年龄的改动（原本按照山中虎铁设定稿上的注释，极有可能奥尔加生于pale blue dot拍摄的年份）
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78127#       发表于 2021-3-3 00:21
+
+
+
+
+我好像头一次看到楼里再认真讨论剧情而不是互相海豹跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78128#       发表于 2021-3-3 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491932&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-3 00:21</a>
+
+我好像头一次看到楼里再认真讨论剧情而不是互相海豹跳脸</blockquote>
+没有池子给海豹豹，也只能讨论剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78129#       发表于 2021-3-3 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491932&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-3 00:21</a>
+
+我好像头一次看到楼里再认真讨论剧情而不是互相海豹跳脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你难道要抽旧剑？
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 78130#       发表于 2021-3-3 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491598&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 23:34</a>
+
+对，其实现存旧包里有一些一部六章和七章的细微改动，例如一些正式版本没用上的NPC立绘
+
+
+玛修出生年份的 ...</blockquote>
+前几天推特那个经常做考据和文本改动记录的推主发现的，在1.6医生讲述玛修身世的时候，把玛修的出生年份从2000年改成了1999年，lostroom的BD手册里的迦勒底时间线还写着迦勒底开发英灵融合素体和玛修出生都是2000年，说明修改手游文本的时间应该是近期内的事。
+
+我个人感觉是因为游戏内一部的时间被压到了一年，所以为了突出“玛修原寿命只有18年”的设定，把出生年份往前推了一年。顺便这里美服的翻译是“世纪之交”，说是1999年还是2000年都合理
+
+
+不过考虑到接下来的2.6有两个和玛修的过去有密切关系的角色……可能又是菌类写2.6写bug了返回去改时间线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78131#       发表于 2021-3-3 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494239&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-3 10:38</a>
+
+前几天推特那个经常做考据和文本改动记录的推主发现的，在1.6医生讲述玛修身世的时候，把玛修的出生年份从 ...</blockquote>
+啊是推上那个おらふ吧。那可是除了开服那次以外少见的几次文本正式改动了……
+
+
+FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不去说（2014冬→2015年7月），一部完结以后继续做也出现了很多预期之外的事态。以至于第二部基本上都避开对应实际时间在讨论了……
+
+玛修生日这个改动比较微妙，虽然一部末期罗曼提过玛修的寿命将尽，但是终章描写看起来她更像是挡了老盖人理炮而力竭，产生了类似细胞凋亡的效果化灰消失了。因为游戏内一部的物理时间本来应该就是一年（17年的迦勒底ACE武内提过原本打算16年7月就做终章的，开服的时候也说过是一年的期间限定运营），我不觉得这里是第一部时间有压缩的原因。
+
+
+结合这点看来这个改动可能是动了别的地方（例如LB6的贝利尔相关）的设定？或者压根是类似Fha里凛数自己祖先代数的时候数错了那种乌龙的情况，单纯游戏内年份间隔的描述的话确实是改成1999年比较合理（奈须蘑菇不仅英语成绩不理想，数学也不容乐观.jpg）
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78132#       发表于 2021-3-3 17:48
+
+
+
+
+天草真就全技能强化+宝具本达成了，亲儿子
+再看看白贞（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 78133#       发表于 2021-3-3 18:49
+
+
+
+
+进了剧情本点了一下洗礼咏唱发现怎么还给对面加红down的，长按了一下才发现原来不叫洗礼咏唱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+行吧，又强化了
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 78134#       发表于 2021-3-3 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某村姑也太惨了 明明是开服五星从者
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78135#       发表于 2021-3-3 20:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501164&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-3-3 05:45</a>
+
+某村姑也太惨了 明明是开服五星从者</blockquote>
+想起当初为了村姑开局反反复复刷的自己简直像个傻X<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 78136#       发表于 2021-3-3 20:52
+
+
+
+
+村姑好歹膀胱局还是有用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78137#       发表于 2021-3-3 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501804&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-3-3 20:52</a>
+
+村姑好歹膀胱局还是有用的</blockquote>
+好久没用过了。。毕竟连闪闪祭都取消了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78138#       发表于 2021-3-3 21:07
+
+
+
+
+我之前打2.5.2的时候还用村姑跟队长打了50回合膀胱局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78139#       发表于 2021-3-3 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501961&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-3 21:07</a>
+
+我之前打2.5.2的时候还用村姑跟队长打了50回合膀胱局</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">252我感觉已经是几年前的东西了 （话说实际多久了。。。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78140#       发表于 2021-3-3 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502018&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-3-3 21:14</a>
+252我感觉已经是几年前的东西了 （话说实际多久了。。。</blockquote>
+差不多1年了吧，记得是白情加Fa复刻后出的
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 78141#       发表于 2021-3-3 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501540&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-3 20:27</a>
+
+想起当初为了村姑开局反反复复刷的自己简直像个傻X</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我至今没有村姑
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78142#       发表于 2021-3-3 22:09
+
+
+
+
+侦探埃德蒙的礼装画得很不错，但这套衣服...乍一看以为是琴酒，贝尔蒙德和波本...
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78143#       发表于 2021-3-3 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482775&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 08:56</a>
+
+这个部分算是后面迦勒底ACE的说法对第六章转到奈须手里的原因做了一些美化了……很多内容跟一部六章出之 ...</blockquote>
+第五章质量一般，但第四章评价过低，流程拖沓，人物塑造浅显，乱发CP，小便王，几乎所有人都不满......于是吸取教训，第五章全程打打打，登场英灵十多个，还有高人气角色斯卡哈的登场，黑狗性能也强，总的来说风评大逆转。
+
+
+当然第五章问题确实多，南丁缺钱立绘，黑狗虐杀花嫁，芬恩不当发言，评价好也只是相对负分的第四章，第六章开始才是TYPE MOON水平的真格。
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78144#       发表于 2021-3-3 22:23
+
+
+
+
+等一哈子，鬼一法眼是蓝人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78145#       发表于 2021-3-3 23:02
+
+
+
+ 本帖最后由 UNISONIA 于 2021-3-3 23:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502508&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-3-3 22:15</a>
+
+第五章质量一般，但第四章评价过低，流程拖沓，人物塑造浅显，乱发CP，小便王，几乎所有人都不满......于 ...</blockquote>
+其实参照当时几个攻略网站评分（如果不是亲身经历过的人可以用achieve之类的wayback网站倒回去），一部五章的评价没有比一部四章好多少的。
+
+另外强卡从来就不能拯救风评，后面有几张强卡都是出在当年风评最差的时候
+
+
+加之罗生门和三藏天竺俩屑活动导致了大规模炎上，当时的运营状况是一个很不妙的程度。YC后面访谈里也提到这段时间做的很灰心一度跟团队探讨过要不要一部做完就不做了
+
+
+要说逆转只能说是第六章开始的（前面出的鬼岛评价也不怎么样，纵使奶光当时环境里很强）
+
+但是你要说这是TYPE-MOON水平的真格……只能说当手游写出来的东西不能跟别的媒体的作品比吧，水平标准不一样
+
+
+
+
+
+
+
+-----
+
+####  sosgame67  
+##### 78146#       发表于 2021-3-3 23:38
+
+
+
+
+要不是第4章屑到了极限5章的评价也就中等偏下吧..6章7章剧情演出都算是意料之外的优秀发挥，加上终章极天流星雨掐着时间的魔神柱讨伐演出（以及医生的终极牺牲）算是给1部低开高走画了个句号..但是现在这1年两章主线的拖拉进度到底是搞什么鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78147#       发表于 2021-3-3 23:41
+
+
+
+<blockquote>引用第78143楼里村紅葉于2021-03-03 22:23发表的  :
+
+等一哈子，鬼一法眼是蓝人吗</blockquote>
+看她的资料1啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78148#       发表于 2021-3-4 00:18
+
+
+
+<blockquote>UNISONIA 发表于 2021-3-3 23:02
+其实参照当时几个攻略网站评分（如果不是亲身经历过的人可以用achieve之类的wayback网站倒回去），一部五 ...</blockquote>
+第六章离蘑菇的上限确实很远，但在FGO这个框架里就算很出彩了。
+
+
+我对FGO一开始没啥指望，冲着武内的卡面玩的，比较喜欢的故事就第一次圣诞和第三章，因为搞笑剧情比较多...但第六章开始真的出现震撼人心的情节，算是拯救了这个游戏吧
+
+
+...虽说第一部最早的PV里已经剧透了全部章节的标题了，但蛇头虎尾的剧本真的让后期充满了惊喜。
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78149#       发表于 2021-3-4 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503249&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-3-3 23:38</a>
+
+要不是第4章屑到了极限5章的评价也就中等偏下吧..6章7章剧情演出都算是意料之外的优秀发挥，加上终章极天流 ...</blockquote>
+第六章开始，演出方面增加了场景CG（金字塔与圣枪对轰）以及敌方特有BUFF，然后第七章增加了多张头目特写（提妈）、特殊敌人（金古）和我方全新援助（梅林王哈刺猬闪），终章更是加入了特殊宝具动画，演出效果日渐提升。1.5.3开始加入了人物CG（垂死武藏），到如今各种不亚于正式ADV的战斗CG（神阿大战神迦），名牌GAL公司的优势逐渐发挥出来了。
+
+
+可惜现在也只能吊着一口气拖剧情，方便卖其他衍生产品，整个作品的节奏都烂了（武藏还要死多久啊）
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 78150#       发表于 2021-3-4 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502927&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-3 23:02</a>
+其实参照当时几个攻略网站评分（如果不是亲身经历过的人可以用achieve之类的wayback网站倒回去），一部五 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第四章主要是犯了创作大忌：机械降神啊.....（有句说句，2.5.2也是犯了这问题.....但那个起嘛算是有铺垫，只能说打打擦边球吧）
+第四章问题集中于角色过多，机械降神，无法聚焦于某个角色表现（因为每个角色都去写了），这其实怎么都会写砸.....
+第五章基本上角色焦点相对集中了，定时处决掉角色来渲染剧情，然后一对比就观感上好起来了
+
+
+
+
+
+
+
+-----
+
+####  auraria  
+##### 78151#       发表于 2021-3-4 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50505575&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-3-4 09:50</a>
+第四章主要是犯了创作大忌：机械降神啊.....（有句说句，2.5.2也是犯了这问题.....但那个起嘛算是 ...</blockquote>
+第四章不就是熊孩子出去打打打，每一节都四五次打各种杂兵人偶，打到吐了对面的中boss不知不觉都被打跪了，突然就飙个大boss特总出来，打完突然又飙个大boss黑枪出来，突然又走出两个和伦敦没啥联系的Golden和狐狸出来助战，特总还勉强有点神经病台词，黑枪连和熊孩子互动都没有突然登场突然离场，留下一脸懵逼的玩家，最后gay总登场收割人头，这算啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+                                            
