@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 04:45** 
+> ## **本文件最后更新于2021-03-04 06:42** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_DBTBQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_hffFa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_E79An" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_V4sUN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_rQrBP" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_D6I8W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_kdptu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_XGavg" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_BgILI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_rhnqZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_BIcCI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_b92BG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -27775,6 +27775,25 @@ v和网红差不多，流行热点随时都可能发生巨变。许多v也到了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 兔耳僵尸| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -28056,4 +28075,533 @@ panora来回横跳还行
 
 
 
- 
+
+
+-----
+
+####  purdre  
+##### 32950#       发表于 2021-3-4 13:35
+
+
+
+
+GBR...
+
+之前看就觉得播起来很心不在焉了，这么退了也行，说不觉得可惜是假的，不过我也不推她，就还好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32951#       发表于 2021-3-4 13:36
+
+
+
+
+哦。虹楼也和匿名版一样转移火力了阿……
+
+业界都是草台班子……咋就没人信呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32952#       发表于 2021-3-4 13:36
+
+
+
+
+ickr速度普通啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">派们郡郡去暗部帮忙好了
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 32953#       发表于 2021-3-4 13:37
+
+
+
+
+找个口子发泄吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32954#       发表于 2021-3-4 13:44
+
+
+
+
+查成分真是弱智
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 32955#       发表于 2021-3-4 13:47
+
+
+
+
+杏奴别想撇清关系，虹人气不过就加入一起冲龙吧，现在泥哥急需人手<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 32956#       发表于 2021-3-4 13:55
+
+
+
+
+好，一切矛盾转冲蝗！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 32957#       发表于 2021-3-4 13:56
+
+
+
+
+鸣神被ban是蜜之味的文野环（玩笑）
+
+（[https://youtu.be/sQVproP26zM](https://youtu.be/sQVproP26zM)）
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 32958#       发表于 2021-3-4 13:58
+
+
+
+
+如果之后gbr转生holo，不知这盛世该会如何
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 32959#       发表于 2021-3-4 14:02
+
+
+
+
+现在的杏有什么能吸引gbr吗？不用b限？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32960#       发表于 2021-3-4 14:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/140340wctournufxnzoaxc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210304140328.jpg</strong> (27.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 14:03 上传
+
+
+
+
+
+
+
+去了隔壁就能分分钟秒杀king的70w了
+
+
+为什么不去？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32961#       发表于 2021-3-4 14:04
+
+
+
+
+话说回来了，现在关于江良的去处的说法也没有准的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 32962#       发表于 2021-3-4 14:09
+
+
+
+
+没有，等她自己说吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 32963#       发表于 2021-3-4 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> gbr不是很明显不想做直播业了么
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32964#       发表于 2021-3-4 14:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不做直播还能做什么呢？其他职业能这么轻松愉快的赚钱么？
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 32965#       发表于 2021-3-4 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50508493&amp;ptid=1969498" target="_blank">黑漆漆的漆漆 发表于 2021-3-4 13:58</a>
+
+如果之后gbr转生holo，不知这盛世该会如何</blockquote>
+梁(乐)子可大了.
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 32966#       发表于 2021-3-4 14:18
+
+
+
+
+gbr要真转生木口那可就是虹创业以来最大的笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 32967#       发表于 2021-3-4 14:20
+
+
+
+
+阿江转杏那直接就是虚拟萨拉热窝，到时候v圈要化作一片焦土了（所以搞快点好想看
+
+
+
+
+
+
+
+-----
+
+####  间隙白垢  
+##### 32968#       发表于 2021-3-4 14:21
+
+
+
+
+转火不好，谁赶紧去开除一下杏籍
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32969#       发表于 2021-3-4 14:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 当初人家江皇，被中日彩虹箱推攻击，逃难去木口联动，人木口亲切的接待了她，
+
+
+现在人家毕业了，不玩了，那些骂过她彩虹叛徒的虹（囚）人还好意思出来说这件事？
+
+
+真是脸都不要了，喜欢批限看二创、学中文的新时代阳光虹人有一个算一个，都没资格评论人家江皇
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 32970#       发表于 2021-3-4 14:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叛忍环节又开始了吗
+
+但怎么是贷款的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 32971#       发表于 2021-3-4 14:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 当初人家江皇被净土宗囚人开除虹籍，现在人家毕业了，还不允许人家追求真正的梦想了？
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 32972#       发表于 2021-3-4 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">猜猴王去呆还不如猜她转生个人势实际
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 32973#       发表于 2021-3-4 14:34
+
+
+
+
+转生去杏是不是约等于现在开比特币矿场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 32974#       发表于 2021-3-4 14:35
+
+
+
+
+你楼又在贷款黑屁了
+
+
+Syl，真去...？
+
+<img src="https://img.saraba1st.com/forum/202103/04/143417cvv201u258egeee0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>応募します .jpg</strong> (185.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 14:34 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/143515b6hzvl1nc6zz6cnk.png" referrerpolicy="no-referrer">
+
+
+<strong>ギバさぶ郎.png</strong> (14.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 14:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32975#       发表于 2021-3-4 14:35
+
+
+
+
+天真，就不能是钓到凯子当富太太去了吗
+在杏再赚钱也是要出点力的啊
+20年她那副混吃等死的样子就差明说不差钱了吧
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 32976#       发表于 2021-3-4 14:38
+
+
+
+
+企业势找个班上更适合摸鱼的。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 32977#       发表于 2021-3-4 14:40
+
+
+
+
+q娃还是美妙天堂这种声优铁饭碗不是更费劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 32978#       发表于 2021-3-4 14:41
+
+
+
+
+楼友之前有个论点还是挺对的
+年轻人缺少社会的毒打
+就算在杏基本上也是老阿姨玩命捞钱，年轻人一个比一个摸
+
+
+
+
+
