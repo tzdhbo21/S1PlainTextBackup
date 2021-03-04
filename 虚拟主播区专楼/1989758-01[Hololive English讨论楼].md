@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-02 07:11** 
+> ## **本文件最后更新于2021-03-04 16:00** 
 
 
 
@@ -1917,4 +1917,814 @@ reine</blockquote>
 
 
 
-                                               
+
+
+-----
+
+####  wiig  
+##### 65#       发表于 2021-3-2 16:05
+
+
+
+ 本帖最后由 wiig 于 2021-3-2 16:20 编辑 
+
+搬一点萌百定型文
+
+<strong>Kureiji Ollie（印尼语：Kureiji Ollie，日语：クレイジー・オリー），是Hololive印度尼西亚（Hololive ID）二期生虚拟UP主中的一员，于2020年12月4日开始活动。人物形象由LAM所设计。</strong>
+
+Youtube：[https://www.youtube.com/channel/UCYz_5n-uDuChHtLo7My1HnQ](https://www.youtube.com/channel/UCYz_5n-uDuChHtLo7My1HnQ)
+Twitter：[https://twitter.com/kureijiollie](https://twitter.com/kureijiollie)
+
+<img src="https://img.saraba1st.com/forum/202103/02/155349j22vecxvxwl2daiq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (45.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 15:53 上传
+
+
+
+
+
+
+
+お墓から出てきたゾンビ女子高生。生前の記憶を頼りに家に帰ったが知らないラーメン屋になっていた。彼女はラーメン屋になってしまった家を取り戻すために、VTuberになることを決めた。从坟墓中出现的僵尸女子高中生。靠着生前的记忆返回家中却发现老家已经变成不明拉面馆了。为了将拉面屋变回自己的家，因此决定成为一名VTuber。
+妈妈（角色设计）：[LAM](https://twitter.com/ramdayo1122)
+爸爸（Live2D）：[けっふぃー](https://twitter.com/keffiy?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)
+
+
+<strong>Anya Melfissa（印尼语：Anya Melfissa，日语：アーニャ・メルフィッサ），是Hololive印度尼西亚（Hololive ID）二期生虚拟UP主中的一员，于2020年12月5日开始活动。人物形象由上仓エク所设计。</strong>
+
+Youtube：[https://www.youtube.com/channel/UC727SQYUvx5pDDGQpTICNWg?](https://www.youtube.com/channel/UC727SQYUvx5pDDGQpTICNWg?)
+Twitter：[https://twitter.com/anyamelfissa](https://twitter.com/anyamelfissa)
+
+<img src="https://img.saraba1st.com/forum/202103/02/155852lciw4whewl1ij42l.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (61.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 15:58 上传
+
+
+
+
+
+
+
+短剣クリスから人間となった小柄な女の子です！興味のないことや人に対して反応が薄くなるが、好きなことについて話すときは、とても子供っぽく熱心になる。
+
+由古代武器匕首「Kris」变身而成的少女。对于不感兴趣的事物就会反应迟钝，但遇到喜欢的话题和事物时就会变得像小孩子般热情。
+妈妈（角色设计）：[上倉エク](https://twitter.com/ekureea)
+爸爸（Live2D）：[深海潮](https://twitter.com/shin_umiushi_o)
+
+
+<strong>Pavolia Reine（印尼語：Pavolia Reine，日語：パヴォリア・レイネ），是Hololive印度尼西亞（Hololive ID）二期生虛擬UP主中的一員，於2020年12月6日開始活動。人物形象由飯田ぽち所設計。</strong>
+
+Youtube：[https://www.youtube.com/channel/UChgTyjG-pdNvxxhdsXfHQ5Q?](https://www.youtube.com/channel/UChgTyjG-pdNvxxhdsXfHQ5Q?)
+Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
+
+<img src="https://img.saraba1st.com/forum/202103/02/160036ihcgr9srry9cem0z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (47.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 16:00 上传
+
+
+
+
+
+
+
+孔雀のお嬢様。魔法アカデミーで魔法を勉強していたが。事故に巻き込まれてしまい、人間の世界に転移、その時に魔法はほとんど使えなくなってしまった。優雅で冷静に見えるが、怒るととても感情的になる。孔雀少女，
+
+在魔法學院中學習著魔法。但卻在考試中發生了意外，而轉移到了人類的世界，現在幾乎無法使用魔法，表面上看似優雅沉穩，但實際上生氣時會非常激動。
+妈妈（角色设计）：[飯田ぽち](https://twitter.com/lizhi3)
+爸爸（Live2D）：[入江燈](https://twitter.com/tou_ilie)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 66#       发表于 2021-3-2 16:31
+
+
+
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_SPMhQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+[过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 67#       发表于 2021-3-2 21:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/02/213313ya9aesfam9ha0k7j.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (213.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 21:33 上传
+
+
+
+
+
+[https://twitter.com/seica_4/status/1361965743043088385](https://twitter.com/seica_4/status/1361965743043088385)<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 68#       发表于 2021-3-3 00:25
+
+
+
+ 本帖最后由 wiig 于 2021-3-3 02:08 编辑 
+
+Calli贪吃蛇io，中二的起了一堆设定，蒙古巨型蠕虫etc，进场被人像捏小鸡崽一样围杀
+一直排不到一起去，就挂着后台干其他事情去了，听到很多诸如I can’t find calli，calli I sacrifice my soul的名字
+Kiara阳光马里奥，菜的可以，迫害Ina，发明新词CC PP--拥抱Calli尊敬Pekora
+更新，和Ame联动预订，Ame台
+
+
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 69#         楼主| 发表于 2021-3-3 08:28
+
+
+
+
+看了下anya，among us联动被shadow ban了好惨。。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 70#       发表于 2021-3-3 15:05
+
+
+
+ 本帖最后由 wiig 于 2021-3-3 15:09 编辑 
+
+Ina杂谈
+
+背景bgm很催眠
+
+开场部分已经有人烤肉了 强强4v 链接↓
+[伊那說我們弄哭EN組的下場 / Ina Saying What Would Happen If We made En Girls Cry [HololiveEN Clip 翻譯 剪輯]](https://youtu.be/3FZjO5lQ56Y)
+
+全家一起看动画，mama'nis有在看高达UC
+
+在电影院看为美好世界献上祝福，观众都很吵，有些生气，但是大家都是做自己，也不能说什么
+
+和mama'nis一起看齐木楠雄和EVA，看到eva就会想起来三期二创[（链接）](https://youtu.be/7O1WGScOKe4)，便乘聊了rushia的百万歌回
+
+看的时候在做炼乳+无糖咖啡果冻
+
+开始看vtuber的契机是在推特上看到A酱的动态，然后开始好奇，一点点了解深入，等挖到兔子洞的底的时候，继续向里面挖（意思就是越看越多，最后自己也加入vtuber）
+
+明天预定玩喷喷，想打排位赛，喜欢的动物是树懒
+
+中途有SC问多大年龄可以自称ancient one，Ina说当你起床很困难、从睡眠里得不到很好的休息的时候，就可以这样自称了
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 71#       发表于 2021-3-3 20:18
+
+
+
+ 本帖最后由 wiig 于 2021-3-3 21:08 编辑 
+
+Calli茶杯头
+
+菜，已经变成只会喊please have mercy的卑微模样
+
+等杂谈再repo
+
+没有杂谈，念完SC就说继续忙了，EP已经做完了吧？不知道忙啥，可能还有新歌
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 72#       发表于 2021-3-3 22:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/222427itdccwew6td3er40.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (626.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 22:24 上传
+
+
+
+
+
+[https://twitter.com/BidorTW/status/1367035422912565255](https://twitter.com/BidorTW/status/1367035422912565255)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 73#       发表于 2021-3-3 22:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/03/222745shlhupb41uvzr63h.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (326.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 22:27 上传
+
+
+
+
+
+
+apex中毒
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 74#         楼主| 发表于 2021-3-3 23:13
+
+
+
+<blockquote>wiig 发表于 2021-3-3 22:28
+apex中毒</blockquote>
+超敷衍2333
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 75#       发表于 2021-3-4 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503012&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-3 23:13</a>
+
+超敷衍2333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">能不能“凑巧”排到Ame
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 76#       发表于 2021-3-4 00:18
+
+
+
+
+干，发到V综去了
+
+<img src="https://img.saraba1st.com/forum/202103/04/001800qjxajjv0b8sr8e8e.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (149.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 00:18 上传
+
+
+
+
+
+
+Kiara桌面宠物
+[原文链接](https://twitter.com/__akkanen/status/1367049445674610688)
+[下载地址](https://drive.google.com/file/d/1C5nI69fSig84qdKyF5LLG1QGm6LJ9aFV/view)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| shiro7| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 77#         楼主| 发表于 2021-3-4 02:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/022030fj95o7mg11s995j5.png" referrerpolicy="no-referrer">
+
+
+<strong>EviFBqdWgAAwsP3.png</strong> (13.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 02:20 上传
+
+
+
+
+
+
+
+感觉鲨鱼正常画还是不错的，为什么画自己genmate的时候这么混沌2333
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 78#       发表于 2021-3-4 09:42
+
+
+
+
+三场阴间时间直播<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">1点 4点 7点
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 79#         楼主| 发表于 2021-3-4 09:47
+
+
+
+
+推荐补一下今天ame和火鸡，NTR现场+互坑 笑死我了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 80#         楼主| 发表于 2021-3-4 13:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/131505jzx6ixqkbv77puzi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ALRnI61l.jpg</strong> (81.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 13:15 上传
+
+
+
+
+
+
+
+梗图
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 81#       发表于 2021-3-4 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50505536&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-4 09:47</a>
+
+推荐补一下今天ame和火鸡，NTR现场+互坑 笑死我了</blockquote>
+换妻大会<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">另一边Calli和Gura更像带孩子郊游
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 82#       发表于 2021-3-4 14:38
+
+
+
+
+两张带孩子玩游戏的图
+
+<img src="https://img.saraba1st.com/forum/202103/04/143433ahjph1rjm1m0pjhv.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (269.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 14:34 上传
+
+
+
+
+
+[https://twitter.com/potato7192/status/1367340578120237058](https://twitter.com/potato7192/status/1367340578120237058)
+
+<img src="https://img.saraba1st.com/forum/202103/04/143749wb3vzhb3bhh4lb6k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (116.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 14:37 上传
+
+
+
+
+
+[https://twitter.com/CRUNCHY_MMLONI/status/1364852206780829697](https://twitter.com/CRUNCHY_MMLONI/status/1364852206780829697)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 83#       发表于 2021-3-4 14:46
+
+
+
+
+Calli的PCR工商，单独写了一首歌
+
+前略，分析歌词的内容部分，“要保护的笑容”里笑容指我的朋友，我原本想说要写一首关于朋友的歌，但我没什么朋友，然后我想到那个女孩，我在hololive里遇到的，那是我的朋友，我一边想着她一边写完了这首歌。我不是主角type的人，但我还是想要在你身边，和你一起努力
+
+GLORY TO TAKAMORI<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 84#         楼主| 发表于 2021-3-4 15:08
+
+
+
+
+力量4 无限的定情信物没了（
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 85#       发表于 2021-3-4 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509201&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-4 15:08</a>
+
+力量4 无限的定情信物没了（</blockquote>
+忘了哪期了，Ame说玩MC感觉lost，没目标
+
+倒是去打末影龙啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 86#       发表于 2021-3-4 18:14
+
+
+
+
+RIP Amelia Bowson
+<img src="https://i.loli.net/2021/03/04/rN9OVtMdspZqIoK.png" referrerpolicy="no-referrer">
+
+<img src="https://i.loli.net/2021/03/04/6SAzCaZFd3o1tGj.png" referrerpolicy="no-referrer">
+
+
+caligula这场太精彩了
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 87#       发表于 2021-3-4 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509352&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-4 15:23</a>
+
+忘了哪期了，Ame说玩MC感觉lost，没目标
+
+倒是去打末影龙啊</blockquote>
+这几个人都太客气了。上周gura休假前那期，她觉得鲨帽屋在山谷太憋屈想把山头炸了，但是又怕影响到别人，又跑海边盖新的。gura和ina都不去打烈焰人，因为觉得对方可能想去打。ina盖的铁厂，cali却不好意思拿铁。gura和ame又比较期待1.17的洞穴更新，不想走太远。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 88#       发表于 2021-3-4 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511362&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-4 18:35</a>
+
+这几个人都太客气了。上周gura休假前那期，她觉得鲨帽屋在山谷太憋屈想把山头炸了，但是又怕影响到别人， ...</blockquote>
+进了木口 人人都变yhm
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 89#       发表于 2021-3-4 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">Kiara把直播延迟到明天，希望shadowban整整一周后能自然解决，但我感觉希望不大，她有没有给TeamYoutube反映情况啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 90#       发表于 2021-3-4 22:42
+
+
+
+
+✧・ﾟ:*✿{ BIRTHDAY EP }✿*:・ﾟ✧ 
+
+
+“Your Mori.”
+
+4.4.2021
+
+
+The finishing touches are complete... and now you may see the full artwork by 零 (@ rei_17)!
+
+
+Pre-order the CD in stores now:
+[https://calliope.streamlink.to/2ndEPCD](https://calliope.streamlink.to/2ndEPCD)
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/224106r5stypiedoixbi84.jpg" referrerpolicy="no-referrer">
+
+
+<strong>✧・ﾟ-*✿{ BIRTHDAY EP }✿*-・ﾟ✧  .jpg</strong> (202.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 22:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/224106yb1mxhxim3ly7xth.jpg" referrerpolicy="no-referrer">
+
+
+<strong>sticker.jpg</strong> (166.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 22:41 上传
+
+
+
+
+
+
+有在国内的楼友具有购买意愿吗
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 91#       发表于 2021-3-4 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514146&amp;ptid=1989758" target="_blank">alcoholic1000 发表于 2021-3-4 22:42</a>
+✧・ﾟ:*✿{ BIRTHDAY EP }✿*:・ﾟ✧ 
+
+
+“Your Mori.”</blockquote>
+生日周边没有传统三件套，只有这一个专辑吗
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 92#       发表于 2021-3-4 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514935&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-4 23:50</a>
+ 生日周边没有传统三件套，只有这一个专辑吗  —— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v ...</blockquote>
+没有传统三件套不太可能，应该是分别发售，新ep我看到是线下渠道预约到，通常的生日set都是走booth
+
+
+
+
+
+                                              
