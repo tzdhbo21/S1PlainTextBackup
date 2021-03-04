@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-03 17:50** 
+> ## **本文件最后更新于2021-03-04 01:16** 
 
 
 
@@ -2417,7 +2417,7 @@ V吧也整了个转播台，在贴吧的直播，不过我刚上去看就被橄�
 
 
 公式ハッシュタグはこちら→【 #hololiveALT 】</blockquote>
-<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_NQneJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EubXslLUUAA9hpu?format=jpg&amp;name=large" id="aimg_HHPmm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3296,7 +3296,7 @@ b限真的是为了原神啊哈哈
 
 コンテ演出はえのきどさん、
 
-作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_OaguA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_af6UZ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_W082H" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+作監はUKさんです～！</blockquote><img src="https://pbs.twimg.com/media/EubfY_UVIAE6w7c?format=jpg&amp;name=large" id="aimg_TbZhd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/Eubeq6UUUAA1dN-?format=jpg&amp;name=large" height="570" id="aimg_ONpT4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)<img src="https://pbs.twimg.com/media/EubehWYVcAAuBIs?format=jpg&amp;name=large" height="570" id="aimg_OuVVs" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -23923,7 +23923,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
  本帖最后由 NBXX 于 2021-3-2 20:21 编辑 
 
-<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_mC1DY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/01debdcc7d93ae82bfe9c7d19bb9b7aa" id="aimg_pBBhB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 感叹做V不如做去xvideo福利姬容易的現よみ小姐
 
@@ -24045,7 +24045,7 @@ syl，听说P家即将出道的新V是暗妃的好友，大家的老熟人啊<im
 
 
 
-<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_MI444" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/b04c1dded3b6a730e9f86c4167f12f17" id="aimg_DWE0T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://www.youtube.com/watch?v=fM0llNaauvo](https://www.youtube.com/watch?v=fM0llNaauvo)
 
 【3Dお披露目配信】ただいま、お待たせ、動いて歌います【 #うみろる3D​ 】
@@ -25457,10 +25457,11 @@ QQ图片20210303222734.jpg
 
 
 
- 参与人数 10战斗力 +11
+ 参与人数 11战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1|欢乐多|
 | Zhudhh| + 1||
 | UnhappyTails| + 1||
 | -rm7-| + 1|属实好活|
@@ -26305,6 +26306,25 @@ Kiara桌面宠物
 [下载地址](https://drive.google.com/file/d/1C5nI69fSig84qdKyF5LLG1QGm6LJ9aFV/view)
 [原文链接](https://twitter.com/__akkanen/status/1367049445674610688)
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 2|好!|
+
+
+
+查看全部评分
 
 
 
@@ -27231,4 +27251,256 @@ lize-lulu电台牵扯了俩人多少精力，又有什么回报？
 
 
 
-   
+
+
+-----
+
+####  minamichisei  
+##### 32904#       发表于 2021-3-4 03:09
+
+
+
+
+许久没关心虹杏了，今天看到gibara的字幕组突然转了好几个老视频就觉得是不是发生了什么，没想到居然要引退了，不过说老实话也不是很惊讶，毕竟真的摸鱼好久了，估计是没热情直接退了，唉，这么看阿菜都这么久没动了感觉怕是也要退了，你虹真的只有半年了？v圈终于要退潮到这个地步了么，但也不惊讶，我甚至觉得可以说这圈子寿命已经很长了，这种繁荣该过去了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 32905#       发表于 2021-3-4 03:17
+
+
+
+
+ickr咋回事啊
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 32906#       发表于 2021-3-4 03:24
+
+
+
+
+......本来只是想看看sorasora新衣服相关的，怎么江良就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+又要进入下一个时代了吗
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 32907#       发表于 2021-3-4 03:29
+
+
+
+
+v和网红差不多，流行热点随时都可能发生巨变。许多v也到了瓶颈期了，调整不过来或者不愿跟着流量走，最终做不动了干脆退出改行也挺能理解的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总有那么一天，v圈那些大前辈将会一个接着一个离去。还是希望会有源源不断的新人能够接过前辈的火把，继续前行吧
+
+
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 32908#       发表于 2021-3-4 03:52
+
+
+
+
+之前只有会限的时候就已经不正常了吧，吸金力还在的，估计就是那段时间发生了啥
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 32909#       发表于 2021-3-4 07:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友差不多得了，gbr又不是19年的鼎盛状态，没有让虹半年的实力吧，只要男v上层没有毕业，虹女上层没有多人同时毕业，就不算什么事。（主要还是粉丝难受）
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 32910#       发表于 2021-3-4 07:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如德龙所说，在虹干不是长久之计，但这环球签约主播干了一年就跑路，连歌都没出完太狠了。虹fes签trinity原来是来占坑位的。
+
+
+
+
+
+
+
+-----
+
+####  Orekiakihiko  
+##### 32911#       发表于 2021-3-4 07:42
+
+
+
+
+也算是gbr拉我入这个坑的。但是确实20真的摸，摸得透彻，估计早就对这行没热情了，钱也赚的够多了。也别说啥资源不资源的，看她那样子估计早就想做咸鱼了吧。只是还是难受啊，一直摸下去也比这直接离开强
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 32912#       发表于 2021-3-4 07:59
+
+
+
+
+这下子三傻压力确实大了，估计要永远活在前辈的阴影之下了，不知道顶得住不。讲道理主播不该这么短命的，我五六年前看的斗鱼那帮人都还活的好好的
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 32913#       发表于 2021-3-4 08:05
+
+
+
+
+突然想起木口cn也是毕业之前把新皮音声3d一股脑全放了，演得挺emo过三个月如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 32914#       发表于 2021-3-4 08:13
+
+
+
+
+哪有三个月 这边刚毕业那边就上新号发动态了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 32915#       发表于 2021-3-4 08:25
+
+
+
+
+江湖儿女日见少
+
+每次看到毕业消息都会想起这歌
+
+
+
+
+
+
+
+-----
+
+####  久島鴎  
+##### 32916#       发表于 2021-3-4 08:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后半年!最后半年!
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 32917#       发表于 2021-3-4 08:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504665&amp;ptid=1969498" target="_blank">屑屑代沟尼亚 发表于 2021-3-4 08:13</a>
+哪有三个月 这边刚毕业那边就上新号发动态了</blockquote>
+严谨，是这边锣鼓喧天还没毕业，那边小号就开了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 32918#       发表于 2021-3-4 08:51
+
+
+
+
+聚散终有时，找不到自我了就放下来去找吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  
