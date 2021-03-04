@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 08:43** 
+> ## **本文件最后更新于2021-03-04 09:35** 
 
 
 
@@ -340,6 +340,25 @@ V又不是啥人上人职业，顶流V赚的有顶流歌手演员声优偶像多
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|炎上女王才是最安心的（）|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -500,4 +519,350 @@ holo百分百暴露中之人，而且不以为耻反以为荣
 
 
 
-                                                 
+
+
+-----
+
+####  tankai  
+##### 33029#       发表于 2021-3-4 16:44
+
+
+
+
+啊,是江 哥 拯救了V综昨夜到今天的流量.
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 33030#       发表于 2021-3-4 16:45
+
+
+
+
+说起19上，还是郡郡让人安心啊，老社会人了
+
+
+
+
+
+
+
+-----
+
+####  蜜瓜包  
+##### 33031#       发表于 2021-3-4 16:46
+
+
+
+
+不知道等葵皇宣布退役的时候2000会怎么样
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33032#       发表于 2021-3-4 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510227&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-3-4 16:40</a>
+
+纯路人，请问486的中之人是谁</blockquote>
+不是她姐姐在做什么职业特定到了吗，也是v还是什么别的来着忘了，就是没有照片
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33033#       发表于 2021-3-4 16:47
+
+
+
+
+阿葵一天没回来，2000就是一天的不安yhm
+
+
+不过你虹最近休的人太多了，连葛皇都在摸，确实让人不安
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33034#       发表于 2021-3-4 16:48
+
+
+
+
+等3bk退了就不用来看沙雕楼友了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33035#       发表于 2021-3-4 16:49
+
+
+
+ 本帖最后由 NBXX 于 2021-3-4 17:00 编辑 
+
+[https://twitter.com/vtama_info/status/1367396393288015880](https://twitter.com/vtama_info/status/1367396393288015880) <blockquote>V魂情報局
+
+@vtama_info
+
+V魂情報局からいくつか重大なお知らせがあります。</blockquote>
+<img src="https://p.sda1.dev/1/fafbe86ef9508c044d3267bb4d745842/QQ图片20210304165806.png" referrerpolicy="no-referrer"> <blockquote>【要約】
+
+前世の特定につながる情報の公開を
+
+いちからおよびその実演家が阻止したいと考えている。
+
+そうした情報公開を控えてほしい。
+
+【理由】
+
+①バーチャルライバーのイメージを守るため
+
+②昨今問題となっている、実演家本人への誹謗中傷や攻撃的行為から実演家本人を守るため</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 33036#       发表于 2021-3-4 16:50
+
+
+
+
+3周年Fes刚过，也有真的需要休休假，陪陪家人之类的需求吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33037#       发表于 2021-3-4 16:51
+
+
+
+
+葛摸鱼太正常了
+之前就有过好几天不播纯摸鱼的时候，fes连着几场live彩排下来怕是宅男的小胳膊小腿受不了了吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33038#       发表于 2021-3-4 16:52
+
+
+
+
+V魂还挺V的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33039#       发表于 2021-3-4 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510284&amp;ptid=1969498" target="_blank">CielChloe 发表于 2021-3-4 16:45</a>
+说起19上，还是郡郡让人安心啊，老社会人了</blockquote>
+可不敢乱说！！！！郡道干的傻事也不少，单纯是自我中心过了头才没被干死但离走人估计也不远了大概
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33040#       发表于 2021-3-4 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510394&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-4 16:53</a>
+
+可不敢乱说！！！！郡道干的傻事也不少，单纯是自我中心过了头才没被干死但离走人估计也不远了大概 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 总觉得军刀虽然是在新年谈抱负上一直谈吃最后说没啥抱负的人（以及说vtuber行业没几年啥的），但是反而有一种一直会做下去的安心感就是了。啥时候她不做了大概是真正V退潮标志之一吧。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 33041#       发表于 2021-3-4 16:57
+
+
+
+
+2000说他退v的时候要去外野爱讨论把号送了，所以我坚持刷v综生怕错过那一天
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33042#       发表于 2021-3-4 17:02
+
+
+
+
+郡道精神着呢，晚上还有郡神
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33043#       发表于 2021-3-4 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510293&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-4 16:46</a>
+不是她姐姐在做什么职业特定到了吗，也是v还是什么别的来着忘了，就是没有照片 ...</blockquote>
+特到姐姐的v身份也算特到了？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33044#       发表于 2021-3-4 17:10
+
+
+
+
+vtama重大告知
+[https://twitter.com/vtama_info/status/1367399090091257856](https://twitter.com/vtama_info/status/1367399090091257856)
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/170958y007aaem0d0koupp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (188.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 17:09 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/04/170958tw00lbbdnlkla9su.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (177.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-4 17:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33045#       发表于 2021-3-4 17:28
+
+
+
+
+看点：最大手事務所<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 33046#       发表于 2021-3-4 17:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怎么这么敏感，这就转入qq群作战了，不会是个杏信虹an吧
+
+
+
+
+
+                                                

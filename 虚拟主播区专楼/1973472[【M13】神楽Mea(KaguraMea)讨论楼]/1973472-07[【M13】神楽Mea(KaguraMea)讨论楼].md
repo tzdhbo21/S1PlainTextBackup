@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 08:46** 
+> ## **本文件最后更新于2021-03-04 09:37** 
 
 
 
@@ -17650,7 +17650,7 @@ oh shit<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" ref
 
 
 
-<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_z23Dz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_M3vOM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://gss0.baidu.com/9fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/4034970a304e251fcfbd8ab1a586c9177f3e5334.jpg" referrerpolicy="no-referrer">
 
 芝麻也是麻
@@ -18768,4 +18768,475 @@ syl我也确实衷心希望这就是反应过度，结果屁事没有。但是pt
 
 
 
-              
+
+
+-----
+
+####  Dualist彩  
+##### 10069#       发表于 2021-3-4 16:48
+
+
+
+
+大亏不配活着，除非和你麻贴贴，早就跟你们说了就是没人听啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10070#       发表于 2021-3-4 16:48
+
+
+
+
+你怎么出来后感觉放松了不少<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+也算是被苔苔这一口糖一口屎的操作搞瘪了，等明天再看吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10071#       发表于 2021-3-4 16:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反正怎样都和肉体厨无关了，躺好
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 10072#       发表于 2021-3-4 16:50
+
+
+
+
+明天晚上我可run了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10073#       发表于 2021-3-4 16:52
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-4 16:55 编辑 
+
+不是你麻的联动肉除了和minato aqua以外的都不配光速吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据我所知和黄兔子的那个ASMR联动去年9月搞得，10月还是11月底我就听说弄好了但是没人校对，12月有猛男天降校对好了，2月份放出来。
+
+反之和大亏的三人，次日四点一校差不多，早上10点二校还是12点来着，然后就发了，我有时候就很难理解这点
+
+不过新年那会儿看了一下播放量数据，也算是充分说明了，就算2-3天内烤完，播放量已经到了十万都难过的地步，对我来说这些现实比贴不贴PTSD的真实多了
+
+一个英文单词来形容就是Nonsense，甚至结合一些我知道的事情来看，我肚子都快笑痛了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">syl 我不是放松了，我现在打算做点自己喜欢弄的东西罢了，整天考虑一些有的没的老子一年干了200多个东西还要被官组的B人包括干活速度效率远不如我的贴贴人BB还要典着B脸看他们表演也是烦死我了。
+
+以后自己弄点狗屎特效，学学像素图绘画，摸摸PS AE PRE，随缘月更开开心心每一天不更好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10074#       发表于 2021-3-4 16:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">只要能跟上你麻的作息，我也能成为麻吗
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10075#       发表于 2021-3-4 16:56
+
+
+
+
+那首先你要成为neet并且有足够的生活经费啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然我现在被我那个狗屎老板过年欠工资欠到现在都快躺平等死了，过年过了科目四拿到车牌也只觉得没啥用。懒得开车
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10076#       发表于 2021-3-4 16:57
+
+
+
+
+麻和猴一起隐退，好看
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10077#       发表于 2021-3-4 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">贴贴人能放过小麻吗。
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10078#       发表于 2021-3-4 16:58
+
+
+
+
+他们都这样了 为什么不顺从他们呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10079#       发表于 2021-3-4 16:59
+
+
+
+
+那应该还没那么快，哦不过要是这次又被不幸言中然后泥哥正好很闲当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10080#       发表于 2021-3-4 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">快进到你楼熟悉的炎上隐退OV出道肉体厨完全胜利
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10081#       发表于 2021-3-4 17:02
+
+
+
+
+然后第一作就发现已经是台虎式了，在粉丝的一片心碎声中光速二次隐退销号嫁给日本极道天天被DV.jpg
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10082#       发表于 2021-3-4 17:03
+
+
+
+
+疫情影响现在**出道好多加内卷各种整容，小麻真的行吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10083#       发表于 2021-3-4 17:04
+
+
+
+
+带口罩出镜吧……
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 10084#       发表于 2021-3-4 17:04
+
+
+
+
+上fc2当主播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10085#       发表于 2021-3-4 17:05
+
+
+
+
+戴口罩卖点就是巨欧派了
+
+哦，小麻有巨屁股
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10086#       发表于 2021-3-4 17:05
+
+
+
+
+快进到黑人解禁
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10087#       发表于 2021-3-4 17:07
+
+
+
+
+100人，抓到就中出.jpg
+
+泥哥最近挺缺材料的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10088#       发表于 2021-3-4 17:07
+
+
+
+
+跨进到人妻第一作解禁，乱欲的翘臀水母女之被（）填空题或者便利店员被时停ZC，她这么喜欢就自己去演，多好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10089#       发表于 2021-3-4 17:16
+
+
+
+
+ET是彻底好了还是彻底疯了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10090#       发表于 2021-3-4 17:25
+
+
+
+
+和mk2,快没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10091#       发表于 2021-3-4 17:28
+
+
+
+
+那我建议你楼人人均一个JK女朋友再说我像他<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这比崽子现在准备考公反正
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10092#       发表于 2021-3-4 17:29
+
+
+
+
+贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10093#       发表于 2021-3-4 17:29
+
+
+
+
+去各种地方转了圈只能说太不出所料了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+第一次希望苔本无聊起来<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10094#       发表于 2021-3-4 17:31
+
+
+
+
+不要互动不要相关谈话祈愿<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10095#       发表于 2021-3-4 17:33
+
+
+
+
+那你还能指望什么，指望官组给你控评不成
+
+亦或者要不要你去应聘一下去官组，想办法混进去他们discord给你麻死谏啊hhhh
+
+都说几万次别看了，总有人去看了被恶心到了要哭，呜呜呜，我可不会同情你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10096#       发表于 2021-3-4 17:35
+
+
+
+
+官组还没转呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+             
