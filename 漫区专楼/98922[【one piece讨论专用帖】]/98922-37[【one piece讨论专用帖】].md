@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 03:35** 
+> ## **本文件最后更新于2021-03-05 03:34** 
 
 
 
@@ -122,17 +122,7 @@
 ####  届得到  
 ##### 54006#       发表于 2020-12-24 12:50
 
-
-
-
-空岛篇你们关注的神官？
-
-
-空岛的主线不是跨越百年的浪漫友情和守信之约？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1673,16 +1663,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  届得到  
 ##### 54085#       发表于 2020-12-30 12:10
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887059&amp;ptid=98922" target="_blank">萌萌哒兆兆 发表于 2020-12-30 12:06</a>
-
-画了vvvv的旗，说vvvv是国家，微博估计要炎上了</blockquote>
-哪个画面
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1937,17 +1918,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  届得到  
 ##### 54101#       发表于 2020-12-30 12:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887583&amp;ptid=98922" target="_blank">owada 发表于 2020-12-30 12:56</a>
-
-所以 1000话没在B漫出是这个吗</blockquote>
-叔叔最喜欢的不就是这种吗？
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2883,14 +2854,7 @@ SBS那张是26卷，02年出的单行本
 ####  届得到  
 ##### 54156#       发表于 2021-1-1 12:40
 
-
-
-
-和之国赶紧死吧，重启开下一篇了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3194,21 +3158,7 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 ####  届得到  
 ##### 54170#       发表于 2021-1-3 00:07
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916817&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-1-2 13:56</a>
-
-亚马逊莉莉这种人均霸气的国家怎么可能会开发不出流樱
-
-九蛇第一个出场的妹子小雏菊，也可以把霸气缠绕在 ...</blockquote>
-别问，问就是乡土爱我和之国天下无敌啊
-
-
-区区白胡子罗杰红发五皇还不是得跪舔我和之国的杰克苏
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3450,17 +3400,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  届得到  
 ##### 54182#       发表于 2021-1-5 12:19
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939980&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-1-5 00:56</a>
-Op的人物没有成长，只有过去，所有的人都是用一个过去回忆勾勒人物，这么多年了路飞还是傻逼，厨师还是好 ...</blockquote>
-是倒退了，2年后跪舔和之国的五皇不配给大智若愚的路飞提鞋
-
-—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4207,24 +4147,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  届得到  
 ##### 54218#       发表于 2021-1-15 10:51
 
-
-
-
-凯多思考着：“不久前在九里的时候这个臭小子才彻底输给我。之后到底发生了什么？！世界上只有几个人能和我一战，他以为他是谁？！”
-
-
-凯多看着路飞，他似乎在路飞背后看到了罗杰，白胡子，御田和洛克斯的影子（这里看不到洛克斯的具体轮廓）
-
-
-
-舔，就硬舔
-
-
-尾田到底知不知道御田这傻逼杰克苏已经是OP最大的败笔了，和之国这乡土爱剧情真的越看越是一坨屎
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5979,14 +5902,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ####  届得到  
 ##### 54314#       发表于 2021-1-31 12:00
 
-
-
-
-尾田仔，快点结束这傻逼和之国篇吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6834,16 +6750,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  届得到  
 ##### 54356#       发表于 2021-2-5 11:18
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235493&amp;ptid=98922" target="_blank">X(iaolw)S 发表于 2021-2-4 11:26</a>
-
-原来如此</blockquote>
-我自己玩PM的改版ROM，都喜欢把暴鲤龙属性改为水+龙<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10017,18 +9924,7 @@ WT给了他战斗服，还有战斗的定位的。
 ####  届得到  
 ##### 54525#       发表于 2021-3-1 11:01
 
-
-
-
-御田父子这对杰克苏真是恶心透了
-
-
-尾田但凡把给御田这对傻逼父子的父爱割一点给山治，海贼都不至于崩成这狗样
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10408,18 +10304,62 @@ jinzhang</blockquote>
 ####  届得到  
 ##### 54545#       发表于 2021-3-4 11:32
 
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506271&amp;ptid=98922" target="_blank">ceruleancard 发表于 2021-3-4 10:53</a>
 
-白胡子老实说我觉得还是符合人设的，他不喜欢复仇，在意还活着的人
+-----
+
+####  届得到  
+##### 54546#       发表于 2021-3-4 11:34
+
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
-艾斯要去找黑胡子复仇，白胡子也是阻止 ...</blockquote>
-就是不肯承认我大凯多威名<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+-----
+
+####  届得到  
+##### 54547#       发表于 2021-3-4 11:37
+
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
-区区白胡子红发，一起上吧，凯多赶时间
+
+-----
+
+####  proselyte  
+##### 54548#       发表于 2021-3-4 11:39
+
+
+
+ 本帖最后由 proselyte 于 2021-3-4 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506865&amp;ptid=98922" target="_blank">届得到 发表于 2021-3-4 11:37</a>
+
+按照目前海贼团战的水平看来，都是大当家一个人占据大半以上战力
+
+
+白胡子在顶上前实力只会是更强。</blockquote>
+我意思是可能那时候马尔科那波人还没顶上那么强
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不过这么洗也挺蠢的
+
+
+
+
+
+
+
+-----
+
+####  烟萝  
+##### 54549#       发表于 2021-3-4 11:48
+
+
+
+
+不剧透的问一下！和之国打完了吗！我能一口气补了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不能的话还得画多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
 
@@ -10430,22 +10370,410 @@ jinzhang</blockquote>
 -----
 
 ####  届得到  
-##### 54546#       发表于 2021-3-4 11:34
+##### 54550#       发表于 2021-3-4 11:48
+
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463345&amp;ptid=98922" target="_blank">309465205 发表于 2021-2-28 01:29</a>
+-----
 
-你把他当成有骨气且好色的刘禅就行
-
-刘禅再无能诸葛亮等人也会尊他为帝,因为"灭曹兴刘"是季汉政权的一面旗 ...</blockquote>
-阿斗要是这德行，皇叔第一个废了他的继承权
-
-
-前面还在批后汉所以倾颓也，这边弄个这种货色当继承人，跟着的兄弟们怎么想
+####  天使的日曜日  
+##### 54551#       发表于 2021-3-4 12:32
 
 
 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50507013&amp;ptid=98922" target="_blank">烟萝 发表于 2021-3-4 11:48</a>
+
+不剧透的问一下！和之国打完了吗！我能一口气补了吗
+
+不能的话还得画多久啊 ...</blockquote>
+还有好多人没分配对手，还没正式开始干部战，按以前2～3话一场战斗来算，三灾+六子最少也还要画半年以上才轮得到BOSS战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-                               
+
+
+
+
+
+-----
+
+####  高数  
+##### 54552#       发表于 2021-3-4 12:33
+
+
+
+
+和之国我看不下去
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54553#       发表于 2021-3-4 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506865&amp;ptid=98922" target="_blank">届得到 发表于 2021-3-4 11:37</a>
+
+按照目前海贼团战的水平看来，都是大当家一个人占据大半以上战力
+
+
+白胡子在顶上前实力只会是更强。</blockquote>
+鼬这个展开说说...
+
+
+
+
+
+
+
+-----
+
+####  届得到  
+##### 54554#       发表于 2021-3-4 14:28
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  kumquat_cc  
+##### 54555#       发表于 2021-3-4 15:54
+
+
+
+
+玉田这个人加进来直接把海贼那种全球遨游那种大航海情怀直接缩回了小日本村长干架的感觉。
+
+
+玉田这个人，真的看不下去，太恶心了，全是私货
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 54556#       发表于 2021-3-4 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509687&amp;ptid=98922" target="_blank">kumquat_cc 发表于 2021-3-4 15:54</a>
+
+玉田这个人加进来直接把海贼那种全球遨游那种大航海情怀直接缩回了小日本村长干架的感觉。
+
+
+玉田这个人，真 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实是因为御田的塑造完全是踩在老人气角色的头上吧，而自身的形象对于老人物没有任何正面加成，都是OOC。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 54557#       发表于 2021-3-4 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506893&amp;ptid=98922" target="_blank">proselyte 发表于 2021-3-4 11:39</a>
+
+我意思是可能那时候马尔科那波人还没顶上那么强
+
+不过这么洗也挺蠢的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题是当年的凯多团不是更菜嘛。。
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54558#       发表于 2021-3-4 18:09
+
+
+
+
+同为4皇的海盗团，凯多团那堆畜生从能力到气场都比大妈团那堆歪瓜裂枣儿女差太远了
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 54559#       发表于 2021-3-4 18:10
+
+
+
+
+新的情报图出来了，收回我之前说的小马哥对手太强的话，现在我也要说你马尔科这么厉害顶上战争怎么没见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fdream923  
+##### 54560#       发表于 2021-3-4 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506603&amp;ptid=98922" target="_blank">memo2 发表于 2021-3-4 11:18</a>
+每次更新我都要无能狂怒，大骂一波御田父子能不能消失......没哪个篇章看得像和之国这么痛苦的，蛋糕岛都没 ...</blockquote>
+一边连提前释出的文字情报都不放过，一边又反复表态看不下去，你们这是何苦呢
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 54561#       发表于 2021-3-4 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511148&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-3-4 18:10</a>
+
+新的情报图出来了，收回我之前说的小马哥对手太强的话，现在我也要说你马尔科这么厉害顶上战争怎么没见过[f ...</blockquote>
+因为让他吃瘪的也就几个，一个是狗哥，一个是卡普，一个是猴子。狗哥也不用说啥，顶上之战里面他连白胡子都打了，还不能让你吃瘪嘛。卡普老资历了，团过的四皇级别也不少。猴子打到现在为止，有人让他重伤过吗？
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 54562#       发表于 2021-3-4 22:40
+
+
+
+
+马尔高炸裂，吊打皇副皇二副
+
+五皇你多学学啊
+
+
+
+
+
+
+
+-----
+
+####  309465205  
+##### 54563#       发表于 2021-3-5 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50512489&amp;ptid=98922" target="_blank">武男 发表于 2021-3-4 20:31</a>
+
+因为让他吃瘪的也就几个，一个是狗哥，一个是卡普，一个是猴子。狗哥也不用说啥，顶上之战里面他连白胡子 ...</blockquote>
+红狗对菠萝头有过有效杀伤?
+
+
+
+
+
+
+
+-----
+
+####  晴岚  
+##### 54564#       发表于 2021-3-5 03:11
+
+
+
+
+看了图透……小马哥这根本就是可以1v3吧……来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  蔺无双  
+##### 54565#       发表于 2021-3-5 03:26
+
+
+
+
+不如换个角度想，过了三年小马哥变更强了，已经是准皇级别了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 54566#       发表于 2021-3-5 07:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50515825&amp;ptid=98922" target="_blank">309465205 发表于 2021-3-5 01:22</a>
+
+红狗对菠萝头有过有效杀伤?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">倒不如说是小马哥带着白残团，七武海，围殴红狗，也没能拿人家怎么样吧。我记得这楼前面在那时期讨论过这个。
+
+
+
+
+
+
+
+-----
+
+####  斯卡哈  
+##### 54567#       发表于 2021-3-5 07:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50516463&amp;ptid=98922" target="_blank">武男 发表于 2021-3-5 07:02</a>
+
+倒不如说是小马哥带着白残团，七武海，围殴红狗，也没能拿人家怎么样吧。我记得这楼前面在那时期 ...</blockquote>
+小马哥擅长的拖而不是输出啊，我怀疑白团以前是无可置疑的青海第一团的原因除了白胡子是最强男之外就是小马哥这种把同级别甚至更高级别的数个对手拖住好让其他人玩田忌赛马速战速决。要是对手像顶上红狗那样咬准一个目标不放完全不理你，小马哥作为坦也没啥强力技能控住对方
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 54568#       发表于 2021-3-5 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50516587&amp;ptid=98922" target="_blank">斯卡哈 发表于 2021-3-5 07:45</a>
+
+小马哥擅长的拖而不是输出啊，我怀疑白团以前是无可置疑的青海第一团的原因除了白胡子是最强男之外就是小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他们围殴残血阿狗，反而送了队长这个。不过现在最麻烦的局面还是两个四皇在。
+
+
+
+
+
+
+
+-----
+
+####  memo2  
+##### 54569#       发表于 2021-3-5 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50512235&amp;ptid=98922" target="_blank">fdream923 发表于 2021-3-4 20:08</a>
+
+一边连提前释出的文字情报都不放过，一边又反复表态看不下去，你们这是何苦呢 ...</blockquote>
+我想看草帽团和我恶心御田父子没冲突啊，御田父子像上班走了十年的那条路上面，突然出现的恶臭垃圾站，那我能怎样？我只能无能狂怒嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 54570#       发表于 2021-3-5 11:00
+
+
+
+
+感觉白胡子海贼团的队长数量和战斗力比草帽要强啊。
+
+御田+马尔科+艾斯+钻石+花剑+黑胡子
+
+
+
+
+
+
+
+-----
+
+####  luoyianwu  
+##### 54571#       发表于 2021-3-5 11:10
+
+
+
+
+桃之助……
+
+
+
+
+
+
+
+-----
+
+####  ネオグランゾン  
+##### 54572#       发表于 2021-3-5 11:24
+
+
+
+ 本帖最后由 ネオグランゾン 于 2021-3-5 11:33 编辑 
+
+图源出了，仔细看后，马尔科的表现并没文字预告里想象的高
+
+说是二打一，但Queen这家伙吊儿郎当动不动就走神的样子很难让人把这二打一当真，而马尔科对King的两下直击也根本没造成任何明显伤害。说到底就是依靠HP恢复大硬抗，Queen这边况且不说，King很明显是没掉什么血，但马尔科本人的EN和HP却快见黄了。马尔克个人实力当在King或Queen之上，但一打二无疑是太勉强了。不过这样也好，逻辑上也合理些。
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54573#       发表于 2021-3-5 11:25
+
+
+
+
+白胡子完全可以说时机未到的
+
+
+
+
+
+                              
