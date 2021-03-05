@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 12:48** 
+> ## **本文件最后更新于2021-03-05 13:35** 
 
 
 
@@ -17650,7 +17650,7 @@ oh shit<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" ref
 
 
 
-<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_K1lzz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_S6L8K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://gss0.baidu.com/9fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/4034970a304e251fcfbd8ab1a586c9177f3e5334.jpg" referrerpolicy="no-referrer">
 
 芝麻也是麻
@@ -21394,4 +21394,406 @@ B站事业民趁早入土吧<img src="https://static.saraba1st.com/image/smiley/
 
 
 
-         
+
+
+-----
+
+####  路人庚  
+##### 10223#       发表于 2021-3-5 20:50
+
+
+
+ 本帖最后由 路人庚 于 2021-3-5 20:52 编辑 
+
+bsyl，油管汗b站又不一样，而且这个联动明摆着是苔苔邀请的，那么她也没有什么拒绝的理由罢？避嫌避过头反倒会不好
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谜语人这事没办法，有些事大概就是没办法挑明了说，比如记者人可能已经退组了什么的（←我瞎编的），这种事能直接冷不丁的说出来吗
+
+能做的大概只有在了解谜语人是谜语人的前提下去看待各种各样的谜语了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10224#       发表于 2021-3-5 20:53
+
+
+
+
+就她现在这状态，跟批站v区的主流yhm一比的话真的能算打工人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+谁在意连一连啊，我就不明白她一定就要在这点上鬼鬼祟祟是要干啥，别的雷怎样都会避但唯独这个就不行是吧!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10225#       发表于 2021-3-5 20:57
+
+
+
+ 本帖最后由 路人庚 于 2021-3-5 21:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新时代谁还看日v啊，国v现在无论是 质 量还是瓜量香的透彻，你咩姐带完这波货后偶尔接几个什么bw线下商单也就大概能慢慢淡出阿b了，挺好的
+
+
+当然如果到时候阿b官号该走的走了，而且你们还有心思去接手的话就更好了（不过估计也挺难的，各种意义上
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10226#       发表于 2021-3-5 20:58
+
+
+
+
+多来点,最爱楼友聊天了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10227#       发表于 2021-3-5 21:01
+
+
+
+
+现在也是一种弱智time<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10228#       发表于 2021-3-5 21:01
+
+
+
+
+支持正义披露
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10229#       发表于 2021-3-5 21:02
+
+
+
+
+现在版本不是看日v的都是罕见了吗 还发展啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10230#       发表于 2021-3-5 21:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/210445nyej3o3641vi9cf6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>95FFF9DF-A5DB-4D33-B5F1-B49AB4A3C9B5.jpeg</strong> (198.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 21:04 上传
+
+
+
+
+
+
+（大概是北京20点15分）
+
+观测站不记录b站直播间的评论就比较麻烦
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10231#       发表于 2021-3-5 21:06
+
+
+
+
+帮小弟测试还行
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10232#       发表于 2021-3-5 21:07
+
+
+
+
+语音是条鸿沟，国v起来是大势所趋
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10233#       发表于 2021-3-5 21:07
+
+
+
+
+现招神乐组直播员，没有经验可以让老员工带
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10234#       发表于 2021-3-5 21:13
+
+
+
+
+关我臭几把事，都说老子现在自由身了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别你们接盘，反正老子这辈子都是海盗，不然怎么自由自在随心所欲。
+
+想起来他妈的就弱智，老子打个JB轴都有傻逼贝贝人给爹说因为大亏唱了所以thh龙了歌回，这群傻逼整天叫着毒唯毒唯然后11月那臭几把事乐一记者这些个傻逼谜语人就在那里装**<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> syl 什么狗屁线下商单，去年BW广州老子和复读机去那次全程看着就算了，那时候的确要顾及傻逼新时代或者线下极品连体婴之类的傻卵给你问个臭几把傻卵问题下不来台，但是那个臭几把音质我在现场大概只能通过陈睿他妈的子宫风干物才能听见来自阴间的音频，属实人下人体验。
+
+你要说所谓谜语，我就告诉你，谜语人本身不可怕。傻逼的是傻逼知道了你麻伤心然后不知道在哪里臭几把靠脑补还是通过自己组内臭几把关系在那里狗叫发红包庆祝某女士不来的普通粉丝，这才叫极品傻批。
+
+这件事我想了这么久，前阵子听到个傻逼说你麻都这样还不放下成见和官组合作，携手共进。
+
+我就想到了那句话，劝人大度，天打雷劈。哦，老子一年剪100，轴100，翻都他妈10个，合作什么，指全组全年总产量能倍杀这个数字好棒棒吗？还是和森永miu的osu拖了不知道臭几把几个月终于在招新人的时候啪啪啪的剪好了啊，哇塞。那说你妈个JB呢，你麻有今天关我臭几把事啊，内卷是你爹干的啊，粉头哥哥哪个不比我粉丝多或者名气大了，养出一群现在这个时代还整天残党残党自豪的一批然后11月你麻做了臭几把傻事啥几把好处都没捞着的这种光明贝贝银？建议赶紧去英灵神殿化身雪山上的银矿给你爹做装备打龙母，别浪费地球臭几把空气了。
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10235#       发表于 2021-3-5 21:15
+
+
+
+
+bsyl 看起来对九条还挺上心，啥时候联动一下MC，这一年来别的游戏没怎么会，狗屎MC这女人自己不玩我倒是比以前会多了，啥时候再勃啊
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10236#       发表于 2021-3-5 21:18
+
+
+
+
+这才是我来s1的原因啊 楼友发病真好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10237#       发表于 2021-3-5 21:19
+
+
+
+
+刷屏是吧😅
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10238#       发表于 2021-3-5 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10239#       发表于 2021-3-5 21:21
+
+
+
+
+长文檄文感觉很害怕
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10240#       发表于 2021-3-5 21:23
+
+
+
+
+老子又没求你看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10241#       发表于 2021-3-5 21:26
+
+
+
+
+来S1看恶堕和发病是真的很有意思，可惜的是很容易自己也变成这样的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10242#       发表于 2021-3-5 21:28
+
+
+
+
+不早就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10243#       发表于 2021-3-5 21:30
+
+
+
+
+我现在可以确定了...ET是彻底疯了……
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10244#       发表于 2021-3-5 21:30
+
+
+
+
+yysy，票宝本来就不正常，请不要把自己的先天性缺陷推脱到他人身上，要学会面对自己的不足，鼓足勇气，面对明天！
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 10245#       发表于 2021-3-5 21:33
+
+
+
+
+好事都是好事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
