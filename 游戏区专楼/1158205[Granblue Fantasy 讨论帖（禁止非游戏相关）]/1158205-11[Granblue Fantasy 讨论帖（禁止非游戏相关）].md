@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 01:16** 
+> ## **本文件最后更新于2021-03-05 08:44** 
 
 
 
@@ -1129,4 +1129,556 @@ lm季限齐玩土，不然玩暗
 
 
 
-                                               
+
+
+-----
+
+####  peh  
+##### 15062#       发表于 2021-2-23 09:18
+
+
+
+ 本帖最后由 peh 于 2021-2-23 09:22 编辑 
+
+fa不是更随便了吗?本来水防御性能就过剩，去年井的bba还没用呢，1101/莉莉/bba，1104，狗，插两根椰子随便吧..掉血没伤害的问题看看新lm了只能，说不定零圈同款..
+
+至于老男人，手操场合肯定铁板啊，fa开3技能你后备插龙吉修正主义开局点下3其实也不太影响的
+
+
+150hl我印象最深的还是鹰人了，满屏dodge真是恶心得不行
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15063#       发表于 2021-2-23 15:18
+
+
+
+
+当然是学2.0啦
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15064#       发表于 2021-2-23 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50412412&amp;ptid=1158205" target="_blank">peh 发表于 2021-2-23 09:18</a>
+
+fa不是更随便了吗?本来水防御性能就过剩，去年井的bba还没用呢，1101/莉莉/bba，1104，狗，插两根椰子随便 ...</blockquote>
+所以没错啊
+
+这是章鱼佬的余裕
+
+
+
+
+
+
+
+-----
+
+####  kiri.fonn  
+##### 15065#       发表于 2021-2-23 17:23
+
+
+
+
+咸鱼买号都是先确认收货后发号的吗，没买过不是很懂怕被坑
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15066#       发表于 2021-2-23 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50416696&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2021-2-23 15:28</a>
+
+所以没错啊
+
+这是章鱼佬的余裕</blockquote>
+水方也可以啊，水防御不是集中在角色端么..说不定设计一个能让仇闪站前排的boss，常驻130防
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 15067#       发表于 2021-2-24 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭还有群吗，想共斗刷大奶球拳皇跑FS找不到人
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15068#       发表于 2021-2-24 20:03
+
+
+
+
+大奶现在不都摸鱼的时候孤独fa吗，讲究一个日积月累效率无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+fs野车最近差不多7成的通过率吧，不过可以考虑下组队打拳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15069#       发表于 2021-2-25 08:24
+
+
+
+
+gbvs又有新bgm了 老贝的
+[https://www.youtube.com/watch?v=U_a8C0348zg](https://www.youtube.com/watch?v=U_a8C0348zg)
+
+估计要回流做一个2.0？
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15070#       发表于 2021-2-25 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50433407&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-2-25 08:24</a>
+gbvs又有新bgm了 老贝的
+
+https://www.youtube.com/watch?v=U_a8C0348zg
+
+估计要回流做一个2.0？ ...</blockquote>
+现成的素材 已经在天蓝3打过融合avatar核心版本。
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 15071#       发表于 2021-2-28 11:38
+
+
+
+
+标记斩必TA二动全队必TA追击暴击破限，虽然需要启动但是一旦启动了就3T100%追击，还是极大奥义+带25%破甲的技伤，我滴个龟龟我老婆简直是无敌了，面具姐人称小Zeta.jpg
+
+这没有Zeta水团95是要被吊打的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15072#       发表于 2021-2-28 11:58
+
+
+
+ 本帖最后由 peh 于 2021-2-28 12:00 编辑 
+
+没有单面打拳的盘子，但我记得狗1路射程也已经超过95血量了，有zeta大概能快一点但这大概是英雄佬需要考虑的，关键是单面打拳盘子保底2弓2枪...
+
+想了想是不是只有水单面还要靠凑暴击撑盘子的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  super0395  
+##### 15073#       发表于 2021-2-28 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50465099&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-2-28 11:38</a>
+标记斩必TA二动全队必TA追击暴击破限，虽然需要启动但是一旦启动了就3T100%追击，还是极大奥义+带25%破甲的 ...</blockquote>
+哪有全队必ta。。
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 15074#       发表于 2021-2-28 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50465305&amp;ptid=1158205" target="_blank">super0395 发表于 2021-2-28 12:03</a>
+
+哪有全队必ta。。</blockquote>
+手滑了，是想说有LM贞同款TA追击的这个被动的
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15075#       发表于 2021-3-1 03:17
+
+
+
+
+这个madao 感觉火又出了一个半调子的援护角色
+
+
+
+
+
+
+
+-----
+
+####  木原唯一  
+##### 15076#       发表于 2021-3-1 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50471534&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-3-1 03:17</a>
+
+这个madao 感觉火又出了一个半调子的援护角色</blockquote>
+2技能能改成现有血量的80%+不死身的话就非常好用了，目前这样子只能说火不配有正经防御人罢
+
+
+
+
+
+
+
+-----
+
+####  bl0ck  
+##### 15077#       发表于 2021-3-4 17:50
+
+
+
+
+现在适合入坑吗？先初始再接盘还是直接接盘？
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 15078#       发表于 2021-3-4 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50510961&amp;ptid=1158205" target="_blank">bl0ck 发表于 2021-3-4 17:50</a>
+
+现在适合入坑吗？先初始再接盘还是直接接盘？</blockquote>
+马上周年了，会有一大波白嫖抽卡，应该是一年之中最适合入坑的时候了。
+
+这游戏的卡池只能说...深不见底。有个好的初始对于新手来讲应该是很关键的。
+
+不过先初始再接盘跟直接接盘有什么区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15079#       发表于 2021-3-4 22:34
+
+
+
+
+……这7周年剧情现在看也就比去年的黑帮火拼好一点点……
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 15080#       发表于 2021-3-4 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514049&amp;ptid=1158205" target="_blank">navarra 发表于 2021-3-4 22:34</a>
+……这7周年剧情现在看也就比去年的黑帮火拼好一点点……
+
+—— 来自 samsung SM-G9880, Android 11上的 S1 ...</blockquote>
+至少月球没有黑手党不是么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 15081#       发表于 2021-3-4 23:23
+
+
+
+
+其实就是不该搞个预知类型的角色 最后还是直接开挂搞死
+
+无私全能的幽世 你好伟大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15082#       发表于 2021-3-5 06:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514582&amp;ptid=1158205" target="_blank">windlikeman 发表于 2021-3-4 23:23</a>
+其实就是不该搞个预知类型的角色 最后还是直接开挂搞死
+
+无私全能的幽世 你好伟大 ...</blockquote>
+一开始他出bug卡机时候就已经预见到了，肯定会被bug弄死……剧情里还搞得特别无敌，又是t轴操作又是高速影分身，结果就被bug杀了……
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15083#       发表于 2021-3-5 06:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514383&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-3-4 23:06</a>
+至少月球没有黑手党不是么</blockquote>
+无限二世也出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你游现在战斗力想上涨非得退化精神年龄到幼儿水平么……
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  木原唯一  
+##### 15084#       发表于 2021-3-5 07:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50516426&amp;ptid=1158205" target="_blank">navarra 发表于 2021-3-5 06:27</a>
+
+无限二世也出来了你游现在战斗力想上涨非得退化精神年龄到幼儿水平么……
+
+
+—— 来 ...</blockquote>
+捡回去那个是艾萨克造出来的复制品，战斗力涨了换了新衣服的那个本体还在月球上，建议读剧情的时候仔细点
+
+
+
+
+
+
+
+-----
+
+####  cowgp01  
+##### 15085#       发表于 2021-3-5 08:49
+
+
+
+
+被巴哈或者碧哥搞死就有逼格，女路人身边又不是没有。四大岛主就搞死你未免让人说一句你们月球人就这？吃货女就别说了真一不注意就死掉。不过好歹这次没黑手党，还是隔着萝卜去打没直接碰战力。逼格还有救
+
+
+
+
+
+
+
+-----
+
+####  bl0ck  
+##### 15086#       发表于 2021-3-5 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50512210&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2021-3-4 20:06</a>
+马上周年了，会有一大波白嫖抽卡，应该是一年之中最适合入坑的时候了。
+
+这游戏的卡池只能说...深不见底。 ...</blockquote>
+主要是担心一开始玩不懂，高价接盘初始不合心意，想先买个初始玩玩，再买比较好的接盘
+
+
+
+
+
+
+
+-----
+
+####  冰原狼  
+##### 15087#       发表于 2021-3-5 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50517335&amp;ptid=1158205" target="_blank">bl0ck 发表于 2021-3-5 09:20</a>
+
+主要是担心一开始玩不懂，高价接盘初始不合心意，想先买个初始玩玩，再买比较好的接盘 ...</blockquote>
+那可以直接自建，马上转盘了，自建也能玩
+
+gbf初始低的也有几百，单纯为了体验一下挺不值的
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 15088#       发表于 2021-3-5 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50517335&amp;ptid=1158205" target="_blank">bl0ck 发表于 2021-3-5 09:20</a>
+
+主要是担心一开始玩不懂，高价接盘初始不合心意，想先买个初始玩玩，再买比较好的接盘 ...</blockquote>
+那我感觉可以直接自开个号，或者随便找哪个骑空士要一个平时拿来白嫖的小号练练手之类的（应该很多人都有这种小号吧？）。先了解一下这游戏的基础，比如方阵武器盘的搭配、召唤和角色配置、主角职业、副本安排、主要常规活动及剧情等等等...自己一边玩一边对照着nga上的各种攻略看，等到对这游戏有一定了解了再去考虑更好的初始也没问题。当然更方便的办法是加个国人骑空士群，很多问题有老司机指路的话会更容易解决。
+
+
+如果你找不到人要号的话，那我这里倒是有个白嫖了两年多的号可以送人。作为主玩的号怕是不太够，但是也足够新人拿来感受一下了。想要的话可以私聊我。
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15089#       发表于 2021-3-5 16:01
+
+
+
+
+七周年了，自开要么重氪多吃点暗锅卡池的屎要么先养个一年再说（别忘了换欠片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  ラプシィア  
+##### 15090#       发表于 2021-3-5 16:28
+
+
+
+
+讲真，真要入坑哪怕买个石头号都好过自开
+
+
+
+
+
+
+
+-----
+
+####  边界循环  
+##### 15091#       发表于 2021-3-5 16:36
+
+
+
+
+其实自建也不是不行 建十几个账号 每个账号这次转盘过一轮 如果有比较好的可以自己用 不太好的也可以卖了买一个还可以的初始 去年周年最后那个池子足够狗 账号卖个大几百很简单
+
+
+
+
+
+                                              
