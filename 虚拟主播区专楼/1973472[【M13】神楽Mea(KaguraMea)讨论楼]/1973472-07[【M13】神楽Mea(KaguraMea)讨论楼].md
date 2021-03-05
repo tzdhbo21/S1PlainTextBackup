@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 13:35** 
+> ## **本文件最后更新于2021-03-05 14:38** 
 
 
 
@@ -17650,7 +17650,7 @@ oh shit<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" ref
 
 
 
-<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_S6L8K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_L8xn2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://gss0.baidu.com/9fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/4034970a304e251fcfbd8ab1a586c9177f3e5334.jpg" referrerpolicy="no-referrer">
 
 芝麻也是麻
@@ -21619,6 +21619,25 @@ bsyl，油管汗b站又不一样，而且这个联动明摆着是苔苔邀请的
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ashero| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -21796,4 +21815,550 @@ yysy，票宝本来就不正常，请不要把自己的先天性缺陷推脱到�
 
 
 
-        
+
+
+-----
+
+####  呓亘  
+##### 10246#       发表于 2021-3-5 21:36
+
+
+
+
+怪怪地雷票还是比ET正常的..
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10247#       发表于 2021-3-5 21:37
+
+
+
+
+我看还是事业民最魔怔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10248#       发表于 2021-3-5 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演得好，能再来一段吗
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10249#       发表于 2021-3-5 21:38
+
+
+
+ 本帖最后由 Cushaw 于 2021-3-5 21:41 编辑 
+
+容易发病是真的，现在提起冲冠一怒为红颜我第一反应是傻口yhm赶紧死<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+但是一看到麻姨的肉体我就会被净化<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10250#       发表于 2021-3-5 21:44
+
+
+
+
+好，麻阿姨的肉体的确不错，那么狗屎麻麻人的麻麻图呢，我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了我急了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10251#       发表于 2021-3-5 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老女人什么时候学别人把屁股怼在镜头上啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10252#       发表于 2021-3-5 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 10253#       发表于 2021-3-5 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我两年前就说过，看vtb的没几个正常人，你们也别表演自己的不正常了
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 10254#       发表于 2021-3-5 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10255#       发表于 2021-3-5 22:00
+
+
+
+
+罢了罢了，该说的很久之前都已经说过了，不过无论你们自己是怎么想的，但我一直都觉得你们可以（或者说有足够的能力）取而代之
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10256#       发表于 2021-3-5 22:02
+
+
+
+
+妈嗨，票宝你这么说我良心不安啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 10257#       发表于 2021-3-5 22:02
+
+
+
+
+乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉能成为这女人的粉丝，还整天在这楼里逛的人，大家多多少少都有点毛病<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真开心
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 10258#       发表于 2021-3-5 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 10259#       发表于 2021-3-5 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10260#       发表于 2021-3-5 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">楼友不用乱说
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Day_One  
+##### 10261#       发表于 2021-3-5 22:09
+
+
+
+
+之前听到有句话怎么说来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+bls线下现场，健谈的准是连体人，而交流障碍的准是毒唯
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10262#       发表于 2021-3-5 22:10
+
+
+
+
+性取向不是缺陷，只是差异而已
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10263#       发表于 2021-3-5 22:11
+
+
+
+ 本帖最后由 路人庚 于 2021-3-5 22:12 编辑 
+
+这句话我可以作证没这回事，因为我排队时候一直听着附近的你楼人（应该也不是贴贴人）叽里呱啦聊了一两个小时
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10264#       发表于 2021-3-5 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+什么v什么粉，什么v什么粉
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10265#       发表于 2021-3-5 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526048&amp;ptid=1973472" target="_blank">Day_One 发表于 2021-3-5 22:09</a>
+
+之前听到有句话怎么说来着
+
+bls线下现场，健谈的准是连体人，而交流障碍的准是毒唯 ...</blockquote>
+fnmdgp<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一个人是不是社障跟这个有几把关系
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10266#       发表于 2021-3-5 22:15
+
+
+
+
+愿意花5块钱说话的不太可能是交流障碍吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10267#       发表于 2021-3-5 22:17
+
+
+
+
+那花五块钱视奸的呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|嘶——那可太阴湿了！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10268#       发表于 2021-3-5 22:19
+
+
+
+
+我花5块钱是来看楼友弱智的。然后自己也开始不正常了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10269#       发表于 2021-3-5 22:20
+
+
+
+
+近朱者赤近墨者黑，但也许只是你心中潜藏的黑暗power被引发了出来，这时候就需要一首Bury the Light助兴了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10270#       发表于 2021-3-5 22:22
+
+
+
+
+新时代的机体可动性还不错嘛，你咩姐的新机体如果也是苔苔监修的话估计也就跟这种差不多了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10271#       发表于 2021-3-5 22:23
+
+
+
+
+再强的性能最后也会被封印，无所谓啦
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10272#       发表于 2021-3-5 22:25
+
+
+
+
+不看脸的话整体可动性蛮叫人羡慕的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10273#       发表于 2021-3-5 22:26
+
+
+
+
+至少平板脸不怎么明显，还可以，你咩姐的l2d未来可期（）
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10274#       发表于 2021-3-5 22:26
+
+
+
+
+希望能整个法国军礼的功能！
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10275#       发表于 2021-3-5 22:30
+
+
+
+
+我没看，在看那三把among us的快速回放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听人说磨蹭半小时还没开始，什么狗屎商法
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10276#       发表于 2021-3-5 22:31
+
+
+
+
+不出意外的话你咩姐40分钟后出场
+
+
+顺便一提联动形式是一对一聊天
+
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10277#       发表于 2021-3-5 22:33
+
+
+
+
+前面是介绍皮啊，耐心点
+
+
+syl，为啥要默认楼友都不正常，真的怪
+
+
+
+
+
+       
