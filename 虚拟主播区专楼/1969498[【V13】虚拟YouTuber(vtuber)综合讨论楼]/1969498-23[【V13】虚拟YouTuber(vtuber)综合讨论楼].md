@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 03:38** 
+> ## **本文件最后更新于2021-03-05 05:36** 
 
 
 
@@ -2418,6 +2418,25 @@ iofi怎么学起韩语来了，倒着走，学韩语这是要谁看<img src="htt
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|莫名觉得精辟|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -2465,7 +2484,9 @@ iofi怎么学起韩语来了，倒着走，学韩语这是要谁看<img src="htt
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠着19年上半年虹新人狂热火起来的gbr跟着虹退潮一并毕业某种很自然啊
+ 本帖最后由 winda 于 2021-3-5 11:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠着19年上半年虹新人狂热火起来的gbr跟着虹退潮一并毕业很自然啊
 
 
 
@@ -2556,4 +2577,506 @@ iofi怎么学起韩语来了，倒着走，学韩语这是要谁看<img src="htt
 
 
 
-                                             
+
+
+-----
+
+####  sgssk  
+##### 33133#       发表于 2021-3-5 11:42
+
+
+
+ 本帖最后由 sgssk 于 2021-3-5 11:44 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/113733tqkhcqj95q2i56lv.png" referrerpolicy="no-referrer">
+
+
+<strong>%[51_NY]KAY`0`DL%PJ3A$X.png</strong> (114.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 11:37 上传
+
+
+
+
+
+
+一个底层游戏v，出道时基本天天播天天播，年初得了病入院做手术，现在又因为并发症导致脊髓出问题，几乎下不了床，直播基本全停，还得她娘一直在医院照顾她，不然自己坐都坐不起来，吃不了饭……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然没放啥实锤证明，不确定有百分之几的艺术加工，总之各位观众和各位v都注意身体多加锻炼吧。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33134#       发表于 2021-3-5 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">啥时候楼友才能直球喷人呢
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33135#       发表于 2021-3-5 11:44
+
+
+
+
+现在很多主播的作息是可以不青春饭也给作成青春饭了，伤身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 点名批评老病体bzml
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 33136#       发表于 2021-3-5 11:48
+
+
+
+
+又不是温暖带家庭反哺个毛啊，彩虹不是狼性企业?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33137#       发表于 2021-3-5 11:51
+
+
+
+
+也想太多...
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33138#       发表于 2021-3-5 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50519078&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-3-5 11:36</a>
+还有大福怎么就不需要回报了？大福因为男朋友被炎上的时候gbr在干什么？在开会限 ...</blockquote>
+我本来也想提的
+后来想想大福那段时间直接天道酬勤，天天solo耐久apex把事情揭过去了
+不求人好吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33139#       发表于 2021-3-5 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 椎名现在播的也很勤劳啊，
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33140#       发表于 2021-3-5 11:58
+
+
+
+
+西西和男朋友估计是分了吧，最近完全回归彩虹大家庭了呢，感觉回到19年带我入坑的那个她，最近看她看的挺开心的，夜见🐶都不看
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33141#       发表于 2021-3-5 12:04
+
+
+
+
+楼友对夜见这种傲娇的样子
+怎么感觉有点像2000
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 33142#       发表于 2021-3-5 12:05
+
+
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">话说NIJISANJI从什么时候开始变得没趣的呢...？至少委员长都开始觉得不有趣了。最后包括其他观众就我看来，比起有趣不有趣，感觉更接近喜欢一个Liver，所以愿意看他。但就直播好不好看本身，基本都很乏味了。
+
+  
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">以及业界求求你给我们这种喜欢杂谈的人留点活路吧... 
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 33143#       发表于 2021-3-5 12:05
+
+
+
+
+呃，问下还有哪些主播像凛々咲这种观众由大量非本国人组成的吗？
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33144#       发表于 2021-3-5 12:06
+
+
+
+
+holo观众不是一堆洋大人
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 33145#       发表于 2021-3-5 12:07
+
+
+
+
+突然想不基德一次
+
+<img src="https://img.saraba1st.com/forum/202103/05/120710b6tcuwqisi7s6kzb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>suny.jpg</strong> (91.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 12:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33146#       发表于 2021-3-5 12:10
+
+
+
+
+确实不基德suny2008<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33147#       发表于 2021-3-5 12:11
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-5 12:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50519478&amp;ptid=1969498" target="_blank">hulaoda007 发表于 2021-3-5 12:05</a>
+话说NIJISANJI从什么时候开始变得没趣的呢...？至少委员长都开始觉得不有趣了。最后包括其他观众 ...</blockquote>
+都一样，新鲜劲过去了呗
+人的灵感是有限的，就算是杏以前也有牛郎店啥的好活，最近也是脑死扎堆游戏
+本来需要引进新人新活，可惜yhm只能抽到小废物
+所以我去看新的女人了，bora，asoul之类的
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33148#       发表于 2021-3-5 12:17
+
+
+
+
+我不知道虹什么时候变的无趣的，不过周二那场TRPG三个女人把社外的男人玩的死去活来我是觉得挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33149#       发表于 2021-3-5 12:20
+
+
+
+
+反哺能得什么好处吗?
+
+葛皇、湊皇能起来至少得有你本间三成功劳吧，然后呢
+
+
+做企划死路一条，盘活别人，带跨自己
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33150#       发表于 2021-3-5 12:25
+
+
+
+
+虽然但是 我还是蛮想看牛郎店的 虽然三期人心都散了 bzml卫星都不放了 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33151#       发表于 2021-3-5 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50519482&amp;ptid=1969498" target="_blank">YODOboi 发表于 2021-3-5 12:05</a>
+
+呃，问下还有哪些主播像凛々咲这种观众由大量非本国人组成的吗？</blockquote>
+杏以外的像Pikamee、MiCosmiC baby这类会外语的
+
+一般底边个人势外语浓度会比较高
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33152#       发表于 2021-3-5 12:28
+
+
+
+
+别骂了别骂了，葵皇自愿甘当绿叶的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33153#       发表于 2021-3-5 12:29
+
+
+
+
+要吃水不忘挖井人了么
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33154#       发表于 2021-3-5 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">西西炎上自然有她的反抗军小团体帮她抗火，犯不着让江皇出马
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 33155#       发表于 2021-3-5 12:29
+
+
+
+<blockquote>flyskywalker92 发表于 2021-3-5 12:06
+holo观众不是一堆洋大人</blockquote>
+我应该加个非虹杏吧，去四叶红迪的社区找，几乎都是这俩，，，
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 33156#       发表于 2021-3-5 12:32
+
+
+
+
+炎上那主要还是因为地声gta撕rp，会限期距离出道还是有挺长时间的，你虹大部分人撕rp都是假撕，有里人设的。
+
+
+按nico切片的按再生顺传播度高的刻板印象来看，gbr大部分都是音骂素材和黄色暴言。这和你虹杏的人区别那还是大了去了。天皇的刻板印象是电波女，你虹好几个呢。
+
+
+gamers那时一样要和种一做企划的。一起出道的kaza那时还有个称号叫粪企划之王。gbr爆火之后你虹的人在这个时间段或多或少都调整过营业路线。
+
+
+就算引退了以前的彩虹也回不来了。不管她去哪了，希望哪天累了还是能回来，不是王子候补但我也想为彩虹riamu提提水晶鞋。
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 33157#       发表于 2021-3-5 12:32
+
+
+
+
+快进到彩虹老好人阿葵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 33158#       发表于 2021-3-5 13:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50519829&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-3-5 12:32</a>
+炎上那主要还是因为地声gta撕rp，会限期距离出道还是有挺长时间的，你虹大部分人撕rp都是假撕，有里人设的 ...</blockquote>
+撕皮那事我觉得还好，但童话组联动强吻别人那事就问题不小了。
+
+
+
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 33159#       发表于 2021-3-5 13:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50519557&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-5 12:11</a>
+都一样，新鲜劲过去了呗
+人的灵感是有限的，就算是杏以前也有牛郎店啥的好活，最近也是脑死扎堆游戏
+本来 ...</blockquote>
+  我看都不看了... 也觉得看下去也没啥意思...顶多因为喜欢过所以时不时看看切片。 
+  顺便有一说一，彩虹周报的每周切片里有趣的内容也不多...
+
+
+
+
+
+                                            
