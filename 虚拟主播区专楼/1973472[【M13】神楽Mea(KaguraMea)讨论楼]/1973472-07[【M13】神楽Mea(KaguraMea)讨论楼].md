@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 15:38** 
+> ## **本文件最后更新于2021-03-05 17:02** 
 
 
 
@@ -17650,7 +17650,7 @@ oh shit<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" ref
 
 
 
-<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_RsjVT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_WxdOA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://gss0.baidu.com/9fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/4034970a304e251fcfbd8ab1a586c9177f3e5334.jpg" referrerpolicy="no-referrer">
 
 芝麻也是麻
@@ -23213,4 +23213,543 @@ bs什么v圈大手<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
-     
+
+
+-----
+
+####  Unlimited290  
+##### 10329#       发表于 2021-3-6 00:09
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-6 00:12 编辑 
+
+哈哈哈哈二宫的孩子是女孩子哈哈哈哈哈快进到扶他肥婆syl 好杀【果然我还是喜欢男人】【虽然有过一段时期死宅看到百合就很高兴的时期（这句存疑，事后再说），但最后还是男人好嗷】【百合营业？这种东西不就是死宅自己擅自认定的吗】
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10330#       发表于 2021-3-6 00:13
+
+
+
+
+听说有麻图，sj人实在蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10331#       发表于 2021-3-6 00:16
+
+
+
+
+白河豚的脑子是不太一样 "你确实没有百合营业 因为都是真的"<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10332#       发表于 2021-3-6 00:17
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-6 00:20 编辑 
+
+话题被评论区转成了我这辈子都完全无法理解的BL漫画杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过不关我事，摸了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10333#       发表于 2021-3-6 00:17
+
+
+
+ 本帖最后由 路人庚 于 2021-3-6 00:21 编辑 
+
+她宣布自己性取向正常也不影响一些人愿意脑补她是ntxl啊（
+
+
+syl，然鹅并没有麻图，视奸人你被钓了（
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10334#       发表于 2021-3-6 00:19
+
+
+
+
+天天和野男人玩还要宣布的吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10335#       发表于 2021-3-6 00:19
+
+
+
+
+sj人从隔壁m楼过来，感慨这屎绿色软件可真难用<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10336#       发表于 2021-3-6 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">终于要结束女同女猎人版本，回到野男人了吗
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10337#       发表于 2021-3-6 00:23
+
+
+
+
+是熬夜宣言，要熬到几点呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10338#       发表于 2021-3-6 00:24
+
+
+
+
+早上见了（
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10339#       发表于 2021-3-6 00:24
+
+
+
+
+喜欢长得帅的男粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10340#       发表于 2021-3-6 00:25
+
+
+
+
+各位楼友觉得自己有机会吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10341#       发表于 2021-3-6 00:25
+
+
+
+
+她 要 吃 人 辣 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10342#       发表于 2021-3-6 00:30
+
+
+
+
+这首圣诞歌不糊老子剪了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10343#       发表于 2021-3-6 00:31
+
+
+
+
+相信她，必糊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10344#       发表于 2021-3-6 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好奶
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10345#       发表于 2021-3-6 00:32
+
+
+
+
+支持正义剪辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10346#       发表于 2021-3-6 00:32
+
+
+
+
+花粉症还真是烦人
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10347#       发表于 2021-3-6 00:34
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-6 00:36 编辑 
+
+别尬黑，第一首debuff罢了，不过花粉症这东西的确麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10348#       发表于 2021-3-6 00:34
+
+
+
+
+太久不唱是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10349#       发表于 2021-3-6 00:37
+
+
+
+
+麻姨现在唱歌也不行了，以后嗯混的手段没有了，是不是该开始做asmr骗宅宅的钱了，或者说是不是该去拍小电影了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10350#       发表于 2021-3-6 00:39
+
+
+
+
+今晚这样就不是来唱歌的，晚上起来不得吹水个够<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 10351#       发表于 2021-3-6 00:40
+
+
+
+
+今天是因为花粉症。。。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10352#       发表于 2021-3-6 00:44
+
+
+
+
+跑黄兔子家里狂吃的鉴
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10353#       发表于 2021-3-6 00:45
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-6 00:47 编辑 
+
+吃多点，养膘养熟了就该做成菜了syl 唱的好不好建议左转V综楼和免费大战三百回合，虽然要我说就还是那句话，VTB的歌力（笑）
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10354#       发表于 2021-3-6 00:45
+
+
+
+
+什么时候行过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，如果v觉得自己唱得好请速速主流出道，vtb死路一条
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10355#       发表于 2021-3-6 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这年头主流也不好混啊。不然哪来这么多套皮出道的
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10356#       发表于 2021-3-6 00:49
+
+
+
+
+听vtb唱歌顶多听个响，这也能车多多少少了，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10357#       发表于 2021-3-6 00:49
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-6 00:55 编辑 
+
+八爷的歌【アイネクライネ】，好，这首不记得是不是一直翻车了，印象里总是有点微妙的走调，不过很适合这女人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好，漏词了，GG
+
+听到BUMP的这个东西兴奋到去摘花还行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10358#       发表于 2021-3-6 00:56
+
+
+
+
+有点快，应该是惯例的云厕
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10359#       发表于 2021-3-6 01:00
+
+
+
+
+有机会一定好好锻炼一下她的膀胱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10360#       发表于 2021-3-6 01:00
+
+
+
+
+fuji、nino的桃子轮着来啊
+
+
+
+
+
+    
