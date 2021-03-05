@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 05:38** 
+> ## **本文件最后更新于2021-03-05 12:48** 
 
 
 
@@ -17650,7 +17650,7 @@ oh shit<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" ref
 
 
 
-<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_Rnw88" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://cn.bing.com/images/search?view=detailV2&amp;ccid=7vVzdmgD&amp;id=800DB93BA84C1E4F93A480FAADA18AC26F9264E9&amp;thid=OIP.7vVzdmgDUWsNKvTKb-K_aAHaHa&amp;mediaurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fReef573766803516b0d2af4ca6fe2bf68%3frik%3d6WSSb8KKoa36gA%26riu%3dhttp%253a%252f%252fimg1.gtimg.com%252frushidao%252fpics%252fhv1%252f160%252f63%252f1552%252f100935025.jpg%26ehk%3d8MhiuFnKyXXr4u8sDn4q6Qn3dtRx6Dxj%252fUk8x4EIm3Y%253d%26risl%3d%26pid%3dImgRaw&amp;exph=640&amp;expw=640&amp;q=%e8%8a%9d%e9%ba%bb&amp;simid=608052977658301636&amp;ck=6CCF37FB4C6DEC5C3056F03246B2F692&amp;selectedIndex=17&amp;FORM=IRPRST" id="aimg_K1lzz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://gss0.baidu.com/9fo3dSag_xI4khGko9WTAnF6hhy/zhidao/pic/item/4034970a304e251fcfbd8ab1a586c9177f3e5334.jpg" referrerpolicy="no-referrer">
 
 芝麻也是麻
@@ -20523,4 +20523,875 @@ sj老人冒个泡<img src="https://static.saraba1st.com/image/smiley/face2017/17
 
 
 
-          
+
+
+-----
+
+####  掉头学姐  
+##### 10172#       发表于 2021-3-5 13:53
+
+
+
+
+今天可以看贴贴了开心，苔姨把大天使放c位，金憨憨放边上是为了什么呢
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10173#       发表于 2021-3-5 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 10174#       发表于 2021-3-5 14:25
+
+
+
+
+难道不是为了同接高一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10175#       发表于 2021-3-5 14:46
+
+
+
+
+你苔的工具人罢了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10176#       发表于 2021-3-5 15:05
+
+
+
+
+挂件苔我🦈了你<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10177#       发表于 2021-3-5 15:37
+
+
+
+
+苔苔又能收贴贴人的sc了，真开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10178#       发表于 2021-3-5 15:44
+
+
+
+
+大家都有美好的未来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10179#       发表于 2021-3-5 15:46
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-5 15:49 编辑 
+
+也未必是之前那种连麦啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">比起这种无聊的东西我还是比较期待啥时候能打点别的游戏，lol是真的这辈子都不想接触的游戏之一<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+syl 贴贴人哪有钱打给苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">整次五元的活可能收益都倍杀了。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10180#       发表于 2021-3-5 16:15
+
+
+
+
+我看去年那次打的挺多的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10181#       发表于 2021-3-5 16:27
+
+
+
+
+那关我屁事<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10182#       发表于 2021-3-5 16:45
+
+
+
+
+【因幡はねる 发布】
+内容：🎬18時から動画プレミア公開
+https://t.co/97mCSGhbQX
+【切り抜き】
+舞元「これはお前に返す！」
+みんな「プレゼント交換してる。仲いいな～あの二人」
+舞元啓介/神楽めあ/兎鞠まり/桃鉄50年対決 https://t.co/w8jeLx8gsc
+时间：2021-03-05 16:03:37 UTC+08:00
+
+兔妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+你麻到底什么时候和九条联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10183#       发表于 2021-3-5 16:50
+
+
+
+
+这东西说起来是不是已经两个切片了
+
+那还挺乐的，可以考虑练一下对帧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 10184#       发表于 2021-3-5 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">一直都是歌回，不然就是LOL和雀魂。好久没有其他新项目了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10185#       发表于 2021-3-5 17:16
+
+
+
+
+等没钱了 必须在打工和整新活二选一才能活下去的时候就有新项目了
+
+小麻这么嗯混 每个打钱的人都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10186#       发表于 2021-3-5 17:22
+
+
+
+
+呜呜别尬黑，难道不是业界的大家都是脑死循环中吗，观隔壁V综只觉尼基三基和杏花村仿佛都要明日黄花了一样。
+
+能快进到素人出道五黑一肥吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10187#       发表于 2021-3-5 17:38
+
+
+
+
+快进到我迎娶小麻转移存款逼迫麻酱再度营业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 10188#       发表于 2021-3-5 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10189#       发表于 2021-3-5 17:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">谁让你打那么多，自作自受
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10190#       发表于 2021-3-5 18:21
+
+
+
+
+打少了她就会随便找个穷小子跑了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10191#       发表于 2021-3-5 18:29
+
+
+
+
+我是穷小子 能跑我这吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10192#       发表于 2021-3-5 18:30
+
+
+
+
+没听到上次说以前减少频率之后打算直接跑的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在直播整活少了点但是参加了不少live活动我觉得还可以
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10193#       发表于 2021-3-5 18:31
+
+
+
+
+在楼友都不可能有机会的前提下，真的会有人希望你麻是正常的性取向么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10194#       发表于 2021-3-5 18:48
+
+
+
+
+上次都啥时候的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好比你基三基还是哪个企业势啥的V隐退来着，毕业之前噼里啪啦把一堆企划皮肤全部放出。
+
+懂了，快进到6月28日出道三周年equals to毕业日<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这波啊，这波是追随GBR
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10195#       发表于 2021-3-5 19:02
+
+
+
+
+可惜你麻只会☔然后悄悄消失<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 10196#       发表于 2021-3-5 19:14
+
+
+
+ 本帖最后由 Shiromeshi 于 2021-3-5 19:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">光说无用，能不能在隐退前把麻图搞出来
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10197#       发表于 2021-3-5 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10198#       发表于 2021-3-5 19:46
+
+
+
+
+今晚是十点？
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 10199#       发表于 2021-3-5 19:52
+
+
+
+
+其实她上次发病删推就能看出她的确有毕业的心，而且是那种完全不通知任何人直接毕业的那种。她想毕业绝对不会搞毕业回，当你反应过来的时候她就消失了。
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10200#       发表于 2021-3-5 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50524642&amp;ptid=1973472" target="_blank">gongge666 发表于 2021-3-5 19:52</a>
+
+其实她上次发病删推就能看出她的确有毕业的心，而且是那种完全不通知任何人直接毕业的那种。她想毕业绝对不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很自由 那次是真的恐怖 不过过了那个坎之后 我觉得她不会那样突然消失了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10201#       发表于 2021-3-5 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50524676&amp;ptid=1973472" target="_blank">ashero 发表于 2021-3-5 19:55</a>
+
+很自由 那次是真的恐怖 不过过了那个坎之后 我觉得她不会那样突然消失了 ...</blockquote>
+这又是哪来的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10202#       发表于 2021-3-5 20:02
+
+
+
+
+她要上次那样删推跑，我大概能记一辈子
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10203#       发表于 2021-3-5 20:04
+
+
+
+
+然后你咩姐带了一波货
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10204#       发表于 2021-3-5 20:08
+
+
+
+
+是叔叔的任务，是叔叔拯救了天狗，你们却恩将仇报<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10205#       发表于 2021-3-5 20:11
+
+
+
+
+那就消失啊，一定很好玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10206#       发表于 2021-3-5 20:13
+
+
+
+
+如果最后成为了叔叔的优质打工人的话，那确实没什么看头了呢
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10207#       发表于 2021-3-5 20:15
+
+
+
+
+叔叔不会放过小麻的 不榨干最后一丝利用价值不会放她走的
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10208#       发表于 2021-3-5 20:15
+
+
+
+
+那次到底是脑抽，还是义气，还是啥
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10209#       发表于 2021-3-5 20:15
+
+
+
+
+叔叔现在也看不上死肥婆谢谢，时代早就变辣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还是你指望死妈运营给你大变魔术MMGA啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10210#       发表于 2021-3-5 20:17
+
+
+
+
+打个屁的工啊，早点急流勇退吧😅
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10211#       发表于 2021-3-5 20:17
+
+
+
+
+比起这个，我更想知道咩组新人都要b限拜码头是谁指使的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10212#       发表于 2021-3-5 20:18
+
+
+
+
+模仿苔苔吧……
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10213#       发表于 2021-3-5 20:20
+
+
+
+ 本帖最后由 A2014720 于 2021-3-5 20:22 编辑 
+
+那叔叔能先把直播间倍率给搞正常嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+她继续玩失踪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+到现在也没转苔苔的推，都联动了还怕个屁啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+来b限那不是挺正常…
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10214#       发表于 2021-3-5 20:23
+
+
+
+
+已经便乘姨了，已经不会要死要活了，再过一段时间就会开始照片营业+舔耳了罢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10215#       发表于 2021-3-5 20:23
+
+
+
+ 本帖最后由 Dualist彩 于 2021-3-5 20:26 编辑 
+
+你们只是我观众，凭什么对老娘指手画脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+《没有她的live不如不要》删推亦属正常操作罢了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10216#       发表于 2021-3-5 20:27
+
+
+
+
+我不信她的长相能照片营业👋🏻
+除非给我看
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10217#       发表于 2021-3-5 20:27
+
+
+
+ 本帖最后由 路人庚 于 2021-3-5 20:29 编辑 
+
+但最后还是要了，而且看上去也蛮开心的样子
+
+
+所以这算是“真香”还是“姨”呢
+
+syl，害，照片营业又不非要露脸，养个什么猫猫狗狗的，抱在腿上、放在脚边拍个照不也是照片营业
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10218#       发表于 2021-3-5 20:28
+
+
+
+
+批限不都说了，运营要求的呗，不然哪来的光速黄标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倍率不更搞笑，O神200互动百万人气死喷是个人都知道这倍率杏花没了给谁了，咋还有人惦记着呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+数据这东西都说了，过年那点播放量充分说明你麻相关在现今时代的上限何在了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10219#       发表于 2021-3-5 20:30
+
+
+
+
+B站事业民趁早入土吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10220#       发表于 2021-3-5 20:34
+
+
+
+
+既然都被艹平接受了现在又回来参加这联动干嘛，苔苔的任务嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她在这边的发展谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10221#       发表于 2021-3-5 20:38
+
+
+
+
+相信见过b站某个账号一星期内从几千粉到百万粉的，都应该知道b站的粉丝数、点击量都意味着什么了才对（
+
+
+不过现在的问题大概是你咩姐有没有想过这一点，不过按照之前的说法她大概是完全懒得去想罢，毕竟“又佛又怂”
+
+
+顺便一提我说的“优质打工人”的意思是“明明公司可以不要你，但却还是费心费力为公司打工加班”这个意思，跟员工本身有多少价值无关的（倒不如说基本都是无价值的员工才会落到这个处境
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10222#       发表于 2021-3-5 20:43
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-5 20:47 编辑 
+
+这东西都说了，就是和犬山一对一的概率大，你楼虽然包括我在内黑屁连麦黑了十来页，但是我也不知道究竟连不连啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至于草平接受，你麻能冲冠一怒为红颜的人鬼知道有没有侥幸心理什么的，或者难听点还是那句话，问题认知严重性彼此的差距。我也说了这东西只要是连麦就算不在狗屎官组上，也必定会有酒厂这类二傻子靠着狗屎大亏的破几把歌看着周围人的鬼叫自嗨自我**开心烤肉的，你能理解这群人吗。反正连不连我都无所谓，现在无事一身轻，看傻子干了傻子的事然后说别人才是傻子，让我就想起了看着OWL谜语人放出英勇这队消息的时候吊样子【我懂，但我就是不说】。
+
+谜语人还是得死的，道听途说不知道哪来的狗屁二道贩子消息更得死。syl  所谓叔叔的优质员工人这狗屁话我说难听点，就你麻这样不被说懒狗都是新时代傻卵的仁慈了，害尽心尽力为叔叔当狗，按我说就是你可能连当狗都没资格，或者说早就不是以前了。
+
+
+
+
+
+         
