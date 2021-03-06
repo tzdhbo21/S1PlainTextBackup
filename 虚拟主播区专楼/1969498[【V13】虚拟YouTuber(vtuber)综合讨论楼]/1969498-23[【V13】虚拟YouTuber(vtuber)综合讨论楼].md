@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 10:39** 
+> ## **本文件最后更新于2021-03-06 10:37** 
 
 
 
@@ -3538,4 +3538,757 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-                                           
+
+
+-----
+
+####  影山银  
+##### 33184#       发表于 2021-3-5 18:55
+
+
+
+
+先是猫耳，然后大人化，再加上现在3d，作为因为小魔王入彩虹坑的我来说真是像自己女儿长大一般的欣慰啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33185#       发表于 2021-3-5 19:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/190255evf8vwnuwgmgjm8b.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210305190244.png</strong> (65.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 19:02 上传
+
+
+
+
+
+
+愚笨的女人还在高攀king和不破，
+
+
+聪明的女人已经在寻找潜力股了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| UnhappyTails| + 1|好梁木，我种！|
+| winda|-1|MKR激怒😡|
+| alcoholic1000| + 1|熊猫人，我的熊猫人...|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33186#       发表于 2021-3-5 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50523702&amp;ptid=1969498" target="_blank">kakera9576 发表于 2021-3-5 18:08</a>
+
+凛凛咲也不怎么会说英语，可很多白皮在看</blockquote>
+那是因为一开始就有人在英文同传啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kakera9576  
+##### 33187#       发表于 2021-3-5 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50524460&amp;ptid=1969498" target="_blank">katern 发表于 2021-3-5 19:33</a>
+
+那是因为一开始就有人在英文同传啊</blockquote>
+那怪不得了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33188#       发表于 2021-3-5 19:47
+
+
+
+
+黑黑参加的这是啥ape比赛啊太突然了吧
+八点就开始了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 33189#       发表于 2021-3-5 20:05
+
+
+
+
+ちゃん3D草
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33190#       发表于 2021-3-5 20:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/200759y6yn2anczaaofz7z.png" referrerpolicy="no-referrer">
+
+
+<strong>「DEEP BLUE TOWNへおいでよ」MZM Remix.png</strong> (57.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 20:07 上传
+
+
+
+
+
+
+这也太娇俏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然原曲舞蹈是这样没错...
+[https://www.youtube.com/watch?v=fAxNIsdSkTs](https://www.youtube.com/watch?v=fAxNIsdSkTs)
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 33191#       发表于 2021-3-5 20:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/200930qidi4oswdtd22vnv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Evs9Y1BVoAI1Qdv.jpg</strong> (358.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 20:09 上传
+
+
+
+
+
+[link](https://twitter.com/SennOsenn1127/status/1367799803296555009)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33192#       发表于 2021-3-5 20:15
+
+
+
+[https://www.youtube.com/watch?v=vdDC9M-n-7E](https://www.youtube.com/watch?v=vdDC9M-n-7E)
+
+【MV】GOLDEN BATS (Prod. by PSYQUI) / BOOGEY VOXX
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33193#       发表于 2021-3-5 20:16
+
+
+
+
+黛灰还转推了vr抽的新卡，不愧是铁血虹人
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 33194#       发表于 2021-3-5 21:12
+
+
+
+ 本帖最后由 AKili 于 2021-3-5 21:14 编辑 
+
+明天3期生联动啊
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 33195#       发表于 2021-3-5 21:44
+
+
+
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_y8hI2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_glaaW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_DbfI8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+twi：@shu_saku999
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 33196#       发表于 2021-3-5 21:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/215822mmbr7zoh74tjhioj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvuAXFiUUAEr3tw.jpg</strong> (172.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 21:58 上传
+
+
+
+
+
+
+[推特链接](https://twitter.com/Gohan_atatame/status/1367828049983537157)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 33197#       发表于 2021-3-5 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50525747&amp;ptid=1969498" target="_blank">KaboomMirai 发表于 2021-3-5 21:44</a>
+
+twi：@shu_saku999</blockquote>
+这竟然不是望月key？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33198#       发表于 2021-3-5 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50525973&amp;ptid=1969498" target="_blank">oshinoshinobu 发表于 2021-3-5 22:03</a>
+
+这竟然不是望月key？</blockquote>
+望月小号之一
+
+<img src="https://img.saraba1st.com/forum/202103/05/220845b4b47lz0l4t9e849.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (469.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 22:08 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/220844r7q059h6qh5xqa6h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (556.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 22:08 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/220843e35efe0em5iym7ym.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (384.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 22:08 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/220843mlwfozl32kfn4n0b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (507.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 22:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 33199#       发表于 2021-3-5 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50515375&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-5 00:23</a>
+
+因为如果去推特搞这个的话就会是，搜索郡道—发现有人说自己被block—点进账号，“很过分的骂人的话”—关 ...</blockquote>
+我之前一直有在推特搜郡道做心理强度训练
+
+低级-ぐんみち（一般都是虹友人这么喊她所以整体相对温柔点）
+
+中级-郡道
+
+高级-gndu
+
+
+之前炎的最厉害那段时候小心脏的确受不了了就禁了一段时间推特
+
+现在反正anti看郡道同接也死了基本就找下一个玩具了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33200#       发表于 2021-3-5 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526103&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-3-5 22:13</a>
+我之前一直有在推特搜郡道做心理强度训练
+
+低级-ぐんみち（一般都是虹友人这么喊她所以整体相对温柔点）
+
+ ...</blockquote>
+gndu偶尔还夹杂一点女同感想，最那个的不是嘘松吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+省一楼，郡道昨天玩游戏的时候基本上能听懂英文游戏指引，真的很感动，可能听说能力跟她说的那个线上英语训练平台有关，要是真能沉下心学把阅读那一块搞好就好了，将来和老板娘一起播播女同英语game<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+大家也看看郡道竞选米国总统的视频（玩笑）（[https://youtu.be/Nf0yzUEXxCw](https://youtu.be/Nf0yzUEXxCw)），多搞点这种meme比apex好万倍<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33201#       发表于 2021-3-5 22:37
+
+
+
+
+前几天肖战那个227事件一周年，在微信上看了个帖子，里边讲到主播业对偶像业冲击的部分还是挺有意思的，引用一下，红色是我标的，有兴趣可以全文都看看。
+[https://mp.weixin.qq.com/s/U_J-vIlAMwBnEeskeAEJtA](https://mp.weixin.qq.com/s/U_J-vIlAMwBnEeskeAEJtA)
+
+ <blockquote>林西：我们应该明确一点，偶像作为一个新兴职业，和演员、歌手这些演艺圈传统职业的区别是什么？你把偶像工业体系里所有旁枝末节的生产关系都抛除掉，最终只剩下一组生产关系，那就是偶像在用自己的“亲密关系劳动”（即某种旨在营造亲密关系体验和恋爱氛围的情感劳动，但这不是一个严谨的学术概念，也有一定歧义，姑且用之）置换粉丝的购买力和注意力。
+
+
+不管是握手会、见面会，还是微博问候、发自拍，偶像是在提供情感劳动（emotional labor），就像空姐对你露出八颗牙齿的微笑一样，这种笑容虽然外在体现是情感，但实际是经过加工、经过整饰的一种商品化的情感服务。
+
+
+通常被认为代表偶像业务能力的唱跳舞台，主旨其实也不完全是声乐、舞蹈能力的展示——就算有专业歌手和舞者在实力上碾压爱豆，粉丝也不会立刻转粉对不对。舞台表演其实更像是一种性魅力的呈现，这同样是营造亲密关系氛围的重要手段。</blockquote>
+<blockquote>GQ报道：或许现在是偶像工业的变革前夜？你的预测是什么？
+
+
+林西：我认为最近兴起的主播行业会釜底抽薪式地瓦解偶像工业现有的市场。大概从前年开始，很多经纪公司就意识到旗下的明星艺人还没有一些主播有影响力或者说有热度，很多主播的收入也早就比艺人高了。经纪公司纷纷安排艺人开始直播，这种生态位上的压制再迟钝的人也感受到了。
+
+
+我们可以把主播分为两类。一类是带货主播，他们抢占的是偶像代言变现的生意，你可能找一个idol代言口红还没李佳琦一晚上卖的多；另一类主播是陪聊主播，唱唱歌，聊聊天，打打游戏。我之前说，偶像的核心工作是提供亲密关系劳动，但这种亲密关系劳动又是寄生在影视工业和唱片工业之上的（而又不如演员和歌手有专业能力），否则的话它走不下去，你无法凭空成为偶像。
+
+而主播相当于把戏剧、舞台表演的工作完全砍掉了，专心致志地进行亲密关系劳动。而且这种劳动定时定点，每周每个月是有一定的直播时长的，我打开就能看到他，他不会像偶像一去拍戏就消失很多天。直播间是一个非常稳定的，有即时反馈、能实时互动的亲密关系劳动的场域，它的支付体系也很明确，一个礼物多少钱，明码标价，“粉丝福利”也能反馈到你本人。但在偶像行业里，你很难有这么积极的正反馈，偶像可能并不知道你花了多少时间和金钱为他打榜。
+
+
+所以我的基本判断是，中国内地的偶像工业可能会在它还没有被完善地建立起来时就被拆分，被蚕食，像曾经的唱片工业那样，一些功用被新兴职业所替代或消解。未来或许还会有这个行业存在，但影响力可能没有那么大。</blockquote>
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+| 獅白ぼたん| + 1|最后的判断reasonable|
+| CielChloe| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33202#       发表于 2021-3-5 23:12
+
+
+
+
+所以2434让狗仔媒体撤稿到底是“事情还有愚地”还是纯粹想等自己官宣？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33203#       发表于 2021-3-5 23:22
+
+
+
+
+是再不撤就要被认为“ickr提前泄露江良重要会限消息”的王侯和更加不信任ickr的大众粉丝干了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33204#       发表于 2021-3-5 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526340&amp;ptid=1969498" target="_blank">free 发表于 2021-3-5 22:37</a>
+
+前几天肖战那个227事件一周年，在微信上看了个帖子，里边讲到主播业对偶像业冲击的部分还是挺有意思的，引 ...</blockquote>
+这文章被豆瓣小妹妹判定为乐华买来踩xz的文章<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过还是可以一看。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 33205#       发表于 2021-3-6 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50519482&amp;ptid=1969498" target="_blank">YODOboi 发表于 2021-3-5 12:05</a>
+
+呃，问下还有哪些主播像凛々咲这种观众由大量非本国人组成的吗？</blockquote>
+蓝天使uto，没有一句日文
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33206#       发表于 2021-3-6 01:21
+
+
+
+ 本帖最后由 十四洲 于 2021-3-6 01:37 编辑 
+
+阿葵明天（今天）回归
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33207#       发表于 2021-3-6 14:25
+
+
+
+
+烂货圆脸又玩游戏，而且怎么这么喜欢给台词配音？是不是圆脸不人气声优的职业病犯了，傻了吧唧的，真想狠狠烫她
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33208#       发表于 2021-3-6 15:19
+
+
+
+
+警惕免费发情频度上升
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 33209#       发表于 2021-3-6 16:04
+
+
+
+
+有人统计下空妈新衣服之后，免费发情程度是上升了还是下降了？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33210#       发表于 2021-3-6 17:24
+
+
+
+
+不怪免费 新衣服视频太养
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33211#       发表于 2021-3-6 17:24
+
+
+
+
+nga虹楼吵啥缺德图呢 有人存了吗 长长见识
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 33212#       发表于 2021-3-6 18:14
+
+
+
+
+我记得之前你楼也发过，阿葵坐着的一张图，肚子给p大了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 33213#       发表于 2021-3-6 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">怀孕就是缺德图，什么脑回路
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33214#       发表于 2021-3-6 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50532537&amp;ptid=1969498" target="_blank">flyskywalker92 发表于 2021-3-6 17:24</a>
+nga虹楼吵啥缺德图呢 有人存了吗 长长见识</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202103/06/183020qihyidi1ibqzq515.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1615026563797.jpg</strong> (56.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-6 18:30 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 33215#       发表于 2021-3-6 18:35
+
+
+
+
+比狐皇那个肚脐都凸出来的基德多了，我还挺喜欢西瓜肚狐皇
+
+
+
+
+
+                                          
