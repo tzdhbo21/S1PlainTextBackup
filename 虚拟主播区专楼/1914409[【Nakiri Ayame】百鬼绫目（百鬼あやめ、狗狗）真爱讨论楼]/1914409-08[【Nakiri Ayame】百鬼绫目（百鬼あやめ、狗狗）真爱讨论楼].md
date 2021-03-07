@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 11:32** 
+> ## **本文件最后更新于2021-03-07 18:37** 
 
 
 
@@ -12833,7 +12833,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_qvAud" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_yz212" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15154,4 +15154,404 @@ apex yyds
 
 
 
-                     
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11348#       发表于 2021-3-7 20:39
+
+
+
+
+想狙来着就先打了两把白金 结果随便上了一百多 上赛季末质量变差了吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11349#       发表于 2021-3-7 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">最后这波不知道在打什么。
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11350#       发表于 2021-3-7 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马 菜
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11351#       发表于 2021-3-7 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队友3700伤害
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11352#       发表于 2021-3-7 21:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大腿机器人
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11353#       发表于 2021-3-7 22:48
+
+
+
+
+捡到激光笔能这么激动 太分奴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11354#       发表于 2021-3-7 23:07
+
+
+
+
+傻逼队友不被夹了没资源还不会跑 她自己必须卖队友的时候也一点不果断
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11355#       发表于 2021-3-7 23:18
+
+
+
+
+独狼被抓了开始怀疑人家了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+白金这个坑就是这么残酷啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11356#       发表于 2021-3-8 00:02
+
+
+
+
+老是爬白给扔了队友跑 打多了本来强项的枪法也会逐渐磨没了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11357#       发表于 2021-3-8 00:16
+
+
+
+
+一点身法没有也就这上限了 能换倒一个但敌人有三个 倒的一个你还没机会补<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11358#       发表于 2021-3-8 00:23
+
+
+
+
+绫总这是被cover最后通牒了？这几天播起来的时间加起来搞不好有两个月的量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11359#       发表于 2021-3-8 00:34
+
+
+
+
+亡灵给你狗子叠buff 华生也能打决赛 嗯是让你绫总带头犯罪给送没了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11360#       发表于 2021-3-8 00:35
+
+
+
+
+时长真没所谓啊 反正不播也是通宵打游戏 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11361#       发表于 2021-3-8 00:36
+
+
+
+
+播得多钱也多啊，可能是缺钱了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11362#       发表于 2021-3-8 00:37
+
+
+
+
+难怪日服脑瘫那么多 真有跟管人学技术的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11363#       发表于 2021-3-8 00:58
+
+
+
+
+她怎么又去尿了，不是才尿过没多久吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11364#       发表于 2021-3-8 01:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尿频尿急
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11365#       发表于 2021-3-8 01:01
+
+
+
+
+绫总这不是旧毛病了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11366#       发表于 2021-3-8 01:03
+
+
+
+
+红牛利尿
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11367#       发表于 2021-3-8 01:06
+
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-3-8 01:09 编辑 
+
+看派血压高了 来点绫人特有的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">笑话
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11368#       发表于 2021-3-8 01:14
+
+
+
+
+懒得<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11369#       发表于 2021-3-8 01:15
+
+
+
+
+僵尸妹又来看狗狗了
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 11370#       发表于 2021-3-8 02:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的是不会苟
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11371#       发表于 2021-3-8 02:17
+
+
+
+
+突然看到队友ID...百鬼组摸余仔还行
+
+
+
+
+
+                    
