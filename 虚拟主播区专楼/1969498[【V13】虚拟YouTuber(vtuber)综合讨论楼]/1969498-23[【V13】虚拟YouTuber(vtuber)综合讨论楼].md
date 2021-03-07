@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 10:38** 
+> ## **本文件最后更新于2021-03-07 16:59** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_dq755" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_q4f24" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_fapnE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_B3ctW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_OYAVr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_g69Ek" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -6702,6 +6702,616 @@ syl，就算真是女主角转生，这波西语进出大概也是要和原来�
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                                      
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|挺好的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33335#       发表于 2021-3-7 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541517&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-7 17:54</a>
+
+承认b站破圈吸粉以及团长天道酬勤就这么难吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你说的这些和狐皇买粉有什么因果关系吗？s1不是nga，木口当不了万能盾，在这玩这套只能是劈自己。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33336#       发表于 2021-3-7 18:52
+
+
+
+
+哈！为了eva不播的郡道美玲很有那味！我也想看<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！
+省一楼，感觉神成最近状态不是很好的样子<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33337#       发表于 2021-3-7 18:57
+
+
+
+
+神成这个完全是倒霉了
+
+
+
+
+
+
+
+-----
+
+####  突然空虚  
+##### 33338#       发表于 2021-3-7 18:59
+
+
+
+
+看到bfm，真心觉得如果苍月eli能回来的话也是极好的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 33339#       发表于 2021-3-7 18:59
+
+
+
+
+bora上大师了
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33340#       发表于 2021-3-7 19:01
+
+
+
+
+大师了，好！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33341#       发表于 2021-3-7 19:09
+
+
+
+ 本帖最后由 十四洲 于 2021-3-7 19:22 编辑 
+
+bora接触apex多久啊？本社要不还是直接抽卡吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天就开始cr训练赛了
+
+
+syl，这时候vr是真的被开除虹籍了，不知道多少以为bora是虹apex第一人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33342#       发表于 2021-3-7 19:09
+
+
+
+
+以前玩过，不过认真玩apex可以说是出道前后
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33343#       发表于 2021-3-7 19:14
+
+
+
+
+2434接力的时候说过，游戏时间是500h，和300h的nrk都算你虹天赋型选手
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33344#       发表于 2021-3-7 19:21
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-7 20:46 编辑 
+
+希望狱卒，小千这赛季也可以冲击一下大师<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+北大路那个新衣服披露是认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+花妈她们弄这个3d企划可以的
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 33345#       发表于 2021-3-7 20:07
+
+
+
+
+虹这迪斯尼3D歌回整的真好
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33346#       发表于 2021-3-7 20:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/201004lw13q1k8y3pw8kbb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>bgv.jpg</strong> (214.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 20:10 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| walfeds| + 1|好|
+| katern| + 1|好！|
+| alcoholic1000| + 1|好耶|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33347#       发表于 2021-3-7 20:10
+
+
+
+
+现在看起来，相对于cr杯，你虹观众更喜欢看ark一点
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33348#       发表于 2021-3-7 20:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541517&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-7 17:54</a>
+承认b站破圈吸粉以及团长天道酬勤就这么难吗？</blockquote>
+天道酬勤草 巨魔帆船差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33349#       发表于 2021-3-7 20:33
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-7 21:22 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/203209xbb8zdtvhptb5wdv.png" referrerpolicy="no-referrer">
+
+
+<strong>【3Dライブ】今夜はディズニーソング祭り！【#にじさんじ夢の国ソングステージ 】-2.p.png</strong> (245.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 20:32 上传
+
+
+
+
+
+<strong>谁还看Ark和Apex啊</strong><img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+【3Dライブ】今夜はディズニーソング祭り！【#にじさんじ夢の国ソングステージ】
+[https://www.youtube.com/watch?v=whXWGdrpaSc](https://www.youtube.com/watch?v=whXWGdrpaSc)
+
+
+Syl，店长3D
+
+<img src="https://img.saraba1st.com/forum/202103/07/203850sipfcww0m57limqp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#夕刻ロベル .jpg</strong> (428.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 20:38 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33350#       发表于 2021-3-7 20:49
+
+
+
+
+ark 我只能说不如让我看雀魂
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 33351#       发表于 2021-3-7 20:53
+
+
+
+
+明明直到最后还是很emo的气氛
+
+追加的番外突然就变成了很生艹的对唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33352#       发表于 2021-3-7 21:06
+
+
+
+
+真正的粉丝
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/210447jahxyutcvlxcmdgm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 699 - シン・エヴァンゲリオン公開おめでとう【EVANGELION】 - YouT.jpg</strong> (70.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 21:04 上传
+
+
+
+
+
+
+
+说实话郡道这小动画做得还行，能不能以后把播apex的时间用来搞这啊
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33353#       发表于 2021-3-7 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可不只是店长3d这么简单，星的未来是要全员3d然后办星live的，3d巨轮下水，yagoo的宏图霸业也要就此展开了，星的未来能达到什么程度，值得一看。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总感觉狐皇到时候会搞个live同时试听。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33354#       发表于 2021-3-7 21:25
+
+
+
+
+小蜜蜂总算不玩你那破B变人开始唱歌了，好起来了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33355#       发表于 2021-3-7 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> ark能活多久，取决于男人什么时候弃坑
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33356#       发表于 2021-3-7 21:52
+
+
+
+
+刚想去看一下梅丽莎的录播……当面私享<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33357#       发表于 2021-3-7 22:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/220426uurwrxqxx1kr2q64.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (34.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 22:04 上传
+
+
+
+
+
+
+神成怎么了？
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33358#       发表于 2021-3-7 22:56
+
+
+
+
+ロックンロールは人知れず / アザミ
+[https://www.youtube.com/watch?v=xeV27254pE4](https://www.youtube.com/watch?v=xeV27254pE4)
+
+
+还有本人出镜MV，JD真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 33359#       发表于 2021-3-7 23:59
+
+
+
+ 本帖最后由 sgssk 于 2021-3-8 00:41 编辑 
+<blockquote>이로하イロハ【NIJISANJI KR】
+
+[ゲリラ/게릴라]
+
+朝まで無言APEX特訓 / 아침까지 무언에펙특훈
+
+1:00~6:00まで
+
+
+入って来て頑張れって言ってくれれば嬉しいかも
+
+午後11:54 · 2021年3月7日·Twitter Web App</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">电竞魂？
+
+
+看了会儿还行啊，记得三个月前看roha的apex还是无助菜鸡，现在枪法和身法俨然都已经有普通白金水友的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">虽说再往上就难奢求了，但好歹也从完全不能看变成不会高血压了。
+
+syl想起来古守倒是好一段时间apex都只会傻刚枪，最近都没看了也不知道她有无练过
+
+
+zsyl，原来roha确实都快白金3了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33360#       发表于 2021-3-8 00:15
+
+
+
+
+啊，本周🌈就要改朝换代了啊，历史性的一周……
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33361#       发表于 2021-3-8 00:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，还是找正经电竞人代打吧，
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 33362#       发表于 2021-3-8 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花江不仲可以有么？花江加一个阿菜和leader来一个复刻vr帕水事件吧
+
+
+
+
+
+                                     
