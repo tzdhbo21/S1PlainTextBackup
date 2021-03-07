@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 16:00** 
+> ## **本文件最后更新于2021-03-07 07:58** 
 
 
 
@@ -2029,7 +2029,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_SPMhQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_UL50w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -2727,4 +2727,554 @@ Pre-order the CD in stores now:
 
 
 
-                                              
+
+
+-----
+
+####  smy20011  
+##### 93#         楼主| 发表于 2021-3-5 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511362&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-4 18:35</a>
+
+这几个人都太客气了。上周gura休假前那期，她觉得鲨帽屋在山谷太憋屈想把山头炸了，但是又怕影响到别人， ...</blockquote>
+龙是大事件，她们想en一起联动玩，不过她们时区有问题，所以一直没联动成功。现在MC没有村民交易所以及信标基本上很难玩，EN服的科技有点低。。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 94#         楼主| 发表于 2021-3-5 12:47
+
+
+
+
+AME玩的这啥游戏。。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 95#       发表于 2021-3-5 12:52
+
+
+
+
+观感像幼儿园看图识物的教材<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 96#       发表于 2021-3-5 16:16
+
+
+
+
+Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">希望只是bug
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 97#       发表于 2021-3-5 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">看完了早上的papers,please! 好多情节看的时候很好笑，但是repo打字出来味不对，有点尴尬
+
+比如聊天室有人说Stop screaming，Gura说 Screw you
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 98#       发表于 2021-3-5 23:23
+
+
+
+
+一觉醒来整了俩活
+
+<img src="https://img.saraba1st.com/forum/202103/05/231934al822m79mlnbhehz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (85.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 23:19 上传
+
+
+
+
+
+
+第三次出道直播了，大概一个季节出道一次，以后一年出道十二次<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/05/232203ofph8i8ocop6p3zo.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (10.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 23:22 上传
+
+
+
+
+
+
+#FreeKiara，哈恰玛复刻
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 99#       发表于 2021-3-5 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">Ina的会限APEX转成公开台，但是会随机邀请留言的会员一起玩
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 100#         楼主| 发表于 2021-3-5 23:31
+
+
+
+<blockquote>wiig 发表于 2021-3-5 23:23
+一觉醒来整了俩活
+
+
+第三次出道直播了，大概一个季节出道一次，以后一年出道十二次
+</blockquote>
+rp入脑www，holoen 三期debut
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 101#       发表于 2021-3-5 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526818&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-5 23:31</a>
+
+rp入脑www，holoen 三期debut</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">是holoDE 1st gen！
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 102#         楼主| 发表于 2021-3-6 02:13
+
+
+
+
+火鸡德语反而是最软的？
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 103#         楼主| 发表于 2021-3-6 02:15
+
+
+
+
+火鸡德语行不行啊，忘记炸鸡怎么说了23333
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 104#       发表于 2021-3-6 02:23
+
+
+
+
+火鸡这个直播也太辛苦了，德日英轮流说一遍
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 105#         楼主| 发表于 2021-3-6 02:25
+
+
+
+
+满屏的德语会员，到底多少欧洲人看火鸡啊2333
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 106#       发表于 2021-3-6 02:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">还有德语版hinotori
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 107#       发表于 2021-3-6 05:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/06/051528tluhnyjyju1t8eum.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (175.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-6 05:15 上传
+
+
+
+
+
+
+reine已经收益化了，好快
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 108#         楼主| 发表于 2021-3-6 05:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50527956&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-6 05:15</a>
+
+reine已经收益化了，好快</blockquote>
+他们早就过了吧。。只是开会员罢了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 109#       发表于 2021-3-6 05:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50527966&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-6 05:24</a>
+
+他们早就过了吧。。只是开会员罢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">是随时都能开，但是emotes没画好吗
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 110#         楼主| 发表于 2021-3-6 07:42
+
+
+
+
+ina吃鸡！
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 111#         楼主| 发表于 2021-3-6 10:16
+
+
+
+
+联动杂谈2333
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 112#         楼主| 发表于 2021-3-6 11:41
+
+
+
+
+好消息：DBD赢了
+
+坏消息：Anya和Gura死了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 113#       发表于 2021-3-6 11:51
+
+
+
+
+会员和收益化是两套审核，会员要求更高一点，收益化只要1k关注和4k小时的累计观看就可以。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 114#         楼主| 发表于 2021-3-6 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50529577&amp;ptid=1989758" target="_blank">某穆克拉 发表于 2021-3-6 11:51</a>
+
+会员和收益化是两套审核，会员要求更高一点，收益化只要1k关注和4k小时的累计观看就可以。 ...</blockquote>
+YT的要求就是1000粉丝，估计人工审核比较费时间？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 115#       发表于 2021-3-6 13:17
+
+
+
+
+Kiara存档恢复了
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 116#         楼主| 发表于 2021-3-6 23:48
+
+
+
+ 本帖最后由 smy20011 于 2021-3-6 23:49 编辑 
+
+今天一大堆联动，火鸡教鲨鱼德语，ina和ame玩帽子，僵尸和马自立联动
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 117#         楼主| 发表于 2021-3-7 05:30
+
+
+
+
+这教徳文联动，耳机爆炸了
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 118#         楼主| 发表于 2021-3-7 06:22
+
+
+
+
+火鸡还是偶像厨，属性越来越奇怪了
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 119#       发表于 2021-3-7 10:05
+
+
+
+
+Kiara: In Australia(wink) we only have grades 1 to 5.
+Gura: ??? Where's the rest of them, where's 3, 4?
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 120#         楼主| 发表于 2021-3-7 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537901&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-7 10:05</a>
+
+Kiara: In Australia(wink) we only have grades 1 to 5.
+
+Gura: ??? Where's the rest of them, where's 3, ...</blockquote>
+AME: 这傻子（脱衣服）
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 121#       发表于 2021-3-7 14:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/140945nm2qvcjsm6v6cus6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (146.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 14:09 上传
+
+
+
+
+
+
+脏话汇总
+
+
+
+
+
+                                             

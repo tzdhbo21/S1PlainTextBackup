@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-06 06:57** 
+> ## **本文件最后更新于2021-03-07 07:54** 
 
 
 
@@ -4511,4 +4511,672 @@ dce885f216ebd29ee97772d595d2b6d0.jfif
 
 
 
-                                         
+
+
+-----
+
+####  丢人居士  
+##### 242#       发表于 2021-3-6 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以合理策略是仓着等尤娜，然后等未来自选女主是吧
+
+憋死了
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 243#       发表于 2021-3-6 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50531713&amp;ptid=1982769" target="_blank">丢人居士 发表于 2021-3-6 15:52</a>
+
+所以合理策略是仓着等尤娜，然后等未来自选女主是吧
+
+憋死了</blockquote>
+看强度应该仓着等徐芸。。
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 244#       发表于 2021-3-6 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50530703&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-6 13:49</a>
+
+不在意图鉴的话，师父确实很快退环境了
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版  ...</blockquote>
+pvp躺平了，想搞个方便pve带队的输出
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 245#       发表于 2021-3-6 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50532072&amp;ptid=1982769" target="_blank">roydimus 发表于 2021-3-6 16:28</a>
+看强度应该仓着等徐芸。。</blockquote>
+徐芸也太远了……总不能抽到徐芸之前都喝西北风（也不至于
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 246#       发表于 2021-3-7 00:52
+
+
+
+
+剧情确实不错，EP5师傅空降救场配合BGM整个人都燃起来了，支线和主线也衔接得上
+
+但是徐芸相关的剧情真的是屎中屎，这个人从登场开始就没什么很深入的塑造，给主角使绊倒是一把好手，给人观感非常差，本来看她反水了还觉得终于能把她宰了一了百了了结果唐突洗白，还要恶心一下人说我看到你被我打败的样子很爽<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 247#       发表于 2021-3-7 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50536594&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 00:52</a>
+剧情确实不错，EP5师傅空降救场配合BGM整个人都燃起来了，支线和主线也衔接得上
+
+但是徐芸相关的剧情真的是 ...</blockquote>
+我跟你反过来，我非常喜欢徐芸…说不上来为啥，可能是她对自己队员确实很好吧
+这游戏bgm其实很好听
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 248#       发表于 2021-3-7 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50536654&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 01:01</a>
+
+我跟你反过来，我非常喜欢徐芸…说不上来为啥，可能是她对自己队员确实很好吧
+
+这游戏bgm其实很好听 ...</blockquote>
+她前面对队友的态度好和后面反水之后的言行完全就不像是能出现在一个人身上的，尤其是打赢米娜之后的胜利者宣言把我看傻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这样就显得前面对队友的态度更加假
+
+BGM整体都不错，可惜好像只有一张OST，大部分BGM都没收录
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 249#       发表于 2021-3-7 07:16
+
+
+
+
+徐芸的剧情编排是有一点问题的，这个没办法
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  岩窟王  
+##### 250#         楼主| 发表于 2021-3-7 08:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+都看到第五章了，也该发现米娜不是真主角（玩家）也不是玩家真老婆， 切莫过多代入啊
+
+你可是幕后黑手 养蛊大师 时间的见证者  
+
+冷静
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 251#       发表于 2021-3-7 09:47
+
+
+
+ 本帖最后由 caliburn 于 2021-3-7 09:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50536776&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 01:25</a>
+她前面对队友的态度好和后面反水之后的言行完全就不像是能出现在一个人身上的，尤其是打赢米娜之后的胜利 ...</blockquote>
+反水以后其实也没跟队友交流，注意这里的队友仅限于阿尔特小队，那是家人，芬里尔小队只是傻吊同事，怎么嘲讽也无所谓啦。我刚刚补三星正好打了徐芸击败刘米娜那一场，徐芸应该还蛮喜欢刘米娜的，既面对她自卑又想获得她承认吧(获得承认的方式就是正面击败开挂后的刘米娜233  而且这里主要目的应该还有要骗矛过来，就像她反水其实也是为了阿尔特小队的正式执照，看似精分，其实一直是想要利益最大化，精明得很。仔细想想我真觉得徐芸很立体了，行动方针跟要害所在都算得上明明白白，同时行动层次又很丰富，有婊里婊气的也有情深义重的，比起脸谱化角色好很多了。
+
+徐芸干翻刘米娜那一段是真的蛮不错，刘米娜就是完全不懂徐芸在想什么，不过以**心之后大概明白了不少233(最后意识空间里召唤伙伴就是同队2人加徐芸
+ 徐芸说的那句我不想再和你战斗了也算为这一段绿茶画了个句号，以后不用跟刘米娜绕来绕去了(沦为配角
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 252#       发表于 2021-3-7 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50536776&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 01:25</a>
+她前面对队友的态度好和后面反水之后的言行完全就不像是能出现在一个人身上的，尤其是打赢米娜之后的胜利 ...</blockquote>
+对了，如果你觉得徐芸的言行很不统一，可以参考未成年组成的街头帮派里的大姐/大哥的角色
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 253#       发表于 2021-3-7 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537817&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 09:47</a>
+反水以后其实也没跟队友交流，注意这里的队友仅限于阿尔特小队，那是家人，芬里尔小队只是傻吊同事，怎么 ...</blockquote>
+主要是徐芸的这些行为都没有什么铺垫啊，给人的观感就是很莫名其妙，你一个小队队长带着一票实验体从克隆集团逃出来，这种模板的角色按理说应该是比较成熟的，但是对米娜的嫉妒又小气得不像话，洗白情节又很生硬，整个感觉就非常割裂<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 254#       发表于 2021-3-7 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537590&amp;ptid=1982769" target="_blank">岩窟王 发表于 2021-3-7 08:53</a>
+虽然但是，我觉得徐芸呛米娜那场还真的，蛮爽得啦！
+
+都看到第五章了，也该发现米娜不是真主 ...</blockquote>
+不是说要代入米娜，米娜第三章的姬佬情结我也是看的不太爽的，但是章末回忆她被娜拉弟弟救下来那里都讲清了来龙去脉了，也变得能接受了
+不能因为讨厌一个角色就拿行为更莫名其妙的一个角色来踩啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 255#       发表于 2021-3-7 11:10
+
+
+
+
+徐芸就是典型的underdog模板，不如说有那么黑暗的过去的前提下，才有那么一点算计队友的小阴暗已经很难得了（队友更是个个天使，要说的话这反而更不可信，克隆集团又特么不是慈善组织）
+她反叛那段的问题在于，以玩家掌握到的信息，一开始就会知道她必然不可能真反叛（除非编剧疯了），但她和克隆集团的事情对其他外人几乎都是保密的，因此在外人看来确实就是真反叛了，导致这段剧情读起来很难代入甚至有些别扭，说到底，还是读者从上帝视角知道徐芸不会反叛甚至不会和克隆集团有任何妥协苟且的理由
+所以其实还不如安排成徐芸故意被抓然后疑似被**恶堕，剩下剧情不做过多变动，这样读者角度观感上可能会好很多
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 256#       发表于 2021-3-7 11:20
+
+
+
+
+徐芸剧情最别扭的点在于整个事件是“玩家”的角色安排的，而“玩家”本人又对此一无所知
+
+— from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 257#       发表于 2021-3-7 11:28
+
+
+
+ 本帖最后由 kuglv 于 2021-3-7 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538323&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-7 11:10</a>
+
+徐芸就是典型的underdog模板，不如说有那么黑暗的过去的前提下，才有那么一点算计队友的小阴暗已经很难得了 ...</blockquote>
+最无语的是把徐芸这段剧情完全摘出去也对后续剧情推动没有任何影响，阿尔特小队进来只是为了找队长，鹅害鹅的坐标是梅森暴露的，和克隆军团对线的是军方，救场的是师傅，特拉塞德系统是娜拉关的，BOSS是米娜宰的，徐芸洗白完之后就没什么事了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 258#       发表于 2021-3-7 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538457&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 11:28</a>
+最无语的是把徐芸这段剧情完全摘出去也对后续剧情推动没有任何影响，阿尔特小队进来只是为了找队长，鹅害 ...</blockquote>
+徐芸白嫖的这身装备欺负了一次米娜之后其实后面的剧情里也没有变得多强……
+哪怕残血的女皇交给徐芸来收掉也好啊，结果都成了朱哥装逼的背景板了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 259#       发表于 2021-3-7 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538264&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 11:03</a>
+
+主要是徐芸的这些行为都没有什么铺垫啊，给人的观感就是很莫名其妙，你一个小队队长带着一票实验体从克隆 ...</blockquote>
+先说说人设的复杂哈。我个人理解，徐芸整个人设的关键词就是阴沟老鼠，又强又弱，为达目的无所不用其极，相对的刘米娜的人设基本就是小公主（m4）改进型，她本人很懵懂，世界却围着她在转，只是刘米娜本人算得上本性大方善良，比起小公主显得蜜汁有魅力而已。阴沟老鼠嫉妒小公主挺正常的，自己挖空心思变强却永远跨不过天堑，旁边一个人也没做什么的特别的事情却能站在自己追逐的终点线上。打败刘米娜以后，刘米娜说的是“在我看来你才是精英，我不懂你对我的竞争意识从哪来”，徐芸的回答是“那你怎么打败暗影，打败克隆集团干部的” 这恰好就是徐芸非常想要的东西，其实也是矛盾的焦点，说白了就是刘米娜太强了。对强者的嫉妒这就很正常很人性了撒。
+
+
+至于ep1那段……当时确实以为徐芸是反派，不过周哥原话“我们都知道这个任务很危险，那既然他们想去，我们也没理由阻止他们，反正处理低等侵蚀体这种琐事虽然很麻烦，也不至于会有什么危险” 倒不是说师匠周哥有多强，二级侵蚀体确实够杂鱼的，规模也没有很大，徐芸的办法相当于是把自己的前菜给同事，自己直接跑去吃主菜。你仔细看，也不是会害得同事送命自己得利那么下限得做法。当然不是给她洗地啦，ep1的时候真的非常婊，就她第一次坐在刘米娜身边那cg，浓浓的我要害人了的气味。真正没想到的是徐芸当时说的全是真话而且埋了大梗……
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 260#       发表于 2021-3-7 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538581&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 11:44</a>
+
+先说说人设的复杂哈。我个人理解，徐芸整个人设的关键词就是阴沟老鼠，又强又弱，为达目的无所不用其极， ...</blockquote>
+主要是剧情里对徐芸的描写不够多，加上立绘的反差很难让人留下阴沟老鼠这种印象，如果前面多次描画出她的阴险性格，可能后面反水那里我会更能接受一些<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 261#       发表于 2021-3-7 12:03
+
+
+
+ 本帖最后由 caliburn 于 2021-3-7 12:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538457&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 11:28</a>
+
+最无语的是把徐芸这段剧情完全摘出去也对后续剧情推动没有任何影响，阿尔特小队进来只是为了找队长，鹅害 ...</blockquote>
+我也想过这个问题，不过徐芸完成了合流增强战力跟探路的功能，而且徐芸的策略是去斩杀大主教，也很关键，只是刘米娜最后选择了百合力打动大主教而已，功能可以跟斩杀等同。如果没有徐芸，估计这群人还不知道该从哪里下手
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 262#       发表于 2021-3-7 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538536&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-7 11:37</a>
+
+徐芸白嫖的这身装备欺负了一次米娜之后其实后面的剧情里也没有变得多强……
+
+哪怕残血的女皇交给徐芸来收 ...</blockquote>
+克隆集团也就这样了，现在就是超想看后面的剧情，然而后面并没有什么剧情……
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 263#       发表于 2021-3-7 12:04
+
+
+
+
+然后最后从鹅害鹅里面复原的资料我还是没太看懂，意思是上个世界的老太婆被改造成5级侵蚀体被送到这个世界了，就是净化之战里出现的5级侵蚀体？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这个世界的尼哥和克隆女皇就是当时和5级侵蚀体作战了解到了一点真相所以才建立的克隆集团？但是净化之战应该是在旧管理局毁灭之前发生的吧，那个时候玩家应该还没有把相关技术给他们？
+
+
+尼哥最后死之前说的辜负了司令官的期望，看起来他好像也是上个世界穿越过来的？感觉有点矛盾，这游戏的穿越到底是个什么概念，重生？还是单纯的本体穿越？
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 264#       发表于 2021-3-7 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538718&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 12:03</a>
+
+我也想过这个问题，不过徐芸完成了合流增强战力跟探路的功能，而且徐芸的策略是去斩杀大主教，也很关键， ...</blockquote>
+鹅害鹅被暴露出来完全是梅森那边的功劳，集合战力也是梅森提出来的计划，然后把一票人带进来了，徐芸这方面唯一的功劳也就是把阿尔特小队引进来了而已，然而阿尔特小队也没起什么作用<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 265#       发表于 2021-3-7 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538755&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 12:09</a>
+鹅害鹅被暴露出来完全是梅森那边的功劳，集合战力也是梅森提出来的计划，然后把一票人带进来了，徐芸这方 ...</blockquote>
+剧情上来说徐芸的作用也就只是让刘米娜从精神上成长，脑死计划和梅森的计划是并行的，两个哪边成功都行，如果米娜动手了那脑死计划也就成功了（从后面帝皇的说法来看，确实大主教才是关键，直接斩首大主教比梅森的那个要更有效）不过米娜需要成长所以必然不可能让她们在这里杀大主教而已……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 266#       发表于 2021-3-7 12:43
+
+
+
+ 本帖最后由 kuglv 于 2021-3-7 12:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538892&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-7 12:23</a>
+
+剧情上来说徐芸的作用也就只是让刘米娜从精神上成长，脑死计划和梅森的计划是并行的，两个哪边成功都行， ...</blockquote>
+最后进去鹅害鹅打BOSS的时候周哥已经说了大主教是特拉赛德系统的中枢，必须破坏掉（甚至还知道破坏不灭者核心没用，比徐芸知道的还多），即使没有徐芸指出，米娜最后也必然要杀大主教的（何况从任何一个角度来看，米娜都不可能在前面杀掉大主教），只是没想到最后大主教自爆了而已
+
+而且徐芸前面费尽心思想要变强，结果打大主教还要靠米娜就很逗，你干了这么多事毛了人家装备，最后打得过个锤子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 267#       发表于 2021-3-7 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50539046&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 12:43</a>
+最后进去鹅害鹅打BOSS的时候周哥已经说了大主教是特拉赛德系统的中枢，必须破坏掉（甚至还知道破坏不灭者 ...</blockquote>
+所以说实际上逼都让朱哥装了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 268#       发表于 2021-3-7 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538722&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 12:04</a>
+
+然后最后从鹅害鹅里面复原的资料我还是没太看懂，意思是上个世界的老太婆被改造成5级侵蚀体被送到这个世界 ...</blockquote>
+平行世界吧，旧管理局大概掌握了穿越的技术
+
+周姐和卡琳不都是这么来的（
+
+
+
+
+
+
+
+-----
+
+####  浩二先辈  
+##### 269#       发表于 2021-3-7 14:44
+
+
+
+
+徐芸这个角色还挺有趣的，你大可以认为她就是故意去骗个矛来打爆美娜出口气，顺便完成老板布置的渗透任务，混乱善良型人物
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 270#       发表于 2021-3-7 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50539117&amp;ptid=1982769" target="_blank">roydimus 发表于 2021-3-7 12:51</a>
+平行世界吧，旧管理局大概掌握了穿越的技术
+
+周姐和卡琳不都是这么来的（ ...</blockquote>
+什么，求详细，周姐跟卡琳到底咋来的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 271#       发表于 2021-3-7 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540153&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 15:01</a>
+
+什么，求详细，周姐跟卡琳到底咋来的
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+十字路口的活动剧情里说，永恒之金引擎的核心技术只有管理局那边才有，然后卡琳和周姐过来也是因为第七三角洲部队那边测试反应炉功率，结果出问题了，给卡琳那边提供了坐标，她们才跃迁过来的
+
+从后续处理看，师傅和周哥直接来现场动手了，老板和师傅应该都清楚这种情况，师傅直接叫卡琳她们“流浪者”，还说她们不回去的话反倒更麻烦。。老板那边动手让官方那边把事情定性为单纯的引擎事故，周哥还给凯尔洗了脑。。李秀妍说感谢老板给这个世界建立了管理局，不然就会像流浪者一样。。
+
+旧管理局我觉得是有在不同世界穿越的能力的，大概是在不同世界测试哪种对抗侵蚀体的方法更有效吧，所以情报都没有公开
+
+
+
+
+
+
+
+-----
+
+####  飞雨阁  
+##### 272#       发表于 2021-3-7 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540153&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 15:01</a>
+
+什么，求详细，周姐跟卡琳到底咋来的
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+来自没管理局的平行世界。执行将四级侵蚀体拖入深度维度作战时巧合下跃迁来到这个世界。
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 273#       发表于 2021-3-7 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50539046&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 12:43</a>
+最后进去鹅害鹅打BOSS的时候周哥已经说了大主教是特拉赛德系统的中枢，必须破坏掉（甚至还知道破坏不灭者 ...</blockquote>
+其实最后新俄亥俄攻略战分了好几个阶段的，而且达成了事实上的协同作战。徐芸带队去斩杀大主教的时候，女皇专门飞过去解围了。女皇如果不去，梅森就不可能输入后门代码，当时他们杂牌小队包括李悠美都没有人能跟女皇抗衡。反过来说女皇如果不去救大主教，那大主教可能真的被徐芸搞死了，又或者当场被刘米娜说得。实际上从后面展开看刘米娜说得是成功的，只是大主教反转延迟到了帝皇战第二阶段。如果真的没有徐芸，刘米娜就不知道自己该干嘛，也不会及时说得大主教，同时女皇守着新俄亥俄的话梅森的作战没有丁点成功率。当时梅森拉了四队人，再加渗透的徐芸，少了一个人作战都要出问题，并不存在多余的碎片。他这个故事王道就王道在这里，作战过程既有层次感又合理，多点独立行动达成事实上的协同，到最后必须力量决胜的时候师匠从天而降一气呵成打垮敌人最强点，同时引出更大的舞台，拍成片应该也是很成熟的6分剧本了，放在游戏里代入感非常好，再重看一遍也一样觉得满意
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 274#       发表于 2021-3-7 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540344&amp;ptid=1982769" target="_blank">roydimus 发表于 2021-3-7 15:27</a>
+十字路口的活动剧情里说，永恒之金引擎的核心技术只有管理局那边才有，然后卡琳和周姐过来也是因为第七三 ...</blockquote>
+感谢🙏 我初始号正好没法看十字路口剧情
+难怪有人说卡琳是凯尔性转…而且我还在想周姐怎么那么棒，周哥也不认个亲
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 275#       发表于 2021-3-7 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540437&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 15:41</a>
+
+感谢🙏 我初始号正好没法看十字路口剧情
+
+难怪有人说卡琳是凯尔性转…而且我还在想周姐怎么那么棒，周哥也 ...</blockquote>
+最后告别的时候周哥还问了那个世界里周姐的父母还好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                        
