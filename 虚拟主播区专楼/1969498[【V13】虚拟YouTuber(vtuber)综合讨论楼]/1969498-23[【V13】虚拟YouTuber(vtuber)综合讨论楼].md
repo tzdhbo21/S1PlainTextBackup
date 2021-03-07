@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 04:44** 
+> ## **本文件最后更新于2021-03-07 10:38** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_fvvdC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_z3MNL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_pVTe0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_dq755" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_q4f24" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_fapnE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -5854,10 +5854,11 @@ natalie.mu/comic/column/4…
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| walfeds| + 1|很难不笑到|
 | flyskywalker92| + 1|突然深夜笑出声|
 
 
@@ -6160,11 +6161,547 @@ p家何德何能与爽团比，乳爽了
 
 
 
+ 本帖最后由 katern 于 2021-3-7 12:47 编辑 
 
 那么能看到sio联动大**小黄油吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+这直播挂个机翻有点草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
 
-                                       
+
+
+
+-----
+
+####  空集  
+##### 33305#       发表于 2021-3-7 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538994&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-7 12:35</a>
+夏色女士都不会坐男人怀里吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 33306#       发表于 2021-3-7 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538994&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-7 12:35</a>
+
+夏色女士都不会坐男人怀里吧</blockquote>
+夏色女士倒是想坐人怀里啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 33307#       发表于 2021-3-7 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这男人得够壮，不然真的受不住
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33308#       发表于 2021-3-7 13:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">此楼又回到了之前的版本氛围吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33309#       发表于 2021-3-7 14:04
+
+
+
+
+童田难得的新推是个胡萝卜<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liyitian  
+##### 33310#       发表于 2021-3-7 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538783&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-7 12:12</a>
+
+现在帕里最大的对手是vr还是asoul</blockquote>
+国V和日V受众大部分是不重叠的，现阶段来说对手应该是在B日V个人势，但是因为现在是B站是国V版本，所以日V现在也没内斗的必要。好好经营自己就是了。甚至还有抱团的需要。
+
+
+除非世界线再出现大规模的变动，什么国V退版本或者油管出问题日本企业进军B的几乎不可能发生的情况话。P家应该还是能稳住在B日V第一梯队。总体在B中级以上的。只要P家自己内部不炸。
+
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33311#       发表于 2021-3-7 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p家现在最大的对手是b站啊，b站现在搞出这斗鱼化，国v和日v企业势大概都能适应并如鱼得水，p家能适应并活用吗？抛开这个问题，单纯考虑日v内部的话，应该还是没什么对手的，没什么出彩新人来，日v小企业势半死不活，彩虹死活不肯出力，然后p家还能秽土转生，只不过在国v大跃进，日v全面退潮的情况下，能保有多少份额还是不乐观吧。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33312#       发表于 2021-3-7 14:50
+
+
+
+
+说到p家，我看最近团长怎么还掉粉了？不怎么看团长，这是出啥事了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 33313#       发表于 2021-3-7 15:08
+
+
+
+
+跌落神坛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 33314#       发表于 2021-3-7 15:09
+
+
+
+
+自然脱粉吧，V只有歌力好是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 33315#       发表于 2021-3-7 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540209&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2021-03-07 15:09:27</a>
+自然脱粉吧，V只有歌力好是不行的</blockquote>她歌力也不算特别好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33316#       发表于 2021-3-7 15:23
+
+
+
+
+鲸落吃不少了 也没感觉很有才能
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 33317#       发表于 2021-3-7 15:24
+
+
+
+
+编辑错楼
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33318#       发表于 2021-3-7 15:45
+
+
+
+
+在知道蛋蛋干了这么多坏事的前提下
+还是有点想看她直播
+这就是坏女人的实力吗
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 33319#       发表于 2021-3-7 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540081&amp;ptid=1969498" target="_blank">free 发表于 2021-3-7 14:50</a>
+
+说到p家，我看最近团长怎么还掉粉了？不怎么看团长，这是出啥事了</blockquote>
+有一段时间没出什么好切片，直播也只有突击
+
+之前最好的就是和早稻叽的合唱
+
+然后前几天出了个女王大人的切片，又涨回来了
+
+
+
+
+
+
+
+
+-----
+
+####  cxj649  
+##### 33320#       发表于 2021-3-7 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540465&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-7 15:45</a>
+
+在知道蛋蛋干了这么多坏事的前提下
+
+还是有点想看她直播
+
+这就是坏女人的实力吗 ...</blockquote>
+疑似新转生体还是暂时默认不是她为好
+
+至少等她打麻将再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 33321#       发表于 2021-3-7 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540498&amp;ptid=1969498" target="_blank">langsheng 发表于 2021-3-7 15:49</a>
+有一段时间没出什么好切片，直播也只有突击
+
+之前最好的就是和早稻叽的合唱
+
+然后前几天出了个女王大人的切 ...</blockquote>
+粉丝点进去一看全是0级1级小号<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 33322#       发表于 2021-3-7 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540755&amp;ptid=1969498" target="_blank">雪风utopia 发表于 2021-3-7 16:24</a>
+
+粉丝点进去一看全是0级1级小号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没错，50W全是0级1级
+
+
+
+
+
+
+
+-----
+
+####  walfeds  
+##### 33323#       发表于 2021-3-7 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蛋蛋又闪电般归来了吗，恐ろしい
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 33324#       发表于 2021-3-7 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然很想嘲笑没有根据，但是想到IP事件之前塩餡妄想成真又不敢下结论了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33325#       发表于 2021-3-7 16:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小红现在不是挺好的，背靠b站日v第一箱p家，掉粉了有人帮补上，有虚拟aimer的歌喉，还可以悠闲地努力，还有什么不满意的。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33326#       发表于 2021-3-7 16:52
+
+
+
+
+真的是她吗，形象也差太多了。
+
+
+
+
+
+
+
+-----
+
+####  huanshen  
+##### 33327#       发表于 2021-3-7 16:55
+
+
+
+
+团长最近有人帮她买粉啊，点进去看到的当然都是0级1级号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 33328#       发表于 2021-3-7 16:58
+
+
+
+
+其实我还是觉得不太像女主角啊，等后面再看看是不是吧，至少先看看麻将水平。
+
+
+syl，就算真是女主角转生，这波西语进出大概也是要和原来圈子割裂的象征，以后就海外进出了，不可能再和原来那波人一起玩了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33329#       发表于 2021-3-7 17:09
+
+
+
+
+团长买的粉可能还不及狐坦买的粉的零头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33330#       发表于 2021-3-7 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541110&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-7 17:09</a>
+团长买的粉可能还不及狐坦买的粉的零头</blockquote>
+原来s1还有持狐皇买粉论的么 泥了?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 33331#       发表于 2021-3-7 17:26
+
+
+
+
+团长那事业民退潮是迟早的事，不奇怪
+
+
+
+
+
+
+
+-----
+
+####  liyitian  
+##### 33332#       发表于 2021-3-7 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540953&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-3-7 16:47</a>
+
+小红现在不是挺好的，背靠b站日v第一箱p家，掉粉了有人帮补上，有虚拟aimer的歌喉，还可以悠闲地努 ...</blockquote>
+不过也证明上限就是50W粉左右了。现在才不配位罢了， 继续慢慢平稳下滑到她应该的位置，不爆炸就算成功。
+
+
+对比隔壁岚皇，一波切片吸了30W粉，本应该能大展宏图的时候直接炸了。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33333#       发表于 2021-3-7 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541217&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-7 17:19</a>
+
+原来s1还有持狐皇买粉论的么 泥了?
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+承认b站破圈吸粉以及团长天道酬勤就这么难吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33334#       发表于 2021-3-7 18:10
+
+
+
+
+把我变成美少女偶像需要几步？我做VUP出道试了试 | 当下乱码
+[https://www.bilibili.com/video/BV1WN411Q7sp](https://www.bilibili.com/video/BV1WN411Q7sp)
+
+
+感觉发VUP楼里也不太合适。先扔到这里好了
+
+
+
+
+
+                                      
