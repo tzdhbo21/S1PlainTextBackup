@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 07:33** 
+> ## **本文件最后更新于2021-03-07 11:32** 
 
 
 
@@ -12833,7 +12833,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_Zv4rs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_qvAud" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14589,4 +14589,569 @@ apex yyds
 
 
 
-                      
+
+
+-----
+
+####  Fami水  
+##### 11315#       发表于 2021-3-5 16:11
+
+
+
+
+吃鸡了 这把打得好啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11316#       发表于 2021-3-5 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">还在打？apex那么好玩嘛
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11317#       发表于 2021-3-5 20:18
+
+
+
+
+明天22点约会是怎么回事？听到她说了这么一句
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11318#       发表于 2021-3-5 20:19
+
+
+
+
+会限王牌特工2吧
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11319#       发表于 2021-3-5 20:23
+
+
+
+
+原来如此
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11320#       发表于 2021-3-5 22:28
+
+
+
+
+百鬼あやめ😈ホロライブ2期生
+
+@nakiriayame
+
+23時半過ぎぐらいからround2やるか〜〜〜！！！🥺🥺👊👊
+
+午後9:54 · 2021年3月5日·Twitter for iPhone
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11321#       发表于 2021-3-5 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你是谁
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11322#       发表于 2021-3-5 22:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">真播啊 直播间都开好了
+
+绫总都要冲业绩了吗
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11323#       发表于 2021-3-5 22:45
+
+
+
+
+估计是最近红牛喝多了，特别亢奋
+
+红牛是最协奖品，送了一箱24瓶，绿色的
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11324#       发表于 2021-3-5 23:38
+
+
+
+
+竟然又播了，我有点不适应
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11325#       发表于 2021-3-5 23:57
+
+
+
+
+估计上来白金就没这直播强度了 她这运营思路solo上钻费劲
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11326#       发表于 2021-3-6 00:23
+
+
+
+
+三分钟热情罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11327#       发表于 2021-3-6 00:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队友好给力
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11328#       发表于 2021-3-6 13:18
+
+
+
+
+我就两天没看直播 怎么整了15个小时的Apex出来<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11329#       发表于 2021-3-6 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还没开已经哈欠连打了 待会不会看睡着吧
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11330#       发表于 2021-3-7 00:12
+
+
+
+
+这群观众不会真觉得自己能改变绫总想播啥播啥的任性风格吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11331#       发表于 2021-3-7 00:20
+
+
+
+
+刚才是说被人说上段是别人带的不服了吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11332#       发表于 2021-3-7 00:25
+
+
+
+
+想solo证明自己实力 很有精神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11333#       发表于 2021-3-7 00:27
+
+
+
+
+哎哎 真就前提是肯定自己solo能上钻是吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11334#       发表于 2021-3-7 00:42
+
+
+
+
+嘴硬不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11335#       发表于 2021-3-7 01:01
+
+
+
+
+今年第三次勝手に了这群观众可有点自觉吧别发迫真zqsg了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11336#       发表于 2021-3-7 01:59
+
+
+
+
+姐姐求你别播赛🐴
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11337#       发表于 2021-3-7 02:49
+
+
+
+
+偷偷上天了和船长的联动企划卫星
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 11338#       发表于 2021-3-7 05:15
+
+
+
+
+今日も可愛いね<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11339#       发表于 2021-3-7 18:26
+
+
+
+
+😈放送告知😈
+
+
+3月7日　20:30～START✨✨
+
+
+ぷらちなまで後もう少し～～！！
+
+のんびり進める余～🥳🥳
+
+ぶんぶん～～～～～～🚙
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11340#       发表于 2021-3-7 18:34
+
+
+
+
+活跃的不敢相信是本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11341#       发表于 2021-3-7 18:38
+
+
+
+
+竟然还有，绫儿是不是切换人格了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11342#       发表于 2021-3-7 18:38
+
+
+
+
+上了白金会不会打了半天上不去分尴尬下播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11343#       发表于 2021-3-7 18:42
+
+
+
+
+反正不播也是打派 而且昨天狠话都放出来肯定要直播打<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11344#       发表于 2021-3-7 18:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要证明自己
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11345#       发表于 2021-3-7 18:46
+
+
+
+
+这么早就开肯定又脑淤血三小时起步 楼友谁爱看事看吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11346#       发表于 2021-3-7 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜一个6小时，反正现在也没啥可播的
+拿个apex硬混也行
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11347#       发表于 2021-3-7 18:55
+
+
+
+
+嗯要说的话赛马娘挺火的 不过昨天读sc杂谈看的出她没看过原作甚至连设定都是初见 
+而且赌马和偶像的缝合产物我挺讨厌的 日本人是不是看爱抖露看傻了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                     
