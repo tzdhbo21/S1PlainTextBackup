@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-03 17:07** 
+> ## **本文件最后更新于2021-03-07 04:45** 
 
 
 
@@ -11788,4 +11788,550 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 
 
 
-                           
+
+
+-----
+
+####  李霞  
+##### 663#       发表于 2021-3-4 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50497997&amp;ptid=1963832" target="_blank">海克托尔 发表于 2021-3-3 15:22</a>
+前面放广告那个软糖有附送可收集品吗，看超市进口区有卖的，之前有星q的小背包实在没法用没有买 ...</blockquote>
+ensky的会送收藏卡贴纸卡贴之类
+财B的软糖本来一贯不送，但是会在4月推出附带卡片的AllStars版软糖，可以留意一下
+除了软糖还有附带卡片的威化和附带糖的mini色纸。
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  阿渣兄  
+##### 664#       发表于 2021-3-4 08:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我一直叫去年那部妈Q）
+
+大家不是一开始都这么叫嘛！
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 665#       发表于 2021-3-4 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504807&amp;ptid=1963832" target="_blank">阿渣兄 发表于 2021-3-4 08:36</a>
+我一直叫去年那部妈Q）
+
+大家不是一开始都这么叫嘛！</blockquote>
+最开始是这样的，后来这么喊的人就不多了吧？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 666#       发表于 2021-3-4 10:31
+
+
+
+
+喊妈的，你是小病毒吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千恋万花  
+##### 667#       发表于 2021-3-4 11:21
+
+
+
+
+抱 Q 是我补的第一部 Q 娃，之后陆续补了无印、法 Q 和 MH；
+
+星 Q 是我追连载的第一部，变身时唱的歌我个人很喜欢，现在还能哼几句；
+
+治 Q 连载时断断续续追的，每个人都挺可爱，但就是提不起劲追，暂时还差一季度的量；
+
+热 Q 看了第一集感觉挺不错，声优表现挺好，黄和紫的人间体我挺喜欢。
+
+
+
+
+
+
+
+-----
+
+####  nanjolno  
+##### 668#       发表于 2021-3-4 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506630&amp;ptid=1963832" target="_blank">千恋万花 发表于 2021-3-4 11:21</a>
+抱 Q 是我补的第一部 Q 娃，之后陆续补了无印、法 Q 和 MH；
+
+星 Q 是我追连载的第一部，变身时唱的歌我个人 ...</blockquote>
+怎么能不补普遍评价最高的抓心和泥潭病栋最有名的心跳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千恋万花  
+##### 669#       发表于 2021-3-4 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509548&amp;ptid=1963832" target="_blank">nanjolno 发表于 2021-3-4 15:41</a>
+
+怎么能不补普遍评价最高的抓心和泥潭病栋最有名的心跳</blockquote>
+目前是在按年代补，看到了Splash Star<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 670#       发表于 2021-3-4 19:08
+
+
+
+ 本帖最后由 王留美 于 2021-3-4 19:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502737&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-3 22:40</a>
+
+Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precure A la mode一般简称为甜点或者闪q[f ...</blockquote>
+
+所以我讨厌啥Q啥Q的简称，一个是让人想起骑士那边“X骑”的〇〇译法，另一个就是太容易重字了
+
+魔法甜点拥抱星闪治愈热带，也没有多打几个字
+
+你要打出Q来还得切一次shift打完了再切回去呢……
+
+话说回来，始作俑者的“法Q”这个缩写原本是拿脏话谐音来无聊当有趣的，单单这点就足够让我对这套译名体系的好感度降到0了
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 671#       发表于 2021-3-4 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511619&amp;ptid=1963832" target="_blank">王留美 发表于 2021-3-4 19:08</a>
+
+所以我讨厌啥Q啥Q的简称，一个是让人想起骑士那边“X骑”的〇〇译法，另一个就是太容易重字了
+
+魔法甜点拥 ...</blockquote>
+讲道理，实际讨论的时候用“X骑”的情况还是很少见的吧
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 672#       发表于 2021-3-4 23:42
+
+
+
+
+话说珊瑚现实里人气这么高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是楼里人气就一般
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 673#       发表于 2021-3-5 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514808&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-03-04 23:42:01</a>
+话说珊瑚现实里人气这么高</blockquote>毕竟还没正式登场，就看第二集的表现了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 674#       发表于 2021-3-5 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511619&amp;ptid=1963832" target="_blank">王留美 发表于 2021-03-04 19:08:36</a>
+所以我讨厌啥Q啥Q的简称，一个是让人想起骑士那边“X骑”的〇〇译法，另一个就是太容易重字了
+
+魔法甜点 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">巧了，我跟人交流基本也是用两个字的简称，或者就是英文全称或者首字母
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 675#       发表于 2021-3-5 19:15
+
+
+
+<img src="http://wx1.sinaimg.cn/large/a3f7af34gy1go98pftkg4j20s615o4qr.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 676#       发表于 2021-3-5 19:21
+
+
+
+
+这私服倒是挺不错的
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 677#       发表于 2021-3-5 19:27
+
+
+
+
+预告
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1go98dcm2x7j20u00vatuf.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1go98d6w10bj20vo0u0ni2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1go98d4b084j20u015vk9e.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1go98d9qxuuj20u016y4po.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1go98d8yv1ej20xk0u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1go98dfa74sj20u00w7b0g.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 678#       发表于 2021-3-5 19:52
+
+
+
+
+近年变身曲实在不行 只有星q唱歌听一边就印象深刻
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 679#       发表于 2021-3-5 21:18
+
+
+
+
+粉主的私服像是旅游装
+
+
+
+
+
+
+
+-----
+
+####  吾道长不孤  
+##### 680#       发表于 2021-3-5 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479232&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-3-1 20:19</a>
+
+快警打动我的更多是因为角色塑造</blockquote>
+圭一郎真是好人啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+而且两边的妹子都很棒
+
+
+
+
+
+
+
+-----
+
+####  只等待明天  
+##### 681#       发表于 2021-3-6 19:49
+
+
+
+
+一开始只看人设也是最喜欢珊瑚，现在感觉都很可爱了，特别是夏哥罗拉互动太戳了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+话说红紫原本地位蛮高的，大多是战斗力/帅/色气(/姬佬)担当，
+最近好像定位越来越低了，反倒是蓝色开始当追加了
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 682#       发表于 2021-3-6 20:30
+
+
+
+ 本帖最后由 Blackson 于 2021-3-6 21:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50533896&amp;ptid=1963832" target="_blank">只等待明天 发表于 2021-3-6 19:49</a>
+
+一开始只看人设也是最喜欢珊瑚，现在感觉都很可爱了，特别是夏哥罗拉互动太戳了
+
+话说红紫原本地位蛮 ...</blockquote>
+其实我个人觉得紫色还是挺“高贵"的
+
+治愈的艾苏米、星闪的阿圆、拥抱的露露、甜点的猫姐、魔法的李可(只截止到魔法)
+
+红色(橙色)太少见了,只有惠美瑠、永久、ACE、Cure Sunny、刹那、夏木玲，我自己想不到这定位是什么
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 683#       发表于 2021-3-6 20:54
+
+
+
+
+红色让人想到的就是火，热情，活力之类的吧
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 684#       发表于 2021-3-6 21:28
+
+
+
+
+红色还有早熟却笨拙的单相思
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 685#       发表于 2021-3-7 07:28
+
+
+
+ 本帖最后由 lyflyflxf 于 2021-3-7 07:32 编辑 
+
+战旗的直播是不是停了？上次直播是二月7日<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">现在还有哪儿有可发弹幕的直播吗？无弹幕的直播倒是不难找
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 686#       发表于 2021-3-7 07:41
+
+
+
+<blockquote>lyflyflxf 发表于 2021-3-7 07:28
+战旗的直播是不是停了？上次直播是二月7日现在还有哪儿有可发弹幕的直播吗？无弹幕的直播倒是不难找 ...</blockquote>
+都去YY那里了
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 687#       发表于 2021-3-7 08:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537385&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-3-7 07:41</a>
+
+都去YY那里了</blockquote>
+谢谢
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 688#       发表于 2021-3-7 11:05
+
+
+
+
+珊瑚要下集！
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 689#       发表于 2021-3-7 11:56
+
+
+
+
+黄色在op舞里面的一副没跟上现状的无口表现还挺可爱的，但是她既然能发光子力射线……应该不会太文静了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  星のMerita  
+##### 690#       发表于 2021-3-7 12:07
+
+
+
+
+惯例的吵架（放闪）回
+
+还以为人鱼会是更任性的角色，但夜谈的那段的铺垫让她的急切显得挺合理的，最后和好后对夏哥展示的傲娇也很讨喜
+
+夏哥真的就是男友力点满了。吵完不久就后悔的坐立难安，飞奔过去救场时又是道歉又是提起之前的约定，直率又大度的性格suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+预感会是看得很开心的一年
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 691#       发表于 2021-3-7 12:15
+
+
+
+
+太太真好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          

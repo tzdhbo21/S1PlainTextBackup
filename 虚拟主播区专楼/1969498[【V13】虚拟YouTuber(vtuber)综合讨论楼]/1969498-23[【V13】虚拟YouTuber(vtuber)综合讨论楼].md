@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-06 15:35** 
+> ## **本文件最后更新于2021-03-07 04:44** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_I5S5N" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_SHI5G" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_jv111" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_fvvdC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_z3MNL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_pVTe0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -5519,4 +5519,652 @@ Syl，分批次入驻地图，不知道这次Ark能凑到多少人，30可以有
 
 
 
-                                        
+
+
+-----
+
+####  free  
+##### 33273#       发表于 2021-3-6 23:47
+
+
+
+
+圆脸原来还说过这种话呀，不过反正我是不会去开这个烂货的nico会员的，就这样吧，烂货，凉透了赶快毕业才好呢
+
+这一看就是运营强迫开的，还要嘴硬“不是运营让开的”，编都不会编，傻了吧唧的
+
+我发现这个烂货圆脸的粉总是事特别多，烂货的粉丝也是烂货
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 33274#       发表于 2021-3-6 23:48
+
+
+
+
+真狠啊免费哥
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33275#       发表于 2021-3-6 23:55
+
+
+
+
+批判与自我批判
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 33276#       发表于 2021-3-6 23:55
+
+
+
+
+怎么连自己也骂了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AKili  
+##### 33277#       发表于 2021-3-7 00:00
+
+
+
+
+不开nico会员说明已经开了YouTube会员嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 33278#       发表于 2021-3-7 00:05
+
+
+
+
+上位空友可以免骂
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33279#       发表于 2021-3-7 00:06
+
+
+
+
+【推しを推したい】なもり×月ノ美兎
+
+マンガ家に現在ハマっている人物やキャラを布教してもらうコラム。
+第5回は「ゆるゆり」のなもりが、バーチャルライバー・月ノ美兎を紹介する。「もし同じ世界線で生きられるとしたら？」という質問になもりは…？
+natalie.mu/comic/column/4…
+
+#なもり #月ノ美兎
+
+
+震撼，本人的百合入门作者之一竟然对月之也有点意思…不过应该也不是激推那种，毕竟以前没怎么提过，最近就画了次商稿好像<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33280#       发表于 2021-3-7 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很好奇圆脸批判粉的心路历程
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 33281#       发表于 2021-3-7 00:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“盗片狗批判我盗盗片狗的盗片”
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33282#       发表于 2021-3-7 00:48
+
+
+
+
+……我中立。不说太远了，gbr会限说要毕业，不也一个个传得这么开心？
+
+
+
+
+
+
+
+-----
+
+####  二次惨事  
+##### 33283#       发表于 2021-3-7 00:58
+
+
+
+ 本帖最后由 二次惨事 于 2021-3-7 01:00 编辑 
+
+好消息 sio卷土重来
+
+楠栞桜の新しい転生
+
+病ヰミヤ
+
+
+ツイッター
+[https://twitter.com/miya_yamai?s=21](https://twitter.com/miya_yamai?s=21)
+
+ようつべ
+[https://youtube.com/channel/UCer6Y0vJIPKIwAGsECW_zYg](https://youtube.com/channel/UCer6Y0vJIPKIwAGsECW_zYg)
+
+
+原模型师的暗示推
+<img src="https://i.loli.net/2021/03/07/PwskBhQga8lRKHo.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2021/03/07/XGyI4nfbzlcJHCg.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33284#       发表于 2021-3-7 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50536629&amp;ptid=1969498" target="_blank">二次惨事 发表于 2021-3-7 00:58</a>
+
+好消息 sio卷土重来
+
+楠栞桜の新しい転生
+
+病ヰミヤ</blockquote>
+这位看起来是面向西班牙语地区的V？频道里一个西语自我介绍都100多万播放了......
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33285#       发表于 2021-3-7 01:11
+
+
+
+
+这是打麻将的那位？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33286#       发表于 2021-3-7 01:20
+
+
+
+
+怎么好像还是个社团？怎么一周就4W粉了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33287#       发表于 2021-3-7 01:28
+
+
+
+
+¿sio会西语吗，声音也稍微不太一样?
+
+
+（这模型总感觉驼背，看起来有点难受）
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33288#       发表于 2021-3-7 02:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> ark别名mc 彩虹能不能整点新东西
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 33289#       发表于 2021-3-7 03:13
+
+
+
+
+要是sio消失这么久是学西语去了那也太主角了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 33290#       发表于 2021-3-7 07:53
+
+
+
+ 本帖最后由 opersuper 于 2021-3-7 07:57 编辑 
+
+你要理解下迫真相信自己在推宗教女校在读jk的噶吃在得知本体是30+圆脸不人气声优老阿姨在rp时产生的黑泥浓度，时乃空现在还说自己在老师那里学高音学乐器的小故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+想到空姨和屑a当年搭档rp把mmr骗的一愣一愣的，樱花姨真的没有心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1|突然深夜笑出声|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33291#       发表于 2021-3-7 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蹲今天apex的感想:sio你白金守门员啥时候上白金一了。
+萌音断气唱法是标配么。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33292#       发表于 2021-3-7 09:54
+
+
+
+
+这姐也太…打枪的时候是真有点像<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 33293#       发表于 2021-3-7 10:36
+
+
+
+
+声音是真的像，但是在意的点有很多
+西语不提了
+当年业界的一匹狼如今突然从属一个没听说过的组织出道？当然如果能扒出其他人的联系更好确定
+同理这个2d的形象和技术力相比之前差太多了
+如果真是这种舍弃一切的决心，那可能看不到打麻将了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  二次惨事  
+##### 33294#       发表于 2021-3-7 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538071&amp;ptid=1969498" target="_blank">Porsche 发表于 2021-3-7 10:36</a>
+
+声音是真的像，但是在意的点有很多
+
+西语不提了
+
+当年业界的一匹狼如今突然从属一个没听说过的组织出道？当然 ...</blockquote>
+后台是DMM
+[https://kasocombo.jp/company/](https://kasocombo.jp/company/)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 33295#       发表于 2021-3-7 11:35
+
+
+
+
+啥情况，以前有西语这技能吗，这就是学霸吗<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33296#       发表于 2021-3-7 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538514&amp;ptid=1969498" target="_blank">tiro_finale 发表于 2021-3-7 11:35</a>
+啥情况，以前有西语这技能吗，这就是学霸吗</blockquote>
+学霸(高卒dqn)<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33297#       发表于 2021-3-7 11:49
+
+
+
+ 本帖最后由 划水的B612 于 2021-3-7 12:09 编辑 
+
+编辑：只有微博的这一条，twitter 什么的上没有且这条已经被删除。就当是真的吧。
+
+
+
+
+
+
+7C44619F-0368-4F25-8D18-6D571E1D76A8.jpeg
+(136.71 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-7 11:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/114918bvl8aqxzfzyaxaxu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 33298#       发表于 2021-3-7 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538619&amp;ptid=1969498" target="_blank">划水的B612 发表于 2021-3-7 11:49</a>
+
+谨慎。还没确定，若是假的会删除</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/07/115735pvuemt2vuvkmz768.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210307115704.png</strong> (16.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 11:57 上传
+
+
+
+
+
+结合这条似乎是真的 你发的已经删了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33299#       发表于 2021-3-7 12:12
+
+
+
+
+现在帕里最大的对手是vr还是asoul
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 33300#       发表于 2021-3-7 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538783&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-7 12:12</a>
+
+现在帕里最大的对手是vr还是asoul</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事爽哥
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33301#       发表于 2021-3-7 12:27
+
+
+
+<blockquote>a37356205 发表于 2021-3-7 12:22
+事爽哥</blockquote>
+p家何德何能与爽团比，乳爽了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33302#       发表于 2021-3-7 12:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/123538v9a3wk8acynaznzn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210307123525.png</strong> (53.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 12:35 上传
+
+
+
+
+
+
+夏色女士都不会坐男人怀里吧
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 33303#       发表于 2021-3-7 12:40
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/08/020503vy77hxsyfpc8cc40.jpg" referrerpolicy="no-referrer">夏色女士都不会坐男人怀里吧
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33304#       发表于 2021-3-7 12:43
+
+
+
+
+那么能看到sio联动大**小黄油吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
