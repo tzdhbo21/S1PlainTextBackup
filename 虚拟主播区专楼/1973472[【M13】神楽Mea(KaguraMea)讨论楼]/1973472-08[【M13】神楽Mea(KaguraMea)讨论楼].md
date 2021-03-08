@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 01:18** 
+> ## **本文件最后更新于2021-03-08 10:41** 
 
 
 
@@ -1128,4 +1128,575 @@ fmhk的图是真的挺好看的
 
 
 
-                                               
+
+
+-----
+
+####  暴走的包子  
+##### 10566#       发表于 2021-3-8 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fmhk主要有时候画的嘴里叼根毛就挺那啥
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10567#       发表于 2021-3-8 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你懂个屁，嘴里叼毛才叫色
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10568#       发表于 2021-3-8 10:26
+
+
+
+
+叼毛劲大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10569#       发表于 2021-3-8 10:32
+
+
+
+
+叼根毛不如拉个丝<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10570#       发表于 2021-3-8 10:46
+
+
+
+
+想看火腿肠拉丝，呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10571#       发表于 2021-3-8 10:47
+
+
+
+
+既要叼毛，也要拉丝
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10572#       发表于 2021-3-8 11:31
+
+
+
+
+别管要不要先快请动fmhk大仙再画一张<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10573#       发表于 2021-3-8 11:45
+
+
+
+ 本帖最后由 笋狐 于 2021-3-8 11:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人会被当成2434所属好像并不是什么很奇怪的事情（就是这个印象相当地....），混脸熟莫多磨多
+
+[推特地址](https://twitter.com/TAMARISKlai/status/1368759271362469895)
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/114404roqe9lr09nnae990.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11.jpg</strong> (638.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 11:44 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/114419bb77zvkqs80v0w0v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>22.jpg</strong> (568.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 11:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10574#       发表于 2021-3-8 12:14
+
+
+
+
+没错你麻才是真正的蹭皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10575#       发表于 2021-3-8 15:19
+
+
+
+
+得了吧，蹭能力这东西小麻这种坦克不行的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我巴不得她多打点游戏
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10576#       发表于 2021-3-8 15:36
+
+
+
+
+我就蹭蹭，不加公司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10577#       发表于 2021-3-8 15:38
+
+
+
+
+我就蹭蹭，不进去
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10578#       发表于 2021-3-8 16:04
+
+
+
+
+她游戏确实打的多啊，就是不播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这人现在每天也就靠兔姨苔姨带了，等哪天没利用价值了我看她怎么混<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+现在管tm的，晚上有星川看不好吗，多谢犬山哥！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10579#       发表于 2021-3-8 16:07
+
+
+
+
+可惜有个舞元<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10580#       发表于 2021-3-8 16:14
+
+
+
+
+舞元怎么了舞元怎么了舞元怎么了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10581#       发表于 2021-3-8 16:14
+
+
+
+
+对决不是搞CP safe safe
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10582#       发表于 2021-3-8 16:18
+
+
+
+
+这玩意说到底也就是棉花糖对谈套壳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+相信你苔姨好吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10583#       发表于 2021-3-8 16:19
+
+
+
+
+怕不又是苔苔车轮话，只要不是烂梗就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10584#       发表于 2021-3-8 16:23
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-8 17:27 编辑 
+
+星川没兴趣，我至今都搞不懂怎么会有傻子想着找星川组校对对接然后忙到我做完都没看半眼。然后最后让你爹一个人找人翻译剪辑乃至tmd让你爹这个日语废物去翻译联动，堪称0202年我干的最哈皮事情之一了，最后还是找了别人好哥哥帮忙校对的。
+
+遥想当年日报组的不少人说起来也去那边了，摇头
+
+我有时候在想吟游那时候死之前跟我说要对共事的海盗好点是啥意思，要我发点小周边吗。
+
+也可能是静香说的日报组因为得不到回报或者说神楽mea本人的反馈所以没了，也正常，所以我那时候从日报组跑路自己单干去了
+
+我始终还是觉得海盗不该去影响到本人才对，只是现在难听点，大概你也已经没能力影响到本人了。有时候你就像以前一样，只能看着，中二病这时候反而就会恨自己，恨自己以前为什么这么无力。
+
+我觉得楼友包括杨永信这傻逼大概是不需要我去维护的，大家都很坚强，不像我，1121被各种干碎。
+
+甚至现在腰也还在痛
+
+一艘破船无论如何大概也是走不远的了，最可怕的大概是你的热情甚至也没意义，因为主播未必想要，仅此而已。
+
+所有我才是那个不正常的
+
+也一直都是
+
+
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 10585#       发表于 2021-3-8 16:44
+
+
+
+
+1月的语音现在才到 我都快忘了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10586#       发表于 2021-3-8 16:45
+
+
+
+
+干啥呀，好死不如赖活着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10587#       发表于 2021-3-8 16:50
+
+
+
+
+长文困惑，害怕
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10588#       发表于 2021-3-8 16:52
+
+
+
+ 本帖最后由 A2014720 于 2021-3-8 17:03 编辑 
+
+怎么发病这么严重的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+版本如此，就别想太多了吧
+
+混吃等死真没啥不好的
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10589#       发表于 2021-3-8 17:06
+
+
+
+
+我没说有啥不好。
+
+只是分享一下过去一年的一些经历罢了，毕竟重点其实不是混吃等死
+
+至于你说什么狗屁烤肉啥的，也和我无关，反正我现在不是任何组织的人，想批我欢迎，我没后顾之忧你可以试试我那时候看着官组那些B的弱智发言给大家分享一下
+
+其实你要我说的话就是，不值得，靠爱发电吧，然后也不知道他们组那些个什么补丁啊，之类的，干了活没，就很怪
+
+这样吧，给大家赔罪，今晚龙了tmd说自己不是百合营业那段，钓几个说她们是真的玩玩
+
+反正我是巨魔我开心，有种叫神楽mea亲自下场干碎我
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10590#       发表于 2021-3-8 17:07
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-8 17:09 编辑 
+
+怎么还风怒了，算了晚上去练一下对帧了，联动希望别太弱智，不想睡觉做噩梦
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10591#       发表于 2021-3-8 18:15
+
+
+
+
+感觉马上又要失去一个楼友<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10592#       发表于 2021-3-8 18:16
+
+
+
+
+请不要这样，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10593#       发表于 2021-3-8 18:22
+
+
+
+
+我又没死，说不定只是看风头终于过了，然后想到了一些事，借机生事罢了
+
+今晚就不陪你们扯了，联动没啥兴趣认真听，滚去打开pre和aeg了
+
+说实话，如果楼友真的关心我精神情况，那我建议你趁我死之前偷点小破技能或者自学都行，这点帮助我还是能提供的
+
+日子吗，总得过
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10594#       发表于 2021-3-8 18:32
+
+
+
+
+魔怔是天狗的唯一归宿吗……
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10595#       发表于 2021-3-8 18:33
+
+
+
+
+没哪个主播不想要剪辑人（或烤肉人）的，跟人不会嫌钱多一个道理
+
+也许yhm们会不好意思开口要，但做好了端上来了也没人会嫌弃
+
+
+而且剪辑能有完整的意思表达、不断章取义就是好剪辑，没什么好赔罪的
+
+
+
+
+
+                                              
