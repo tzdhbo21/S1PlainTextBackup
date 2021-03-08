@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 08:44** 
+> ## **本文件最后更新于2021-03-08 01:19** 
 
 
 
@@ -1681,4 +1681,514 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 
 
 
-                                              
+
+
+-----
+
+####  DDWarrior  
+##### 15092#       发表于 2021-3-5 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50522710&amp;ptid=1158205" target="_blank">边界循环 发表于 2021-3-5 16:36</a>
+
+其实自建也不是不行 建十几个账号 每个账号这次转盘过一轮 如果有比较好的可以自己用 不太好的也可以卖了买 ...</blockquote>
+自建号主要的问题是，就算你有无限的钱和肝，解决了角色石头还有武器的问题，但是那些不可再生资源（黑钢 金刚晶 玉髓）还是会非常缺...
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15093#       发表于 2021-3-5 20:22
+
+
+
+
+7周年了还自建号是给fkhr凑登陆人数业绩的吗
+
+
+
+
+
+
+
+-----
+
+####  bl0ck  
+##### 15094#       发表于 2021-3-5 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50522925&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2021-3-5 16:53</a>
+
+自建号主要的问题是，就算你有无限的钱和肝，解决了角色石头还有武器的问题，但是那些不可再生资源（黑钢 ...</blockquote>
+前来感谢坛友
+
+
+
+
+
+
+
+-----
+
+####  初雪绫  
+##### 15095#       发表于 2021-3-5 22:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">买个贵族齐点的或者单属老王胚子初始就行了  估计也就几百  
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 15096#       发表于 2021-3-5 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526214&amp;ptid=1158205" target="_blank">初雪绫 发表于 2021-3-5 22:25</a>
+买个贵族齐点的或者单属老王胚子初始就行了  估计也就几百</blockquote>
+初始的问题在于skyleap这玩意过于牛逼 不是靠谱的朋友现在真的一个都不敢信 这也是fkhr净化环境的一环吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15097#       发表于 2021-3-6 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526386&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-3-5 22:42</a>
+初始的问题在于skyleap这玩意过于牛逼 不是靠谱的朋友现在真的一个都不敢信 这也是fkhr净化环境的一环吗[ ...</blockquote>
+不牛逼了，现在能踢掉了。
+前几天离职踢登陆端，手机上skyleap网页直接踢没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15098#       发表于 2021-3-7 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">水凯子不用新LM武器直接翻身
+
+
+
+
+
+
+
+-----
+
+####  kobushi  
+##### 15099#       发表于 2021-3-7 19:53
+
+
+
+
+终于不用乳羊和针扎了！感动
+
+
+
+
+
+
+
+-----
+
+####  kobushi  
+##### 15100#       发表于 2021-3-7 19:53
+
+
+
+
+终于不用乳羊和针扎了！感动
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15101#       发表于 2021-3-7 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我好期待做贤者的过程减负，看来我在想屁吃……
+
+但我真的很想要芙劳
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15102#       发表于 2021-3-7 20:01
+
+
+
+
+五凸老王<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  紫苑寺友子MKIII  
+##### 15103#       发表于 2021-3-7 20:03
+
+
+
+
+批话少说，上号！没有fhkr的世界，就是我想要的世界<img src="https://p.sda1.dev/1/7dc4fa76844a7ff2deba85c032b74c4e/24db5411072177a9.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  drilleye  
+##### 15104#       发表于 2021-3-7 20:18
+
+
+
+
+联动鼻毛真拳<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">，这是我认识的kmr妈
+
+
+
+
+
+
+
+-----
+
+####  drilleye  
+##### 15105#       发表于 2021-3-7 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50542836&amp;ptid=1158205" target="_blank">紫苑寺友子MKIII 发表于 2021-3-7 20:03</a>
+批话少说，上号！没有fhkr的世界，就是我想要的世界
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 S1N ...</blockquote>
+我说怎么今天生放意外阳间，原来少了个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  c029384756  
+##### 15106#       发表于 2021-3-7 20:26
+
+
+
+
+怎么就开始带货了，以前没这环节啊……
+
+
+
+
+
+
+
+-----
+
+####  sodah  
+##### 15107#       发表于 2021-3-7 20:26
+
+
+
+
+虽然我土火都留了1个，但其实也是现在一周都玩不了几天忘了拆了变属精而已，不然也跟之前的水变属精了，这设定真阴间。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15108#       发表于 2021-3-7 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">水老王活了
+
+
+
+
+
+
+
+-----
+
+####  kobushi  
+##### 15109#       发表于 2021-3-7 20:34
+
+
+
+
+这次生放十分满意
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15110#       发表于 2021-3-7 20:35
+
+
+
+
+kmr真王！！
+
+找回了以前看生放送过年的感觉，kmr是真的懂得运营游戏，一边提升游戏体验，一边新增一些值得期待的内容，能感受到游戏在变好
+fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶心人
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15111#       发表于 2021-3-7 20:35
+
+
+
+
+今年也没有relink？
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 15112#       发表于 2021-3-7 20:36
+
+
+
+
+看来上次年底有反省
+
+这次虽然还是没什么实际新东西，配上一堆痛点改善和画饼就很到位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15113#       发表于 2021-3-7 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">除了阴间的老黄5突要自吃 其他还行
+
+原本还想买个限定超得和买个黑道狐皮肤。又不想给kmr送钱了
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15114#       发表于 2021-3-7 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">另：之前嫖了3个风老王，全部都自己吃自己了……5突要吃自己吗？
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15115#       发表于 2021-3-7 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543233&amp;ptid=1158205" target="_blank">404489039 发表于 2021-3-7 20:36</a>
+
+除了阴间的老黄5突要自吃 其他还行
+
+原本还想买个限定超得和买个黑道狐皮肤。又不想给kmr送钱了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老王5突自吃是真的吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我上次嫖了3个风老王，全部自己吃自己了……
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15116#       发表于 2021-3-7 20:41
+
+
+
+
+多人本转单人又是什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+羊这个不可驱散乳了多少年了总算加上去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15117#       发表于 2021-3-7 21:23
+
+
+
+
+希望太君加油多炎上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15118#       发表于 2021-3-8 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">神经病 都自己吃自己多少个了 突然来一个回马枪
+
+
+
+
+
+
+
+-----
+
+####  江戸前ルナ  
+##### 15119#       发表于 2021-3-8 00:10
+
+
+
+
+苏谢终于有终突了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+哎可惜果然是原本的水不是火………目前三个属性的苏谢在FA里属于基本没用那种，希望终突会改善下吧
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15120#       发表于 2021-3-8 00:29
+
+
+
+
+草 看了下自己的仓库 抽了好多重复的老王 不知道该哭还是该笑
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15121#       发表于 2021-3-8 07:57
+
+
+
+
+这老王5凸之后，有暴击lm的属性打拳是不是起飞了
+
+
+
+
+
+                                             
