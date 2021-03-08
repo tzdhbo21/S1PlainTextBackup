@@ -4379,9 +4379,9 @@
     "id": "1991743",
     "totalpage": 35,
     "title": "[新EVA剧场版（シンエヴァ） 观影报告交流讨论用]",
-    "lastedit": 1615173168,
+    "lastedit": 1615193664,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   {
     "id": "1991579",
@@ -4485,6 +4485,22 @@
     "title": "待更新",
     "lastedit": 1615191368,
     "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1991877",
+    "totalpage": 1,
+    "title": "待更新",
+    "lastedit": 1615193660,
+    "category": "漫区",
+    "active": true
+  },
+  {
+    "id": "1991646",
+    "totalpage": 1,
+    "title": "待更新",
+    "lastedit": 1615193678,
+    "category": "游戏区",
     "active": true
   }
 ]
