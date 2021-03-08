@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 16:59** 
+> ## **本文件最后更新于2021-03-08 07:37** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_B3ctW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_OYAVr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_g69Ek" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_VZExa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_lJdQW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_fv2u4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -7314,4 +7314,667 @@ zsyl，原来roha确实都快白金3了<img src="https://static.saraba1st.com/im
 
 
 
-                                     
+
+
+-----
+
+####  RedBaby  
+##### 33363#       发表于 2021-3-8 02:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虹ark pvp得取决于那群男人真的有没有认真准备搞大事的企划，灭绝还挺多新的战争玩法的。虹ark世界大战的确够经典
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 33364#       发表于 2021-3-8 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541217&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-7 17:19</a>
+
+原来s1还有持狐皇买粉论的么 泥了?
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+狗妈狐皇这两位你楼很久以前也有人说买粉吧
+
+油管买赞说才是泥味
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33365#       发表于 2021-3-8 11:53
+
+
+
+
+为啥打个ark 彩虹还要听指挥不同时间进服的
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33366#       发表于 2021-3-8 11:54
+
+
+
+ 本帖最后由 flyskywalker92 于 2021-3-8 11:58 编辑 
+
+卡了 编辑
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33367#       发表于 2021-3-8 11:55
+
+
+
+
+熟练度不一样啊，新人先进<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33368#       发表于 2021-3-8 12:25
+
+
+
+
+订阅飞涨，但是同接跟播放量都没多大起色不就买粉吗，看数据明显不正常<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33369#       发表于 2021-3-8 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 呵呵，老虹人吹嘘的随机互动被你葵给扼杀了，
+
+
+你葵这几个月是去yagoo哥哥那取经怎么搞死你虹了吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33370#       发表于 2021-3-8 12:43
+
+
+
+
+舞元这样子看样子相当主角想当的很啊，虹男都还是很懂的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33371#       发表于 2021-3-8 13:40
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-8 14:17 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/133606tjwadz9i6ii6rtki.png" referrerpolicy="no-referrer">
+
+
+<strong>重大発表もあるよ！.png</strong> (152.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 13:36 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/141739dyysrryb3rkpk1xz.png" referrerpolicy="no-referrer">
+
+
+<strong>good smile.png</strong> (126.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 14:17 上传
+
+
+
+
+
+
+
+3月10日的发表应该是葵皇葛皇粘土人化了
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/133817dw7fo2fbc7wuo7fo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装】世怜音女学院中等部２年生【北小路ヒスイ:にじさんじ】 .jpg.jpg</strong> (102.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 13:38 上传
+
+
+
+
+
+
+世怜女的第一套新衣装（有柴卡萝卜即视感了）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33372#       发表于 2021-3-8 14:00
+
+
+
+
+ark还是对抗不够激烈，你虹运营能力总比哈第强吧？你虹这么多apex痴自己搞比赛不香吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33373#       发表于 2021-3-8 14:14
+
+
+
+
+看了一下EVA剧透太乐了，葛叶配给了白上吹雪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 33374#       发表于 2021-3-8 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">2434kill接力有40人参加么 搞社内比赛拉上kr vr in id都不知能不能搞得上
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33375#       发表于 2021-3-8 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50550439&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 12:25</a>
+订阅飞涨，但是同接跟播放量都没多大起色不就买粉吗，看数据明显不正常 ...</blockquote>
+数据原地踏步甚至还不如1819的在这边酸那也就酸吧，意思是就你家数据是真的，爆孝如雷了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33376#       发表于 2021-3-8 14:37
+
+
+
+
+apex开房要权限
+倒不是不可以找哈弟帮忙
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33377#       发表于 2021-3-8 15:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好的，那月之买粉大概是v圈最多，葛king超月之算是真粉丝战胜了假数据，正义必胜。
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33378#       发表于 2021-3-8 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50551635&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-8 14:34</a>
+
+数据原地踏步甚至还不如1819的在这边酸那也就酸吧，意思是就你家数据是真的，爆孝如雷了
+
+
+—— 来自 Xiao ...</blockquote>
+我都没说我接话指的是狗妈还是狐狸就跳出来喷，杏奴自己都心里有数，笑掉大牙<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33379#       发表于 2021-3-8 15:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了，狗妈暴涨的是b站根本没有同接这东西，在这厚着脸皮打滚挺丑陋的。
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33380#       发表于 2021-3-8 15:19
+
+
+
+
+bsyl
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">《假数据》
+<img src="https://p.sda1.dev/1/7454431107780f6c3fecd6cb78a6556d/-29523d405167dd43.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33381#       发表于 2021-3-8 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552088&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:10</a>
+我都没说我接话指的是狗妈还是狐狸就跳出来喷，杏奴自己都心里有数，笑掉大牙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 不如还是回去从18年往后细品你最爱的“正常数据”吧，玩这套图最后一句嘴巴优势学名叫打滚。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33382#       发表于 2021-3-8 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552154&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-3-8 15:14</a>
+
+差不多得了，狗妈暴涨的是b站根本没有同接这东西，在这厚着脸皮打滚挺丑陋的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了，我喷几个狗东西怎么还来维护的，她会感恩戴德吗，就这么想维护做奴才？
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33383#       发表于 2021-3-8 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552240&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:22</a>
+差不多得了，我喷几个狗东西怎么还来维护的，她会感恩戴德吗，就这么想维护做奴才？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单纯看太监睁眼说瞎话不爽。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33384#       发表于 2021-3-8 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552229&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-8 15:21</a>
+
+不如还是回去从18年往后细品你最爱的“正常数据”吧，玩这套图最后一句嘴巴优势学名叫打滚。
+
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">杏奴就那样了，我的人都是喷不得，你喷了就要骂你
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 33385#       发表于 2021-3-8 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552088&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:10</a>
+
+我都没说我接话指的是狗妈还是狐狸就跳出来喷，杏奴自己都心里有数，笑掉大牙 ...</blockquote>
+狗妈的流量全在你批，不说人气值说同接你在“我都没说我接话指的是狗妈还是狐狸” nm呢?
+
+
+心里当然有数您这套太监虹人yygq搞对立的手段咯，毕竟某几个虹孝子从18年开始就天天这么干，只是2021年了还能有像您这么太监的家伙，不觉得自己闲得慌吗
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33386#       发表于 2021-3-8 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552268&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:24</a>
+杏奴就那样了，我的人都是喷不得，你喷了就要骂你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 不好意思，我天天喷狐皇，只是我不会先割了自己脑子喷，被人指出来怎么下面没有了还要打滚，所以我说你们anti都不会做，狐皇黑点无数的人
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33387#       发表于 2021-3-8 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552257&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-3-8 15:24</a>
+
+单纯看太监睁眼说瞎话不爽。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2.4. ...</blockquote>
+哟，确实你的主子数据都是真的，所以别人都不能喷喷了就是瞎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33388#       发表于 2021-3-8 15:29
+
+
+
+
+V综的青春回来了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 33389#       发表于 2021-3-8 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552268&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:24</a>
+
+杏奴就那样了，我的人都是喷不得，你喷了就要骂你</blockquote>
+月撇的同接比起18年还跌了，您在这给我论证下月撇从18年到现在涨的同接全是彩虹买的我收回之前骂您的话
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33390#       发表于 2021-3-8 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552310&amp;ptid=1969498" target="_blank">admentus 发表于 2021-3-8 15:27</a>
+
+狗妈的流量全在你批，不说人气值说同接你在“我都没说我接话指的是狗妈还是狐狸” nm呢?
+
+
+心里当然有数您 ...</blockquote>
+我是不是太监，跟喷这几个狗东西有关系？？？
+
+还tmd对立，因为我看虹比较多，所以喷了就是搞对立，就是太监？？？看虹的就喷不得这几个狗东西？什么逻辑啊
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 33391#       发表于 2021-3-8 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552338&amp;ptid=1969498" target="_blank">admentus 发表于 2021-3-8 15:30</a>
+
+月撇的同接比起18年还跌了，您在这给我论证下月撇从18年到现在涨的同接全是彩虹买的我收回之前骂您的话 ...</blockquote>
+我前提还说了订阅飞涨，18年到现在涨的周期这么长还能是飞涨吗？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 33392#       发表于 2021-3-8 15:34
+
+
+
+ 本帖最后由 admentus 于 2021-3-8 15:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552339&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:30</a>
+
+我是不是太监，跟喷这几个狗东西有关系？？？
+
+还tmd对立，因为我看虹比较多，所以喷了就是搞对立，就是太 ...</blockquote>
+您老历史发言翻过去吹虹贬其他人，天天和2000打架的发言可忒多了，当人瞎啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+“双标确实谁都有，完全理中没人能做得到。
+我看到木口的数据要追上彩虹我也想他们md别追上给我下去，但这也只限感性的部分。”
+
+噗嗤，猜猜这是谁在v几的发言？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 33393#       发表于 2021-3-8 15:35
+
+
+
+
+V综好起来了，make V综 great again<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 33394#       发表于 2021-3-8 15:36
+
+
+
+
+蛋大总管的意思是你杏fh活该被喷<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+我喷杏无罪！<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33395#       发表于 2021-3-8 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552315&amp;ptid=1969498" target="_blank">蛋炒蜂窝煤 发表于 2021-3-8 15:28</a>
+哟，确实你的主子数据都是真的，所以别人都不能喷喷了就是瞎</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可我没有主子，也不会断然说别人的数据是真是假，只是借用一下你的理论来思考一下曾经的直播势第一人的数据是否存在问题，月之是以前买同接播放了呢？还是后来买订阅了呢？如果按你的理论，大概是都有吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33396#       发表于 2021-3-8 15:37
+
+
+
+
+看了EVA剧透，挺好的，庵野哥哥不是一贯这样吗，庵野哥哥永远的神
+
+
+
+
+
+                                    
