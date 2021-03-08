@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 09:43** 
+> ## **本文件最后更新于2021-03-08 14:39** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_l8bla" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_kzPN6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_AWoO3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_XYnAT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_QpwNk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_pladB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -8993,6 +8993,25 @@ syl，理性讨论就是打架的意思啊
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|什么三角加速同调|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9009,6 +9028,25 @@ syl，理性讨论就是打架的意思啊
 
 她————没有任何死角，
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|哈哈哈😂|
+
+
+
+查看全部评分
 
 
 
@@ -9134,4 +9172,572 @@ syl，理性讨论就是打架的意思啊
 
 
 
-                                  
+
+
+-----
+
+####  Hemis  
+##### 33459#       发表于 2021-3-8 17:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在怀疑2000不是跟囚人有仇，而是跟迪士尼不对付
+
+
+
+
+
+
+
+-----
+
+####  liyitian  
+##### 33460#       发表于 2021-3-8 17:52
+
+
+
+
+这是v综啊 红团早就陨落了 一月打不过aza，二月有被羊和niki压制，早就不是什么奇迹了，也就现在勉强千舰，过个几个月迟早跌到300舰 ，三月更是as的时代 不过as粉既然过来这里，那应该是有橄榄虫的想法是吧，我支持你们，百万收入其实问题不大 ，羊能，as也能的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 33461#       发表于 2021-3-8 18:06
+
+
+
+
+别说了，我现在真的怀疑2000在迪士尼拉过屎了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，是V综对我进行了认知干涉
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 虚无缥缈的光阴| + 1|我也是|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33462#       发表于 2021-3-8 18:20
+
+
+
+
+3月的quiz好看了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33463#       发表于 2021-3-8 18:27
+
+
+
+
+郡道转了，不会要上吧，蠢女去秀什么智商啦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33464#       发表于 2021-3-8 18:36
+
+
+
+
+真的要来，嘎。
+
+出演者（敬称略）
+［司会］
+ジョー・力一
+［にじさんじチーム］
+健屋花那、不破湊、黛灰、緑仙、鷹宮リオン、郡道美玲
+［QuizKnockチーム］
+伊沢拓司、林輝幸
+［解説］
+山上大喜（QuizKnock）
+
+#にじクイ
+#QuizKnock
+#にじクイズノック
+
+东大王估计要被演了，不然绝对碾压啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33465#       发表于 2021-3-8 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50554271&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-8 18:36</a>
+真的要来，嘎。
+
+出演者（敬称略）</blockquote>
+郡道是老师那应该也是高学历组的吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33466#       发表于 2021-3-8 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50553087&amp;ptid=1969498" target="_blank">小小雪空 发表于 2021-3-8 16:37</a>
+
+根据某些常识，先驱往往都会变成先烈，圣嘉然作为3D直播的先驱，命中注定必有一劫
+
+ ...</blockquote>
+v8也烈过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33467#       发表于 2021-3-8 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50554276&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-8 18:36</a>
+郡道是老师那应该也是高学历组的吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+现在得网瘾变蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+省一楼，为了聊eva真的很拼，
+
+Twitterの文章でネタバレ注意って書いてTwitterサムネイルにもネタバレ注意って書いて、Youtubeのタイトルにもネタバレ注意って書いてサムネイルもそれで設定して概要欄も書いてるのにそこまで踏み込んでコメントみて「ネタバレされた！」はまじめにインターネットやめろとしか言いようがないよ
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33468#       发表于 2021-3-8 18:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> KING，新衣装，是之前发布过的那件么？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33469#       发表于 2021-3-8 19:06
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-8 19:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50554492&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-8 18:57</a>
+
+KING，新衣装，是之前发布过的那件么？</blockquote>
+如果你说在会限发布的那个，是
+
+
+下次再发，先删
+
+新版头
+
+<img src="https://img.saraba1st.com/forum/202103/08/191709jax5g9k5x5g7gbt4.png" referrerpolicy="no-referrer">
+
+
+<strong>【 サソシュウネソ 】雑【 ３周年 】-3.png</strong> (130.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 19:17 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/190632evk1bv9722xy5hyv.png" referrerpolicy="no-referrer">
+
+
+<strong>【 サソシュウネソ 】雑【 ３周年 】.png</strong> (173.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 19:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 33470#       发表于 2021-3-8 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33471#       发表于 2021-3-8 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50554586&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-8 19:06</a>
+
+如果你说在会限发布的那个，是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer"> 嘶，怎么评价呢，，
+
+
+嗯，，，，如果和穿紫色衣服的妹子出去玩就会有cp感这样的把
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33472#       发表于 2021-3-8 19:15
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-3-8 19:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50554628&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-8 19:10</a>
+
+嘶，怎么评价呢，，
+
+
+嗯，，，，如果和穿紫色衣服的妹子出去玩就会有cp感这样的把 ...</blockquote>
+其实即便是你，不也想拯救原先的v综吗
+
+
+一旦视奸人走光，就不会有下一栋v综了
+
+
+整个s1v版，都会被拖入虹杏分楼的新冷战体系
+
+
+2000哥，你不也是我们的同胞吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33473#       发表于 2021-3-8 19:23
+
+
+
+
+king这是一天都不想给天皇留啊？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33474#       发表于 2021-3-8 19:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> king玩ark到底是给谁面子呢？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33475#       发表于 2021-3-8 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50554819&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-8 19:23</a>
+
+king这是一天都不想给天皇留啊？</blockquote>
+免得夜长梦多吧
+
+
+天凉了很久了，再不让（天）王破，就没面子了
+
+
+就让天皇在樱花雨里退位吧！
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 33476#       发表于 2021-3-8 19:40
+
+
+
+ 本帖最后由 豆芽123 于 2021-3-8 19:42 编辑 
+
+葵皇当初ARK孤岛如日中天，结果打完就是为了新人开个仙境图，搞的老人都弃了，现在又在搞这一套这些小废物谁看啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33477#       发表于 2021-3-8 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这次ark完蛋了，就彻底代表你葵彻底烂掉了，
+
+
+而这次ark烂掉几乎是必然的，这波ark完蛋之后再摸几个月，就彻底拜拜了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33478#       发表于 2021-3-8 20:08
+
+
+
+
+先驱等于先烈，这句话太损了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33479#       发表于 2021-3-8 20:11
+
+
+
+
+妈耶，我一进来就看到2000叛变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33480#       发表于 2021-3-8 20:17
+
+
+
+
+看到这么说我就安心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33481#       发表于 2021-3-8 20:17
+
+
+
+
+你葵能不能大切告知前通过ark贴贴营业把我第五喜欢的釜山给捧上来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这是我对你葵唯一的期待
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33482#       发表于 2021-3-8 20:18
+
+
+
+
+测试
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 33483#       发表于 2021-3-8 20:49
+
+
+
+
+怎么v综杏奴费拉不堪，rz打滚还要上去辩一辩三期信真的不行
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33484#       发表于 2021-3-8 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50555933&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2021-3-8 20:49</a>
+怎么v综杏奴费拉不堪，rz打滚还要上去辩一辩三期信真的不行</blockquote>
+鱼克拉你别用oper哥的号，上大号说话！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33485#       发表于 2021-3-8 22:20
+
+
+
+ 本帖最后由 flyskywalker92 于 2021-3-8 22:34 编辑 
+
+某种程度 看到迪士尼拉屎 有种安心感
+
+syl nga又在holo同接跌3成 药丸 
+一看还是把彩虹爆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33486#       发表于 2021-3-8 22:31
+
+
+
+
+狱卒最后这波好强
+
+
+
+
+
+                                 

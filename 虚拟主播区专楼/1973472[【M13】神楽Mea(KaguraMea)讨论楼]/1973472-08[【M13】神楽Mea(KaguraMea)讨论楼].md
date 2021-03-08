@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 10:41** 
+> ## **本文件最后更新于2021-03-08 14:40** 
 
 
 
@@ -1699,4 +1699,464 @@ fmhk的图是真的挺好看的
 
 
 
-                                              
+
+
+-----
+
+####  草牛  
+##### 10596#       发表于 2021-3-8 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诶呀，以我从事工作的角度看啊，不管什么行业，它都会更新迭代，你跟不上环境，被淘汰是很正常的，很多中年危机面临失业就是岁数到了跟不上环境被筛掉了，v老嗨，你咩姐和你咩姐的字幕组不都这样，要不互联网行业为啥喜欢要年轻人，一群老嗨聚在一起能有个鬼的活力
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10597#       发表于 2021-3-8 19:16
+
+
+
+
+更正：魔怔是每个管人入脑的粉丝的归宿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 10598#       发表于 2021-3-8 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10599#       发表于 2021-3-8 19:29
+
+
+
+
+sb瓶子怎么了，会烧死吗，有楼友清楚不，乐呵乐呵
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10600#       发表于 2021-3-8 19:34
+
+
+
+
+不魔怔谁来这里呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10601#       发表于 2021-3-8 19:46
+
+
+
+
+瓶子是乐到自己头上急了？不过我看着像炒作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不关心
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10602#       发表于 2021-3-8 19:48
+
+
+
+
+叔叔的狗，哪那么容易死。膨胀的傻逼等他再作看笑话就完事了。
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10603#       发表于 2021-3-8 20:07
+
+
+
+
+叔叔的狗闹大了也会死 蕾皇现在还封着呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+瓶皇的事是指不许发流汗黄豆？那死不了 没出圈 小事情 不过这b树敌无数 anti比蕾皇还多 就差一个导火索了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10604#       发表于 2021-3-8 20:47
+
+
+
+
+这人的阿b号是不是一直在掉粉阿，和404那会一样就卡在4.5这个坎上了呗
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10605#       发表于 2021-3-8 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50555912&amp;ptid=1973472" target="_blank">pei23333 发表于 2021-3-8 20:47</a>
+这人的阿b号是不是一直在掉粉阿，和404那会一样就卡在4.5这个坎上了呗</blockquote>
+时不时动态狂发<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就达成了时不时洗粉的作用
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10606#       发表于 2021-3-8 21:07
+
+
+
+
+现在本来就没啥人过来看，自己直播也少掉了正常
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 10607#       发表于 2021-3-8 21:41
+
+
+
+
+话说这个Dimension Labels Virtual Music Festival的规模如何
+
+
+为什么你羊还配站C位 有点哈人
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10608#       发表于 2021-3-8 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50556530&amp;ptid=1973472" target="_blank">春风女神狄璐卡 发表于 2021-3-8 21:41</a>
+话说这个Dimension Labels Virtual Music Festival的规模如何
+
+
+为什么你羊还配站C位 有点哈人 ...</blockquote>
+普通拼盘 不用太期待 就是有几个虹v能来点虹粉都不错了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10609#       发表于 2021-3-8 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这不仅煋还云，为啥站C位建议去问问海报设计师。至于规模，应该和之前参加过的播片差不多吧（猜测
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 10610#       发表于 2021-3-8 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50556572&amp;ptid=1973472" target="_blank">笋狐 发表于 2021-3-8 21:45</a>
+
+你这不仅煋还云，为啥站C位建议去问问海报设计师。至于规模，应该和之前参加过的播片差不多吧（猜测 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">讲道理，除了动态也不太会去看其他地方 不知道不是很正常
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10611#       发表于 2021-3-8 21:51
+
+
+
+
+fleet小作文还行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10612#       发表于 2021-3-8 22:03
+
+
+
+
+这种5个人都在动的感觉好怪…
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10613#       发表于 2021-3-8 22:05
+
+
+
+
+这红头发的居然是苔2箱的，还以为是彩虹的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10614#       发表于 2021-3-8 22:07
+
+
+
+
+新开场白还行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10615#       发表于 2021-3-8 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10616#       发表于 2021-3-8 22:10
+
+
+
+
+居然是这种流向的座谈会啊，跟想象的有丶区别呢
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10617#       发表于 2021-3-8 22:21
+
+
+
+
+咩的帽子在动吗，还是我错觉了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10618#       发表于 2021-3-8 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10619#       发表于 2021-3-8 22:25
+
+
+
+
+帽子的图层确实没有固定
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10620#       发表于 2021-3-8 22:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等，你麻个乡下土妹是怎么分类到城市vtb的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10621#       发表于 2021-3-8 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50556607&amp;ptid=1973472" target="_blank">春风女神狄璐卡 发表于 2021-3-8 21:48</a>
+
+讲道理，除了动态也不太会去看其他地方 不知道不是很正常</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动态先不说，你这不仅直播，连切片都不看的咯
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10622#       发表于 2021-3-8 22:36
+
+
+
+
+背景板.jpg
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/223545q1mwb3pmppvtfp2n.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (123.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 22:35 上传
+
+
+
+
+
+
+
+
+
+
+
+                                             
