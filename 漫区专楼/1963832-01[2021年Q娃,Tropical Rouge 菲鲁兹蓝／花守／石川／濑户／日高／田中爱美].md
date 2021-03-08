@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 04:45** 
+> ## **本文件最后更新于2021-03-08 09:45** 
 
 
 
@@ -12334,4 +12334,533 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 
 
 
-                          
+
+
+-----
+
+####  kerfars  
+##### 692#       发表于 2021-3-7 15:44
+
+
+
+
+才发现夏夏旁边的座位是空的，黄战士和红战士分别是初二和初三，那么答案很明显……
+<img src="https://wx4.sinaimg.cn/mw1024/6b638e90gy1gobdvqfqgbj20x20ik4nm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 693#       发表于 2021-3-7 17:50
+
+
+
+ 本帖最后由 isa2456 于 2021-3-7 17:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">怎么你们就认识一天就能表现得跟一对那样了，还有我也想当q娃，怎么联系萝拉
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 694#         楼主| 发表于 2021-3-7 18:04
+
+
+
+
+海藤南
+<img src="http://wx1.sinaimg.cn/mw690/e6a7c11dgy1gobbsc0bqwj20to0gnb12.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 695#       发表于 2021-3-7 19:01
+
+
+
+
+两集下来我发现一个问题
+
+
+
+
+
+
+
+-----
+
+####  adsn  
+##### 696#       发表于 2021-3-7 19:14
+
+
+
+
+人鱼现在有点像银兽役，不过女主旁边的空位还专门给了个镜头<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 697#       发表于 2021-3-7 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541596&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-3-7 18:04</a>
+
+海藤南</blockquote>
+人类当光之美少女能变人鱼，罗拉真没把自己当人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 698#       发表于 2021-3-7 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50542298&amp;ptid=1963832" target="_blank">adsn 发表于 2021-3-7 19:14</a>
+
+人鱼现在有点像银兽役，不过女主旁边的空位还专门给了个镜头</blockquote>
+这么一说我想起来那海豹还没正式登场
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 699#       发表于 2021-3-7 20:35
+
+
+
+
+第二集绘柄也好稳，人鱼虽然失礼对夏哥丢失手机（？）这事也没有怪罪她，认识没两天就姬力十足，后面40来集岂不是闪爆<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+罗拉尾巴肉肉的好想摸<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 700#       发表于 2021-3-7 20:39
+
+
+
+<blockquote>最强惠酱 发表于 2021-3-7 20:35
+第二集绘柄也好稳，人鱼虽然失礼对夏哥丢失手机（？）这事也没有怪罪她，认识没两天就姬力十足，后面40来集 ...</blockquote>
+手机那下应该是人鱼自个控制跑出来的吧
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 701#       发表于 2021-3-7 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543268&amp;ptid=1963832" target="_blank">renkan119 发表于 2021-3-7 20:39</a>
+
+手机那下应该是人鱼自个控制跑出来的吧</blockquote>
+再看了遍是滑了出来，不过具体也没说，掉下来就反光，我倾向于既然掉了下来就顺势出去找q娃了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 702#       发表于 2021-3-7 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541476&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-3-7 17:50</a>
+
+怎么你们就认识一天就能表现得跟一对那样了，还有我也想当q娃，怎么联系萝拉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坐船到海中心扔唇膏啊
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 703#       发表于 2021-3-7 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543350&amp;ptid=1963832" target="_blank">199april 发表于 2021-03-07 20:45:42</a>
+坐船到海中心扔唇膏啊</blockquote>刻 舟 求 鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 704#       发表于 2021-3-7 20:53
+
+
+
+ 本帖最后由 banglian 于 2021-3-7 21:22 编辑 
+
+结合下银兽，屑，后面会成为Q娃这些要素来看，可能萝拉并不只是茶几小公主和魔法李可，还是奶玫瑰吧（说起来发型和眉毛也有点像）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 705#         楼主| 发表于 2021-3-7 21:21
+
+
+
+
+这屑人鱼，还给路人同学打分233
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 706#       发表于 2021-3-7 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543453&amp;ptid=1963832" target="_blank">banglian 发表于 2021-3-7 20:53</a>
+
+结合下银兽，屑，后面会成为Q娃这些要素来看，可能萝拉并不只是茶几小公主和魔法李可，还是奶玫瑰吧（说起 ...</blockquote>
+另有吉祥物，不是屑人鱼
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 707#       发表于 2021-3-7 22:21
+
+
+
+
+感觉真夏的嗓门好大
+
+女主的旁边有空座位
+
+萝拉肯定也得成为precure，美人鱼的故事肯定也逃不开
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 708#       发表于 2021-3-7 22:25
+
+
+
+
+不出意外前期主线就是这只屑咸鱼态度的转变 变q娃 但问题是q娃之前有类似角色 但没有写好 点名奶玫瑰和小公主 就看看今年编辑水平如何惹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 709#       发表于 2021-3-7 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50544625&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-7 22:25</a>
+
+不出意外前期主线就是这只屑咸鱼态度的转变 变q娃 但问题是q娃之前有类似角色 但没有写好 点名奶玫瑰和小公 ...</blockquote>
+这人鱼虽然性格比较屑但该干的活还是在干的 也没小公主那样的黑历史 应该没啥问题吧
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 710#       发表于 2021-3-7 23:16
+
+
+
+
+屑人鱼可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 夏哥好爷们啊
+
+
+另外这集该动的地方也没含糊 质量应该会比奶Q好
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 711#       发表于 2021-3-7 23:33
+
+
+
+
+空丸也来当老师了，毕竟也过三<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这么文静正经的声线很少听
+
+
+罗拉被丢在家里的那股醋劲，感觉有女士潜质啊，虽然其他时候依然挺屑
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 712#       发表于 2021-3-8 00:20
+
+
+
+
+对了看完第一集op有个曲子一直在我脑子里串场  今天早上我想到了  
+
+
+热带雨林爆笑生活！真是一想到这片我脑子里就响起了 热带雨林爆笑生活的op<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 713#       发表于 2021-3-8 02:02
+
+
+
+
+还以为会就手机到底是真夏掉的还是罗拉自己跑的产生误会然后吵架。。。结果完全没纠结这个嘛
+
+
+真夏的小招太阳神冲击我看的字幕上标是sungod，但台词说的好像是ten什么的，有人知道具体是说的啥么？
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 714#       发表于 2021-3-8 04:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50546255&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-03-08 02:02:37</a>
+还以为会就手机到底是真夏掉的还是罗拉自己跑的产生误会然后吵架。。。结果完全没纠结这个嘛
+
+
+真夏的小招太 ...</blockquote>御天道様 おてんとさま
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 715#       发表于 2021-3-8 04:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50546505&amp;ptid=1963832" target="_blank">moooooonlight 发表于 2021-3-8 04:07</a>
+
+御天道様 おてんとさま
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+原来如此，我还在想是不是天照大神什么的
+
+
+
+
+
+
+
+-----
+
+####  阿渣兄  
+##### 716#       发表于 2021-3-8 05:43
+
+
+
+
+够屑的这人鱼
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 717#         楼主| 发表于 2021-3-8 07:35
+
+
+
+<img src="http://wx4.sinaimg.cn/large/69559a0agy1gobmpeck96j21dc0h5wsm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 718#       发表于 2021-3-8 08:18
+
+
+
+
+现在这第二集吵架是成定番了吗？第二集吵个架确定一下觉悟啥的
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 719#       发表于 2021-3-8 09:00
+
+
+
+
+屑人鱼我好喜欢啊，很有人味很真实w 放在去年也就是拉拉役了，虽然没有拉拉那么可爱但也很讨喜
+
+
+
+
+
+
+
+-----
+
+####  imzosi  
+##### 720#       发表于 2021-3-8 09:54
+
+
+
+
+这屑人鱼醋劲好大<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 721#       发表于 2021-3-8 15:42
+
+
+
+
+看不到珊瑚变身我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                         
