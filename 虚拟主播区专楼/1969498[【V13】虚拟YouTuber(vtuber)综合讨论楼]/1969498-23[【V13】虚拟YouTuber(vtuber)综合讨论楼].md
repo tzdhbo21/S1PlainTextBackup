@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-09 10:40** 
+> ## **本文件最后更新于2021-03-09 12:48** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_zr7XH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_W3vuN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_gtq8d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_e0UB2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_D823Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_hdUu2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -10821,4 +10821,563 @@ syl葛皇这个时候开播，主播心态还挺强
 
 
 
-                               
+
+
+-----
+
+####  free  
+##### 33548#       发表于 2021-3-9 18:51
+
+
+
+
+烂货，嗓子坏了吧，让你天天嚎，这下还不毕业？嘻嘻
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/185142ouixwueh8080enre.png" referrerpolicy="no-referrer">
+
+
+<strong>烂货.png</strong> (20.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 18:51 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 屑屑代沟尼亚| + 1|❤982|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  烤冷面加蛋  
+##### 33549#       发表于 2021-3-9 19:03
+
+
+
+ 本帖最后由 烤冷面加蛋 于 2021-3-9 19:35 编辑 
+
+[https://imgur.com/22W2eKI](https://imgur.com/22W2eKI)
+
+开始5秒，「わーーーー」
+
+倒数17秒，「猫の声？」
+
+<img src="https://img.saraba1st.com/forum/202103/09/193334p1p7i1fcihwkff1p.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (43.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 19:33 上传
+
+
+
+
+
+
+会限直球的6个月会员<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33550#       发表于 2021-3-9 19:19
+
+
+
+
+都说了多少次了
+
+葛尊szd！
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33551#       发表于 2021-3-9 19:19
+
+
+
+
+卡普空同接4.5w……
+
+现在是给广告做广告环节……
+
+果然日本人……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 33552#       发表于 2021-3-9 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我知道蓝鸟没踩，但也不用给圆脸烂货点赞吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33553#       发表于 2021-3-9 19:26
+
+
+
+
+谈个恋爱就要转黑的火畜只能说心不诚，早点洗掉更好。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 33554#       发表于 2021-3-9 19:30
+
+
+
+
+说不定是心碎黑黑人呢。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33555#       发表于 2021-3-9 19:33
+
+
+
+
+老叶都泡了多少妹子了
+
+要碎早碎了
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 33556#       发表于 2021-3-9 19:33
+
+
+
+
+如果黑黑szd那不足为虑，bszd那早晚…
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33557#       发表于 2021-3-9 19:53
+
+
+
+
+话说回来
+
+尊妈这么有能的人怎么会犯下这么低级的错误
+
+会不会是king最近招蜂引蝶多了
+
+要敲打一下，或者干脆就是逼婚
+
+
+女人好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33558#       发表于 2021-3-9 19:57
+
+
+
+
+楼友这么一绕让我发散到叶尊了，罪孽深重啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33559#       发表于 2021-3-9 19:58
+
+
+
+
+阿床怎么也搞垃圾小动画了，田角陆你不是人
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 33560#       发表于 2021-3-9 19:59
+
+
+
+<blockquote>ksnksoさんの叡智絵が未だに上がることに疑問に思う方がちょこちょこいらっしゃるのでお答えすると、とあるskebユーザーが炎上後に彼女を知ってその「本性バレて都落ちした悪女」属性にドハマリしてガンガン依頼してるからです。それに影響されたのか他の人も依頼し始めてるとか</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">据说这位爱好恶堕的老哥已经为女主角的skeb涩图贡献了60张以上总价100万日元的稿费
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33561#       发表于 2021-3-9 20:00
+
+
+
+
+按照最新最in的某国民IP剧场版的走向，最后得到葛叶的是啊凛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33562#       发表于 2021-3-9 20:02
+
+
+
+
+好角度
+<img src="https://p.sda1.dev/1/c831b1bc9af168f16117db246d3ceb7e/-61d4b15f4d1e448c.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+黑黑推已经变成暗黑贴贴人了嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33563#       发表于 2021-3-9 20:02
+
+
+
+ 本帖最后由 NBXX 于 2021-3-9 20:09 编辑 
+
+[https://www.youtube.com/watch?v=mKQGRfl9vCc](https://www.youtube.com/watch?v=mKQGRfl9vCc)
+
+【祝！三周年】重大発表有！3rd anniversary thank you 💓【ホロライブ/ロボ子さん】
+
+<img src="https://p.sda1.dev/1/e8ae5345d374b89e588eaf0ba8026fff/maxresdefault.jpg" referrerpolicy="no-referrer">
+
+
+
+嗓子还是没好
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33564#       发表于 2021-3-9 20:10
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-9 20:30 编辑 
+
+小绿新衣服帅啊，长发我好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+差分也不少，活整得可以
+旁白居然是项羽
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33565#       发表于 2021-3-9 20:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/201317pxxu877hxyxe75xy.png" referrerpolicy="no-referrer">
+
+
+<strong>绿.png</strong> (58.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 20:13 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33566#       发表于 2021-3-9 20:17
+
+
+
+
+天皇气势满满的eva整活被nijisanji的规约给毙了，老老实实退位吧，垃圾亚文化女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 33567#       发表于 2021-3-9 20:23
+
+
+
+ 本帖最后由 Ketestrait 于 2021-3-9 20:26 编辑 
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1godx8wdt7vj20ms0itacq.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1godx92cxgbj20mv0j2tbb.jpg" referrerpolicy="no-referrer">
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1godx9662xzj20xr0ixjyb.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1godxbwk8k6j20w30i7n38.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1godx9ao72dj20fh0i4q6o.jpg" referrerpolicy="no-referrer">
+
+
+北小路→北“大”路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33568#       发表于 2021-3-9 20:27
+
+
+
+
+田角：EVA这破玩意早就过时了，要蹭你蹭最新最in的🐎娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33569#       发表于 2021-3-9 20:28
+
+
+
+
+虽然很酷但怎么感觉整个人设都变了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33570#       发表于 2021-3-9 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这衣服好赛博啊
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33571#       发表于 2021-3-9 20:37
+
+
+
+
+没怎么看过小绿直播，平时也是一直不说话站那傻笑吗？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33572#       发表于 2021-3-9 20:38
+
+
+
+
+原本作为人设声音最大的鲨鱼牙变得存在感稀薄...
+
+果然还是感觉是另一个人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nocode  
+##### 33573#       发表于 2021-3-9 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50568061&amp;ptid=1969498" target="_blank">Ketestrait 发表于 2021-3-9 20:23</a>
+北小路→北“大”路</blockquote>
+第一张一看还以为是哪个异刃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 33574#       发表于 2021-3-9 20:45
+
+
+
+
+这不是罪恶装备里那谁么…
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33575#       发表于 2021-3-9 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50568109&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-9 20:27</a>
+
+田角：EVA这破玩意早就过时了，要蹭你蹭最新最in的🐎娘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer"> 田角哥哥，你葵的line我能加不？
+
+
+
+
+
+                              
