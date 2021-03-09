@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-09 12:48** 
+> ## **本文件最后更新于2021-03-09 18:02** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_e0UB2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_D823Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_hdUu2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_zl22d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Fe40g" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_LyzHQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -11380,4 +11380,613 @@ syl葛皇这个时候开播，主播心态还挺强
 
 
 
-                              
+
+
+-----
+
+####  cheatdeath3  
+##### 33576#       发表于 2021-3-9 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50567501&amp;ptid=1969498" target="_blank">超能力者stven 发表于 2021-3-9 19:33</a>
+
+如果黑黑szd那不足为虑，bszd那早晚…</blockquote>
+夏吹的今天就是黑黑的明天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33577#       发表于 2021-3-9 21:26
+
+
+
+
+杏奴骂谁是狐坦谁是脑瘫辅助佐藤希呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33578#       发表于 2021-3-9 21:32
+
+
+
+
+美夜子虽然比不上其他钻石像小千小熊猫或者狱卒 但是这肥宅玩得是真好 虽然伤害不高 但支援 放盾时机和救人都做得很好给她们这队伍的支援真的很大<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33579#       发表于 2021-3-9 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king看竞马咒马骨折，天皇玩赛马娘要食底边马肉，你虹top和马主有仇么
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33580#       发表于 2021-3-9 21:57
+
+
+
+
+美夜子的apex感觉进步好大
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33581#       发表于 2021-3-9 22:01
+
+
+
+
+是暗示黑黑的明天其中一位会金盾混入管理层，另一位胳膊肘外拐奶社外liver同时和异性高强度联动吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33582#       发表于 2021-3-9 22:06
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-9 22:57 编辑 
+
+Kuzuha Channel 
+
+711K subscribers
+
+月ノ美兎 
+
+711K subscribers
+ <blockquote>君が代は
+
+
+千代に八千代に
+
+
+さざれ石の
+
+
+巌となりて
+
+
+苔の生すまで <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer"></blockquote>
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/225537ifofmkv8mmmkhmis.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #060 - 'にじさんじプロジェクト いちから株式会社.png</strong> (28.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 22:55 上传
+
+
+
+
+ <blockquote>宮さん宮さん　お馬の前に
+
+ヒラヒラするのは　何じゃいな
+
+トコトンヤレ　トンヤレナ
+
+あれは朝敵　征伐せよとの
+
+錦の御旗(みはた)じや　知らないか
+
+トコトンヤレ　トンヤレナ
+
+
+一天万乗(いってんばんじょう)の　一天万乗の
+
+帝王(みかど)に手向かい　する奴を
+
+トコトンヤレ　トンヤレナ
+
+ねらい外さず　ねらい外さず
+
+どんどん撃ち出す　薩長土(さっちょうど)
+
+トコトンヤレ　トンヤレナ
+
+
+伏見　鳥羽　淀　伏見　鳥羽　淀
+
+橋本　葛葉(くずは)の戦いは
+
+トコトンヤレ　トンヤレナ
+
+薩長土肥(さっちょうどひ)の　薩長土肥の
+
+合(お)うたる手際じゃ　ないかいな
+
+トコトンヤレ　トンヤレナ
+
+
+音に聞こえし　関東武士(さむらい)
+
+どっちへ逃げたと　問うたれば
+
+トコトンヤレ　トンヤレナ
+
+城も気概も　城も気概も
+
+捨てて吾妻(あづま)へ　逃げたげな
+
+トコトンヤレ　トンヤレナ
+
+
+国を追うのも　人を殺すも
+
+誰も本意じゃ　ないけれど
+
+トコトンヤレ　トンヤレナ
+
+薩長土肥の　薩長土肥の
+
+先手(さきて)に手向かい　する故に
+
+トコトンヤレ　トンヤレナ
+
+
+雨の降るような　雨の降るような
+
+鉄砲の玉の　来る中に
+
+トコトンヤレ　トンヤレナ
+
+命惜しまず　魁(さきがけ)するのも
+
+皆お主の　為故じゃ
+
+トコトンヤレ　トンヤレナ</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33583#       发表于 2021-3-9 22:09
+
+
+
+
+月撇憋搁那挣扎了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer"> 舒服舒服舒服
+
+
+
+
+
+
+
+-----
+
+####  北条早苗  
+##### 33584#       发表于 2021-3-9 22:11
+
+
+
+ 本帖最后由 北条早苗 于 2021-3-9 22:20 编辑 
+
+不敢进漫区过来避难
+
+顺便问下有没有人知道千条アリア(棗いつき)曾经有个搭档叫夜乃ノア，这个到底是不是Sennzai？
+[https://www.youtube.com/watch?v=nOWwZnjI6lA](https://www.youtube.com/watch?v=nOWwZnjI6lA)
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33585#       发表于 2021-3-9 22:36
+
+
+
+
+一个时代结束了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33586#       发表于 2021-3-9 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50567784&amp;ptid=1969498" target="_blank">sgssk 发表于 2021-3-9 19:59</a>
+据说这位爱好恶堕的老哥已经为女主角的skeb涩图贡献了60张以上总价100万日元的稿费 ...</blockquote>
+我说怎么源源不断新图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33587#       发表于 2021-3-9 23:03
+
+
+
+
+看整个虹楼都在repo美兔小姐玩马娘的情况……就很想笑。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33588#       发表于 2021-3-9 23:08
+
+
+
+
+你虹的b综本回也太b综了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33589#       发表于 2021-3-9 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50569442&amp;ptid=1969498" target="_blank">北条早苗 发表于 2021-3-9 22:11</a>
+不敢进漫区过来避难
+
+顺便问下有没有人知道千条アリア(棗いつき)曾经有个搭档叫夜乃ノア，这个到底是不是Sen ...</blockquote>
+我不太擅长分辨女人的声音，不过这个我觉得应该不是。Sennzai的声音特别飘忽，但是这首惹0的声音比较实心。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33590#       发表于 2021-3-9 23:39
+
+
+
+
+江 哥说是要今天毕业？现在塞尔达播的挺开心的同接4000多人呢.......
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33591#       发表于 2021-3-9 23:40
+
+
+
+
+看不出来要毕业的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33592#       发表于 2021-3-9 23:43
+
+
+
+
+我还是认为彩虹成功按下去了，就是不知道是PUA到位了还是割地赔款了。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33593#       发表于 2021-3-9 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都能听出来 建议加入海军成为光荣的声呐手
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33594#       发表于 2021-3-9 23:51
+
+
+
+
+现在塞尔达正好打完，可以圆满毕业了。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 33595#       发表于 2021-3-9 23:52
+
+
+
+
+gbr移籍的说法是移到哪儿？
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 33596#       发表于 2021-3-9 23:54
+
+
+
+
+只是乐观王侯猜想会连皮一起移到nbc环球，没依据的
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33597#       发表于 2021-3-9 23:56
+
+
+
+
+挺想知道理由的，别又是生病<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33598#       发表于 2021-3-10 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 新王妃和德比在ptr家喝酒，好生快活，
+
+
+gbr这种，想退就退
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33599#       发表于 2021-3-10 00:24
+
+
+
+
+年轻人想法就是多，希望3bk露露这几个快三十的干久点
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33600#       发表于 2021-3-10 00:38
+
+
+
+ 本帖最后由 qq845629713 于 2021-3-10 00:41 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/003829r8378ur43m7h9rv7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210310003736.png</strong> (30.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 00:38 上传
+
+
+
+
+
+
+
+关西JK组大联动
+
+
+
+葛葉
+
+@Vamp_Kuzu
+
+·
+
+19分钟
+
+配信見てくれた人ありがとう
+
+
+猪コントロールコントロール
+
+
+KING的余裕
+
+
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33601#       发表于 2021-3-10 01:12
+
+
+
+
+你虹又要联动崩一个游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33602#       发表于 2021-3-10 01:12
+
+
+
+
+🐒怎么还在播，真准备救完公主走人啊？
+
+
+
+
+
+
+
+-----
+
+####  咬合秒针  
+##### 33603#       发表于 2021-3-10 01:16
+
+
+
+
+不要啊 江良<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
