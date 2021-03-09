@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-09 07:37** 
+> ## **本文件最后更新于2021-03-09 10:40** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_T9m46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_woLAx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_M8nco" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_zr7XH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_W3vuN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_gtq8d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -4600,7 +4600,7 @@ fumi民隐藏discord暴露这件事果然是2月最欢乐了，阴湿度太高�
 
 
 Screenshot_20210306_194112.jpg
-(164.89 KB, 下载次数: 0)
+(164.89 KB, 下载次数: 1)
 
 
 
@@ -10338,4 +10338,487 @@ ema是被气到所以才两个月不发早就公布的新曲吗<img src="https:/
 
 
 
-                                
+
+
+-----
+
+####  ygysh0505  
+##### 33519#       发表于 2021-3-9 15:41
+
+
+
+
+出柜这个词是这样用的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，然后顺便去看了订阅，还差兔头1000就改朝换代了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33520#       发表于 2021-3-9 15:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 发帖人说不定是囚人啊，想编造这种新闻来污蔑我king，
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33521#       发表于 2021-3-9 15:50
+
+
+
+
+油管20w播放郡an视频被干了，搞不懂，你ickr手就这么长？
+还要上nijiquiz，而且还突然帮了个麻将漫画写了推荐书腰…现在的郡道真的值得吗？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33522#       发表于 2021-3-9 15:58
+
+
+
+
+出柜泛指txl或sxl公开自己的性取向
+这词可不能乱用<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 33523#       发表于 2021-3-9 16:12
+
+
+
+
+葛尊性爱没所谓的吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 33524#       发表于 2021-3-9 16:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好久没来，V综怎么人都没换过还是你们啊！
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33525#       发表于 2021-3-9 16:32
+
+
+
+
+就算不是，也是了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33526#       发表于 2021-3-9 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 33527#       发表于 2021-3-9 17:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v综没有新人只剩各类遗老老害了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 33528#       发表于 2021-3-9 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶走杏奴之后，这份太平盛世如你所愿
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 33529#       发表于 2021-3-9 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是老害谁逛s1啊？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33530#       发表于 2021-3-9 17:24
+
+
+
+
+来点火星虹人浓度，据说nga那边虹人内战了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 33531#       发表于 2021-3-9 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝物哥被虹人版务追到asoul楼开除虹籍。一堆8u空降入场攻击版务，直球辱骂。
+
+8u们单方面输出罢了，nga版务们屁都不敢放一个。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33532#       发表于 2021-3-9 17:28
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-9 18:29 编辑 
+
+内战啥了，最近每天都看看虹楼<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+哦，不是虹楼，那没事了，不过版务里原来有虹人啊？还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33533#       发表于 2021-3-9 17:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 太多人只视奸不发言当然没有新人 ，愣要说还是多了点人的。s1那么冷清首先就说明杏奴避难所还是到处都是，s1缺乏竞争力，q综也难招新人。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33534#       发表于 2021-3-9 17:37
+
+
+
+
+这件事我在nga混了那么久也没搞明白，为什么虹楼的人总有种谨言慎行，不能乱说话的气氛，这会倒是好像懂了。
+
+搞得好像别家粉丝迫害他们一样，结果是虹人版务在针对虹人说话阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 33535#       发表于 2021-3-9 17:38
+
+
+
+
+葛葉、御伽原江良の引退を暴露
+[https://www.nicovideo.jp/watch/sm38387566](https://www.nicovideo.jp/watch/sm38387566)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">火畜和王候能不能打起来啊
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33536#       发表于 2021-3-9 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50566262&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-9 17:32</a>
+
+太多人只视奸不发言当然没有新人 ，愣要说还是多了点人的。s1那么冷清首先就说明杏奴避难所还是到 ...</blockquote>
+哪需要什么避难所，搞得好像nga就是杏仁全家似的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+本来就没多少人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33537#       发表于 2021-3-9 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 准确的说，是囚人版务在自我管制净土宗虹粉，
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33538#       发表于 2021-3-9 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">即将引退长期会限的过气女v如何战胜旭日升龙大赛闪耀的第一虹v，更别说女粉战斗力之强了.
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33539#       发表于 2021-3-9 17:58
+
+
+
+
+葛皇照常开播，好像什么事都没发生
+
+不愧是king啊
+
+
+
+
+
+
+
+-----
+
+####  间隙白垢  
+##### 33540#       发表于 2021-3-9 18:02
+
+
+
+
+楼友和隔壁联动好多 贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33541#       发表于 2021-3-9 18:03
+
+
+
+
+还在上班没法补，所以尊的会限asmr里真的露出男人声音了么，这还没有被炎么
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 33542#       发表于 2021-3-9 18:15
+
+
+
+
+听说（真的是听说），葛叶的一部分gachi转黑了，因为没有刷yhm推的习惯不知道是不是真的
+syl葛皇这个时候开播，主播心态还挺强
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33543#       发表于 2021-3-9 18:21
+
+
+
+
+不足为虑
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33544#       发表于 2021-3-9 18:22
+
+
+
+
+看了看踩数这不就是一般水平吗，感觉没啥
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33545#       发表于 2021-3-9 18:27
+
+
+
+
+能有啥吗，也就这样了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33546#       发表于 2021-3-9 18:29
+
+
+
+
+毒唯火畜给点力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33547#       发表于 2021-3-9 18:32
+
+
+
+
+区区同居不值一提，今晚就超月之<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
