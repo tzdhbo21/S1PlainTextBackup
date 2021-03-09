@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 14:39** 
+> ## **本文件最后更新于2021-03-09 07:37** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_XYnAT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_QpwNk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_pladB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_T9m46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_woLAx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_M8nco" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -9038,10 +9038,12 @@ syl，理性讨论就是打架的意思啊
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 沉舟侧畔| + 1|欢乐多|
+| 轩辕无| + 1|好评加鹅|
 | ylssb10438| + 1|哈哈哈😂|
 
 
@@ -9740,4 +9742,600 @@ syl nga又在holo同接跌3成 药丸
 
 
 
-                                 
+
+
+-----
+
+####  poipanchao  
+##### 33487#       发表于 2021-3-8 23:07
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-8 23:19 编辑 
+
+才发现一只萌在哈弟队里
+
+有一场伤害比哈弟还多
+
+哈弟你行不行（）
+
+
+syl，出于好奇看了一会儿她直播
+
+还开了美颜摄像头？
+
+有点可爱
+
+<img src="https://img.saraba1st.com/forum/202103/08/231947w7devhdhom5ommae.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210308231924.png</strong> (20.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 23:19 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33488#       发表于 2021-3-8 23:28
+
+
+
+
+一只萌经常开直播打游戏的
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33489#       发表于 2021-3-9 00:19
+
+
+
+
+宇多田ヒカル『One Last Kiss』
+[https://www.youtube.com/watch?v=0Uhh62MUEic](https://www.youtube.com/watch?v=0Uhh62MUEic)
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33490#       发表于 2021-3-9 00:49
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-9 00:52 编辑 
+
+可以成为未来一个月管人金曲吗？别jbV家和网路歌手了求求了
+
+SYL：
+
+远不如桜流し，还是别了。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33491#       发表于 2021-3-9 00:51
+
+
+
+
+还是版权问题吧。。
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 33492#       发表于 2021-3-9 00:54
+
+
+
+
+友人h给necomi老师的个展送花篮了，久违的推特更新也是在转她个展的消息，关系真好啊（
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33493#       发表于 2021-3-9 01:16
+
+
+
+ 本帖最后由 mmbk 于 2021-3-9 01:38 编辑 
+
+脑袋里eva的印象只有桜流し，也许是大学里看的所以没什么感觉。只记得这歌不错
+
+听完了，不行
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33494#       发表于 2021-3-9 08:05
+
+
+
+
+郡道的eva感想会说得普通的挺好的，还以为以她的脑子应该看完就忘呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33495#       发表于 2021-3-9 11:52
+
+
+
+
+ファンスター、YouTuberやVTuberなど「声」を活かした副業をサポート・紹介するスマートフォンアプリ「VoiceModel」リリース
+[https://panora.tokyo/archives/21894](https://panora.tokyo/archives/21894)
+<img src="https://prtimes.jp/i/61865/22/resize/d61865-22-881255-3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33496#       发表于 2021-3-9 13:49
+
+
+
+
+烂货圆脸这是养gachi上瘾了吗，今天连发两条语音，早上起来发一条中午吃饭发一条，还要故意扮可爱，怎么扮不也是一个圆脸烂货？？？还养gachi呢，吐了。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33497#       发表于 2021-3-9 13:58
+
+
+
+
+今日免费圆脸呕吐 1/1
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33498#       发表于 2021-3-9 13:59
+
+
+
+
+去听了下，确实可爱。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33499#       发表于 2021-3-9 14:23
+
+
+
+ 本帖最后由 winda 于 2021-3-9 14:27 编辑 
+
+又突发耳聋了啊，上回才休一天，身体看来真变差了
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/142656cso55rdo7mmr56nr.png" referrerpolicy="no-referrer">
+
+
+<strong>YAMAI.png</strong> (70.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 14:26 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  二次惨事  
+##### 33500#       发表于 2021-3-9 14:36
+
+
+
+ 本帖最后由 二次惨事 于 2021-3-9 14:56 编辑 
+
+好消息  尊妈和葛叶同居的事情终于有了实锤的证据  虽然之前也差不多等于实锤了
+[https://imgur.com/a/eFxCqIl](https://imgur.com/a/eFxCqIl)
+
+↑
+
+尊妈的ASMR录音  从剩余8秒的地方（紧接着尊妈笑声的部分）可以听到可疑的叫声 （需要戴耳机）
+
+[https://www.youtube.com/watch?v=jKdHWWBtwOM&amp;t=9833s](https://www.youtube.com/watch?v=jKdHWWBtwOM&amp;t=9833s)
+
+尊妈ASMR时间段的葛叶的叫声→いいよ　いやあああああああああああああ
+
+
+顺带一提 那天尊妈ASMR一共出现了两次奇怪的叫声 一次是50:45开始的いいよ！　いやあああああああああああ  与葛叶尖叫的时间一致
+<img src="https://i.loli.net/2021/03/09/OuK2JM9YExT1BhQ.png" referrerpolicy="no-referrer">
+
+另一次是57分附近的わーーーーーーーーーーーー（57分附近对应时间段的葛叶叫声→[https://www.youtube.com/watch?v=jKdHWWBtwOM&amp;t=10223s](https://www.youtube.com/watch?v=jKdHWWBtwOM&amp;t=10223s)）  但是这个时候看到评论有反应说“是猫叫？”  就把这段给删了 而留下了前者
+<img src="https://i.loli.net/2021/03/09/kRv8irs2eJLmnzE.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 33501#       发表于 2021-3-9 14:47
+
+
+
+ 本帖最后由 cckuku 于 2021-3-9 14:49 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 33502#       发表于 2021-3-9 14:47
+
+
+
+
+搞到真的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 33503#       发表于 2021-3-9 14:48
+
+
+
+
+我tm都不逛漫区跑回v综避难了，可是为什么连这里都有eva和one last kiss啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 33504#       发表于 2021-3-9 14:49
+
+
+
+
+想看葛叶被尊妈各种调教的本子<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33505#       发表于 2021-3-9 14:49
+
+
+
+
+可恶，上班没法看
+葛尊szd！
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 33506#       发表于 2021-3-9 14:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">葛叶我鲨了你
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33507#       发表于 2021-3-9 14:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 我听了一下，赶紧不合理，有隔音板的情况下就算是3dio也没法收录的这么清晰，
+
+
+再说了，还有可能是在公司播的不是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 33508#       发表于 2021-3-9 14:57
+
+
+
+
+说不定是耳机漏音呢
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33509#       发表于 2021-3-9 14:57
+
+
+
+
+葛尊不要藏了赶紧承认关系了吧，好急
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33510#       发表于 2021-3-9 14:58
+
+
+
+
+美人只配强者拥有
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 33511#       发表于 2021-3-9 14:59
+
+
+
+
+记得尊妈是素人吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33512#       发表于 2021-3-9 15:03
+
+
+
+
+2000咋这么真情实感呢，难道是葛葵党？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33513#       发表于 2021-3-9 15:05
+
+
+
+
+ema是被气到所以才两个月不发早就公布的新曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">（还是没钱请画师了）。
+省一楼，ptr买了五个德比玩偶，震撼<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33514#       发表于 2021-3-9 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2000急的字都打错了，葛尊不是挺好的。
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 33515#       发表于 2021-3-9 15:09
+
+
+
+
+葛葵想屁吃，多葛本社还在搞cp是想乱伦吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33516#       发表于 2021-3-9 15:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 本来这种地下同居就不好锤，
+
+
+这种能有N多种解释的橡皮锤反而会让当事人更谨慎小心，更不容易露出马脚，
+
+
+对付这种反侦察能力特别强的狠角，要找出绝对证据实锤，就像当初kmm男友暴露一样，
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33517#       发表于 2021-3-9 15:17
+
+
+
+
+我还以为2000是葛尊头子呢
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 33518#       发表于 2021-3-9 15:35
+
+
+
+
+现在葛尊出柜怎么可能呢，之前可能性还大点，但现在葛皇事业上升期，多少富婆手里攒钱养着他呢，下个季度的用来超兔头的订阅不要了？
+
+
+
+
+
+                                
