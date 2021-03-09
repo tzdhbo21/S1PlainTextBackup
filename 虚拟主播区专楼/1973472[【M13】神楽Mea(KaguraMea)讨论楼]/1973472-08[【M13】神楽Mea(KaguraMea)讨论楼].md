@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 14:40** 
+> ## **本文件最后更新于2021-03-09 09:36** 
 
 
 
@@ -2159,4 +2159,534 @@ fleet小作文还行
 
 
 
-                                             
+
+
+-----
+
+####  十九号大侠  
+##### 10623#       发表于 2021-3-8 22:41
+
+
+
+
+咩什么时候能把皮的功能全开
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10624#       发表于 2021-3-8 22:41
+
+
+
+
+那张海报你麻站C位的原因她讲过的，建议翻楼记录或者同好会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10625#       发表于 2021-3-8 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50557155&amp;ptid=1973472" target="_blank">llconforever 发表于 2021-3-8 22:35</a>
+等等，你麻个乡下土妹是怎么分类到城市vtb的</blockquote>
+名誉城市人 然后这人能知道半年不用电车卡电车卡会被停 便利店几分钟就能到但是直接找外卖小哥代购<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10626#       发表于 2021-3-8 23:02
+
+
+
+
+你咩姐多了几个新段子，可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10627#       发表于 2021-3-8 23:06
+
+
+
+
+这不挺好的，都在聊棉花糖
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10628#       发表于 2021-3-8 23:27
+
+
+
+
+没有苔苔烂梗，今晚赢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 10629#       发表于 2021-3-9 09:48
+
+
+
+
+蹭过等于认识了，okiku以后能给小麻画pv吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10630#       发表于 2021-3-9 12:52
+
+
+
+
+昨天联动有事没看,有没有文字总结之类的
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10631#       发表于 2021-3-9 13:10
+
+
+
+
+总结：不出门的富土妹，外卖维生，碰见过名人，去过风俗店<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10632#       发表于 2021-3-9 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50562950&amp;ptid=1973472" target="_blank">rosevalley46 发表于 2021-3-9 12:52</a>
+
+昨天联动有事没看,有没有文字总结之类的</blockquote>
+都会人神乐mea（x） 都会neet神乐mea（o）
+
+去吃烤肉走错门去了夜总会别人问她是不是来应征的还答了是结果别人找她要履历书才发现自己走错
+
+知道半年不用电车卡会被停掉其他人都不知道 
+
+几个常用的身份证明文件她都没有做 父母拜托自己考了驾照也别开车 
+
+家里最近的便利店一分钟都能到再远一点的也就三分钟 但是她还是会找ubereats代购自己门都不想出觉得累
+
+
+大概这几点 自我介绍换成了前半小埋op歌词后半抄星川的自我介绍
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10633#       发表于 2021-3-9 13:18
+
+
+
+
+走到夜总会被以为是应征的 那说明外貌条件是能做夜总会工作的 肉体厨狂喜<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10634#       发表于 2021-3-9 13:48
+
+
+
+
+咩宝是很涩的美少女，肉体厨好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10635#       发表于 2021-3-9 13:53
+
+
+
+
+如果是坦克应该不会被问吧？那至少肉体确实是有救的。肉体民站起来啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10636#       发表于 2021-3-9 14:00
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-9 14:03 编辑 
+
+坦克民急了，<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">一定是编造的故事呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10637#       发表于 2021-3-9 14:26
+
+
+
+
+坦克，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10638#       发表于 2021-3-9 14:30
+
+
+
+
+你们有没有想过那夜总会叫坦克之夜，专业做特殊xp的
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10639#       发表于 2021-3-9 14:31
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-9 14:37 编辑 
+
+呜呜，我才不信她是吃不胖的女人
+
+小肚子呼啦圈转三圈呜呜呜呜syl 今天播不播，不播我滚去买日语书了，不知道年底能不能到N2水平，对自己记忆力还是有点自信的。
+
+pre前阵子收藏了一堆视频也没看，希望麻麻打打游戏，别再玩hape LOL了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10640#       发表于 2021-3-9 14:32
+
+
+
+
+当时去可能是被以为是应征女郎的 现在去估计就以为是应征保洁阿姨的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10641#       发表于 2021-3-9 14:40
+
+
+
+
+这可能是最近发生的事情，她还没有变成姨呢，我的麻麻不可能是坦克<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10642#       发表于 2021-3-9 14:47
+
+
+
+
+就最近这个直播频率和状态，她是不是真打算隐退去当征召女郎啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10643#       发表于 2021-3-9 15:02
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-9 15:11 编辑 
+
+本质三天没单人直播，播了如果又是歌回也是微妙，这人我去年11月以来的TC感想就是，一些很鸡儿有趣的话题反而不能烤，就挺烦的，你要说杂谈这人彻底拉跨了吧，也不存在，但是就是死活不肯开杂谈回，或者说可能不敢开了吧。于是油管现在看录播宛若懒鬼一样）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+联动说实话我懒得补那几分钟卡住没听到的了，而且我自己也有几条轴要亲自干
+
+说实话按道理我水平不算很高那种，也就是个严谨和懂点日语所以一些地方的确比完全不懂日语的轴人强点
+
+唉，好想要一个跟我精神病程度差不多的人能接锅，熟悉的几位学生哥哥都要毕业了，以后只能靠自己了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10644#       发表于 2021-3-9 15:17
+
+
+
+
+要不偷偷烤得了...
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10645#       发表于 2021-3-9 15:26
+
+
+
+
+禁 止 转 载！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10646#       发表于 2021-3-9 15:27
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-9 15:31 编辑 
+
+有什么好偷偷的，想同传就同传，你不想叼官组直接烤都行，反正酒厂那东西也还挂着，谁让你删你就说官组有人的酒厂都不删，那我干嘛要删，或者开个小号直接点，关掉私信主动删评，或者pre偷偷加上一点bgm假装是正常tc，这类手法简单的很，只要你懂日语，做什么不行
+
+顺便一提，画面这东西更简单了，随便自己找个图从音频头部拉到尾部替换掉原来的视频轨道条，基本包装就做好了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10647#       发表于 2021-3-9 16:29
+
+
+
+
+不行了，这人就只知道吃<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10648#       发表于 2021-3-9 16:41
+
+
+
+
+这只是姨化过程中的必经之路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10649#       发表于 2021-3-9 16:51
+
+
+
+
+我有点好奇她什么打扮能被夜总会认为是应聘的,正装么
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10650#       发表于 2021-3-9 16:54
+
+
+
+
+说到烤肉的话和苔苔逆凸挺好的，想看
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10651#       发表于 2021-3-9 17:04
+
+
+
+
+果然是出去工作了吗，希望开心点，哎
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 10652#       发表于 2021-3-9 17:23
+
+
+
+
+20210309东京17点
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/172338mzjxtxxj48yzj9i4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C36DC8D8-C93F-4001-A405-D0FB432708BB.jpeg</strong> (259.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 17:23 上传
+
+
+
+
+
+
+
+
+
+
+                                            
