@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 07:54** 
+> ## **本文件最后更新于2021-03-10 04:56** 
 
 
 
@@ -5179,4 +5179,505 @@ BGM整体都不错，可惜好像只有一张OST，大部分BGM都没收录
 
 
 
-                                        
+
+
+-----
+
+####  蕾丝  
+##### 276#       发表于 2021-3-7 15:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540437&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 15:41</a>
+感谢🙏 我初始号正好没法看十字路口剧情
+难怪有人说卡琳是凯尔性转…而且我还在想周姐怎么那么棒，周哥也 ...</blockquote>
+周哥傲娇不肯认，周姐可是全程一边打一边骚话不断又是叫哥哥又是叫弟弟的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 277#       发表于 2021-3-7 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540422&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 15:39</a>
+其实最后新俄亥俄攻略战分了好几个阶段的，而且达成了事实上的协同作战。徐芸带队去斩杀大主教的时候，女 ...</blockquote>
+想想确实，不过这段剧情回顾的时候还感觉有好多段剧情都是打着打着对手就蹭飞走救场去了，然后其他人仰望着克隆干部满天飞，也有点喜感（
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 278#       发表于 2021-3-7 17:49
+
+
+
+
+于是我果断去b站看了十字路口的剧情，周姐也太棒了吧，周哥反而就被自己气得一反常态了23333
+凯尔训斥卡琳也很好玩，“我和你有一个明显的不同，那就是我不会感情用事”感觉此处可以打拳
+不过这个故事虽然很有趣，但是周姐他们那边还真是…挺难搞的啊，2000+四级往上侵蚀体还没师匠这样的怪物，没得打了。而且仔细想想还挺不对劲，我以为ep5之后真正难搞的就是那几个逆卡巴拉魔王，但是平行世界难道没有那种玩意儿吗…怎么会侵蚀体上限这么高
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 279#       发表于 2021-3-7 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50538722&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-7 12:04</a>
+然后最后从鹅害鹅里面复原的资料我还是没太看懂，意思是上个世界的老太婆被改造成5级侵蚀体被送到这个世界 ...</blockquote>
+总觉得是平行世界的中将跟尼哥
+玩家的角色估计又是什么轮回残渣，世界的特异点，只是这次玩家自己不出手了，专门招兵买马布局
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 280#       发表于 2021-3-7 21:23
+
+
+
+ 本帖最后由 蕾丝 于 2021-3-7 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541471&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-7 17:49</a>
+于是我果断去b站看了十字路口的剧情，周姐也太棒了吧，周哥反而就被自己气得一反常态了23333
+凯尔训斥卡琳 ...</blockquote>
+是的而且他们那个世界是没有救的，这次活动里干掉的这个四级是提前苏醒的，被她们用这种邪道方法做掉了，给她们世界争取了二十年时间，但二十年后还会有一大堆四级从茧里醒来，除非那个时候的技术爆炸否则世界一样是死……因此分别的时候才会有那段对话，这个故事虽然欢脱但本质还是很黑深残的，没有主角建立管理局的平行世界就是注定一死<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+另外就是逆卡巴拉游戏成立应该是要这个世界的力量提升到一定程度，也就是要有6级侵蚀体，有觉醒者这样足以与之对抗的力量，然后引发魔王觉醒——就像觉醒师傅让黑丝觉醒那样，但周姐那个世界应该轮不到逆卡巴拉游戏出现，四级侵蚀者就足够灭世了……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 281#       发表于 2021-3-7 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543779&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-7 21:23</a>
+
+是的而且他们那个世界是没有救的，这次活动里干掉的这个四级是提前苏醒的，被她们用这种邪道方法做掉了， ...</blockquote>
+这游戏某种意义上也是谜语人过度，我想找找逆卡巴拉游戏的相关资料，啥都找不到……
+
+
+
+
+
+
+
+-----
+
+####  trb315  
+##### 282#       发表于 2021-3-8 10:49
+
+
+
+
+觉醒女主是要抽的吗？还是可以白嫖
+
+
+
+
+
+
+
+-----
+
+####  岩窟王  
+##### 283#         楼主| 发表于 2021-3-8 11:49
+
+
+
+
+商店可以用钻买黑票
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 284#       发表于 2021-3-8 13:17
+
+
+
+
+据说韩服一周年可以自选觉醒米娜？不知道台服要等到猴年马月
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 285#       发表于 2021-3-8 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50550844&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-8 13:17</a>
+据说韩服一周年可以自选觉醒米娜？不知道台服要等到猴年马月
+
+—— 来自 OnePlus KB2000, Android 11上的 S ...</blockquote>
+看看这进度追的，搞不好台服半周年就送了（
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  caliburn  
+##### 286#       发表于 2021-3-8 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50551653&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-8 14:35</a>
+
+看看这进度追的，搞不好台服半周年就送了（
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v1. ...</blockquote>
+那我不抽决型米娜了，等黑徐芸
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 287#       发表于 2021-3-8 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50553771&amp;ptid=1982769" target="_blank">caliburn 发表于 2021-3-8 17:43</a>
+那我不抽决型米娜了，等黑徐芸</blockquote>
+我看有个回帖说得好，拿手头的黑卡去抽刘米娜，抽到血赚，抽不到反正保底也不重置，不也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 288#       发表于 2021-3-8 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个觉醒池子能白嫖30抽，来五次就到手了。现在不知道后面高难本是啥德行，真的不太想主动抽啊。
+
+
+
+
+
+
+
+-----
+
+####  roamer  
+##### 289#       发表于 2021-3-9 12:49
+
+
+
+
+这游戏有群吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 290#       发表于 2021-3-9 20:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">facebook上这角色介绍词也太巨魔了
+
+
+
+
+
+
+
+-----
+
+####  完全武装希耶尔  
+##### 291#       发表于 2021-3-9 20:08
+
+
+
+<blockquote>kuglv 发表于 2021-3-7 00:52
+剧情确实不错，EP5师傅空降救场配合BGM整个人都燃起来了，支线和主线也衔接得上
+
+但是徐芸相关的剧情真的是 ...</blockquote>
+这活其实是你设计的，你不是刘米娜是带老板啊。不过这段剧情在个人档案里。一般人不会闲着没事在ep5时候把徐云升到100……
+
+
+
+
+
+
+
+-----
+
+####  完全武装希耶尔  
+##### 292#       发表于 2021-3-9 20:16
+
+
+
+ 本帖最后由 完全武装希耶尔 于 2021-3-9 20:22 编辑 
+
+我觉得徐云这段剧情也挺有问题，而且徐云这角色之前我对她其实印象也不怎么深还不是啥好印象。而且卧底跳反这种剧情在现在手游里这么常见。这么个桥段在未来战里就反复横跳了一章就完了……而且实质上她跳反的作用基本和梅森等人的整活重合了，作用也不是非她不可，这么设计，感觉有点浪费。
+
+
+
+
+
+
+
+-----
+
+####  完全武装希耶尔  
+##### 293#       发表于 2021-3-9 20:23
+
+
+
+
+贴吧群9316566，不过基本在讨论pvp
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 294#       发表于 2021-3-9 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50567893&amp;ptid=1982769" target="_blank">完全武装希耶尔 发表于 2021-3-9 20:08</a>
+
+这活其实是你设计的，你不是刘米娜是带老板啊。不过这段剧情在个人档案里。一般人不会闲着没事在ep5时候 ...</blockquote>
+我知道是我设计的啊，讨厌徐芸的原因又不是因为她跳反，要是真的跳反我反而还高兴了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">个人档案里这段剧情与其说是给这段主线剧情埋伏笔不如说是强行给主线擦屁股，何况就像你说的没几个人会在EP5之前主动把徐芸练到100看这段剧情。
+
+讨厌这角色的人多了去了又不只有我一个，我现在唯一期望的就是她不要再在别的剧情里刷存在感了
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 295#       发表于 2021-3-9 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50568784&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-9 21:17</a>
+我知道是我设计的啊，讨厌徐芸的原因又不是因为她跳反，要是真的跳反我反而还高兴了个人档案里这 ...</blockquote>
+啊这，那接下来觉醒徐芸成为战力崩坏天花板之后讨厌徐芸的玩家岂不是体验很差……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 296#       发表于 2021-3-9 21:29
+
+
+
+
+我建了个群，就在s1分享一下好了，咸鱼向不高强度pvp，865438864
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 297#       发表于 2021-3-9 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50568896&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-9 21:26</a>
+
+啊这，那接下来觉醒徐芸成为战力崩坏天花板之后讨厌徐芸的玩家岂不是体验很差……
+
+
+—— 来自 OnePlus KB ...</blockquote>
+PVPT0和我一个舔卡PVE玩家又有什么关系呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 298#       发表于 2021-3-9 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50568968&amp;ptid=1982769" target="_blank">kuglv 发表于 2021-3-9 21:31</a>
+PVPT0和我一个舔卡PVE玩家又有什么关系呢</blockquote>
+她pve也强啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">单刷120级团队副本的存在
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 299#       发表于 2021-3-9 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50569029&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-9 21:35</a>
+
+她pve也强啊单刷120级团队副本的存在
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v1 ...</blockquote>
+又不是没有就打不过，除非你把这游戏的团本都改成没有徐芸就没法玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 300#       发表于 2021-3-10 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50568932&amp;ptid=1982769" target="_blank">蕾丝 发表于 2021-3-9 21:29</a>
+
+我建了个群，就在s1分享一下好了，咸鱼向不高强度pvp，865438864
+
+
+—— 来自 OnePlus KB2000, Android 11上 ...</blockquote>
+这说楼主能不能把我这个群号编辑到标题或者主楼（）
+
+
+
+
+
+
+
+-----
+
+####  拍不到脑袋  
+##### 301#       发表于 2021-3-10 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大意了，觉醒的白嫖次数没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 302#       发表于 2021-3-10 11:18
+
+
+
+
+这次一发十连就出了。。。。
+
+
+新的高难活动蹲一个攻略
+
+
+
+
+
+                                       
