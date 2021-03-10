@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 12:53** 
+> ## **本文件最后更新于2021-03-10 14:39** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_ZR6UW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_j03BN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_AaIpI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_sQRa6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Kq5qW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_d58zh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -12544,6 +12544,25 @@ https://b23.tv/8njHwL
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北条早苗| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13390,4 +13409,744 @@ our guiwus建的真是好啊真是好，未来必是我们伟大的哈里发生�
 
 
 
-                           
+
+
+-----
+
+####  juner哈哈  
+##### 33668#       发表于 2021-3-10 20:56
+
+
+
+
+打响鼓励网暴第一枪、牵头结成Our Guiwus、带头跪舔水龙敬、签约批站保底近60万人气爆锤YHM扬国V之威.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2002J9E, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  papapapadopoulo  
+##### 33669#       发表于 2021-3-10 20:57
+
+
+
+
+义乌巫医最大的贡献是含泪牺牲了tskk保住了其他猴楼暮刃和海盗組不被车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+创造性的用冲蝗面具保住了杏奴在泥哥谭的一亩三分地
+
+以后tskk就是杏奴的耶稣，巫医就是杏奴的摩西，阿夸就是杏奴的加百列
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33670#       发表于 2021-3-10 21:02
+
+
+
+
+确定该跟えらちゃん说拜拜了，会在某年某月某地某某有的没的场合中再次相见吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 33671#       发表于 2021-3-10 21:02
+
+
+
+
+都放尊重点！你们杏奴没爽和华庇护早就被赶出耶路撒冷了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33672#       发表于 2021-3-10 21:03
+
+
+
+
+江良怎么这么卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 33673#       发表于 2021-3-10 21:12
+
+
+
+
+Gibara就这么没了
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 33674#       发表于 2021-3-10 21:14
+
+
+
+
+江良这个毕业回真的是干净利落啊。。。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 33675#       发表于 2021-3-10 21:14
+
+
+
+
+光速下播，就跟灰姑娘的魔法一样转瞬即逝。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33676#       发表于 2021-3-10 21:17
+
+
+
+
+要不是爽球，s1v版可能就中兴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 33677#       发表于 2021-3-10 21:18
+
+
+
+<img src="https://p.sda1.dev/1/bed8e694e8b76bffe9cee84ae61912f6/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33678#       发表于 2021-3-10 21:19
+
+
+
+
+s1v版死不死跟爽有毛关系
+
+
+话说，我菜活了，江皇死了，狐姨整活了，十万家族出黏土了
+
+
+突然这么多新闻
+
+
+有新章突入内维尔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 33679#       发表于 2021-3-10 21:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/211939v2j2e9jzqj2egoeo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EwHuXh9XMAU56G3.jpg</strong> (469.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 21:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/211943h0xc2ldyqplc01p0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EwHuYLQXMAIJkXF.jpg</strong> (160.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 21:19 上传
+
+
+
+
+
+[link](https://twitter.com/kinnotamadx/status/1369638052268711946)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 划水的B612| + 1||
+| Sanguine| + 1||
+| gogomw| + 1||
+| 绯想天の天子| + 1||
+| UnhappyTails| + 1||
+| alcoholic1000| + 1|...|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 33680#       发表于 2021-3-10 21:21
+
+
+
+
+本来以为是阿菜先走，没想到是猴王
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33681#       发表于 2021-3-10 21:24
+
+
+
+
+阿菜突然跑出来声明不换头图还蛮搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33682#       发表于 2021-3-10 21:24
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-3-10 21:27 编辑 
+
+后知后觉，可能这才是灰姑娘表演的全部吧，最后就是得有众目睽睽下凭空消失环节才算辛德瑞拉·胡迪尼啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+反正灰姑娘从小当佣人，说话声音大一点，贪财一点，得色起来搞笑一点也是很正常的对吧
+
+
+乐子人一点想搞不好江总就是为了最后这口老醍醐醋整了这一盘饺子呢，反正刚这纪念回是没感觉有啥harsh feeling，感觉真就是换份兼职<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+PS：真是去当声优那可太nb了，这才叫追梦赤子心，什么虹杏都弱爆了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33683#       发表于 2021-3-10 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">花妈对era酱毕业的反应是不是慢了点，其他人不少都已经开始忆故人了。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 33684#       发表于 2021-3-10 21:28
+
+
+
+
+gibara，gibara，gibara有缘再见啦。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33685#       发表于 2021-3-10 21:37
+
+
+
+
+月撇退位后你猴毕业，什么锦上添花<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33686#       发表于 2021-3-10 21:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/214358cqhuafxdx3xqxrqa.png" referrerpolicy="no-referrer">
+
+
+<strong>プリパラ.png</strong> (40.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 21:43 上传
+
+
+
+
+
+
+
+プリパラ?
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 33687#       发表于 2021-3-10 21:44
+
+
+
+ 本帖最后由 Junchoon 于 2021-3-10 21:48 编辑 
+
+啥意思？猴哥毕业了？为啥？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33688#       发表于 2021-3-10 21:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 给你们一个提示，上一个这么干净利落毕业的是mrr，
+
+
+“一叶浮萍归大海,人生何处不相逢”
+
+
+
+
+
+
+
+-----
+
+####  人別離苦  
+##### 33689#       发表于 2021-3-10 21:47
+
+
+
+
+「やりたいことが見つかった」
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33690#       发表于 2021-3-10 21:48
+
+
+
+
+这是真的得基德，否则虹仁得疯一片
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 33691#       发表于 2021-3-10 21:54
+
+
+
+
+高收入一转neet，不过接下来的发展还没定，看这样子是单纯不想干直播了
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33692#       发表于 2021-3-10 21:58
+
+
+
+
+这毕业真的干净利落啊，趁年轻能找到自己想做的事挺好的
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 33693#       发表于 2021-3-10 22:00
+
+
+
+
+昔日江圣
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/215930i00u5p6vv61w1075.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210310215832.png</strong> (18.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 21:59 上传
+
+
+
+
+
+
+
+今日再见
+
+<img src="https://img.saraba1st.com/forum/202103/10/220044fzxkwww62cwfxqpm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210310215654.png</strong> (17.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 22:00 上传
+
+
+
+
+
+
+<strong>眼见他起高楼，眼见他宴宾客，眼见他楼塌了</strong>
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus|-1||
+| alcoholic1000|-1||
+| mmbk| + 1|回血|
+| 拉格朗日乘数法|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33694#       发表于 2021-3-10 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50581684&amp;ptid=1969498" target="_blank">katern 发表于 2021-3-10 21:58</a>
+
+这毕业真的干净利落啊，趁年轻能找到自己想做的事挺好的</blockquote>
+主要在毕业回没有感到一丝沉重
+
+
+没有哭泣，没有不舍，没有踌躇
+
+
+当然不是说江皇不重视在彩虹的一段经历，但感觉就非常的理所当然
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 33695#       发表于 2021-3-10 22:05
+
+
+
+
+比较突然，没什么征兆.......
+
+
+哪位能搬运下11区那边的反应？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33696#       发表于 2021-3-10 22:07
+
+
+
+
+挺好的嘛，用蹭热度的方式说，不是桜流し，是one last kiss啊，
+希望我的推以后也能找到自己想做的事并敢于坦荡地说出来吧，大家都哭啼啼的多没意思<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33697#       发表于 2021-3-10 22:09
+
+
+
+
+平生不修善果，只爱金性放火。 忽地顿开皮套，这里了结因果。 咦！ 旷野生息滚滚来，今日方知我是我。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 33698#       发表于 2021-3-10 22:13
+
+
+
+
+无可奈何花落去
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33699#       发表于 2021-3-10 22:15
+
+
+
+
+さよなら
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33700#       发表于 2021-3-10 22:16
+
+
+
+
+心态是真的好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 33701#       发表于 2021-3-10 22:25
+
+
+
+
+这种时候就得考验粉丝心态好不好了...
+
+看群里云的江良告别语感觉还算个圆满的结局，蛮好的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 33702#       发表于 2021-3-10 22:28
+
+
+
+
+年纪轻轻，干点什么都好，有更好的发展也正常
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33703#       发表于 2021-3-10 22:30
+
+
+
+
+“找到了想做的事情”“有缘再会”这都是套路话了.......不觉得这能暗示什么，也不希望江 哥去杏，希望以后能在哪部动画里听到她吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                          

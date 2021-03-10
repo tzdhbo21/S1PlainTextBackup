@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-06 09:40** 
+> ## **本文件最后更新于2021-03-10 14:42** 
 
 
 
@@ -15389,4 +15389,603 @@ C呆我已经不奢望了，赌一下3月的爷爷妇科吧，其他的，躺平
 
 
 
-                    
+
+
+-----
+
+####  佐塚間桐  
+##### 36872#       发表于 2021-3-6 18:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥德赛是萝卜控吗
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36873#       发表于 2021-3-6 21:34
+
+
+
+
+实在是无法拒绝高达。合计17呼符60石头，new了高达，祖师爷，姑姑。
+
+
+关闭卡池
+
+
+我也是有高达的骂死他了。哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36874#       发表于 2021-3-7 07:46
+
+
+
+ 本帖最后由 kazemitoya 于 2021-3-7 07:47 编辑 
+
+刚抽完高达，就在nga看到了这个！不行我不能一个人眼瞎<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">……已经，回不去了，对吧（虽然我这个大龄骂死他也是伍佰歌迷。）
+
+<img src="https://img.saraba1st.com/forum/202103/07/074556u78qq3zj7jz9x9xq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1360143604.jpg</strong> (53.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 07:45 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/074606hmvy4ydo399dsy3z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1892750040.jpg</strong> (55.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 07:46 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/074612jtstzirmgv1tygtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-1159835662.jpg</strong> (239.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 07:46 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/074615fanwa4kz499kxh2b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-1226808533.jpg</strong> (21.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 07:46 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 36875#       发表于 2021-3-7 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537403&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2021-3-7 07:46</a>
+刚抽完高达，就在nga看到了这个！不行我不能一个人眼瞎……已经，回不去了，对吧（虽然我这个大龄骂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个去年时已经说过了......
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36876#       发表于 2021-3-7 16:14
+
+
+
+
+突然延长，白枪和迦摩的持有者估计要做好心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36877#       发表于 2021-3-7 16:59
+
+
+
+
+未定什么鬼，五点开得了吗
+
+
+
+
+
+
+
+-----
+
+####  auraria  
+##### 36878#       发表于 2021-3-7 17:11
+
+
+
+
+这是关服跑路节奏么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36879#       发表于 2021-3-7 17:17
+
+
+
+
+又发生甚么事了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36880#       发表于 2021-3-7 17:20
+
+
+
+<blockquote>shimotsuki14 发表于 2021-3-7 17:17
+又发生甚么事了</blockquote>
+目前可知的是之前有公告说今天下午两点到四点临时维护2小时，结果大概四点的时候又发了个公告说维护时间延长了，到现在为止都是开服时间未定
+
+就，不知道是什么情况
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36881#       发表于 2021-3-7 17:33
+
+
+
+
+这是要维护到几点？活动期间搞维护，双倍石头啊阿睿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36882#       发表于 2021-3-7 17:36
+
+
+
+<blockquote>廖化 发表于 2021-3-7 17:33
+这是要维护到几点？活动期间搞维护，双倍石头啊阿睿</blockquote>
+双倍石头早没了，问就是yls克扣福利23333
+
+说起来这次临时维护其实没有版权的吧哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36883#       发表于 2021-3-7 18:00
+
+
+
+
+可以进了
+
+
+
+
+
+
+
+-----
+
+####  J-002  
+##### 36884#       发表于 2021-3-7 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50540704&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-03-07 16:14:58</a>
+突然延长，白枪和迦摩的持有者估计要做好心理准备了</blockquote>白枪伽摩什么梗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36885#       发表于 2021-3-7 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50541999&amp;ptid=1712412" target="_blank">J-002 发表于 2021-3-7 18:46</a>
+白枪伽摩什么梗？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+怕突然多了件衣服<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36886#       发表于 2021-3-7 19:11
+
+
+
+
+所以到底维护了什么东西…………
+
+
+
+
+
+
+
+-----
+
+####  auraria  
+##### 36887#       发表于 2021-3-7 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50542263&amp;ptid=1712412" target="_blank">廖化 发表于 2021-3-7 19:11</a>
+所以到底维护了什么东西…………</blockquote>
+修复了服务器流畅的bug<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 36888#       发表于 2021-3-7 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50542416&amp;ptid=1712412" target="_blank">auraria 发表于 2021-3-7 19:27</a>
+
+修复了服务器流畅的bug
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+…………真有你的啊睿站<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36889#       发表于 2021-3-8 00:04
+
+
+
+
+大号10呼符钓到黑狗了哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36890#       发表于 2021-3-8 09:53
+
+
+
+
+这次友情池礼装倒是出得勤，不过卡池好像都没什么好友抽，攒石攒石
+
+
+
+
+
+
+
+-----
+
+####  qixinno2  
+##### 36891#       发表于 2021-3-8 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">安娜+1 信了你们的邪
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36892#       发表于 2021-3-9 07:03
+
+
+
+
+大好呼符脚后跟，虽然很高兴，但总觉得后面要还债<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36893#       发表于 2021-3-9 18:02
+
+
+
+
+这几天一大堆事，昨天晚上躺床上刷了几把材料就累了，一看时间刚过了0点抽一把友情池后本想睡了，不知道怎么就翻到了剧情池，又不知道为啥就直接按下了护符，直接彩光惊到了Σ(っ °Д °;)っ，狂阶大公，3宝了，这是提醒我一定要抽术呆的节奏吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36894#       发表于 2021-3-9 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50566586&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2021-3-9 18:02</a>
+
+这几天一大堆事，昨天晚上躺床上刷了几把材料就累了，一看时间刚过了0点抽一把友情池后本想睡了，不知道怎 ...</blockquote>
+3宝大公真的是可以了。
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36895#       发表于 2021-3-10 00:17
+
+
+
+ 本帖最后由 艾尔特翔 于 2021-3-10 01:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50569692&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-3-9 22:35</a>
+
+3宝大公真的是可以了。</blockquote>
+绿卡单体有2宝狂傻光炮有3宝伯爵,兰卡单体有大公3宝,光炮有仇凛3宝,红卡有4宝狂纳,目前拐也齐全,除了术呆我感觉无欲无求了.
+
+
+
+
+
+
+
+-----
+
+####  aiqopsha  
+##### 36896#       发表于 2021-3-10 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36897#       发表于 2021-3-10 18:12
+
+
+
+
+wcba孔明黑杯R金杀穿了，对面干了啥我都没注意，感谢路人的出星礼装cba
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 36898#       发表于 2021-3-10 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50577381&amp;ptid=1712412" target="_blank">aiqopsha 发表于 2021-3-10 16:09</a>
+
+想着今天up的迦尔纳+1也不错，投入500+石，最后恩奇都+1</blockquote>
+双PU也头铁丑？佩服
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36899#       发表于 2021-3-10 18:16
+
+
+
+
+不知道接下来全打混合本能不能毕业，五星礼装只有自己一张和好友满破
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36900#       发表于 2021-3-10 20:47
+
+
+
+
+大号用R金时3T，小号用凯撒3T，凯撒这次强化太爽了。
+
+
+
+
+
+
+
+-----
+
+####  aiqopsha  
+##### 36901#       发表于 2021-3-10 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50579003&amp;ptid=1712412" target="_blank">空罐子 发表于 2021-3-10 18:12</a>
+
+双PU也头铁丑？佩服</blockquote>
+这不是想着出哪个都行啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 36902#       发表于 2021-3-10 22:17
+
+
+
+
+     骑金时高难3T要求礼装黑圣杯等级100还要刷蓝绿卡才有机会，不然第二条血的伤害就是差那么一点点，或者CBA的礼装换上增加负状态几率的才行
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 36903#       发表于 2021-3-10 22:28
+
+
+
+
+这次的剧情有名著作为基础，写得倒是不错，也没怎么不说人话……
+
+
+
+
+
+                   
