@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-05 03:34** 
+> ## **本文件最后更新于2021-03-10 10:38** 
 
 
 
@@ -10776,4 +10776,743 @@ jinzhang</blockquote>
 
 
 
-                              
+
+
+-----
+
+####  moeful  
+##### 54574#       发表于 2021-3-5 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50518731&amp;ptid=98922" target="_blank">luoyianwu 发表于 2021-3-5 11:10</a>
+
+桃之助……</blockquote>
+要这么打：
+
+
+桃之助ェ……
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54575#       发表于 2021-3-5 14:02
+
+
+
+
+为什么马尔科是手变翅膀啊？黑胡子那个是背后长翅膀，沙漠那个是手变爪子，这不是很实用吗？
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 54576#       发表于 2021-3-5 15:06
+
+
+
+
+这话已经很明显了吧，KING的主要输出手段是剑，对手肯定是不知什么时候会被打下来的索隆，山治大概率不会去九侠那边，对手应该就是QUEEN。
+
+
+
+
+
+
+
+-----
+
+####  蔡卓妍  
+##### 54577#       发表于 2021-3-6 00:03
+
+
+
+
+同样是动物系，不死鸟果实没个无限MHP，或体力蓝恢复大的，好意思吗？别的狱卒和杰克都耐打到爆了
+
+
+
+
+
+
+
+-----
+
+####  zero12  
+##### 54578#       发表于 2021-3-6 00:32
+
+
+
+
+小马哥55开能力超强啊，就是打不死人。
+
+
+
+
+
+
+
+-----
+
+####  gjd198692  
+##### 54579#       发表于 2021-3-6 08:24
+
+
+
+
+小马哥的强在于 能苟能控 输出感觉还是差一口气  我觉得作用更趋向于战术意义 
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 54580#       发表于 2021-3-6 09:49
+
+
+
+ 本帖最后由 C男人 于 2021-3-6 10:09 编辑 
+
+佩罗斯佩罗，无伤。
+
+
+这脸皮是满级武装色吗？！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+<img src="https://img.saraba1st.com/forum/202103/06/095042atwzoky6ztzwps5w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>143746oonss94azrrp5s9a.jpg</strong> (77.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-6 09:50 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/06/095042dckjpmmzqzuejk8j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>002.jpg</strong> (95.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-6 09:50 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 54581#       发表于 2021-3-6 09:54
+
+
+
+
+长子瞄上了小马哥，看来小马哥要暂时下线了，虽然不知道为什么长子的果实克制小马哥。
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54582#       发表于 2021-3-6 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50521629&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-3-5 15:06</a>
+
+这话已经很明显了吧，KING的主要输出手段是剑，对手肯定是不知什么时候会被打下来的索隆，山治大概率不会去 ...</blockquote>
+想多了，索隆肯定是和路飞他们群殴凯多大妈，不然flag和阎魔白拿了
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 54583#       发表于 2021-3-7 16:21
+
+
+
+ 本帖最后由 evangelina 于 2021-3-7 16:23 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/162130uxgb335ebi7jweq3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ev3ElgBXYAALOsZ.jpg</strong> (159.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 16:21 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/162132b8ch2hpcen4etscz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ev3ElUeXcAAlm36.jpg</strong> (192.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 16:21 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/07/162135ajc3m9cjp6zjj0o3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ev3EyqTXEAISw7S.jpg</strong> (263.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-7 16:21 上传
+
+
+
+
+
+
+
+
+动画的罗杰对老白。看预告下话好像也不错
+
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 54584#       发表于 2021-3-10 00:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">出情报了，奎因被乔巴怪物形态扇了一巴掌......
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 54585#       发表于 2021-3-10 08:46
+
+
+
+
+果然最后时刻解药研制出来了。
+
+
+那种紧张气氛渲染感觉已经免疫了，因为知道人肯定没事
+
+
+
+
+
+
+
+-----
+
+####  柏露伯德  
+##### 54586#       发表于 2021-3-10 10:39
+
+
+
+
+武士们那出现了谁？大蛇吗
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54587#       发表于 2021-3-10 11:47
+
+
+
+
+queen那么菜的吗
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 54588#       发表于 2021-3-10 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574397&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-3-10 11:47</a>
+queen那么菜的吗</blockquote>
+也不菜，Q也是被马尔科抓住下才被乔巴扇的
+
+当然可以吹马尔科强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luoyianwu  
+##### 54589#       发表于 2021-3-10 12:32
+
+
+
+
+不是阿银，那就是阿金了
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 54590#       发表于 2021-3-10 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574950&amp;ptid=98922" target="_blank">luoyianwu 发表于 2021-3-10 12:32</a>
+
+不是阿银，那就是阿金了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">都不是，那就是阿童木了！
+
+
+
+
+
+
+
+-----
+
+####  mashav  
+##### 54591#       发表于 2021-3-10 17:10
+
+
+
+
+草，居然是光月御田
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 54592#       发表于 2021-3-10 17:14
+
+
+
+
+喷了，尾田你好样的
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54593#       发表于 2021-3-10 17:15
+
+
+
+
+凯多药丸
+
+
+
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 54594#       发表于 2021-3-10 17:20
+
+
+
+
+什么鬼，这货和上话的黑影有半点相似之处吗
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 54595#       发表于 2021-3-10 17:20
+
+
+
+
+意思是关东煮这角色塑造还有翻盘机会？
+
+
+
+
+
+
+
+-----
+
+####  白清羽  
+##### 54596#       发表于 2021-3-10 17:24
+
+
+
+
+被新情报惊到了，然而下周休刊
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 54597#       发表于 2021-3-10 17:30
+
+
+
+
+惊了
+
+诈尸？穿越？变身？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 54598#       发表于 2021-3-10 17:31
+
+
+
+
+假的吧，真堂堂复活还不继续吹水。。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 54599#       发表于 2021-3-10 17:31
+
+
+
+
+狐狸变的吧
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 54600#       发表于 2021-3-10 17:33
+
+
+
+
+假的，20年过去了样貌一点变化都没有
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54601#       发表于 2021-3-10 17:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">不要再御田了
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 54602#       发表于 2021-3-10 17:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这就很淦。
+
+
+
+
+
+
+
+-----
+
+####  拉萨乌姆  
+##### 54603#       发表于 2021-3-10 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">御田传
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 54604#       发表于 2021-3-10 17:45
+
+
+
+
+再煮一锅
+
+好，再煮一锅
+
+
+
+
+
+
+
+-----
+
+####  rt7539515  
+##### 54605#       发表于 2021-3-10 17:46
+
+
+
+
+现在都流行秽土转生么。不过如果能把之前那些御田的傻逼行为反转了也不错
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54606#       发表于 2021-3-10 17:48
+
+
+
+
+这是跟藤本树学了几招，只要搞超展开制造话题就可以了
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 54607#       发表于 2021-3-10 17:50
+
+
+
+
+假的，要不就狐狸变，要不就勘十郎诈尸画的？
+
+
+
+
+
+
+
+-----
+
+####  guanyun9078  
+##### 54608#       发表于 2021-3-10 17:52
+
+
+
+
+肯定是假的
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54609#       发表于 2021-3-10 17:59
+
+
+
+
+尾田神伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54610#       发表于 2021-3-10 18:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">如果是真的话
+
+时间果实有传送的可能吗
+
+如果真的没死至少白胡子不报仇说的过去点了
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 54611#       发表于 2021-3-10 18:08
+
+
+
+
+一打开微博直接懵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  拉菲尔神父  
+##### 54612#       发表于 2021-3-10 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“这下大家满意了吧”
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54613#       发表于 2021-3-10 18:26
+
+
+
+
+不管真假这个发展都很迷惑
+
+我开始相信罗杰其实没有死之说了，果然海贼不会死人<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
