@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 14:39** 
+> ## **本文件最后更新于2021-03-10 17:06** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_sQRa6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Kq5qW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_d58zh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_LQd21" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_d7IBN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_s7n1O" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -13648,10 +13648,11 @@ s1v版死不死跟爽有毛关系
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Zhudhh| + 1||
 | 划水的B612| + 1||
 | Sanguine| + 1||
 | gogomw| + 1||
@@ -13959,10 +13960,17 @@ gibara，gibara，gibara有缘再见啦。
 
 
 
- 参与人数 4战斗力 -2
+ 参与人数 11战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| giftia| + 1|思路广|
+| gogomw|-1|基德|
+| The_Ether_|-2||
+| percy1234|-1||
+| winda| + 1|回血|
+| 蜜瓜包| + 1||
+| KaboomMirai|-1||
 | admentus|-1||
 | alcoholic1000|-1||
 | mmbk| + 1|回血|
@@ -14149,4 +14157,334 @@ gibara，gibara，gibara有缘再见啦。
 
 
 
-                          
+
+
+-----
+
+####  OldGlory  
+##### 33704#       发表于 2021-3-10 22:41
+
+
+
+
+你虹有5w毕业的，有10w毕业的，现在来个50w毕业的，那么合理推测一下，月之拿到金盾那天会不会大喊一声“老娘玩腻了！”然后奔撤卖遛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 33705#       发表于 2021-3-10 22:46
+
+
+
+
+应该确实是和合同有关吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">即使50w粉，提前半年打好招呼，互相之间都有余地
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33706#       发表于 2021-3-10 22:52
+
+
+
+
+Bora今天杀的真欢
+
+Cpt日语比上次好多了，好歹能指挥了
+
+有人帮忙动脑的Bora才是完全体
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 33707#       发表于 2021-3-10 22:54
+
+
+
+
+我看了下猴哥前几天还有个新衣回，然后就毕业了.......
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33708#       发表于 2021-3-10 23:01
+
+
+
+
+该毕业的垃圾为什么就不毕业？？？烂货圆脸今天还有脸直播带货，卖自己的liveBD呢，有人买吗，怎么还不赶紧滚蛋毕业？烂货圆脸毕业了我必写长文庆祝。
+
+
+
+
+
+
+
+-----
+
+####  奇迹之巅  
+##### 33709#       发表于 2021-3-10 23:01
+
+
+
+
+12点灰姑娘播完了最后的会限消失了
+到最后还是那么的洒脱
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 33710#       发表于 2021-3-10 23:04
+
+
+
+
+什么该不该毕业的，gbr毕业难道是被人逼迫的不成<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33711#       发表于 2021-3-10 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是觉得猴王跟灰姑娘搭不上趟
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33712#       发表于 2021-3-10 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582423&amp;ptid=1969498" target="_blank">Map-2 发表于 2021-3-10 23:04</a>
+
+什么该不该毕业的，gbr毕业难道是被人逼迫的不成</blockquote>
+“该毕业的烂货”当然是说烂货圆脸，现在只要看到这个圆脸就闹心，早就该毕业了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33713#       发表于 2021-3-10 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 按照你虹传统，过几天应该在别的频道播怪物猎人了，
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 33714#       发表于 2021-3-10 23:13
+
+
+
+
+虹杏还有几个半年 懂哥出来说说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33715#       发表于 2021-3-10 23:13
+
+
+
+
+毫无疑问的是，郡道会混吃等死陪我到管人世界末，安心感<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33716#       发表于 2021-3-10 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹这环境明显没有让gbr留下去的理由了，与其抱着50w虚高订阅两三千凉凉同接慢慢过气，还不如乘着没完全退版本赶紧找后路。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33717#       发表于 2021-3-10 23:20
+
+
+
+
+niru，永远的神！
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 33718#       发表于 2021-3-10 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582486&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-10 23:10</a>
+
+按照你虹传统，过几天应该在别的频道播怪物猎人了，</blockquote>
+那王候可以跟0人一样发疯吗？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33719#       发表于 2021-3-10 23:22
+
+
+
+
+选择一段人生，到底会获得什么，又会失去什么，不想懂阿<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 33720#       发表于 2021-3-10 23:36
+
+
+
+
+同样是初回直播马娘，天开就能玩到小栗帽42w粉通关
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后也被一星因子打发了
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33721#       发表于 2021-3-10 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582162&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-3-10 22:41</a>
+
+你虹有5w毕业的，有10w毕业的，现在来个50w毕业的，那么合理推测一下，月之拿到金盾那天会不会大喊一声“老 ...</blockquote>
+标准的发言不应该是：“月之还能拿到金盾？”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33722#       发表于 2021-3-11 00:03
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33723#       发表于 2021-3-11 00:33
+
+
+
+<blockquote>Junchoon 发表于 2021-3-10 22:54
+我看了下猴哥前几天还有个新衣回，然后就毕业了.......</blockquote>
+3月3号就说要退了，动静不大，或许真的过气了
+
+
+
+
+
+                         

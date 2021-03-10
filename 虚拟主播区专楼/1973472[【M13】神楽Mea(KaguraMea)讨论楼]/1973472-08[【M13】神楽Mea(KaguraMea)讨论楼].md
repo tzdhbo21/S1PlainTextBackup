@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 12:54** 
+> ## **本文件最后更新于2021-03-10 17:07** 
 
 
 
@@ -3339,4 +3339,671 @@ https://t.co/dtclVFLiSS
 
 
 
-                                           
+
+
+-----
+
+####  A2014720  
+##### 10690#       发表于 2021-3-10 21:52
+
+
+
+
+咕半个小时，不行我要发散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10691#       发表于 2021-3-10 21:57
+
+
+
+
+发，都可以发
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 10692#       发表于 2021-3-10 22:05
+
+
+
+
+她要开棉花糖回了，上次是什么时候
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10693#       发表于 2021-3-10 22:08
+
+
+
+
+被中出所以迟到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10694#       发表于 2021-3-10 22:24
+
+
+
+ 本帖最后由 路人庚 于 2021-3-10 22:26 编辑 
+
+神乐mea今天的直播唐突延迟半小时，背后的原因是为哪般？请选择会让你觉得舒服的方式开启发散↓↓↓
+
+
+1、看到凑阿库娅竟在同一时刻开启歌回直播，不忍迎头撞上去，因此主动退避半小时。（或者：故意错开其实是为了去听凑阿库娅唱歌）
+
+
+2、突然得知御伽原江良在2周年时竟宣布毕业，悲从中来泣不成声，先哭半小时再播……
+
+
+3、与来家里玩的野男人根据前日点赞的色图情景现场模拟，准备先中〇一发再开始直播！
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10695#       发表于 2021-3-10 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50581976&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-3-10 22:24</a>
+神乐mea今天的直播唐突延迟半小时，背后的原因是为哪般？请选择会让你觉得舒服的方式开启发散↓↓↓
+
+
+1、看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4.她真的只是因为花粉症鼻塞  差不多得了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10696#       发表于 2021-3-10 22:28
+
+
+
+
+我只是觉得这人又在吃饭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+来点吃饭配信啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10697#       发表于 2021-3-10 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582003&amp;ptid=1973472" target="_blank">ashero 发表于 2021-3-10 22:27</a>
+
+4.她真的只是因为花粉症鼻塞  差不多得了
+
+
+—— 来自 OPPO PDEM30, Android 11上的 S1Next-鹅版 v ...</blockquote>
+也许真相就是这样的朴实无华（
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10698#       发表于 2021-3-10 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582023&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-3-10 22:28</a>
+也许真相就是这样的朴实无华（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出门摄取过多花粉了 想要逃离日本
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10699#       发表于 2021-3-10 22:35
+
+
+
+
+333333
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10700#       发表于 2021-3-10 22:36
+
+
+
+
+讲道理我好喜欢3的设定啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，里面被射满了坐在椅子上扭扭捏捏开播
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10701#       发表于 2021-3-10 22:41
+
+
+
+
+新剧情：在taxi里昏睡
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10702#       发表于 2021-3-10 22:45
+
+
+
+
+昏睡的士
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 10703#       发表于 2021-3-10 22:46
+
+
+
+
+基本上是2吧，era酱也算是关系不错的，加上向来就是爱哭鼻子的性格，鼻子塞了半小时能好的，没跑了。
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 10704#       发表于 2021-3-10 22:47
+
+
+
+
+在不留档歌回里用的啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10705#       发表于 2021-3-10 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582237&amp;ptid=1973472" target="_blank">面具13 发表于 2021-3-10 22:46</a>
+基本上是2吧，era酱也算是关系不错的，加上向来就是爱哭鼻子的性格，鼻子塞了半小时能好的，没跑了。 ...</blockquote>
+现在看状态还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10706#       发表于 2021-3-10 22:49
+
+
+
+
+当都认为棉花糖会专门开一次留档杂谈回的时候，你咩姐选择在删档歌回里掏出一个逗乐棉花糖并聊了起来
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10707#       发表于 2021-3-10 22:49
+
+
+
+
+她肯定知道的比大部观众要早，从以往经验来看对同事毕业看的也比较开。bfm和家主毕业的时候不都被顺劈过冷血
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10708#       发表于 2021-3-10 22:50
+
+
+
+
+应该会专门开的吧 现在只是先行版罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10709#       发表于 2021-3-10 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这slab留言绝了，感觉像是发情民能干出来的事
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10710#       发表于 2021-3-10 22:54
+
+
+
+
+直球想中和出
+
+怀疑是楼里面的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10711#       发表于 2021-3-10 22:57
+
+
+
+
+…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 10712#       发表于 2021-3-10 23:00
+
+
+
+
+meamea起手 一眼mixi
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10713#       发表于 2021-3-10 23:03
+
+
+
+
+纯度过高<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10714#       发表于 2021-3-10 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。。。
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10715#       发表于 2021-3-10 23:09
+
+
+
+
+我说我看不出来是谁，你们信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10716#       发表于 2021-3-10 23:25
+
+
+
+ 本帖最后由 A2014720 于 2021-3-10 23:26 编辑 
+
+你说你是我的什么<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">再说一遍！
+
+姨了姨了！她姨了！
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10717#       发表于 2021-3-10 23:28
+
+
+
+
+她媚宅了，她媚宅了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10718#       发表于 2021-3-10 23:28
+
+
+
+
+钓凯子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 10719#       发表于 2021-3-10 23:36
+
+
+
+
+能不看得开吗，毕业又不是死了，观众见不到而已，私底下人家不一样玩一起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10720#       发表于 2021-3-10 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582735&amp;ptid=1973472" target="_blank">Cortana 发表于 2021-3-10 23:36</a>
+能不看得开吗，毕业又不是死了，观众见不到而已，私底下人家不一样玩一起
+
+—— 来自 Xiaomi MIX 2, ...</blockquote>
+家主毕业那段不是被劈晕了，结果不是早就知道是高升最火企业<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10721#       发表于 2021-3-10 23:45
+
+
+
+
+管人入脑是这样的😅
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10722#       发表于 2021-3-10 23:54
+
+
+
+
+今晚状态还不错，happy end唱的很有感觉
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10723#       发表于 2021-3-10 23:54
+
+
+
+
+你们可别给奶没了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+syl 别刚说完就拉了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10724#       发表于 2021-3-10 23:57
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-11 00:03 编辑 
+
+好nya，建议羊党迅速去世syl 今天这干花状态更好了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10725#       发表于 2021-3-11 00:21
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-11 00:22 编辑 
+
+キセキ，这是所谓先行试听版本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 看来的确不太会唱hhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10726#       发表于 2021-3-11 00:42
+
+
+
+
+プラネタリウム/星象仪，好听 草，你鬼叫个JB
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10727#       发表于 2021-3-11 00:47
+
+
+
+
+你咩姐是为什么会沉迷F4这种老派电视剧的（仿佛回到了十几年前可太草了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 10728#       发表于 2021-3-11 00:57
+
+
+
+
+今天这个歌单，怎么感觉是日系歌曲在油土鳖点击量前一百里挑的…
+
+
+
+
+
+                                          

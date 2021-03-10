@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 01:19** 
+> ## **本文件最后更新于2021-03-10 17:10** 
 
 
 
@@ -2191,4 +2191,593 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 
 
 
-                                             
+
+
+-----
+
+####  wfantasia  
+##### 15122#       发表于 2021-3-8 17:54
+
+
+
+
+因为缺精所有的贵族多了我都分了
+
+
+
+
+
+
+
+-----
+
+####  wfantasia  
+##### 15123#       发表于 2021-3-8 17:55
+
+
+
+
+因为缺精所有的贵族多了我都分了
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 15124#       发表于 2021-3-8 23:53
+
+
+
+
+赶在五突前把奈落之翼拿了，了了一桩心愿
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15125#       发表于 2021-3-9 00:50
+
+
+
+
+太**了，我自食的老王怎么办
+
+又不是分解
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15126#       发表于 2021-3-9 09:52
+
+
+
+
+我就没有哪个老王石做4突之前不是合体的，真要就再抽呗，反正0-1才是质变，1-2也就那么回事
+
+
+
+
+
+
+
+-----
+
+####  Mitka  
+##### 15127#       发表于 2021-3-9 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50560737&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-3-9 09:52</a>
+我就没有哪个老王石做4突之前不是合体的，真要就再抽呗，反正0-1才是质变，1-2也就那么回事 ...</blockquote>
+说的简单，现在就算有pu和缩圈傻必，微氪想拿特定老王也是很难的吧
+而且5凸效果量上来以后是能解放暴击插件位置的，血量和火力马上就和4凸及方阵拉开差距，就算这游戏只剩下数据膨胀，依然还会有很大吸引力
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15128#       发表于 2021-3-9 18:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，我也好像好几井没神石了，说再抽就行的可能是每次百六都下井的大佬吧
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15129#       发表于 2021-3-9 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50566143&amp;ptid=1158205" target="_blank">Mitka 发表于 2021-3-9 17:22</a>
+
+说的简单，现在就算有pu和缩圈傻必，微氪想拿特定老王也是很难的吧
+
+而且5凸效果量上来以后是能解放暴击插 ...</blockquote>
+我只是说我自己的感觉，反正我现在6属有2个没富裕备份的，这两都是我3 4合1做出来的，我既不能指望他退我，也不能说我下次还能抽到，那还能怎么样呢，不就凑合着玩吗
+
+真正最难受的是那些到现在都没神石的人，我也就是次要难受水平，所以我心态确实挺平和的，反正有人更难受<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15130#       发表于 2021-3-9 23:56
+
+
+
+
+海豹暴乱了，刮刮卡这玩意真是爆血管，幸好还是可以跳过
+
+这次没有保底3w石，不知最后一天会不会补上
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15131#       发表于 2021-3-10 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刮了一把IO杖 不知道开心还是伤心好
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15132#       发表于 2021-3-10 00:21
+
+
+
+
+刮之前：哪个sb想出来把耳环塞进去的
+
+刮之后：能把白戒指换成耳环吗，哪个属性都行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 15133#       发表于 2021-3-10 01:19
+
+
+
+
+上次刮刮卡就没有保底3W石头吧
+
+保底3W不是夏天点箱子的么......
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15134#       发表于 2021-3-10 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50571256&amp;ptid=1158205" target="_blank">windlikeman 发表于 2021-3-10 01:19</a>
+上次刮刮卡就没有保底3W石头吧
+
+保底3W不是夏天点箱子的么......</blockquote>
+那我记错了，3w石好像还是阴间操作太多积累了不少不满用来平民愤的
+不过这次说了有神秘大奖我觉得大概率是石头，毕竟是面向所有玩家的，贵族和限定不太可能。下限一张十连券，上限1w石吧，如果送了黑卡我将一辈子追随kmr
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15135#       发表于 2021-3-10 04:17
+
+
+
+
+一路简易探索<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒吊快点出来了
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15136#       发表于 2021-3-10 05:54
+
+
+
+
+其实我觉得贵族石应该改成吃本体可以跳过4/5突那些素材，那就还行
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15137#       发表于 2021-3-10 08:27
+
+
+
+
+今年的武器交换可以换天平嘛
+
+去年换了椰子，感觉今年换个天平会好一点？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15138#       发表于 2021-3-10 10:04
+
+
+
+
+刮了个光老王
+
+（进度x3）
+
+但是完全不想玩，今天还看到个暗土争强贴，上来就辱光（暗土造价等于光老王，所以为什么不一起玩呢？）
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15139#       发表于 2021-3-10 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50570599&amp;ptid=1158205" target="_blank">Kagam1 发表于 2021-03-09 23:56:40</a>
+海豹暴乱了，刮刮卡这玩意真是爆血管，幸好还是可以跳过
+
+这次没有保底3w石，不知最后一天会不会补上 ...</blockquote>求教刮刮乐怎么skip过程
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15140#       发表于 2021-3-10 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574999&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-3-10 12:37</a>
+
+求教刮刮乐怎么skip过程
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+浏览器直接点后退或者左上角MY PAGE就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ラプシィア  
+##### 15141#       发表于 2021-3-10 17:05
+
+
+
+
+这波上修可以，十分阳间，特别是十分神将羊的3技除了消去不可，覆盖还变成5/6，火方MAN可以给十一分
+
+
+
+
+
+
+
+-----
+
+####  kobushi  
+##### 15142#       发表于 2021-3-10 18:15
+
+
+
+
+草，怎么坚守弓都不给换
+
+
+
+
+
+
+
+-----
+
+####  江戸前ルナ  
+##### 15143#       发表于 2021-3-10 19:17
+
+
+
+
+范围就跟去年一样，好没诚意，没啥好换的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+新调整，泳装裁缝好强啊
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15144#       发表于 2021-3-10 19:33
+
+
+
+
+方阵2.5和六龙武都不给换的<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">就真指着这点东西狗命是吧
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15145#       发表于 2021-3-10 19:53
+
+
+
+
+现在哪个本打起来升级最快？想趁着7倍经验赶快升到120
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15146#       发表于 2021-3-10 21:59
+
+
+
+
+果然剧情拉出个路人妹不可能“平凡无奇”……是吧
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15147#       发表于 2021-3-10 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580203&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-10 19:53</a>
+现在哪个本打起来升级最快？想趁着7倍经验赶快升到120</blockquote>
+拉满水滴特殊星本，速度飞快<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15148#       发表于 2021-3-10 22:45
+
+
+
+
+这7周年活动第三章也就那样吧……强行塞妹外加拉郎配……比去年黑帮火拼也就少了个黑帮……下一章可算是该轮到主角肉身出战了……
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15149#       发表于 2021-3-10 22:48
+
+
+
+ 本帖最后由 navarra 于 2021-3-10 23:04 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15150#       发表于 2021-3-10 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">就是这了 我最想看的王道剧情 无敌的BMG！！！ CY果然不让人失望
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15151#       发表于 2021-3-10 23:27
+
+
+
+
+猴猪31日进池，搞这种小手段，我真是yue了
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15152#       发表于 2021-3-10 23:33
+
+
+
+
+月中新角色不进100白嫖池
+
+月底新泳装连白嫖都没有
+
+kmr给你算的明明白白<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15153#       发表于 2021-3-10 23:43
+
+
+
+
+草，这任务系统什么神经，突然塞这么多武勋给我干蛋啊
+
+
+
+
+
+
+
+-----
+
+####  木原唯一  
+##### 15154#       发表于 2021-3-11 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">往好点想，兴许不给白嫖能换个稍微高一点的强度不像前两年的冬泳这么白给
+
+
+
+
+
+
+
+-----
+
+####  leeskies  
+##### 15155#       发表于 2021-3-11 00:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">龙吟虎啸！龙吟虎啸！
+
+
+
+
+
+                                            

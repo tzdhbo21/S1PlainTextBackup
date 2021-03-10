@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 18:37** 
+> ## **本文件最后更新于2021-03-10 17:00** 
 
 
 
@@ -12833,7 +12833,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_yz212" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_MhL4q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15554,4 +15554,510 @@ apex yyds
 
 
 
-                    
+
+
+-----
+
+####  因为你不会  
+##### 11372#       发表于 2021-3-9 22:20
+
+
+
+
+在谁的怀里睡着了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11373#       发表于 2021-3-10 19:37
+
+
+
+
+整这个我想起了日本那些中之人资料整合的那种小网页 跟很多男人纠缠不清之类的<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11374#       发表于 2021-3-10 20:08
+
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-3-10 20:14 编辑 
+
+我怀疑是懒得自己尬编想直接从评论栏抄作业
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11375#       发表于 2021-3-10 20:12
+
+
+
+
+这是要放在新官网上的作业吗🤔
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11376#       发表于 2021-3-10 20:16
+
+
+
+
+真就一点没预习想直接抄作业啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11377#       发表于 2021-3-10 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是在回忆自己丢掉的设定吗
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11378#       发表于 2021-3-10 20:28
+
+
+
+
+就嗯看不见评论栏说的卍组 寄吧笑裂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11379#       发表于 2021-3-10 20:42
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-11 00:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别问，问就是不熟
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11380#       发表于 2021-3-10 20:54
+
+
+
+
+本土观众都没一个说苦呀西的 可见当年字幕组捏的真厉害<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11381#       发表于 2021-3-10 20:57
+
+
+
+
+观众和粉丝是两个概念 评论栏能注意到这个也太阴暗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11382#       发表于 2021-3-10 20:57
+
+
+
+
+リズム天耐久谁不爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11383#       发表于 2021-3-10 21:00
+
+
+
+
+你寄吧还知道播派不好看啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11384#       发表于 2021-3-10 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么大一串番 我都没绫总宅了
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11385#       发表于 2021-3-10 21:39
+
+
+
+
+哐哐哐写那么多阿尼妹上去以后看到不害臊吗<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11386#       发表于 2021-3-10 21:51
+
+
+
+
+二次元浓度太高了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11387#       发表于 2021-3-10 21:55
+
+
+
+
+别加了别加了
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11388#       发表于 2021-3-10 21:56
+
+
+
+
+这也太多了，要把所有的CV都打上去吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11389#       发表于 2021-3-10 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二次元味太重了吧
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11390#       发表于 2021-3-10 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">如此浓厚的二次元味，却要在直播的时候嘴硬不是阿宅
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11391#       发表于 2021-3-10 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卍组真就扫进黑历史了是吧
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11392#       发表于 2021-3-10 22:12
+
+
+
+
+大概是写上去怕会让夸宝也不好看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11393#       发表于 2021-3-10 22:23
+
+
+
+
+评论栏这帮日本人还寄吧好意思提碧蓝航线啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11394#       发表于 2021-3-10 22:53
+
+
+
+
+什么东西漏出来了，没看到
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11395#       发表于 2021-3-10 23:07
+
+
+
+
+说最后的message现在先不公开 写在另一个记事本上了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11396#       发表于 2021-3-10 23:08
+
+
+
+
+这直播看的犯困 本土粉和v的割裂感很高
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11397#       发表于 2021-3-10 23:10
+
+
+
+
+搁这tc呢聊完又唱
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11398#       发表于 2021-3-10 23:13
+
+
+
+
+成分鉴定错了不是本土粉 这么多渡月桥的拆腻子
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11399#       发表于 2021-3-10 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总这边国人肯定不少的 
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11400#       发表于 2021-3-10 23:40
+
+
+
+
+木口的披露能有啥好玩意吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11401#       发表于 2021-3-11 00:14
+
+
+
+
+咋了 sc抖机灵把绫总真整生气了?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                   
