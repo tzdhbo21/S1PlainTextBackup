@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-09 09:36** 
+> ## **本文件最后更新于2021-03-10 12:54** 
 
 
 
@@ -2689,4 +2689,654 @@ pre前阵子收藏了一堆视频也没看，希望麻麻打打游戏，别再�
 
 
 
-                                            
+
+
+-----
+
+####  Cushaw  
+##### 10653#       发表于 2021-3-9 17:42
+
+
+
+
+怎么突然冒出来一堆肉体厨，不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10654#       发表于 2021-3-9 20:25
+
+
+
+
+努力工作是爸爸活吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10655#       发表于 2021-3-9 20:31
+
+
+
+
+是的，我有一个女儿
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10656#       发表于 2021-3-10 00:07
+
+
+
+
+qr别开团 我要睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10657#       发表于 2021-3-10 00:23
+
+
+
+
+那你就睡，我处理完手尾以后永远不提他们半句话，直接当死人，废物组织就是废物组织，放下你**妈的成见呢，呸
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10658#       发表于 2021-3-10 05:46
+
+
+
+
+八成是你麻现在出门还化着辣妹浓妆啦，夜店应聘还认了，你麻好巨魔，她一直都这么勇敢的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10659#       发表于 2021-3-10 06:59
+
+
+
+
+好几天都没出现在自己直播间了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10660#       发表于 2021-3-10 09:16
+
+
+
+
+最近应该有事要出门
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 10661#       发表于 2021-3-10 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50557157&amp;ptid=1973472" target="_blank">笋狐 发表于 2021-3-8 22:35</a>
+
+动态先不说，你这不仅直播，连切片都不看的咯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">体谅一下社畜好吗  S1都快一周一刷了
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10662#       发表于 2021-3-10 10:03
+
+
+
+
+以后活动说不定越参加越多了，参加活动之前要彩排很累不播，参加活动的时候更不会播，活动结束了犒劳一下自己不播
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 10663#       发表于 2021-3-10 10:12
+
+
+
+
+简而言之就是不播
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10664#       发表于 2021-3-10 10:16
+
+
+
+
+刚成年就要去陪酒
+
+呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10665#       发表于 2021-3-10 10:19
+
+
+
+
+不播挺好，不要耽误我赛马<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10666#       发表于 2021-3-10 10:37
+
+
+
+
+不播就学东西，快乐自闭每一天
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10667#       发表于 2021-3-10 13:05
+
+
+
+
+麻姨你在视奸楼友吗？赶紧肉体出道可以吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10668#       发表于 2021-3-10 13:08
+
+
+
+
+好耶，美国要收税了，又快进了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10669#       发表于 2021-3-10 13:25
+
+
+
+
+那这之后跟之前比有什么区别吗比如以后是只能美元吗，或者说以后就只有sl不会抽或者连sl也会抽。
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10670#       发表于 2021-3-10 13:54
+
+
+
+ 本帖最后由 LIPP 于 2021-3-10 13:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50575532&amp;ptid=1973472" target="_blank">Cla0221 发表于 2021-3-10 13:25</a>
+那这之后跟之前比有什么区别吗比如以后是只能美元吗，或者说以后就只有sl不会抽或者连sl也会抽。
+
+ ...</blockquote>
+ytb要从美国付费用户里抽税，和我sl有什么关系。况且她又没有美国观众和美国sc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不过应该会影响地址在美国的其他sc用户
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 10671#       发表于 2021-3-10 14:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我谷歌填的地址就是美国，不过我早就改sl了，暂时无事
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10672#       发表于 2021-3-10 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50575846&amp;ptid=1973472" target="_blank">LIPP 发表于 2021-3-10 13:54</a>
+
+ytb要从美国付费用户里抽税，和我sl有什么关系。况且她又没有美国观众和美国sc，不过应该会影响地 ...</blockquote>
+那就是sc也行，但就是别美国节点了是吗
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 10673#       发表于 2021-3-10 14:47
+
+
+
+
+基本无法避免，因为随便哪个人打几块钱就要报了。这种事她税务师会解决的
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 10674#       发表于 2021-3-10 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50576297&amp;ptid=1973472" target="_blank">Cla0221 发表于 2021-3-10 14:36</a>
+那就是sc也行，但就是别美国节点了是吗</blockquote>
+账单地址不在美利坚就行，这么理解也行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10675#       发表于 2021-3-10 17:09
+
+
+
+
+めめめめめめめめめ<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10676#       发表于 2021-3-10 17:51
+
+
+
+ 本帖最后由 路人庚 于 2021-3-10 18:02 编辑 
+
+这个是税那也是税，阿咩什么时候能再开一次愿望单啊，家庭菜园的段子还没有下文啊（
+
+あっ...没注意，一不小心跟阿咩同步动了，会被脑补我汗她在私下贴贴kana？
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10677#       发表于 2021-3-10 17:55
+
+
+
+
+醒了醒了，动了动了，不过看样子是不打算播的样子
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10678#       发表于 2021-3-10 18:07
+
+
+
+ 本帖最后由 A2014720 于 2021-3-10 18:09 编辑 
+
+我一想她她就动了，还是我贴<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+一转眼就傍晚了，这人是不是被催眠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 10679#       发表于 2021-3-10 18:21
+
+
+
+
+20210310东京18点
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/182058x95f9wjl499nju9n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>92188F7C-83CE-4867-83F8-51CE396915DE.jpeg</strong> (468.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 18:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10680#       发表于 2021-3-10 18:34
+
+
+
+
+开愿望单好哇<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10681#       发表于 2021-3-10 19:02
+
+
+
+
+愿望单就算了，ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10682#       发表于 2021-3-10 20:06
+
+
+
+
+今晚十点 出门了应该有杂谈了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10683#       发表于 2021-3-10 20:11
+
+
+
+
+希望多聊天扯淡，少唱几首歌
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10684#       发表于 2021-3-10 20:27
+
+
+
+
+[1]【神楽めあ Bilibili Dynamic】
+动态类型 : 不带图动态
+动态内容 : どこかでB限したいわね！！！！[神楽Mea_啾咪][神楽Mea_啾咪]
+发布时间 : 2021-03-10 12:22:55 UTC
+
+天天监工九条，有本事你联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10685#       发表于 2021-3-10 20:27
+
+
+
+
+棉花糖还行，距离上一次棉花糖已经过去了多久来着？
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10686#       发表于 2021-3-10 20:29
+
+
+
+
+好，久违的棉花糖
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10687#       发表于 2021-3-10 20:30
+
+
+
+ 本帖最后由 A2014720 于 2021-3-10 20:34 编辑 
+
+【神楽めあ 发布】
+内容：✉募集✉
+
+久々に神楽めあにしたい人生相談募集します。
+https://t.co/dtclVFLiSS
+时间：2021-03-10 20:26:33 UTC+08:00
+
+
+上次的那个鸽了吧，已经一年了？
+
+不算b的二周年庆的话
+
+
+手机废人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10688#       发表于 2021-3-10 20:45
+
+
+
+
+棉花糖加入了关注者限定功能还行，这玩意也变得亚撒西起来了呢
+
+
+你咩姐这新推怎么看上去这么谐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“请不要再直球口臭了”
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10689#       发表于 2021-3-10 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
