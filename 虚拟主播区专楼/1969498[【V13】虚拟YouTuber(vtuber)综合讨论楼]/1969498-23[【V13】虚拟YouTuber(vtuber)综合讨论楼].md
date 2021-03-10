@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-09 18:02** 
+> ## **本文件最后更新于2021-03-10 06:43** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_zl22d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Fe40g" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_LyzHQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_O4Zko" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_N6YV6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_LdtRg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -9470,6 +9470,25 @@ KING，新衣装，是之前发布过的那件么？</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11989,4 +12008,577 @@ KING的余裕
 
 
 
-                             
+
+
+-----
+
+####  Kaiyan  
+##### 33604#       发表于 2021-3-10 03:22
+
+
+
+
+不常来，有无懂哥分析下江良为啥就要毕业？
+不咋看🐒，但总感觉也不怎么在其他虹人直播里出现，印象只有3d的时候挺出圈还给赤坂画辉夜里去了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 33605#       发表于 2021-3-10 03:24
+
+
+
+ 本帖最后由 集合酱 于 2021-3-10 12:08 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 33606#       发表于 2021-3-10 03:25
+
+
+
+ 本帖最后由 集合酱 于 2021-3-10 12:08 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 33607#       发表于 2021-3-10 10:52
+
+
+
+
+油管发布通知，美国要求所有通过油管获得收益的创作者，都要向美国提供税务信息，不提供的直接扣24%最大收益。
+
+理由是根据美国税法，外国人从美国居民获得的收益都要扣掉预扣税
+
+<img src="https://img.saraba1st.com/forum/202103/10/104929ycmfur7mfft0mm7r.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (122.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 10:49 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/104929tsnnzsznmooxz87w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (127.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 10:49 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/104930iiv1wmi3i73aji7v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (106.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 10:49 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33608#       发表于 2021-3-10 11:31
+
+
+
+[https://support.google.com/youtube/answer/10391362](https://support.google.com/youtube/answer/10391362)
+<img src="https://p.sda1.dev/1/129e8f0182b594428e03b6a24317cce3/_J_IA_TDVSNCX_23``_5__9.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 33609#       发表于 2021-3-10 11:32
+
+
+
+ 本帖最后由 某穆克拉 于 2021-3-10 11:34 编辑 
+
+中国也是一样的，yhm在b站收了钱交税也是在国内交，而不是回到日本交税。
+
+对企业势影响不大，最多再请个会计。
+
+就是让你提供个企业地址，判断你是哪国的企业，之后按两国之间税务协定收税就是了。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 33610#       发表于 2021-3-10 11:40
+
+
+
+
+cover肉痛啊。
+
+快进到cover staff没及时完成正确操作导致全球收入的24%被扣除。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 33611#       发表于 2021-3-10 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁定会发生的事就不用拿出来说了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 33612#       发表于 2021-3-10 11:52
+
+
+
+
+企业势还好，有stf帮忙报税，那些舔白皮的yhm怎么办，我不觉得她们有那个智力报税<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 33613#       发表于 2021-3-10 11:57
+
+
+
+
+咩咩，咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">我记得你有理税士的吧咩咩
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33614#       发表于 2021-3-10 11:58
+
+
+
+
+这种事情只要有这个意识花点钱找人做不就行了，又不需要自己搞
+
+
+
+
+
+
+
+-----
+
+####  北条早苗  
+##### 33615#       发表于 2021-3-10 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50570130&amp;ptid=1969498" target="_blank">ヒトニナル 发表于 2021-3-9 23:17</a>
+
+我不太擅长分辨女人的声音，不过这个我觉得应该不是。Sennzai的声音特别飘忽，但是这首惹0的声音比较实心 ...</blockquote>
+你说的也是我怀疑的的地方，但是外文发音的感觉太像了，而且她一出道就跟削除互fo了，看上去就是音游圈的人
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 33616#       发表于 2021-3-10 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574552&amp;ptid=1969498" target="_blank">Mr.shelter 发表于 2021-3-10 11:57</a>
+咩咩，咩咩我记得你有理税士的吧咩咩</blockquote>
+快进到加入苔箱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 33617#       发表于 2021-3-10 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574297&amp;ptid=1969498" target="_blank">面具13 发表于 2021-3-10 11:40</a>
+
+cover肉痛啊。
+
+快进到cover staff没及时完成正确操作导致全球收入的24%被扣除。 ...</blockquote>
+订正，因为cover在美国境外而且是企业账号，所以预扣上限只是在美国收入的30%，其他部分的全球收入卷不进来，残念。
+
+sui酱应该转成企业号了吧。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33618#       发表于 2021-3-10 12:10
+
+
+
+
+企业势影响都不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 33619#       发表于 2021-3-10 12:22
+
+
+
+
+企业势其他不清楚，虹liver是自己请税务师的
+https://b23.tv/8njHwL
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33620#       发表于 2021-3-10 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574622&amp;ptid=1969498" target="_blank">北条早苗 发表于 2021-3-10 12:02</a>
+你说的也是我怀疑的的地方，但是外文发音的感觉太像了，而且她一出道就跟削除互fo了，看上去就是音游圈的 ...</blockquote>
+那就不好说了，已经隐退了就更难取证了。如果真的是她的话我希望她平时唱歌也能这样唱…她一唱歌我就觉得气喘不上来，听着好累…
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 33621#       发表于 2021-3-10 12:59
+
+
+
+
+之前油管和Cover合计会抽7成(3+4)，国税局再加一刀(2成)，那就只剩下未税的一成……基本打白工了吧……
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33622#       发表于 2021-3-10 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50575234&amp;ptid=1969498" target="_blank">Junchoon 发表于 2021-3-10 12:59</a>
+
+之前油管和Cover合计会抽7成(3+4)，国税局再加一刀(2成)，那就只剩下未税的一成……基本打白工了吧…… ...</blockquote>
+那你可当，杏v全都是为了观众无私奉献的天使，他们唯一的收益就是观众的笑容。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|大爱无疆|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 33623#       发表于 2021-3-10 13:05
+
+
+
+
+你猜的没错，现在美国还要收税，日本也可能加税，以后用美元打红sc，打一万v要倒贴两千，改去用红sc把v打到倾家荡产了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  LCCCCCC  
+##### 33624#       发表于 2021-3-10 13:09
+
+
+
+
+其实就是说美国人打的钱给美国交税，别国人打的钱在你所在地交税，油管除了抽成就不管了，如果两国之间没有什么税收协定的话，美国人打的钱很可能是收两次税<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33625#       发表于 2021-3-10 13:13
+
+
+
+
+利好没外国人看的🌈，杏又输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33626#       发表于 2021-3-10 13:17
+
+
+
+
+为什么虹杏774苔不联合在一起搞个vtb平台啊，体量也够大了吧。
+最近（郡道）bug频率也太多，昨晚预定打麻被卡得去t台，真的要变t台主了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 33627#       发表于 2021-3-10 13:19
+
+
+
+
+泥哥给tskk打10000刀她就要倒贴2000的算法笑麻了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33628#       发表于 2021-3-10 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50575442&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-10 13:17</a>
+
+为什么虹杏774苔不联合在一起搞个vtb平台啊，体量也够大了吧。
+
+最近（郡道）bug频率也太多，昨晚预定打麻被 ...</blockquote>
+然后被多国税务机构盯上吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+税务局多不好惹阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33629#       发表于 2021-3-10 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50575558&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-3-10 13:27</a>
+然后被多国税务机构盯上吗
+
+税务局多不好惹阿</blockquote>
+好歹交钱有服务，在管又给钱又吃bug还得担心炸号<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 33630#       发表于 2021-3-10 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50569442&amp;ptid=1969498" target="_blank">北条早苗 发表于 2021-3-9 22:11</a>
+
+不敢进漫区过来避难
+
+顺便问下有没有人知道千条アリア(棗いつき)曾经有个搭档叫夜乃ノア，这个到底是不是Sen ...</blockquote>
+我给认识的几位洗剂十年老粉听过，他们普遍觉得不是洗剂
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33631#       发表于 2021-3-10 13:44
+
+
+
+
+斗鱼虎牙对头部主播都是随便搓扁捏圆的，体量大无数倍的油管又怎么会管你几个边陲之地不知名小公司的死活。所谓落后就要挨打，这笔帐建议找川上量生算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33632#       发表于 2021-3-10 13:55
+
+
+
+
+bsyl：
+
+
+奸笑给葛葵出了粘土，在king频道。
+
+
+
+
+
+                            
