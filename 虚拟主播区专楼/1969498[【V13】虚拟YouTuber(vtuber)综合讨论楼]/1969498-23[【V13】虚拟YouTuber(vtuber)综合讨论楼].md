@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 10:40** 
+> ## **本文件最后更新于2021-03-11 17:03** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_ULz6b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_aO836" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_F3zCD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_BaPu7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_V7eZj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_MaIDz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -16368,6 +16368,25 @@ kmm的gachi很多吗？至少葛叶的gachi和贴贴人应该不少吧...
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 水镜月| + 1|草，看到上面的差点没反应过来.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -16661,4 +16680,772 @@ queen能不能抗压还得再看，</blockquote>
 
 
 
-                     
+
+
+-----
+
+####  FCCHua  
+##### 33845#       发表于 2021-3-11 18:40
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-11 18:50 编辑 
+
+夜见单排上钻了，圆满完成任务
+
+
+
+
+
+
+
+-----
+
+####  ygysh0505  
+##### 33846#       发表于 2021-3-11 18:41
+
+
+
+
+等king哪天开始读sc和念名字感谢sc、就说明危了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33847#       发表于 2021-3-11 18:56
+
+
+
+
+看到bora击杀排第二，好强，之前的大会总有遗憾，这次希望可以夺冠，虽然之前我都毒奶了，不过这次还是奶一下bora
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33848#       发表于 2021-3-11 19:12
+
+
+
+
+看起来今晚月之要聊去下水道玩的经历了
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 33849#       发表于 2021-3-11 19:15
+
+
+
+
+管人相关，不会真休刊半年吧？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/3405b2847aa5e0d8acc2fcc083c76b9a/92913622699ca58.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33850#       发表于 2021-3-11 19:16
+
+
+
+[https://www.youtube.com/watch?v=z0yvEtl1MkM](https://www.youtube.com/watch?v=z0yvEtl1MkM)
+
+听到个声线微妙的像mio的v
+
+不知道这个相似度能比得上多少，还是我耳朵不灵。
+
+不过音域完全不是mio那个嗓子能上的所以应该不是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33851#       发表于 2021-3-11 19:17
+
+
+
+
+海盗旗このあと20時からは海盗旗
+
+
+船長のダイエットデッキが火を噴く火
+
+
+高校～正社員時代はダイエットにめちゃくちゃ興味があって、いろんなダイエットを試しました!!
+
+
+体感してみての経験談や思い出など闪片
+
+
+（何度もダイエットしてる時点で成功してない）
+
+#マリン航海記
+
+
+【待機所】
+[https://youtu.be/-ikXYMbNT38](https://youtu.be/-ikXYMbNT38)    奇妙的企划  还挺有趣的  不过这么热衷各种dieting  果然是debu吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33852#       发表于 2021-3-11 19:22
+
+
+
+
+queen不用担心的，king有能力也有必要保护好自己的女人。
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33853#       发表于 2021-3-11 19:44
+
+
+
+
+虹楼那边太有默契，都不提，有个提了的，也没人去接话，太阴虱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 33854#       发表于 2021-3-11 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50591818&amp;ptid=1969498" target="_blank">心垂万刃 发表于 2021-3-11 19:15</a>
+
+管人相关，不会真休刊半年吧？</blockquote>
+这不是典型口嗨吗，等一个直接画进漫画里
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33855#       发表于 2021-3-11 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50592088&amp;ptid=1969498" target="_blank">SteveS 发表于 2021-3-11 19:44</a>
+
+虹楼那边太有默契，都不提，有个提了的，也没人去接话，太阴虱了</blockquote>
+也只有杏仁会讨论这个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 33856#       发表于 2021-3-11 21:44
+
+
+
+
+一天盖了这么多楼，结果就king的事，只能说楼友抓着一只羊薅冲kpi的样子，真的有上上...上个版本V综的味道
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33857#       发表于 2021-3-11 22:09
+
+
+
+
+郡郡升入白金三，不过我没在看啦，
+还是月之花样装酱油、探索下水道的小故事有趣<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33858#       发表于 2021-3-11 22:18
+
+
+
+
+ssn今天不太行的感觉
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33859#       发表于 2021-3-11 22:47
+
+
+
+ 本帖最后由 十四洲 于 2021-3-11 23:01 编辑 
+
+我这毒奶没这么见效吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">mondo今天真离谱
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33860#       发表于 2021-3-11 23:03
+
+
+
+
+月之的行动力让我害怕（在人身安全方面），
+在上次前世咨询得知自己是神职人员之后就决定去神殿，但人在日本，就被建议去了东京地下神殿（建了14年的下水道），
+从行程来看，基本是来到了荒地（假面骑士系列曾在此拍摄）下矿，还要锁着链子下去…
+又玩了找宝物app，这回的提示是去某地念像勇者斗恶龙的咒语一样的话，被溜去了神社，三次在错误的窗口念咒语觉得羞耻得想死后（结合时事，相当于分别在德克士，汉堡王，麦当劳大喊相遇尽享美味，对面满脸困惑那样的感觉）被大妈带去了正确地点，感动流泪
+月之小小的感觉很容易被撞伤啥的……但是确实很有趣…惹…
+
+看了EVA。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33861#       发表于 2021-3-11 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mondo无双到评论对cr 规则产生异议了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33862#       发表于 2021-3-11 23:47
+
+
+
+
+不得不说 彩虹抽到bora 有点大赚
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33863#       发表于 2021-3-12 00:09
+
+
+
+
+bora yyds
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33864#       发表于 2021-3-12 00:11
+
+
+
+
+大小cpt冲起来根本拦不住
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33865#       发表于 2021-3-12 00:15
+
+
+
+
+结论来说 超不超分都不重要 你看bora那队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 33866#       发表于 2021-3-12 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">于是日语不自由和女性为什么要扣分呢
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33867#       发表于 2021-3-12 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50594867&amp;ptid=1969498" target="_blank">死体残留 发表于 2021-3-12 00:16</a>
+
+于是日语不自由和女性为什么要扣分呢</blockquote>
+日语不自由这个不评论 但就女性来说 除了bora外 你觉得女性比男性强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33868#       发表于 2021-3-12 00:23
+
+
+
+
+日语不自由影响还是蛮大的
+
+除非你纯韩语队
+
+美夜子就有好几次理解不了cpt的意思导致的失误
+
+cpt也只能用简单的日语混杂英语指挥
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33869#       发表于 2021-3-12 00:24
+
+
+
+ 本帖最后由 十四洲 于 2021-3-12 00:27 编辑 
+<blockquote>Suzutsuki 发表于 2021-3-12 00:18
+日语不自由这个不评论 但就女性来说 除了bora外 你觉得女性比男性强吗 ...</blockquote>
+电竞不该同段位比吗😅bora不比黑黑强？还有几位女大师呢，noah Qu hatsume不强吗
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33870#       发表于 2021-3-12 00:29
+
+
+
+ 本帖最后由 Suzutsuki 于 2021-3-12 00:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50594979&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-3-12 00:24</a>
+
+电竞不该同段位比吗😅bora不比黑黑强？还有几位女大师呢，noah Qu hatsume不强吗 ...</blockquote>
+我还以为我不说你们也能理解成同段位比的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后按大师来看 noah Qu hatsume你觉得有白雪强吗
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33871#       发表于 2021-3-12 00:30
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-12 00:32 编辑 
+
+OJJ给的减分理由是“因为女孩子可爱”
+
+
+其实也算是一种对vtuber的优待
+
+毕竟要借v的人气，V又是女性占多数的圈子
+
+如果男女同段同分，你选葛叶还是选釜山
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33872#       发表于 2021-3-12 00:31
+
+
+
+
+还是女性基数少吧显得男性比较强吧
+
+
+电竞这种又不算重体力 硬要求也就是反应力 别的都能练
+
+
+反应力跟性别也没啥相关性吧
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33873#       发表于 2021-3-12 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50594979&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-3-12 00:24</a>
+
+电竞不该同段位比吗😅bora不比黑黑强？还有几位女大师呢，noah Qu hatsume不强吗 ...</blockquote>
+Bora是大师段，黑黑不要来碰瓷（）
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33874#       发表于 2021-3-12 00:33
+
+
+
+<blockquote>Suzutsuki 发表于 2021-3-12 00:29
+我还以为我不说你们也能理解成同段位比的</blockquote>
+既然是同段位比，女性-2等于减掉一个段位的分这合理吗，也没见其他比赛搞这个花里胡哨的规则
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33875#       发表于 2021-3-12 00:35
+
+
+
+
+我只想cr杯赶紧结束......<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33876#       发表于 2021-3-12 00:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> CR杯结束又有别的apex比赛啊，没有apex，bora还剩什么？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33877#       发表于 2021-3-12 00:39
+
+
+
+ 本帖最后由 winda 于 2021-3-12 00:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是ojiji独断的特典啊，强制男女组队+女性选手福利，毕竟物依稀为贵，女大师选手都是稀有资源。
+另外想cpt,ras,selly,mondo这些分数14，18的选手，不活用女性减分，那就要像mondo那样找伪白银分数诈欺选手了。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33878#       发表于 2021-3-12 00:40
+
+
+
+
+cr结束了最协，最协结束了cr
+
+别想了，除非apex在日本退潮
+
+不然这个节奏不会断的
+
+不是虹爱玩apex，是小鬼子爱玩
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33879#       发表于 2021-3-12 00:40
+
+
+
+ 本帖最后由 Suzutsuki 于 2021-3-12 00:42 编辑 
+
+还是因为cr杯的大部分男性都是大师或者猎杀 钻石男基数太少了 不好比较<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那换个问题你们觉得黑黑和小千 狱卒 小熊猫比如何 另外虽然我这个铂金仔说这个可能有点搞笑 但大师男我就是觉得比大师女强 胡桃还稍微好一点 hatsume是真的不太行
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33880#       发表于 2021-3-12 00:43
+
+
+
+
+专打a派的男性主播没上大师猎杀会有人看吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33881#       发表于 2021-3-12 00:43
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-12 00:45 编辑 
+
+我说的是这次cr杯，因为这次有的规则是挺那啥的，虽然管人apex比赛目前就cr，最协轮流转
+个人而言观看最协的乐趣程度比cr好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+希望下次最协找个会算数的来
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33882#       发表于 2021-3-12 00:47
+
+
+
+
+最协是管人比赛啊，cr管人只是陪跑的，看起来完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33883#       发表于 2021-3-12 00:49
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-12 00:55 编辑 
+
+是啊，但是cr又不能完全不看，因为好多想看的管人参加了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+话说回来这次cr让我最惊喜的反而是美夜子，支援做的真到位
+syl 没有猎杀组队真的会很折磨，如果再参加cr杯kck各自找队伍吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33884#       发表于 2021-3-12 00:51
+
+
+
+
+给ow招个魂，我想看管人打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33885#       发表于 2021-3-12 00:52
+
+
+
+
+别的还好，kck这队是真的折磨王
+
+随便去瞄了几眼，简直地狱
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33886#       发表于 2021-3-12 00:55
+
+
+
+
+美夜子是真的强 太超出预期了 伤害虽然打不出来但是其他真的做的太好了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33887#       发表于 2021-3-12 00:58
+
+
+
+
+让ow安静的凉吧
+
+
+
+
+
+                    
