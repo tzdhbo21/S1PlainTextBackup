@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 17:06** 
+> ## **本文件最后更新于2021-03-11 03:38** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_LQd21" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_d7IBN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_s7n1O" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_Q3GVE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_G57Kk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_hCNCN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -13960,10 +13960,12 @@ gibara，gibara，gibara有缘再见啦。
 
 
 
- 参与人数 11战斗力 -4
+ 参与人数 13战斗力 -5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| nowaki| + 1|思路广|
+| ror|-2||
 | giftia| + 1|思路广|
 | gogomw|-1|基德|
 | The_Ether_|-2||
@@ -14487,4 +14489,740 @@ niru，永远的神！
 
 
 
-                         
+
+
+-----
+
+####  稀勢のささ  
+##### 33724#       发表于 2021-3-11 01:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">听说毕业了到处翻了翻结果连个写怪文书的都找不到 看来想让王侯发疯得是先复活一次
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33725#       发表于 2021-3-11 01:21
+
+
+
+[https://www.goodsmile.info/zh/product/10895/%E9%BB%8F%E5%9C%9F%E4%BA%BA+%E8%91%9B%E8%91%89.html](https://www.goodsmile.info/zh/product/10895/%E9%BB%8F%E5%9C%9F%E4%BA%BA+%E8%91%9B%E8%91%89.html)
+
+<strong>太狂了！</strong>
+
+出自超人氣虛擬YouTuber團體《彩虹社》，遊戲玩家吸血鬼「葛葉」化身為黏土人登場！替換用表情零件有帥氣的「普通臉」、冷酷的「淡然臉」與在直播時露出的「笑臉」。配件有在遊戲中得到冠軍時的「王冠」與FPS造型的「衝鋒槍（兩把）」。還有搭配「坐姿零件」與「遊戲機」可賞玩在玩遊戲的姿態！快來與同時開放預購的「黏土人 本間向日葵」一同帶回家吧！
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 33726#       发表于 2021-3-11 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582516&amp;ptid=1969498" target="_blank">thisisaspider 发表于 2021-3-10 23:13</a>
+虹杏还有几个半年 懂哥出来说说</blockquote>
+还剩最后半年。再过半年gura订阅就能超过始皇帝，把旧时代的废物们全部扫进垃圾桶
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33727#       发表于 2021-3-11 01:42
+
+
+
+
+king今天的踩是咋回事？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33728#       发表于 2021-3-11 01:51
+
+
+
+
+与其说是葛尊的事儿
+
+不如说是暴露了gbr隐退的原因
+
+也可能是两边一起
+
+不过两件事叠加也才1K踩
+
+对king来说连日常都算不上吧
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33729#       发表于 2021-3-11 02:03
+
+
+
+
+gbr毕业还能跟葛叶有关系的？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 33730#       发表于 2021-3-11 05:14
+
+
+
+
+什么，有新瓜？葛尊不是很早前的事了吗
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 33731#       发表于 2021-3-11 06:43
+
+
+
+ 本帖最后由 purdre 于 2021-3-11 06:46 编辑 
+
+gbr毕业和葛叶没关系，就是葛叶在之前杂谈回里面一不小心提到了gbr，详细点就是葛叶在说觉得自己能干很久，然后提到了gbr（只提了名字没提毕业的事）然后反应过来gbr自己还没公开立马道了歉，他说会cut掉提到gbr的那一段，我在他cut前看了那次杂谈回所以还记得。然后那次杂谈回的低评价率我记得当时比他fps游戏时的还低点，现在就不知道了。
+
+
+不过看他这反应估计社内的人早就知道GBR会毕业这事了。
+
+
+
+
+
+
+
+-----
+
+####  tyccc  
+##### 33732#       发表于 2021-3-11 09:05
+
+
+
+
+当然是因为葛尊啦
+
+这几天在推特上搜了下，好多捨て垢说葛尊这个事的，不少是前火畜和前黑黑贴贴人，当然也有很多乐子人在煽风点火，还看到有些火畜和贴贴人画师把号删了或者把推锁了
+
+不过葛尊这事19年就爆出来了，古参应该是不会受到影响的，新参大概有不少被打击到了吧
+
+
+说实话葛尊爱怎样怎样，最让我无语的是葛皇几乎不会限直播的人这几天突然连着会限两天，还在会限里把叶当盾，平时直播尽量避免提及叶的名字，这时候就知道拿来用了，真乐啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33733#       发表于 2021-3-11 09:27
+
+
+
+
+叶师名字竟如此金贵提不得，以后葛是king，那叶就是ykw了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33734#       发表于 2021-3-11 09:44
+
+
+
+
+为啥时不时就能看到黑黑单推互踩呢
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 33735#       发表于 2021-3-11 09:49
+
+
+
+
+话说叶师有去过葛叶家吗，葛叶我是知道去过挺多次叶师家
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33736#       发表于 2021-3-11 09:49
+
+
+
+
+毒唯和贴贴人大战什么的最好看了。
+
+
+SYL：
+
+看了一下昨天🐒最后的告知部分，确实情绪稳定，大概真的找到更想做的事情了。期待几个月之后どこかで会いましょう
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33737#       发表于 2021-3-11 10:14
+
+
+
+
+我还巴不得他们多搞几对呢，独角兽能不能去看木口和木口星啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33738#       发表于 2021-3-11 10:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别，这届cr还指望叶师的狙带一下呢
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33739#       发表于 2021-3-11 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584454&amp;ptid=1969498" target="_blank">tyccc 发表于 2021-3-11 09:05</a>
+当然是因为葛尊啦
+
+这几天在推特上搜了下，好多捨て垢说葛尊这个事的，不少是前火畜和前黑黑贴贴人，当然也 ...</blockquote>
+叶怎么就不能提了？
+前一阵叶炎上的时候葛给他说好话被你吃啦
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33740#       发表于 2021-3-11 10:29
+
+
+
+
+这届训练赛之王mybora能不能在正赛打出好成绩呢
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 33741#       发表于 2021-3-11 10:34
+
+
+
+
+gbr这种毕业之前已经摸了大半年的，淡出视线久了反而没啥感觉，还是担忧一下露露吧，1个月没播了
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33742#       发表于 2021-3-11 10:38
+
+
+
+
+坏了，露露要是也走了，19年主力军就剩3bk了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33743#       发表于 2021-3-11 10:38
+
+
+
+
+当初gbr也差不多是周年后人没了的
+这么看我露也差不多
+一起去六期吧
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 33744#       发表于 2021-3-11 10:42
+
+
+
+
+半年开始倒计时了吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33745#       发表于 2021-3-11 10:52
+
+
+
+
+剑持也……
+（偏向报道
+<img src="https://p.sda1.dev/1/eafd5f2b3610808f8d6b53635a1fed4c/IMG_CMP_243103981.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Guadalcanal  
+##### 33746#       发表于 2021-3-11 10:54
+
+
+
+
+露露这种没办法的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanerwola  
+##### 33747#       发表于 2021-3-11 10:57
+
+
+
+
+草，下巴这句是以前一个粪棉花糖的内容吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33748#       发表于 2021-3-11 10:59
+
+
+
+
+所以你虹啥时候抽卡啊，别到时候21年人数比20年还少就搞笑了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33749#       发表于 2021-3-11 11:01
+
+
+
+
+不要抽卡不要抽卡不要抽卡，可怜一下我们这些底边粉吧，再来几个ssr什么节目都没得看了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33750#       发表于 2021-3-11 11:02
+
+
+
+
+这还抽卡 这么多摸鱼的能不能多毕业几个
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33751#       发表于 2021-3-11 11:03
+
+
+
+
+抽，都可以抽，来点19下黄金三人组配置
+
+重振彩虹荣光，吾辈义不容辞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33752#       发表于 2021-3-11 11:03
+
+
+
+
+差不多稳定了再抽卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33753#       发表于 2021-3-11 11:04
+
+
+
+
+其实20年的中奖率还不错
+冥府三个，千草翡翠都算好卡（老卡复刻也算）
+kr还抽到实质本社的bora
+
+之前说再来一个女gamer来着，不过现在想想，怎么抽不到男gamer了
+黑黑也不算顶尖游戏力啊，还是被角色冲突为由全给拒了（）
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 33754#       发表于 2021-3-11 11:10
+
+
+
+
+🌈左手ark 、英灵神殿，右手apex、赛马娘。把彩虹村的温暖大家庭理念播撒在v⭕每一份土地， <img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">才不是什么狼性企业!
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33755#       发表于 2021-3-11 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还抽卡，19年的战略脸还没被打烂么。
+平成组简直是地雷原。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33756#       发表于 2021-3-11 11:14
+
+
+
+
+可是20年真有一个又能挣又狼性的虹女，不过被你虹开除了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33757#       发表于 2021-3-11 11:16
+
+
+
+
+这样吧
+六期生就gbr，lulu，金鱼，口了，再加一个女主角
+无敌了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33758#       发表于 2021-3-11 11:20
+
+
+
+
+我做梦都想看金鱼口了siosio做同事。
+但不得不说这个组合完全足够把郡踹出杏仁行列了，还是换点别的吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33759#       发表于 2021-3-11 11:23
+
+
+
+
+口了金鱼盐在杏本社刺刀见红闹出社会新闻的时候能不能让露露和gbr躲远点。
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 33760#       发表于 2021-3-11 11:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">六期生名单有一页纸了吧
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 33761#       发表于 2021-3-11 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50585909&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-11 11:16</a>
+
+这样吧
+
+六期生就gbr，lulu，金鱼，口了，再加一个女主角
+
+无敌了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌（指爆炸那种
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33762#       发表于 2021-3-11 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搁这儿养蛊呢？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33763#       发表于 2021-3-11 11:25
+
+
+
+
+说起来女主角咋样了
+在那个面向西语的箱装乖中？
+有没有啥后续情报
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 33764#       发表于 2021-3-11 11:30
+
+
+
+
+木口alt pv被橄榄了啊，虹又赢！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33765#       发表于 2021-3-11 11:30
+
+
+
+
+[https://www.youtube.com/watch?v=DlZYG2NVaqo](https://www.youtube.com/watch?v=DlZYG2NVaqo)
+
+『ホロライブ・オルタナティブ』 ティザーPV
+
+
+動画を再生できません
+
+この動画には NexTone Inc. Digital MKTG Div([https://www.nex-tone.co.jp/DM_FAQ](https://www.nex-tone.co.jp/DM_FAQ)) さんのコンテンツが含まれており、著作権上の問題で権利所有者によりブロックされています。
+
+
+
+
+田角：谷乡好兄弟够义气啊。
+
+
+
+
+
+                        
