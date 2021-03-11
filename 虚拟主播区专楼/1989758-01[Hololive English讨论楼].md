@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-07 07:58** 
+> ## **本文件最后更新于2021-03-11 09:54** 
 
 
 
@@ -2029,7 +2029,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_UL50w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_LZe37" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -3277,4 +3277,776 @@ AME: 这傻子（脱衣服）
 
 
 
-                                             
+
+
+-----
+
+####  smy20011  
+##### 122#         楼主| 发表于 2021-3-8 05:44
+
+
+
+
+Ina通关拉
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 123#         楼主| 发表于 2021-3-8 13:13
+
+
+
+
+鲨鱼读SC的时候总有些奇思妙想，比如今天问chat，你们知道舔手机屏幕会摄入多少卡路里么？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 124#       发表于 2021-3-8 17:21
+
+
+
+ 本帖最后由 wiig 于 2021-3-8 19:07 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/190618qo6lyy59n3dbgoo6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (165.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 19:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 125#       发表于 2021-3-8 19:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/190522tqopqz3sn33sod4n.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (29.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 19:05 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 126#         楼主| 发表于 2021-3-9 00:14
+
+
+
+
+这周有火鸡的holotalk和en半年纪念。时间过得真快啊。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 127#         楼主| 发表于 2021-3-9 05:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/055313lepdxryzpydx7cdd.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot 2021-03-08 13.52.54.png</strong> (36.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 05:53 上传
+
+
+
+
+
+
+
+这鲨鱼绝对知道自己转了什么东西
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 128#       发表于 2021-3-9 10:38
+
+
+
+
+大清早起来刷到这个
+
+
+
+gura会不会回应呢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 
+
+
+
+啊哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+
+会不会有小天才给剪到一起呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+
+啊哈<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 
+
+
+
+再这么下去我就要退化成批国的原子态贴贴人了，fuck<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+FAFC5AD6-70CF-4F57-9BBB-2E256950FC73.jpeg
+(281.48 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-9 10:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/103547mtuxzxeiiatxruu9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 129#       发表于 2021-3-9 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537901&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-7 10:05</a>
+
+Kiara: In Australia(wink) we only have grades 1 to 5.
+
+Gura: ??? Where's the rest of them, where's 3, ...</blockquote>
+这个特么真是笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 130#       发表于 2021-3-9 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50559381&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-9 05:53</a>
+
+这鲨鱼绝对知道自己转了什么东西</blockquote>
+ame一画出来gura就笑了
+<img src="https://p.sda1.dev/1/86e152003af8270a1afa060ea883ab29/ame.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 131#       发表于 2021-3-9 12:49
+
+
+
+<img src="https://p.sda1.dev/1/478f73546a702ab359da2071201d22eb/IMG_CMP_225365230.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 132#       发表于 2021-3-9 18:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/180750lx7xotbffc7bb4vo.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (1018.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 18:07 上传
+
+
+
+
+
+[https://twitter.com/_mamaprofennn/status/1368951586886619142](https://twitter.com/_mamaprofennn/status/1368951586886619142)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 133#       发表于 2021-3-9 23:26
+
+
+
+
+比起Calli，Reine对EN服的设施更熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 134#       发表于 2021-3-9 23:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/232749t2qtww5ej1tb7t15.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (172.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 23:27 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 135#         楼主| 发表于 2021-3-9 23:52
+
+
+
+<blockquote>wiig 发表于 2021-3-9 23:26
+比起Calli，Reine对EN服的设施更熟悉</blockquote>
+死神天天写歌的，让她上mc估计不太现实。等她创作欲平复了一点之后，估计会开始mc中毒了。
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 136#         楼主| 发表于 2021-3-9 23:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/235325mspy3myp3wyys1u9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EvyqcRnUcAMuYg0.jpeg</strong> (183.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-9 23:53 上传
+
+
+
+
+
+
+近期看到的质量最高的二创了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 137#       发表于 2021-3-10 01:18
+
+
+
+
+Good morning gawrstovzka! Can i get a hall yeaaaaaaa~?
+[https://youtu.be/qe-Gsxp9HLc?t=42](https://youtu.be/qe-Gsxp9HLc?t=42)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 138#       发表于 2021-3-10 02:26
+
+
+
+[https://twitter.com/EngVTubersOOC/status/1369026379845672961](https://twitter.com/EngVTubersOOC/status/1369026379845672961)
+
+Kiara欣赏莱莎屁股的时候被当场捉奸<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 139#       发表于 2021-3-10 03:53
+
+
+
+
+167+172<img src="https://p.sda1.dev/1/efacc4d55a3138a9e03b85317fcb4243/IMG_CMP_254279434.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 140#       发表于 2021-3-10 08:07
+
+
+
+
+https://youtu.be/Wttca-jgREg
+鲨鱼纸模
+
+<img src="https://img.saraba1st.com/forum/202103/10/080755t2w4787ft4j2qj77.jpg" referrerpolicy="no-referrer">
+
+
+<strong>68dbb296a09c6e6e.jpg</strong> (41.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 08:07 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 141#       发表于 2021-3-10 16:05
+
+
+
+
+
+Watson Amelia Ch. hololive-EN
+
+1小时前
+
+
+my internet on the go isn't that great....
+
+
+BUT GOOD ENOUGH TO STREAM(I think)
+
+so here's a light *tentative* schedule:
+
+
+3/10
+
+(8pm PST/11pm EST)
+
+-Test &amp; Donkey Kong Country 
+
+
+3/11
+
+(8pm PST/11pm EST)
+
+-Donkey Kong Country
+
+
+3/12
+
+(3pm PST/6pm EST)
+
+-6 Month Anniversary Collab in DST
+
+(10pm PST/1am EST)
+
+-Hotel ASMR
+
+
+depending on what is going on, the streams might be pushed back a bit
+
+
+no stream saturday or sunday
+
+I'll have to figure out when to do supa sunday 🤔
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 142#       发表于 2021-3-10 16:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/10/164140utix7054ityf3c4y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (63.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 16:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 143#         楼主| 发表于 2021-3-10 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50577771&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-10 16:41</a></blockquote>
+草稿这么草的么？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 144#       发表于 2021-3-11 02:10
+
+
+
+<img src="https://p.sda1.dev/1/12ff0996f4eaff455072dbfd256a42a0/IMG_CMP_206805733.jpeg" referrerpolicy="no-referrer">量产king
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 145#       发表于 2021-3-11 03:30
+
+
+
+<img src="https://p.sda1.dev/1/5b35fc44b163b0d86877f568e670e9fa/IMG_CMP_1020408.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 146#         楼主| 发表于 2021-3-11 04:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50583636&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-11 03:30</a>
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+react感觉很好玩
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 147#       发表于 2021-3-11 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50583698&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-11 04:48</a>
+react感觉很好玩</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">期待
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 148#       发表于 2021-3-11 12:58
+
+
+
+<img src="https://p.sda1.dev/1/42b8d8f8c168d288726c355e4a0152f1/IMG_CMP_161971794.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 149#       发表于 2021-3-11 16:34
+
+
+
+
+This isn't a beach... This is a bathtub 浴缸 #gawrt
+[https://twitter.com/DuDuLtv/status/1369685024396742663](https://twitter.com/DuDuLtv/status/1369685024396742663)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 150#       发表于 2021-3-11 17:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/11/171554kfxff88c7bz7fncc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (73.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-11 17:15 上传
+
+
+
+
+
+
+WAH
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 151#       发表于 2021-3-11 17:41
+
+
+
+
+飯田ぽち。/Vtuberぽちまる＠姉なるもの5巻12/26発売
+
+@lizhi3
+
+骷髅头骷髅头骷髅头　#callillust
+
+<img src="https://img.saraba1st.com/forum/202103/11/174150yffmlxojm88lfj8j.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (328.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-11 17:41 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 152#       发表于 2021-3-11 17:47
+
+
+
+
+Ame是去旅游了吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我记得之前说过要买旅行用品
+
+
+
+
+
+                                            
