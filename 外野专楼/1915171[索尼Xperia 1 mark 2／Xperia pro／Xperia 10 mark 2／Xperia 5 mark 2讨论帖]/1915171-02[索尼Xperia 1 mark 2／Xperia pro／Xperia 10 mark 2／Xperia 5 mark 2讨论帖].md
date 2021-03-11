@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-03 09:35** 
+> ## **本文件最后更新于2021-03-11 06:40** 
 
 
 
@@ -18254,4 +18254,618 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 
 
 
-                   
+
+
+-----
+
+####  zxc786  
+##### 2402#       发表于 2021-3-3 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50499456&amp;ptid=1915171" target="_blank">他言無用 发表于 2021-3-3 17:11</a>
+
+是长时间没有关机吗？之前我一个半月没关机之后某天连后台都拉不出来了，关机再开机就好了。希望对你有帮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">解决了，重启一下就复活了，不知道什么原因。
+
+
+
+
+
+
+
+-----
+
+####  zxc786  
+##### 2403#       发表于 2021-3-3 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50493320&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-3 09:24</a>
+
+是从安装了什么 App 之后开始的吗
+
+手机上装了多少程序，有多少每天会频繁弹通知
+
+试试把所有程序都加入节 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重启一下解决了。
+
+
+
+
+
+
+
+-----
+
+####  黑之月  
+##### 2404#       发表于 2021-3-3 21:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实测删除蓝牙用户数据不能解决卡顿问题...好烦啊
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2405#       发表于 2021-3-3 22:16
+
+
+
+ 本帖最后由 EFSF 于 2021-3-4 10:11 编辑 
+
+港版1 ii首选网络类型，楼里之前也说过，某个版本更新后大陆手机卡不显示5g选项了，我因为一直依靠最初选上过，一直不变更首选网络制式撑到现在保留5g选项。结果刚才手欠说看看这个问题解决没点开看一下，然后因为误触导致5g选项就这么没了。
+
+
+搜了一下也没见有人说这个问题怎么解决，有谁知道这个问题有解决方法么？
+
+
+— from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2406#         楼主| 发表于 2021-3-3 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502525&amp;ptid=1915171" target="_blank">EFSF 发表于 2021-3-3 22:16</a>
+
+港版1 ii首先网络类型，楼里之前也说过，某个版本更新后大陆手机卡不显示5g选项了，我因为一直依靠最初选上 ...</blockquote>
+拨号界面按*#*#4636#*#*，您看看能不能设置5g？
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2407#       发表于 2021-3-3 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502585&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-3 22:23</a>
+
+拨号界面按*#*#4636#*#*，您看看能不能设置5g？</blockquote>
+哦哦哦，这里面下拉有NR开头的选项，我来试试看。
+
+
+艹，我在刚才呼出来的界面选了NR开头的选项后，进设置里选移动网络就崩了
+
+
+技术的索尼，太技术了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sin.yugi  
+##### 2408#       发表于 2021-3-4 06:59
+
+
+
+
+母亲的马克兔今天升级了推送的系统升级后重启卡在android logo处，继续重启也是这样。。。求大家解答啊
+
+— from OnePlus GM1917, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2409#       发表于 2021-3-4 11:06
+
+
+
+
+昨晚在[@被雨困住的城市](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=491627) 的提示下进入手机信息界面，重新拿回了5G状态，这里说一下方法，以后大家也可以参照一下。
+
+首先说一下配置：
+
+sim1 联通手机卡，sim2 一张micro SD卡。
+
+最开始进入手机信息界面，选到NR/LTE/GSM/WCDM后，再进入设置-网络-首选网络类型后，界面就崩溃了，直接回到手机桌面或是提示应用多次崩溃，无法验证是否成功。反复了很多次，也不行。期间还重新下载了多次运营商网络设置。
+
+然后我发现在手机信息界面的最上部，有选择电话电话号码索引。我目前的电话号码是被标注为Phone0，然后又下拉标志还有Phone1。我尝试性地将号码选择为Phone1，显示号码为未知，在显示有数据流量后（我开着wifi），去设置-网络-首选网络类型看了看，能正常进入，并且显示5G NR/LTE/GSM/WCDM，然后我切回手机信息界面，选择Phone0，再回去也正常了。
+
+
+当然这跟我之前一样，只是显示我目前选择的是5G NR/LTE/GSM/WCDM，打开选项是没有这个选项的。不过好歹能把这个首选网络制式找回来。
+
+
+
+
+
+
+
+-----
+
+####  藤原亮政  
+##### 2410#       发表于 2021-3-5 19:28
+
+
+
+ 本帖最后由 藤原亮政 于 2021-3-5 19:29 编辑 
+
+<[img src="https://s3.ax1x.com/2021/03/05/6msGUx.jpg" referrerpolicy="no-referrer">
+<[img src="https://s3.ax1x.com/2021/03/05/6msJ56.png" referrerpolicy="no-referrer">
+
+
+我真是服了這索尼了
+
+港版到底甚麼時候更新
+
+分數有時多跑幾次會正常一點(多核能上3000,單核8xx)
+
+但同樣865,同樣是Android11,還是比IQOO NEO3要低
+
+只能希望快點修復
+
+
+
+
+
+
+
+-----
+
+####  ドロロ  
+##### 2411#       发表于 2021-3-5 22:59
+
+
+
+
+**咧，怎摸解决微信视频美颜啊
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2412#       发表于 2021-3-5 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50524408&amp;ptid=1915171" target="_blank">藤原亮政 发表于 2021-3-5 19:28</a>
+我真是服了這索尼了
+
+港版到底甚麼時候更新
+
+分數有時多跑幾次會正常一點(多核能上3000,單核8xx)</blockquote>
+港版难民握个手
+
+谢谢翔移帮我戒游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，现在午休时间都不玩了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2413#       发表于 2021-3-6 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504391&amp;ptid=1915171" target="_blank">sin.yugi 发表于 2021-3-4 06:59</a>
+
+母亲的马克兔今天升级了推送的系统升级后重启卡在android logo处，继续重启也是这样。。。求大家解答啊
+
+
+— ...</blockquote>
+是不是之前开了谷歌服务？
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2414#       发表于 2021-3-6 20:36
+
+
+
+<blockquote>我很费纸 发表于 2021-3-5 23:11
+港版难民握个手
+
+
+谢谢翔移帮我戒游戏了，现在午休时间都不玩了</blockquote>
+索尼这次更新简直了，各种受害者，口碑爆炸，m3 还想不想卖了
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2415#       发表于 2021-3-6 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50534423&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-6 20:36</a>
+索尼这次更新简直了，各种受害者，口碑爆炸，m3 还想不想卖了</blockquote>
+我是打算跳过888的M3了，只求快点解决M2的bug完事了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  维阿  
+##### 2416#       发表于 2021-3-6 22:23
+
+
+
+
+爬完了楼层 已经不买想买sony了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aazau  
+##### 2417#       发表于 2021-3-6 22:29
+
+
+
+
+不想买+1
+
+
+
+
+
+
+
+-----
+
+####  zhongjie  
+##### 2418#       发表于 2021-3-6 23:15
+
+
+
+
+看完楼，很庆幸没买索尼而是买了三星
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 2419#       发表于 2021-3-6 23:41
+
+
+
+
+所以没事不要更新，一点问题没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  SFFYLTL  
+##### 2420#       发表于 2021-3-6 23:54
+
+
+
+
+把xperia当成xbox看待就好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lbzlxx  
+##### 2421#       发表于 2021-3-10 16:58
+
+
+
+ 本帖最后由 lbzlxx 于 2021-3-10 17:01 编辑 
+
+mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏幕脱胶了，撑不住了
+
+
+而且神奇的是1已经比5便宜了，都是48xx，咸鱼还是4100左右，
+
+
+
+
+
+
+
+-----
+
+####  他言無用  
+##### 2422#       发表于 2021-3-10 17:20
+
+
+
+
+脑子一抽买了官网那个199的壳，现在陷入了思考……膜大家都是用的哪家呢？
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2423#       发表于 2021-3-10 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50534423&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-6 20:36</a>
+
+索尼这次更新简直了，各种受害者，口碑爆炸，m3 还想不想卖了</blockquote>
+我这次果断入国行简直再明智不过。
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2424#       发表于 2021-3-10 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50578357&amp;ptid=1915171" target="_blank">他言無用 发表于 2021-3-10 17:20</a>
+
+脑子一抽买了官网那个199的壳，现在陷入了思考……膜大家都是用的哪家呢？ ...</blockquote>
+官壳除了厚点都挺不错的，不过闲鱼应该只要一百出头。膜用小小鱼雷一百块的，值
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2425#       发表于 2021-3-10 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50578357&amp;ptid=1915171" target="_blank">他言無用 发表于 2021-3-10 17:20</a>
+脑子一抽买了官网那个199的壳，现在陷入了思考……膜大家都是用的哪家呢？ ...</blockquote>
+裸奔很多年了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Vicarious  
+##### 2426#       发表于 2021-3-10 20:42
+
+
+
+
+目前在纠结x1.ii，note20u
+
+还是手里的S10再凑合一年
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+有老哥给个建议吗
+
+888我是真的下不去手
+870的机子基本也没有2K的好屏
+
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  zhongjie  
+##### 2427#       发表于 2021-3-10 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580781&amp;ptid=1915171" target="_blank">Vicarious 发表于 2021-3-10 20:42</a>
+目前在纠结x1.ii，note20u
+
+还是手里的S10再凑合一年</blockquote>
+推荐s10再凑合一年，855能用很久了。
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2428#       发表于 2021-3-11 09:28
+
+
+
+
+悲报<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+国行马克兔开关机键连带指纹解锁彻底失灵<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+还好我有先见之明把屏幕锁定解除了，现在亮屏只能利用相机键打开相机再呼出多任务关闭相机，想闭屏只能等待15秒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2429#       发表于 2021-3-11 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584707&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-3-11 09:28</a>
+
+悲报
+
+
+国行马克兔开关机键连带指纹解锁彻底失灵</blockquote>
+这不赶紧找售后 买国行不就为了这一刻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+熄屏可以用这楼后面推荐的应付[https://bbs.saraba1st.com/2b/thread-1954049-1-1.html](https://bbs.saraba1st.com/2b/thread-1954049-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2430#       发表于 2021-3-11 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50585229&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-11 10:14</a>
+
+这不赶紧找售后 买国行不就为了这一刻
+
+
+熄屏可以用这楼后面推荐的应付https://bbs.saraba1st.com/ ...</blockquote>
+我们市唯一一家售后在我买完马克兔后就撤柜了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+跑躺售后的话好麻烦啊，如果返厂还要涉及备机的问题<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+我是没想到阿索家的机器品控问题会出在我头上<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2431#         楼主| 发表于 2021-3-11 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50586667&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-03-11 12:12:57</a>
+我们市唯一一家售后在我买完马克兔后就撤柜了</blockquote>您是哪里啊，一个省应该有几个服务站点吧
+
+这里可以查站点
+[https://service.sony.com.cn/service_station/mobile/index.htm](https://service.sony.com.cn/service_station/mobile/index.htm)
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                  

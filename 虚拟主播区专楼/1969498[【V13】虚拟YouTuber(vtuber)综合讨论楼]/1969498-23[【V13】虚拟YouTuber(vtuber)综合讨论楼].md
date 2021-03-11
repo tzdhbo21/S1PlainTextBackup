@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 03:38** 
+> ## **本文件最后更新于2021-03-11 06:44** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_Q3GVE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_G57Kk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_hCNCN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_uTwo8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_B8jE5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_Wn5O8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -14775,6 +14775,25 @@ SYL：
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tyccc| + 1|当然记得，那次直播我看了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15225,4 +15244,606 @@ kr还抽到实质本社的bora
 
 
 
-                        
+
+
+-----
+
+####  雪风utopia  
+##### 33766#       发表于 2021-3-11 11:41
+
+
+
+
+女主角后续?最近一次就是打apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 33767#       发表于 2021-3-11 11:56
+
+
+
+
+露露那眼睛情况，再直播真就恶魔变恶魔猎手了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33768#       发表于 2021-3-11 12:00
+
+
+
+
+抽卡和淘汰底边又不冲突，别说彩虹有胆子放跑gbr没胆子抽卡。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 33769#       发表于 2021-3-11 12:10
+
+
+
+
+不是，黑黑单推跟贴贴人打架不是很正常，参考六字母啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 33770#       发表于 2021-3-11 12:14
+
+
+
+
+gbr合同到期直接退不算放跑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽卡我看不如卖谷赚钱
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33771#       发表于 2021-3-11 12:20
+
+
+
+
+那叫放跑吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 33772#       发表于 2021-3-11 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50586467&amp;ptid=1969498" target="_blank">曜不能停 发表于 2021-3-11 11:56</a>
+露露那眼睛情况，再直播真就恶魔变恶魔猎手了</blockquote>
+嗯？露露眼镜咋了？
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 33773#       发表于 2021-3-11 12:21
+
+
+
+
+女主角啊，“突发性听觉障碍，养病到15号”
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33774#       发表于 2021-3-11 12:33
+
+
+
+ 本帖最后由 NBXX 于 2021-3-11 12:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50586763&amp;ptid=1969498" target="_blank">Junchoon 发表于 2021-3-11 12:20</a>
+
+嗯？露露眼镜咋了？</blockquote>
+青光眼 
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33775#       发表于 2021-3-11 12:41
+
+
+
+
+不得不说 现在打麻将的女v 有点太拉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+效果好的菜 不菜的没效果
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33776#       发表于 2021-3-11 12:49
+
+
+
+
+金鱼，我的金鱼，你要是不这样会不会成为20年一姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算了，还是真人大奶奶舒服
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 33777#       发表于 2021-3-11 12:53
+
+
+
+
+彩虹能不能开了一帮订阅底边又摸鱼怪的再抽卡
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33778#       发表于 2021-3-11 13:09
+
+
+
+
+在此祝愿大家早日入主cover和ickr，亲手组建喜欢的偶像组合，挑选合适的练习生，为他们搭配最耀眼的舞台装扮，演出会开遍世界，让他们成为最炙手可热的完美组合！
+
+
+
+
+
+
+
+-----
+
+####  Junchoon  
+##### 33779#       发表于 2021-3-11 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50586924&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-3-11 12:33</a>
+青光眼</blockquote>
+好吧……我还再想她怎么不玩魔界村了……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33780#       发表于 2021-3-11 13:17
+
+
+
+
+葛葉
+
+@Vamp_Kuzu
+
+·
+
+54m
+
+先日の配信で御伽原さんの卒業についての発言をしてしまいました。
+
+ 多大なるご迷惑をおかけしてしまい、大変申し訳ありませんでした
+
+ 相手方には直接謝罪させていただきました。
+
+ 今後はこのような発言がないように気を付けます。すみませんでした
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33781#       发表于 2021-3-11 13:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33782#       发表于 2021-3-11 13:19
+
+
+
+
+卡页了没法编辑bsyl：
+
+
+地下恋绯闻曝光就转火离职同事背锅是吧king你好狠毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 33783#       发表于 2021-3-11 13:19
+
+
+
+<blockquote>rzrbtk 发表于 2021-3-11 13:09
+在此祝愿大家早日入主cover和ickr，亲手组建喜欢的偶像组合，挑选合适的练习生，为他们搭配最耀眼的舞台装 ...</blockquote>
+明天起你就是彩虹杨超越！
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33784#       发表于 2021-3-11 13:22
+
+
+
+
+因为明面上的不满是gbr事件啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33785#       发表于 2021-3-11 13:26
+
+
+
+
+现在被炎不就两部分，葛尊曝光和江良毕业泄露，前面那个再看看风，后面这个直接道歉就行了，倒是king会怎么处理前面那个真的很好奇…
+省一楼，郡道之后要搞个企划，目前从内容看可以说是对t台宣誓效忠了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+#twitcasting最好的平台
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33786#       发表于 2021-3-11 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587566&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-11 13:26</a>
+现在被炎不就两部分，葛尊曝光和江良毕业泄露，前面那个再看看风，后面这个直接道歉就行了，倒是king会怎么 ...</blockquote>
+还能咋处理啊，大不了2434公关部出动呗，king是不会主动说话的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33787#       发表于 2021-3-11 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587586&amp;ptid=1969498" target="_blank">ヒトニナル 发表于 2021-3-11 13:28</a>
+还能咋处理啊，大不了2434公关部出动呗，king是不会主动说话的</blockquote>
+不说话也是一种处理，如果这样下去点踩不到千，king位保持，还要处理啥，
+应该没有人觉得这次搞完一哥换人皇权异位吧，目前来看的结果可能是单推更恨相方并觉得“还好我饭的XXX没有这事❤️”这样咯
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33788#       发表于 2021-3-11 13:36
+
+
+
+
+king这招转移话题所有人都该学学。
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33789#       发表于 2021-3-11 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587362&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-11 13:09</a>
+在此祝愿大家早日入主cover和ickr，亲手组建喜欢的偶像组合，挑选合适的练习生，为他们搭配最耀眼的舞台装 ...</blockquote>
+啥时候郡道能魂天啊 我想看她猜牌调戏多井
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33790#       发表于 2021-3-11 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 目前看来只有一种可能性了，心碎火畜越想越气，直接带队冲了尊直播间，
+
+
+尊受不了网暴停播，ichikara也无作为，最终导致king的暴怒，暴言狂怒之下逼宫ichikara，
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33791#       发表于 2021-3-11 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587805&amp;ptid=1969498" target="_blank">flyskywalker92 发表于 2021-3-11 13:47</a>
+啥时候郡道能魂天啊 我想看她猜牌调戏多井</blockquote>
+嗯…大概要郡道中人毕业，留皮换个麻将pro来吧，我感觉
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33792#       发表于 2021-3-11 13:54
+
+
+
+
+麦克白    即使我亲手把他打倒，也必须假意为他的死亡悲泣；所以我只好借重你们两人的助力，为了许多重要的理由，把这件事情遮过一般人的眼睛。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33793#       发表于 2021-3-11 13:55
+
+
+
+
+月撇现在因为马娘直播中失言在小范围炎上呢，2000怎么不发散一下的
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33794#       发表于 2021-3-11 14:05
+
+
+
+
+不也挺好的 带明星老婆给你播asmr 横竖不亏
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 33795#       发表于 2021-3-11 14:17
+
+
+
+
+尊真被冲的停播了就可以好好持家，这不是好事么
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33796#       发表于 2021-3-11 14:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587362&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-11 13:09</a>
+在此祝愿大家早日入主cover和ickr，亲手组建喜欢的偶像组合，挑选合适的练习生，为他们搭配最耀眼的舞台装 ...</blockquote>
+这样说突然感觉可以出个管人运营手游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33797#       发表于 2021-3-11 14:32
+
+
+
+
+真出了运营手游，能有星云哥这种路线吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现实远比虚拟精彩
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33798#       发表于 2021-3-11 14:34
+
+
+
+
+尊的收入也不低吧
+
+就这么想要king的孩子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 33799#       发表于 2021-3-11 14:35
+
+
+
+
+你们日本人都是这么虚伪的么，前有对着魔乃的live2d情报泄露非常愤怒，后有对king把同事极密引退情报泄露的痛心疾首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 33800#       发表于 2021-3-11 14:44
+
+
+
+
+尊和king的孩子 继承了父亲的直播天赋 母亲动人的嗓音妖娆的舞姿 身高在中和一下 不是分分钟橄榄v圈<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                       
