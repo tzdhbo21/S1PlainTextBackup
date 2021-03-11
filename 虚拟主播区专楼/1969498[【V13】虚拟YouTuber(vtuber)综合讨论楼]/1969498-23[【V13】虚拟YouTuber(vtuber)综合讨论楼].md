@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 07:33** 
+> ## **本文件最后更新于2021-03-11 10:40** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_qFCMU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_jfjvM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_zH88E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_ULz6b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_aO836" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_F3zCD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -16195,6 +16195,470 @@ kmm的gachi很多吗？至少葛叶的gachi和贴贴人应该不少吧...
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                      
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1|这就是郡gachi吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33820#       发表于 2021-3-11 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">king咒马骨折，喷anti脸恶心，教传书鸽做人，帮叶师担火，甚至是古早阴湿大战都没这次狼狈，这就是英雄难过美人关么。
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 33821#       发表于 2021-3-11 15:39
+
+
+
+
+我觉得还是人设崩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">和汉谟拉比法典一个性质
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33822#       发表于 2021-3-11 15:50
+
+
+
+
+这么狼狈晚上有尊妈安慰，不亏
+特别是这次从面上看还是尊妈这边暴露的
+干脆公布婚讯吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33823#       发表于 2021-3-11 15:53
+
+
+
+
+什么！装成社恐，和女孩子说话都不利索避火拉满的家里蹲宅男却有可爱女朋友
+麻将脸吃柠檬.jpg
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33824#       发表于 2021-3-11 15:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">彩虹火的不都是这种
+
+阳角装阴角 现充装死宅
+
+不过也没多少人乐意看个真阴角死宅罢了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 33825#       发表于 2021-3-11 15:56
+
+
+
+
+主要葛尊比较现实，就有种三次元常有的嚣张小男友和撒娇小女友的年轻cp的感觉。你看换了葛千，那就是青春伤痛文学男女主，大家肯定更能接受的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33826#       发表于 2021-3-11 16:02
+
+
+
+
+下午脑子不清楚看到葛千第一时间想到的是yqqx，我还在想要是这位那乐子可大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33827#       发表于 2021-3-11 16:26
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-11 16:50 编辑 
+
+火畜跟yqqx没那么大仇的，相对平和一点
+叶千才是真的炸
+
+葛千可能是虹楼唯一公开讨论过的葛叶邪道cp，特别是发信源头还是5ch
+葛樱那种谁都知道是营业的就不提了
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 33828#       发表于 2021-3-11 16:40
+
+
+
+
+这个千是久远千岁不是勇气千寻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 33829#       发表于 2021-3-11 16:51
+
+
+
+ 本帖最后由 nowaki 于 2021-3-11 16:55 编辑 
+
+兔皇订阅被king超了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 33830#       发表于 2021-3-11 16:52
+
+
+
+
+我还以为是西园千草
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33831#       发表于 2021-3-11 16:52
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-11 17:01 编辑 
+
+之前就超过了，然后又反超，总觉得最近会反反复复，前提是兔头会播
+syl 可放过小千吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+zsyl 昨天特地去看了看那个🐷的推特，发现尊妈真的点了太多技能点
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 33832#       发表于 2021-3-11 16:56
+
+
+
+
+有没有鬼子反应repo，自推傍上了全日本最好的男人应该很高兴吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33833#       发表于 2021-3-11 16:58
+
+
+
+
+king一天2000，兔头几天1000，正常来说能挣扎也就今明两天了。不过🌈官网顺序没换就都不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33834#       发表于 2021-3-11 16:58
+
+
+
+
+葛朝只要能把统合gamers这一件事做好就足够了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33835#       发表于 2021-3-11 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还统合，KING这一暴露，目测短时间内都不会在社内随便联动了，
+
+
+本来就不仲的gamers，以后联动更谨慎了，支离破碎的gamers再也没有机会团结在一起，
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 33836#       发表于 2021-3-11 17:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/11/175419qpzff7gzxtxtcxff.png" referrerpolicy="no-referrer">
+
+
+<strong>BBB.png</strong> (29.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-11 17:54 上传
+
+
+
+
+
+
+看了眼还不是反串，好吓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 33837#       发表于 2021-3-11 17:59
+
+
+
+ 本帖最后由 真飞鸟i 于 2021-3-11 18:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9号开始apex同接就开始下降了，最近三次都不太高，是不是事件影响有待观察。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33838#       发表于 2021-3-11 18:01
+
+
+
+
+别尬黑，king一直差不多这个数
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 33839#       发表于 2021-3-11 18:09
+
+
+
+
+同接不能当饭吃，还是得看看收入掉了多少
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 33840#       发表于 2021-3-11 18:10
+
+
+
+ 本帖最后由 aptx318 于 2021-3-11 18:11 编辑 
+
+这月上3万都是练习赛。apex同接还是和进决赛圈关系更大，比较明显的分界线其实是上个月上钻。上了钻以后他C不动落地死变多路人就留不住。打枪民感觉是不会对同居啥的有多在意，SC下滑才是真的
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33841#       发表于 2021-3-11 18:10
+
+
+
+
+为何郡道每次拍食物照（无论生熟）都像厨余
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33842#       发表于 2021-3-11 18:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> king的抗压能力毋庸置疑，
+
+
+queen能不能抗压还得再看，
+
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 33843#       发表于 2021-3-11 18:33
+
+
+
+<blockquote>rzrbtk 发表于 2021-3-11 18:10
+为何郡道每次拍食物照（无论生熟）都像厨余</blockquote>
+吃进肚子里都一样
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33844#       发表于 2021-3-11 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50591225&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-11 18:15</a>
+king的抗压能力毋庸置疑，
+
+
+queen能不能抗压还得再看，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 嘴下留情 我还想看船尊联动的
+
+而且solo角度尊妈的跳舞也是在整个管人界角度值得一看的节目
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                     
