@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 10:38** 
+> ## **本文件最后更新于2021-03-11 02:07** 
 
 
 
@@ -2470,16 +2470,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ####  FBIwarning  
 ##### 54136#       发表于 2020-12-30 19:34
 
-
-
-
-这事比海贼王剧情有趣多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2819,16 +2810,7 @@ SBS那张是26卷，02年出的单行本
 ####  FBIwarning  
 ##### 54154#       发表于 2021-1-1 07:38
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905814&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2021-1-1 06:48</a>
-
-尾田画的这都认不出来了…</blockquote>
-这干嘛画眼袋啊 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3186,16 +3168,7 @@ DB不一样，反正就是拳拳 ...</blockquote>
 ####  FBIwarning  
 ##### 54172#       发表于 2021-1-3 05:10
 
-
-
-
-现在路飞其实是气球能力者吧 橡胶的特性还有什么表现吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6656,27 +6629,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ####  FBIwarning  
 ##### 54351#       发表于 2021-2-4 14:35
 
-
-
-
-<img src="https://img.saraba1st.com/forum/202102/04/143516smhbt78tbjbj84um.jpg" referrerpolicy="no-referrer">
-
-
-<strong>1612418922627s.jpg</strong> (8.49 KB, 下载次数: 0)
-
-下载附件
-
-2021-2-4 14:35 上传
-
-
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9583,27 +9536,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ####  FBIwarning  
 ##### 54507#       发表于 2021-2-27 16:25
 
-
-
-
-山治完全可以很硬气地叫罗宾来帮忙 哪用这一把鼻涕一把泪的
-
-<img src="https://img.saraba1st.com/forum/202102/27/162532dxaxphwdcan53o5z.jpg" referrerpolicy="no-referrer">
-
-
-<strong>sanji.jpg</strong> (31.17 KB, 下载次数: 0)
-
-下载附件
-
-2021-2-27 16:25 上传
-
-
-
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11515,4 +11448,336 @@ queen那么菜的吗</blockquote>
 
 
 
-                             
+
+
+-----
+
+####  kilkilo  
+##### 54614#       发表于 2021-3-10 18:38
+
+
+
+
+感觉是假的，或者类似火影四代的暂时出场，不然之前什么复国的悲愿，一直以来建立在御田死之上的渲染不就全部木大了吗
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 54615#       发表于 2021-3-10 18:57
+
+
+
+
+凯多！快来看，是你的御田哥哥
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  SteinLee  
+##### 54616#       发表于 2021-3-10 19:24
+
+
+
+
+哈哈哈哈估计是wt圆坑，说羽田是穿越到未来看到朋友们这么惨，所以选择不抵抗，真是个爱民如子的圣人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  七十七  
+##### 54617#       发表于 2021-3-10 19:39
+
+
+
+
+尾田来这一手，如果圆好了还能扭转和之国和御田之前糟糕剧情，如果圆不好彻底就不行了
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 54618#       发表于 2021-3-10 19:45
+
+
+
+
+百分之九十九是牛鬼丸变得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jxzeroga0  
+##### 54619#       发表于 2021-3-10 19:53
+
+
+
+
+笑出声，御田哥哥霸气登场，五皇该退位专心打辅助了
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 54620#       发表于 2021-3-10 21:12
+
+
+
+
+吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 54621#       发表于 2021-3-10 21:15
+
+
+
+
+哈哈哈，凯多还不速速跪下投降
+
+
+
+
+
+
+
+-----
+
+####  proselyte  
+##### 54622#       发表于 2021-3-10 21:33
+
+
+
+
+尾田真有你的
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54623#       发表于 2021-3-10 21:53
+
+
+
+
+难怪凯多没被海军杀掉，原来拿去当实验品了
+
+
+人造果实的事：
+
+
+贝加庞克在凯多被海军抓获期间深入地研究了他的血统因子，并以此研发出人工恶魔果实
+
+
+政府要贝加庞克交出果实，贝以都是失败品为由拒绝。于是保留至今直到路飞引爆此事。不过也幸好是失败品，CP0安心了。
+
+
+
+
+
+
+
+-----
+
+####  拉萨乌姆  
+##### 54624#       发表于 2021-3-10 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞半天就一小白鼠嘛……
+
+
+
+
+
+
+
+-----
+
+####  luoyianwu  
+##### 54625#       发表于 2021-3-10 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 54626#       发表于 2021-3-11 00:24
+
+
+
+
+就算是假的也够恶心了，WT真觉得读者和书里的人一样喜欢这角色？？？
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 54627#       发表于 2021-3-11 00:51
+
+
+
+
+微博海粉也开始巨人粉化“编同人”了。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54628#       发表于 2021-3-11 02:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的也好假的也罢，反正已经完成御田堂堂登场了
+
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 54629#       发表于 2021-3-11 04:44
+
+
+
+
+应该不是真货，真货也太傻逼了
+
+
+
+
+
+
+
+-----
+
+####  晴岚  
+##### 54630#       发表于 2021-3-11 06:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">one piece 草帽小子篇完结,御田篇连载开始
+
+
+
+
+
+
+
+-----
+
+####  海克托尔  
+##### 54631#       发表于 2021-3-11 07:31
+
+
+
+
+御田篇刚开始时我也想过御田没死的可能，但是回忆部分之后我只想请他一边凉快去啊……
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 54632#       发表于 2021-3-11 09:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50581605&amp;ptid=98922" target="_blank">tyauto 发表于 2021-3-10 21:53</a>
+难怪凯多没被海军杀掉，原来拿去当实验品了
+
+
+人造果实的事：</blockquote>
+桃之助吃的就是，所以你也是龙
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 54633#       发表于 2021-3-11 09:51
+
+
+
+
+不管真假都很傻的展开
+
+
+
+
+
+                            
