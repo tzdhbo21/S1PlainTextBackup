@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 14:37** 
+> ## **本文件最后更新于2021-03-12 10:39** 
 
 
 
@@ -4248,4 +4248,519 @@ syl 看来的确不太会唱hhhhh<img src="https://static.saraba1st.com/image/sm
 
 
 
-                                         
+
+
+-----
+
+####  Mikumiku831  
+##### 10744#       发表于 2021-3-11 22:52
+
+
+
+
+死肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10745#       发表于 2021-3-11 23:14
+
+
+
+
+日本只剩牛肉盖饭吃了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10746#       发表于 2021-3-11 23:21
+
+
+
+
+我的羊，你必肥<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10747#       发表于 2021-3-12 00:16
+
+
+
+
+肥羊不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10748#       发表于 2021-3-12 00:35
+
+
+
+
+软fufu肉肉的羊蹄子suki<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10749#       发表于 2021-3-12 11:21
+
+
+
+
+烤羊蹄，烤羊排<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">好饿....
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10750#       发表于 2021-3-12 11:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">羊油肥皂
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 10751#       发表于 2021-3-12 11:56
+
+
+
+
+羊脂球
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| llconforever| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10752#       发表于 2021-3-12 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有新人?
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10753#       发表于 2021-3-12 13:20
+
+
+
+
+tc突击
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10754#       发表于 2021-3-12 13:22
+
+
+
+
+刚准备睡午觉呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 10755#       发表于 2021-3-12 13:28
+
+
+
+
+肥音suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10756#       发表于 2021-3-12 14:07
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-12 14:29 编辑 
+
+这人，EVA属于那种没看过但是知道点人物的，朗枪也知道的样子，但是实际上除了明日香那句笨蛋以外啥都不知道，你对她剧透自称也是你说了也不太懂那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 别尬黑，小麻只是最近在重温守护甜心而已，然后现在扯了快十分钟的什么BISH的D子，后面不知道说的什么鬼组合。甚至还看到了长得像是她朋友的草，回复观众朋友问的这不是个美人吗，迫真桥本环奈是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10757#       发表于 2021-3-12 14:17
+
+
+
+
+老萌二了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10758#       发表于 2021-3-12 14:23
+
+
+
+
+什么二次元达利特
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10759#       发表于 2021-3-12 14:29
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-12 14:33 编辑 
+
+日本时间昨天8-9点就醒了还行，睡太多了关节痛，开头我有30分钟左右没听到，这女人刚是说播完这个要去睡了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+铁人经典拐弯抹角骂这女人肥<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10760#       发表于 2021-3-12 14:39
+
+
+
+
+禁止转载真是太可惜了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10761#       发表于 2021-3-12 15:40
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-12 15:44 编辑 
+
+这人要买NS上的乙女游戏？啥作品来着，现在不方便查<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 这人看过有人播薄樱鬼被ban了以为这类文字冒险类都不能播，在考虑要买什么玩，虽然基本都玩不到最后的样子。现在开始考虑起手机上的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10762#       发表于 2021-3-12 15:50
+
+
+
+ 本帖最后由 Unlimited290 于 2021-3-12 16:15 编辑 
+
+说到人生商谈啥的看到什么自杀率上升的，反正结论就是大家和mea一起看BL本打起精神吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在说到没啥兴趣的人，然后还是一转以身作则，我也是这种人，但是看了BL漫画我就（后略）
+
+line pop中，打游戏别打扰她<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+zsyl 姐啊，累了就睡了吧，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10763#       发表于 2021-3-12 16:18
+
+
+
+
+好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10764#       发表于 2021-3-12 16:21
+
+
+
+
+比以前装的更嫩了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10765#       发表于 2021-3-12 16:30
+
+
+
+
+为啥不能剪啊😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10766#       发表于 2021-3-12 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602001&amp;ptid=1973472" target="_blank">草牛 发表于 2021-3-12 16:30</a>
+为啥不能剪啊😭😭😭</blockquote>
+不给剪这人才能有这种肆无忌惮的状态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 10767#       发表于 2021-3-12 16:34
+
+
+
+
+好，要睡了，死肥婆明天见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10768#       发表于 2021-3-12 16:35
+
+
+
+
+今天挺有意思的，可惜外面听不爽<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10769#       发表于 2021-3-12 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 10770#       发表于 2021-3-12 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10771#       发表于 2021-3-12 18:06
+
+
+
+ 本帖最后由 A2014720 于 2021-3-12 18:09 编辑 
+
+看错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10772#       发表于 2021-3-12 18:09
+
+
+
+
+不联动不会直播是吧😅👊🏻
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 10773#       发表于 2021-3-12 18:30
+
+
+
+
+无法独立完成直播
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                                        
