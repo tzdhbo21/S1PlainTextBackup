@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 14:42** 
+> ## **本文件最后更新于2021-03-12 14:37** 
 
 
 
@@ -4655,7 +4655,14 @@ YLS全球服务器统一，长时间补偿10石10苹果，隔壁还带了一波�
 ####  究极学霸  
 ##### 36262#       发表于 2020-12-30 16:11
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+已经退坑的来问一下，有人要买迦勒底 ace vol.2吗？带一盒宝具卡那个，可以来二手区看看
+
+
+
+
 
 
 
@@ -15455,7 +15462,7 @@ C呆我已经不奢望了，赌一下3月的爷爷妇科吧，其他的，躺平
 <img src="https://img.saraba1st.com/forum/202103/07/074606hmvy4ydo399dsy3z.jpg" referrerpolicy="no-referrer">
 
 
-<strong>1892750040.jpg</strong> (55.75 KB, 下载次数: 0)
+<strong>1892750040.jpg</strong> (55.75 KB, 下载次数: 1)
 
 下载附件
 
@@ -15988,4 +15995,484 @@ wcba孔明黑杯R金杀穿了，对面干了啥我都没注意，感谢路人的
 
 
 
-                   
+
+
+-----
+
+####  铁神  
+##### 36904#       发表于 2021-3-10 23:26
+
+
+
+
+夹馍亲高光时刻，把傲嘚羞死按地上揍，醒都醒不过来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36905#       发表于 2021-3-10 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582643&amp;ptid=1712412" target="_blank">铁神 发表于 2021-3-10 23:26</a>
+夹馍亲高光时刻，把傲嘚羞死按地上揍，醒都醒不过来的</blockquote>
+啊，我跳过了啥重要剧情么，有夹馍什么事？
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36906#       发表于 2021-3-10 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582846&amp;ptid=1712412" target="_blank">不乖 发表于 2021-3-10 23:52</a>
+
+啊，我跳过了啥重要剧情么，有夹馍什么事？
+
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 S1Next-鹅版 ...</blockquote>
+高难，迦摩可以将奥德修斯按在地上打。
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 36907#       发表于 2021-3-11 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582846&amp;ptid=1712412" target="_blank">不乖 发表于 2021-3-10 23:52</a>
+
+啊，我跳过了啥重要剧情么，有夹馍什么事？
+
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 S1Next-鹅版 ...</blockquote>
+指夹馍在这次活动高难好用而已
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 36908#       发表于 2021-3-11 06:22
+
+
+
+
+高难b叔真是永远的神！用月神，骑金打。运气都不太好，被打得剩下b叔救场。
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 36909#       发表于 2021-3-11 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50581914&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2021-3-10 22:17</a>
+骑金时高难3T要求礼装黑圣杯等级100还要刷蓝绿卡才有机会，不然第二条血的伤害就是差那么一点点，或者 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我直接1宝黑杯车过去了....没想象中难....回头换一个打法（倒是同期的日服有点棘手，因为要车三十多人.....）
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 36910#       发表于 2021-3-11 12:33
+
+
+
+
+礼装换哪个好，我想凑一套侦探艾德蒙
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36911#       发表于 2021-3-11 13:00
+
+
+
+<blockquote>6030sylar 发表于 2021-3-11 12:33
+礼装换哪个好，我想凑一套侦探艾德蒙</blockquote>
+我就是每年都换侦探连续剧的人23333，白情的礼装几年综合下来最强的还是极恶非道，其他的基本不用考虑性能按卡面选就是了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36912#       发表于 2021-3-11 19:01
+
+
+
+
+看着自回体可能搬不了金芙芙，赶紧吃几个苹果刷完了，剩下的材料自回体吧。
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 36913#       发表于 2021-3-11 19:02
+
+
+
+
+极恶非道到底是哪天PU啊，想再捞一张
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 36914#       发表于 2021-3-11 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50591673&amp;ptid=1712412" target="_blank">空罐子 发表于 2021-3-11 19:02</a>
+
+极恶非道到底是哪天PU啊，想再捞一张</blockquote>
+明天就是
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36915#       发表于 2021-3-12 00:10
+
+
+
+
+1个10连抽到1张，走人了。
+
+
+
+
+
+
+
+-----
+
+####  薛帕德  
+##### 36916#       发表于 2021-3-12 09:56
+
+
+
+
+伍佰两宝才抽到极恶非道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36917#       发表于 2021-3-12 10:02
+
+
+
+
+我估计着胎毛应该是搬不掉了
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36918#       发表于 2021-3-12 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597358&amp;ptid=1712412" target="_blank">薛帕德 发表于 2021-3-12 09:56</a>
+伍佰两宝才抽到极恶非道</blockquote>
+欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36919#       发表于 2021-3-12 15:55
+
+
+
+
+看剧情被姑姑骗氪了，抽了30护符和两个11连才出，顺便捞了一张极恶非道，感觉今年才过两个月计划外的抽卡太多了，C呆前都坚决不抽了
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 36920#       发表于 2021-3-12 16:21
+
+
+
+
+什么？不想抽的卡剧情全部skip不是常识吗？
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36921#       发表于 2021-3-12 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50601651&amp;ptid=1712412" target="_blank">devilwing 发表于 2021-3-12 15:55</a>
+看剧情被姑姑骗氪了，抽了30护符和两个11连才出，顺便捞了一张极恶非道，感觉今年才过两个月计划外的抽卡太 ...</blockquote>
+小心凯尼斯的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36922#       发表于 2021-3-12 16:47
+
+
+
+
+沸羊羊人气一直不错吧，到是双子座是真惨，只剩声优梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 36923#       发表于 2021-3-12 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50601651&amp;ptid=1712412" target="_blank">devilwing 发表于 2021-3-12 15:55</a>
+
+看剧情被姑姑骗氪了，抽了30护符和两个11连才出，顺便捞了一张极恶非道，感觉今年才过两个月计划外的抽卡太 ...</blockquote>
+C呆前最大的挑战就是小王子+恐龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36924#       发表于 2021-3-12 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602194&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2021-3-12 16:47</a>
+沸羊羊人气一直不错吧，到是双子座是真惨，只剩声优梗了
+
+—— 来自 Xiaomi M2011K2C, Android 11上 ...</blockquote>
+双子就是一坨shi<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  devilwing  
+##### 36925#       发表于 2021-3-12 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602062&amp;ptid=1712412" target="_blank">khxooo 发表于 2021-3-12 16:35</a>
+
+小心凯尼斯的剧情</blockquote>
+凯尼斯还好，本来就不想抽，姑姑是之前就喜欢的，只是一直歪不出来，所以这次下了决心要抽一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36926#       发表于 2021-3-12 18:08
+
+
+
+<blockquote>真红眼教授 发表于 2021-3-12 16:57
+C呆前最大的挑战就是小王子+恐龙</blockquote>
+小王子复刻了，所以最大挑战是恐龙
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36927#       发表于 2021-3-12 18:13
+
+
+
+ 本帖最后由 khxooo 于 2021-3-12 19:11 编辑 
+
+爷爷准备池开了，准备好石头吧[@廖化](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=88541)
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 36928#       发表于 2021-3-12 18:17
+
+
+
+
+凯尼斯这种嘴臭脾气硬还能打的敌方女干部，然后被揍的遍体鳞伤，突然就戳我XP了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  艾尔特翔  
+##### 36929#       发表于 2021-3-12 19:01
+
+
+
+
+之前蛮讨厌凯尼斯的,不过看过252的剧情后,就黑转粉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  铁神  
+##### 36930#       发表于 2021-3-12 21:37
+
+
+
+
+血战拿蝗  400石金弓转身月神+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36931#       发表于 2021-3-12 22:08
+
+
+
+
+抽凯尼斯真的建议打完2.5.2再抽，这样可以开特别语音。
+
+
+
+
+
+                  
