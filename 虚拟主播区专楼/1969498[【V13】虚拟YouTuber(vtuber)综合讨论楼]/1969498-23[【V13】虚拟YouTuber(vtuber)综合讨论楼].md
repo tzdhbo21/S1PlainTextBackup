@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-12 03:38** 
+> ## **本文件最后更新于2021-03-12 12:50** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_GTGYm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_g35z0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_n094p" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_AiG7Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_ScSJa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_gSFS0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -13177,6 +13177,25 @@ ywwuyi堆VTB/VUP的建联工作中做出的突出贡献是啥啊？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| フミさん|-1|开爽可以，别带我希|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17804,4 +17823,485 @@ rururuddd了？？？
 
 
 
-                   
+
+
+-----
+
+####  Ryuuseigun  
+##### 33906#       发表于 2021-3-12 12:38
+
+
+
+
+区块链…？
+
+
+
+
+
+
+
+-----
+
+####  Ryuuseigun  
+##### 33907#       发表于 2021-3-12 12:41
+
+
+
+
+这么久没看Vjuan已经进化成这么究极的啥都能缝缝合怪了吗
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 33908#       发表于 2021-3-12 13:48
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/12/134844elh5zln62dcoggyb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20190502763495_fJaZiE.jpg</strong> (3.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 13:48 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33909#       发表于 2021-3-12 14:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下0.1eth 180多刀 不过单纯就创造话题来说 还是挺成功的
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 33910#       发表于 2021-3-12 14:33
+
+
+
+
+这什么东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 紧跟时事呐？
+
+
+
+
+
+
+
+-----
+
+####  KaboomMirai  
+##### 33911#       发表于 2021-3-12 15:06
+
+
+
+<img src="https://p.sda1.dev/1/0e85498a006125a0abab55337d5ab5ef/IMG_CMP_147839152.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 33912#       发表于 2021-3-12 15:11
+
+
+
+
+3D组最近打鸡血了？
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 33913#       发表于 2021-3-12 15:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">拖太久了吧 fes和自肃拖了一批3d，不过还有侦探女神就到小夜了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33914#       发表于 2021-3-12 15:36
+
+
+
+
+真就直接跳过了，也不知道下一个会是项羽的3d吗，虽然小魔王那次日期公布后本人就发推说还要再等等不会那么快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 33915#       发表于 2021-3-12 18:12
+
+
+
+[https://twitter.com/tanakakoumuten/status/1370300175227387907](https://twitter.com/tanakakoumuten/status/1370300175227387907)
+
+HH原定6月的live取消了.......
+
+
+<img src="https://img.saraba1st.com/forum/202103/12/181238tdd9nk96d6966n6t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>hh.jpg</strong> (306.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 18:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 33916#       发表于 2021-3-12 19:06
+
+
+
+
+hh这老取消不行啊，有没有考虑过到疫情控制得比较好的周边国家开演唱会？比如朝鲜
+
+
+
+
+
+
+
+-----
+
+####  yyzcacxg  
+##### 33917#       发表于 2021-3-12 19:10
+
+
+
+
+哎还是没法办么...其实还可以继续搞无人线上LIVE的吧，上次蓝之华的LIVE效果超级棒的
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 33918#       发表于 2021-3-12 19:10
+
+
+
+
+币圈可怕……
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33919#       发表于 2021-3-12 20:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">小魔王的皮3d化了了果然变态程度很高
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 33920#       发表于 2021-3-12 20:06
+
+
+
+ 本帖最后由 CielChloe 于 2021-3-12 20:40 编辑 
+
+这两个袖子也太违和了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，这是什么play<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33921#       发表于 2021-3-12 20:06
+
+
+
+<img src="https://p.sda1.dev/1/b4633ead77382b7efb6f88ce867ea81a/QQ图片20210312200626.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33922#       发表于 2021-3-12 20:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/12/200513od27293fb98b6t9t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【重大告知】 オオカミの顔MonsterZ MATE 3周年ワンマンライブ「UNITE」コウモリ 5月8.jpg</strong> (443 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 20:05 上传
+
+
+
+
+
+
+
+【重大告知】
+
+MonsterZ MATE 3周年ワンマンライブ「UNITE」
+
+5月8日（土）SPWNにてオンライン開催決定
+
+
+チケット販売はただ今からスタート！
+[https://virtual.spwn.jp/_events/21050819-mzm3rd](https://virtual.spwn.jp/_events/21050819-mzm3rd)
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33923#       发表于 2021-3-12 20:14
+
+
+
+
+草，原来sc效果是瀑布吗
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 33924#       发表于 2021-3-12 20:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">居然不怕ban 魔王你太强大了
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 33925#       发表于 2021-3-12 20:28
+
+
+
+
+Hachi这新歌 有点微妙
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 33926#       发表于 2021-3-12 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是这同接，森友和阿菜一起当你虹3d回的两大耻辱柱吧
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33927#       发表于 2021-3-12 20:39
+
+
+
+
+社保了！社保了！
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33928#       发表于 2021-3-12 20:39
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-12 20:44 编辑 
+
+这个企划？？？？？？小魔王你真的很抖m，三小黑（阿巴，花妈，爱园)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 33929#       发表于 2021-3-12 20:40
+
+
+
+
+这把最后圈3个队 bora和cpt一个人打一个队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zwxclear  
+##### 33930#       发表于 2021-3-12 20:40
+
+
+
+
+我在看什么？
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33931#       发表于 2021-3-12 20:41
+
+
+
+
+今天的ssn也很强😊
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33932#       发表于 2021-3-12 20:44
+
+
+
+
+相比之下，cr杯有什么好看的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                  
