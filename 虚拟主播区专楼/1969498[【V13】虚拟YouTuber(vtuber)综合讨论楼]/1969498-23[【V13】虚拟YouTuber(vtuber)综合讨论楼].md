@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-12 12:50** 
+> ## **本文件最后更新于2021-03-12 19:10** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_AiG7Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_ScSJa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_gSFS0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_Y43D6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_ldNy2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_NZ0K7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -18232,9 +18232,10 @@ Hachi这新歌 有点微妙
 
 
 
- 本帖最后由 FCCHua 于 2021-3-12 20:44 编辑 
+ 本帖最后由 FCCHua 于 2021-3-12 20:57 编辑 
 
 这个企划？？？？？？小魔王你真的很抖m，三小黑（阿巴，花妈，爱园)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+整体看下来花妈大活跃啊
 
 
 
@@ -18304,4 +18305,891 @@ Hachi这新歌 有点微妙
 
 
 
-                  
+
+
+-----
+
+####  mmbk  
+##### 33933#       发表于 2021-3-12 21:04
+
+
+
+
+ytdl启动！什么叫质啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+夏天马上到了，你杏最质的泳装3d快点安排，想看信姬火力全开搞尻文字<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 33934#       发表于 2021-3-12 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604684&amp;ptid=1969498" target="_blank">mmbk 发表于 2021-3-12 21:04</a>
+
+ytdl启动！什么叫质啊
+
+夏天马上到了，你杏最质的泳装3d快点安排，想看信姬火力全开搞尻文字 ...</blockquote>
+太恶毒了！有想过现场staff的感受吗！<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33935#       发表于 2021-3-12 21:48
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/12/214802g0xmmguk6tyxuhn6.png" referrerpolicy="no-referrer">
+
+
+<strong>土日のどこかでarkやるね.png</strong> (22.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 21:48 上传
+
+
+
+
+
+
+@Kanae_2434@Kanae_2434@Kanae_2434<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33936#       发表于 2021-3-12 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 看到尊直播间搞事的anti我真想一刀捅了他们
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33937#       发表于 2021-3-12 22:51
+
+
+
+
+2000加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33938#       发表于 2021-3-12 22:54
+
+
+
+
+支持你<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 33939#       发表于 2021-3-12 23:44
+
+
+
+
+にじさんじ握力切り抜き見て気になって、ゲーセンで握力測ってきたら右60キロ、左45キロに成長してました└( 'ω')┘ﾑｷｯ
+左は骨折もあって落ち込みましたが、1年後までには50キロにするべく毎日ジムで鍛錬に励みます🤜💥🤛
+
+
+怪力女超人郡道，不过现实生活中玩乐器的人手劲确实普遍不小，应该不是练来为了和同事对打吧（玩笑）
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33940#       发表于 2021-3-13 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606244&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-12 23:44</a>
+にじさんじ握力切り抜き見て気になって、ゲーセンで握力測ってきたら右60キロ、左45キロに成長してました└ ...</blockquote>
+虹杏掰手腕大赛有无搞头.jpg
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 33941#       发表于 2021-3-13 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606730&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-13 00:42</a>
+
+虹杏掰手腕大赛有无搞头.jpg
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+想看尾宝大战狐皇
+
+
+
+
+
+
+
+-----
+
+####  tyccc  
+##### 33942#       发表于 2021-3-13 01:29
+
+
+
+
+真是一手坏棋，对这件事以后再也不会提及就等于承认了，噶吃和贴贴人输得透彻
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33943#       发表于 2021-3-13 01:31
+
+
+
+
+彩虹这种男女天天搞活动的 真有独角兽？
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 33944#       发表于 2021-3-13 01:31
+
+
+
+
+king直接洗粉了啊
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33945#       发表于 2021-3-13 01:38
+
+
+
+
+我现在已经分不清到底是真是假了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回应不是，不回应不是
+
+
+
+
+
+
+
+-----
+
+####  Guadalcanal  
+##### 33946#       发表于 2021-3-13 01:40
+
+
+
+
+微博已经出现躺平祝福派了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33947#       发表于 2021-3-13 01:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">恭喜OG...?
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 33948#       发表于 2021-3-13 01:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了葛尊才会明白桃皇为了洗白咋子哥做出的牺牲。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 33949#       发表于 2021-3-13 01:42
+
+
+
+
+基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33950#       发表于 2021-3-13 01:43
+
+
+
+
+能有管人界的第一场虚拟婚礼吗
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 33951#       发表于 2021-3-13 01:44
+
+
+
+
+感觉是不是看了尊妈的低评价忍不住站出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33952#       发表于 2021-3-13 01:53
+
+
+
+
+反正这是也就这样了，该脱粉的脱粉，一定时间的炎上，之后各回各家各找各妈
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33953#       发表于 2021-3-13 01:54
+
+
+
+
+这波真男人啊，把女友的火力转移到自己身上了，感觉黑黑民要大量🥜鬼了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33954#       发表于 2021-3-13 01:59
+
+
+
+ 本帖最后由 flyskywalker92 于 2021-3-13 02:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607134&amp;ptid=1969498" target="_blank">Suny08 发表于 2021-3-13 01:54</a>
+
+这波真男人啊，把女友的火力转移到自己身上了，感觉黑黑民要大量🥜鬼了</blockquote>
+自己认了还行 真男人啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33955#       发表于 2021-3-13 01:59
+
+
+
+
+只要不能锤死拖着拖着就过去了，谁管你和谁同居啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33956#       发表于 2021-3-13 02:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 这就是为了保护母狮子，愤怒的雄狮发出得嘶吼么？
+
+
+我原本还以为要学隔壁towa，让尊出来澄清，说是在公司播的staff声音撒谎搪塞过去。
+
+
+没想到king这边先声夺人，先一步出来承受这事了。
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33957#       发表于 2021-3-13 02:10
+
+
+
+ 本帖最后由 NBXX 于 2021-3-13 02:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607148&amp;ptid=1969498" target="_blank">flyskywalker92 发表于 2021-3-13 01:59</a>
+自己认了还行 真男人啊</blockquote>https://twitter.com/n_ihx/status/1370432938341371904?s=19
+刚才apex直播末尾提了下这事
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 33958#       发表于 2021-3-13 02:19
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-13 03:08 编辑 
+
+我怎么觉得尊妈那边点踩要更多了，不知道该说啥，但愿我想多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+syl 看了会限，好家伙，一口奶<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33959#       发表于 2021-3-13 02:22
+
+
+
+
+yysy，数遍全虹，有谁比尊妈当老婆还香的吗
+
+
+我翻了半天推特TL
+
+好像那边也认为这是默认，不过总的趋势是支持king的居多
+
+king的待机室也是人越来越多了，全是sc在鼓励的
+
+
+
+
+
+
+
+-----
+
+####  443421870  
+##### 33960#       发表于 2021-3-13 02:24
+
+
+
+
+转个隔壁的直播记录
+刚cr练习赛结束了discord也掐了葛突然说有重要的话要讲
+下面括号里是我的感想其他基本是直译了
+'关于目前炎上的事情
+虽然现在说的应该也不能讲(那你还讲！？)
+今后绝不会提 抱歉
+其实很想在蓝鸟之类的公开场合讲(不是 直播不还是公开场合吗 好歹会限一下啊？)
+但做不到
+我不neng…不会提这件事 非常抱歉(你这口胡基本等于答案了
+各位请相信自己想相信的东西
+有什么想说的请投棉花糖 我全都有看 拜托了 真的抱歉 毕竟我从属于企业
+虽然显得非常不诚实 但今后将保持沉默 不好意思
+我想一定会有 曾经支持着我 因为这次的事情离开了的人 也许已经没在看了……
+怎么说呢………………(这里感觉找了好久没找到适合也允许讲的词 語彙力怪物也有今天)
+非常抱歉
+今后也继续支持我的人 请多关照
+大概现在说的应该也不能讲(那你还x
+实在抱歉 不会去提的 关于这件事的comment今后也会删 不好意思'
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33961#       发表于 2021-3-13 02:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607229&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-13 02:22</a>
+
+yysy，数遍全虹，有谁比尊妈当老婆还香的吗
+
+
+我翻了半天推特TL</blockquote>
+是这个道理啊 只能说羡慕葛叶
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 33962#       发表于 2021-3-13 02:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">呜呜呜，虚空吃了那么久的葛尊糖，今天king出来扛着太男人了，只能祝福他们了
+
+
+
+syl，尊妈小人什么时候出，到时候和葛叶小人摆一起<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 33963#       发表于 2021-3-13 02:31
+
+
+
+
+我一直觉得King没什么人情味对他没什么好感
+
+这波爱了爱了
+
+这就去点订阅
+
+
+这种事一般肯定装死或者否认，哪怕是真的
+
+证据也不够实锤文春都不会拿来写小文章的
+
+尊妈忍75天就好了
+
+结果这时候站出来挡火，太帅了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 33964#       发表于 2021-3-13 02:34
+
+
+
+
+反向证明了两人同居这件事是感情更进一步的体现，也就是说临近结束爱情长跑要谈婚论嫁了才同居的，符合不少人之前推测的nijifes后搬家同居环境没有整备完全才发生事故说。
+
+不管如何，今晚的king是真的很男人
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33965#       发表于 2021-3-13 02:35
+
+
+
+
+我去看了下尊妈今天的档
+
+最后还表示最近很忙不怎么能播，这个月再播一次
+
+这么明显的避火
+
+而且今天其实没有太大火力在King身上，都这样了还要出来说话
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 33966#       发表于 2021-3-13 02:36
+
+
+
+
+要是真的官宣了我去打份子钱
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 33967#       发表于 2021-3-13 02:36
+
+
+
+
+葛尊和女流yjj同日官宣, 有无异曲同工之妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33968#       发表于 2021-3-13 02:45
+
+
+
+
+这葛叶待机间 会员不断的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33969#       发表于 2021-3-13 02:50
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-13 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607298&amp;ptid=1969498" target="_blank">flyskywalker92 发表于 2021-3-13 02:45</a>
+
+这葛叶待机间 会员不断的</blockquote>
+因为新发了一条会限，还挺有意思的，我能设高权限发出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+删了删了，无事发生
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyskywalker92| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33970#       发表于 2021-3-13 02:58
+
+
+
+ 本帖最后由 qq845629713 于 2021-3-13 03:04 编辑 
+
+想了很多，还是觉得应该写点掏心窝子的话，
+
+
+结识king的原因其实不是因为10w家族，反而是批站天气卡组的切片，结合之前逛串看到的king前世历史，个人觉得king是真真正正的在寻求一些自己的直播效果的，
+
+
+四轮草也好、10w家族也好，都是在原本的角色设定上上进行着二次演绎，就算前世黑料、和“猪”的暧昧关系都是真的，能完全抛弃那些流言蜚语进行着自己的角色扮演，也不得不佩服king的余裕和直播天分，
+
+
+了解到king和猪的故事之后，激光2000和这个号偶尔也会进行一些文学上的发散与脑补，偶尔也能成为大家津津乐道段子，恐怕和king的前世黑历史、节目效果也分不开关系，
+
+
+这也是king的人格魅力之一，
+
+
+如今，king的那段话真心让我觉得有点自惭形愧，我不知道事情经历了多少明里、暗里的斗争，恐怕，staff、经纪人、king的朋友，也充分讨论了这件事，
+
+
+最开始的解决办法一定是删回复、不回应，等时间过去，
+
+
+但事情反转了，KING在成为真正的彩虹top之后，决定自己面对这件事，发出了那样的回应，这是和他一直以来的塑造游刃有余的人设完全相悖的，
+
+
+“就像《伊利亚特》、《奥德赛》中对众神、国王的赞美一样，葛皇成为KING的故事也会是彩虹本记中的一段佳话和美传“
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 33971#       发表于 2021-3-13 02:59
+
+
+
+
+阿这，尊妈也太惨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 33972#       发表于 2021-3-13 03:00
+
+
+
+
+king不来借鉴一下国产黑黑的经验？同样都是有过另一半的，甚至roi还结婚了。<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33973#       发表于 2021-3-13 03:01
+
+
+
+
+2000你吓到我啦
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33974#       发表于 2021-3-13 03:04
+
+
+
+
+剧情到底咋样了啊
+
+怎么还带回马枪的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 33975#       发表于 2021-3-13 03:09
+
+
+
+
+葛叶这操作和他女粉这疯狂自我感动的既视感，让我想起那个女人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                 
