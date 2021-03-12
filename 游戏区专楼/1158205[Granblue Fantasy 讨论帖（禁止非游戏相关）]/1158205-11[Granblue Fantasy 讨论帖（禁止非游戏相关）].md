@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 17:10** 
+> ## **本文件最后更新于2021-03-12 03:41** 
 
 
 
@@ -2780,4 +2780,501 @@ kmr给你算的明明白白<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
-                                            
+
+
+-----
+
+####  windlikeman  
+##### 15156#       发表于 2021-3-11 01:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 看完EP.3我觉得EP.1 EP.2写的挺好的 不该太苛求什么的
+
+看看EP.4样板戏能做什么样的新演出了 毕竟还信心满满的加了个短预告
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15157#       发表于 2021-3-11 03:52
+
+
+
+
+猴猪夏天总池见吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15158#       发表于 2021-3-11 07:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我寻思他月中最好整个新限定出来，不过我还真想不出来有啥游戏周年白嫖不给你嫖新限定，非要放在白嫖结束下一天的
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15159#       发表于 2021-3-11 08:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50581912&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-03-10 22:17:33</a>
+拉满水滴特殊星本，速度飞快</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">感谢 一天升十级爽咗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15160#       发表于 2021-3-11 08:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50583427&amp;ptid=1158205" target="_blank">windlikeman 发表于 2021-3-11 01:52</a>
+
+看完EP.3我觉得EP.1 EP.2写的挺好的 不该太苛求什么的
+
+看看EP.4样板戏能做什么样的新演出了 毕竟还 ...</blockquote>
+EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那些都什么跟什么啊，强行配对都出来了
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15161#       发表于 2021-3-11 08:31
+
+
+
+
+咦 天平的武器效果是不是有修改过？
+我记得刚出来的时候好像是需要武器种类不一样（剑短琴铳之类的不能重复），现在好像是武器不一样就行了？
+刚出的时候大家还在讨论怎么凑出十类武器
+难道是我记错了……
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15162#       发表于 2021-3-11 08:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584152&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-11 08:31</a>
+
+咦 天平的武器效果是不是有修改过？
+
+我记得刚出来的时候好像是需要武器种类不一样（剑短琴铳之类的不能重复 ...</blockquote>
+没改过吧，印象里需求种类不一样的是同期的土大马斧，天平是只要武器不一样就可以
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15163#       发表于 2021-3-11 09:01
+
+
+
+
+楼上讲的土大马斧值得换吗？其他天平啥的都自发农到满凸了，2.0毕业不用换，联队战武器不考虑，六道缺水换的话会不会很亏？个人想换个水拳套叠暴击（hp-10%那个）
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15164#       发表于 2021-3-11 09:09
+
+
+
+ 本帖最后由 peh 于 2021-3-11 09:11 编辑 
+
+有人给我讲一下剧情里ヤチマ和レベリ的关系吗，アイザク问是不是旧识，怎么还能扯到アラン的，之前活动提到过レベリ人格是アラン那边的?
+
+还有那个我吃了阿兰的头也完全不懂在说什么。。
+
+
+妹妹还好吧，总比女儿好，这段剧情最搞笑的还是两人机神。巴叔：zeta你坐啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wolftooth| + 2|抱歉，给您补回来。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ラプシィア  
+##### 15165#       发表于 2021-3-11 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584427&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-3-11 09:01</a>
+
+楼上讲的土大马斧值得换吗？其他天平啥的都自发农到满凸了，2.0毕业不用换，联队战武器不考虑，六道缺水换 ...</blockquote>
+不值，目前没有条件进盘子，水六道下礼拜妇科了不要换，其他有点价值的就是连战和椰子树那一系列的武器，连战因为妇科次数少其实也挺值得换的
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 15166#       发表于 2021-3-11 09:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">我本来想说怎么可能冬泳塞4月
+
+然后想起来4月1号是联动活动 不是常规剧情卡池有空挡
+
+哦希特
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15167#       发表于 2021-3-11 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584485&amp;ptid=1158205" target="_blank">peh 发表于 2021-3-11 09:09</a>
+有人给我讲一下剧情里ヤチマ和レベリ的关系吗，アイザク问是不是旧识，怎么还能扯到アラン的，之前活动提到 ...</blockquote>
+小机器人是技师从second advant里被打爆的老头变身后机神的残骸里废物再利用造出来的。
+
+上个活动没明说小机器人智能的来历，但是基本上cv暗示了一切，都是大冢明夫还是周夫来着。，反正是snake。
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 15168#       发表于 2021-3-11 10:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">从计划按送白嫖补两井到井不送白嫖的池，好像没啥区别（
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15169#       发表于 2021-3-11 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584485&amp;ptid=1158205" target="_blank">peh 发表于 2021-3-11 09:09</a>
+
+有人给我讲一下剧情里ヤチマ和レベリ的关系吗，アイザク问是不是旧识，怎么还能扯到アラン的，之前活动提到 ...</blockquote>
+不是说妹妹有啥不好，但是这玩意需要铺垫不是么.........现在这个情况就仿佛编剧拍脑袋突然想出来的一样
+
+
+
+
+
+
+
+-----
+
+####  AIOS  
+##### 15170#       发表于 2021-3-11 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个ep3就净是都合，这么喜欢瞎**加设定怎么没种把新人小妹搞成艾萨克旧情人啊
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15171#       发表于 2021-3-11 11:57
+
+
+
+
+老头和红毛的关系是暗示的。
+
+老头=小机器人也是暗示的。
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 15172#       发表于 2021-3-11 12:22
+
+
+
+ 本帖最后由 windlikeman 于 2021-3-11 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584108&amp;ptid=1158205" target="_blank">navarra 发表于 2021-3-11 08:24</a>
+
+EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那些都什么跟什么啊，强行配对都出来了 ...</blockquote>
+奎因这里感觉情感没铺垫到位 应该是一个爆发点的结果就这么莫名其妙划过去了 估计要等艾萨克和奎因（如果有的话）个人FE里解释了
+
+主要是剧情推快了...有些地方只能都合推剧情（小机器人开挂、机神长出封印武器、ヤマチ凭空捏了一个质量投射器），但是又没有很好的依靠情感爆发来冲过去
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15173#       发表于 2021-3-11 14:42
+
+
+
+
+这次新职业倒是不错，给单面没法搞出打拳盘的提供了一个双面的短期选项
+
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 15174#       发表于 2021-3-11 14:42
+
+
+
+
+我愛 刮刮樂
+
+刮出了六限老男人
+
+
+必得還讓我抽到之前一直抽不到的情人節佐倉
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15175#       发表于 2021-3-11 14:53
+
+
+
+
+原来除了那个用铳剑的C4还有个新职业<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15176#       发表于 2021-3-11 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ex2除了职武是不是四天刃又可以竞争上岗了
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15177#       发表于 2021-3-11 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50589692&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-11 16:14</a>
+
+ex2除了职武是不是四天刃又可以竞争上岗了</blockquote>
+这职业不缺连击啊
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15178#       发表于 2021-3-11 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50589692&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-11 16:14</a>
+ex2除了职武是不是四天刃又可以竞争上岗了</blockquote>
+不如说过气短lm又竞争上岗了，四天刃也太臭鱼烂虾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15179#       发表于 2021-3-12 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50594015&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-11 23:12</a>
+不如说过气短lm又竞争上岗了，四天刃也太臭鱼烂虾了
+
+—— 来自 Sony J9110, Android 10上的 S1Ne ...</blockquote>
+我觉得这职业要么就fa拿点别的主手，想打短期还得靠职武不然叠层太慢了，这职业短期靠全队ta二动领域追伤配合回合斩选手还有一手的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15180#       发表于 2021-3-12 08:55
+
+
+
+
+C4新职业几号解锁<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15181#       发表于 2021-3-12 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50596647&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-3-12 08:55</a>
+
+C4新职业几号解锁
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+好像14号吧 新C4配暗usts终突
+
+
+
+
+
+                                           

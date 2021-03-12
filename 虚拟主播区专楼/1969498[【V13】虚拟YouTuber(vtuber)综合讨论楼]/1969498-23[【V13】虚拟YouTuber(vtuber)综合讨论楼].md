@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 17:03** 
+> ## **本文件最后更新于2021-03-12 03:38** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_BaPu7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_V7eZj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_MaIDz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_GTGYm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_g35z0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_n094p" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -17448,4 +17448,360 @@ syl 没有猎杀组队真的会很折磨，如果再参加cr杯kck各自找队�
 
 
 
-                    
+
+
+-----
+
+####  ShuTk4O  
+##### 33888#       发表于 2021-3-12 01:18
+
+
+
+
+隔壁b综不是不少打ow的？
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 33889#       发表于 2021-3-12 01:25
+
+
+
+
+kck虽然看的折磨不过能出数字也不算亏，出不了成绩又拿不出数字的v建议真别参加了。像不破发现自己播着玩意debuff大转过去恐怖游戏现在已经随便过万
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 33890#       发表于 2021-3-12 01:27
+
+
+
+ 本帖最后由 aptx318 于 2021-3-12 01:29 编辑 
+
+感觉堡垒日本热度也算可以的，小孩子里很火视频也能天天上游戏区热门，不知道为啥直播热度不行。明年乌贼3应该能短暂爆火一段时间。但是没有pc+任天堂电竞运营不行肯定长久不了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33891#       发表于 2021-3-12 08:04
+
+
+
+
+官网已经把🐒下架了啊……
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 33892#       发表于 2021-3-12 08:45
+
+
+
+
+最协黑黑千还是优胜候补，CR杯黑黑千就成holo队的地位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 33893#       发表于 2021-3-12 09:17
+
+
+
+
+今天晚上8点，别忘了小魔王3D回哦~~~~
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 33894#       发表于 2021-3-12 09:38
+
+
+
+
+真以为职业哥这么好当的吗，职业哥基本都是人均能在猎杀局拿骷髅海的，比赛的强度完全不是一个级别的，就不说黑黑千这些钻石选手了，上了大师的那些v都没有人是能把身法枪法意识结合在一起的，跟职业哥玩的就不是一个游戏
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33895#       发表于 2021-3-12 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50596574&amp;ptid=1969498" target="_blank">バーチャルS1er 发表于 2021-3-12 08:45</a>
+最协黑黑千还是优胜候补，CR杯黑黑千就成holo队的地位了</blockquote>
+最协哪来的黑黑千啊
+不是各自带队，控制变量了吗
+千带队夺冠，叶独力吃鸡
+葛叶在挨打
+king最菜
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 33896#       发表于 2021-3-12 09:44
+
+
+
+
+确实是杏队待遇，被别人吸饱了流量还要虐一顿菜，运营早该管管了。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 33897#       发表于 2021-3-12 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597191&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-12 09:42</a>
+
+最协哪来的黑黑千啊
+
+不是各自带队，控制变量了吗
+
+千带队夺冠，叶独力吃鸡</blockquote>
+你说的是第二回最协、我说的是第一回最协啊
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33898#       发表于 2021-3-12 10:00
+
+
+
+
+第一次apex最协完全没印象了…
+谁冠军？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 33899#       发表于 2021-3-12 10:14
+
+
+
+[https://panora.tokyo/archives/22053](https://panora.tokyo/archives/22053)
+
+世界初VTuberNFT第1弾、RIOT MUSIC所属「道明寺ここあ」「芦澤サキ」の撮り下ろしNFTを限定販売
+<img src="https://prtimes.jp/i/44525/43/resize/d44525-43-884770-1.png" referrerpolicy="no-referrer">
+
+vtuber区块链令牌 <blockquote>「道明寺ここあ チャンネル登録者10万人突破記念ビジュアル  NFT」
+
+
+販売時間：2021年3月12日 20:00-（日本時間）
+
+販売場所：
+
+販売価格（予定）：0.1ETH
+
+発行枚数（予定）：10枚
+
+
+「RIOT MUSIC 1st LIVE “Re:Volt” キービジュアル NFT」
+
+
+販売時間：2021年3月12日 20:00-（日本時間）
+
+販売場所：
+
+販売価格（予定）：0.1ETH
+
+発行枚数（予定）：10枚
+
+
+「道明寺ここあ 撮り下ろしビジュアル  NFT」
+
+販売時間：2021年3月13日 20:00-（日本時間）
+
+販売場所：
+
+販売価格（予定）：0.1ETH
+
+発行枚数（予定）：10枚
+
+
+「芦澤サキ 撮り下ろしビジュアル  NFT」
+
+販売時間：2021年3月13日 20:00-（日本時間）
+
+販売場所：
+
+販売価格（予定）：0.1ETH
+
+発行枚数（予定）：10枚</blockquote>
+NFTとは、唯一無二の「世界に１つだけのデータ」の価値を生み出せる代替不可能なトークンです。2018年頃に登場し、ブロックチェーン技術を活用する事でコピーできないデジタルデータを作成することができ、データの所有者は自由に二次流通を行うことがでます。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 33900#       发表于 2021-3-12 10:17
+
+
+
+
+区 区块链……?<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33901#       发表于 2021-3-12 10:31
+
+
+
+
+NFT非同质化代币，今年春天的风口
+
+
+单就标记原生数字资产所有权这点，还挺适合v圈的…不过这反应也太快了
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 33902#       发表于 2021-3-12 11:13
+
+
+
+
+卖0.1eth太他妈弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 33903#       发表于 2021-3-12 11:26
+
+
+
+
+草 v版也要币圈了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33904#       发表于 2021-3-12 11:33
+
+
+
+
+赶快加入，财富自由就在眼前
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33905#       发表于 2021-3-12 11:38
+
+
+
+
+rururuddd了？？？
+
+这波啊，这波是室友自杀gpa自动4.0<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
