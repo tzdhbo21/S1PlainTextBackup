@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 01:18** 
+> ## **本文件最后更新于2021-03-13 05:36** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_P1bX3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_CuU2w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_Ud2ah" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_q6vbm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Nbeeo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_TBddG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -19114,10 +19114,11 @@ syl，尊妈小人什么时候出，到时候和葛叶小人摆一起<img src="h
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| winda| + 1|可惜king会限里还是爱惜羽毛|
 | argaregeasr| + 1|以后再多来点葛尊|
 | alcoholic1000| + 1||
 
@@ -19650,4 +19651,577 @@ king的待机间现在还在加会员，太可怕了
 
 
 
-                
+
+
+-----
+
+####  黑之和  
+##### 33996#       发表于 2021-3-13 09:20
+
+
+
+ 本帖最后由 黑之和 于 2021-3-13 09:24 编辑 
+
+既然有人提到了咎人
+那就不得不提一下早期可是有因为鼠标声音变了而观众猜出来刀也在gaku家的这种神操作啊
+
+syl葛这两个操作下来不就表示了<strong>相信你所相信的</strong>，你认为葛尊是真的就贴贴（虽然可能吃不到什么糖）你觉得是假的，那接受他的道歉继续看他直播就好了嘛
+
+zsyl打开微博推特太太还在产粮，好安心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 33997#       发表于 2021-3-13 09:34
+
+
+
+
+想起以前叶说如果是真的就不会联动了，那我可不可以反推这么久没有双叶联动所以双叶是真的，如果这次ark还没有互动我就当真了😠
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 33998#       发表于 2021-3-13 09:41
+
+
+
+[HoneyWorks medley 100万再生了](https://youtu.be/dXduaq_QbdI)
+
+syl<img src="https://p.sda1.dev/1/8d05b809197bbec82a2820cbadc87b0b/IMG_CMP_10174420.jpeg" referrerpolicy="no-referrer">
+咒术回战的名字捏他
+在这之后千寻也改了名字，武藤勇气
+
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 33999#       发表于 2021-3-13 09:41
+
+
+
+
+葛尊这种非营业CP的，官方直接否认就能让anti闭嘴的事情，还要当事人打谜语不就说明了葛尊是真的贴贴了，还有啥好挣扎的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liyitian  
+##### 34000#       发表于 2021-3-13 10:07
+
+
+
+
+这就是默认了，要反驳的话，参考国v的毛桃事件，有聊天记录的情况下逆转反杀。那才叫辟谣
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 34001#       发表于 2021-3-13 10:09
+
+
+
+
+官方否认就能闭嘴，田角是尤里吗，liver都是尤里复制人
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34002#       发表于 2021-3-13 10:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毛桃是桃皇一口咬死自己口嗨，你要尊妈一口要死自己养了野男人么
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34003#       发表于 2021-3-13 10:20
+
+
+
+
+现在又进入各说各话阶段了，有没有虚拟文春（不要裁）出来救救啊…
+我推上的葛西画师说“被炎了之后给我可爱点卖点葛西”真的笑死，跟当时的我对郡完全一样的反应，“被炎了就播点火的少玩apex”，不知道king会不会被西西指点一下如何灭火嘞
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34004#       发表于 2021-3-13 10:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king这招还是挺妙的，可以继续夸，不过不能像前面的楼友夸真男人就是了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 34005#       发表于 2021-3-13 10:33
+
+
+
+
+惊闻King认了葛尊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34006#       发表于 2021-3-13 10:39
+
+
+
+
+https://mobile.twitter.com/TwitterJP/status/1370162810517344256
+推特的新功能スペース。
+类似于Clubhouse一样的语音聊天室，安卓ios都可用
+
+<img src="https://img.saraba1st.com/forum/202103/13/103929k1xzuoto8t1z3orl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210313_103645_com.twitter.android_edit_61796025845257.jpg</strong> (643.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 10:39 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 34007#       发表于 2021-3-13 10:39
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-3-13 10:41 编辑 
+
+肛道理这波要是葛叶缩起来，因为是尊妈台出的事情，最后的主战场难保不会变成尊推尊台。最后也无非就是两个人扛一波罢了，雪藏75天嘛多大点事儿
+
+
+至于这次之后，还有没有转圜的余地，那些真正入脑的女独角兽和金主是绝对不可能无视的
+
+
+传言阶段尚可以拼上脑子自我催眠，这都本质默认了，还不跑等py吗？？？
+
+你真当女粉傻的。小哥哥，有空吗，我拿死宅打的钱养你.jpg。这么着急随份子啊？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+无论king事后是不是脑子凉下来觉得坏事儿了（如果真的还要反悔那只能说king很蠢）对他v生涯的影响已经发生了，他也已经伤了粉丝的心。。。
+
+
+所以无论谜不谜都无所谓了。。。有这个默认在，还要啥呈堂供证<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34008#       发表于 2021-3-13 11:15
+
+
+
+
+楼上的真懂女人，谈过几次恋爱啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34009#       发表于 2021-3-13 11:20
+
+
+
+
+看了kaza的家用3D，感觉离开空妈和3D的新家用3D还是有差距，不过cover没产能可以慢慢追。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 34010#       发表于 2021-3-13 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50609000&amp;ptid=1969498" target="_blank">nowaki 发表于 2021-3-13 11:15</a>
+楼上的真懂女人，谈过几次恋爱啊</blockquote>
+怎么有您多啊，毕竟有几个nga号就有几个前女友是吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34011#       发表于 2021-3-13 11:34
+
+
+
+
+没那么多，我也不懂女人
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 34012#       发表于 2021-3-13 11:43
+
+
+
+
+能不能nowaki和尾巴哥一换一啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34013#       发表于 2021-3-13 11:53
+
+
+
+
+尼玛昨天睡得早错过了大戏，急得慌<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34014#       发表于 2021-3-13 12:01
+
+
+
+
+第一波还以为是真男人 然后会限怂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 也是乐
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34015#       发表于 2021-3-13 12:10
+
+
+
+
+看来看去感觉最大的问题是人设崩塌，可本来人家rp得好好的，还是去掀皮的人的错，打破这层窗户真的容易让人索然无味
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 34016#       发表于 2021-3-13 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 日常睡过大新闻 ，感觉也不知道咋评价，没啥先例我靠
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34017#       发表于 2021-3-13 12:23
+
+
+
+
+20出头的小青年又多金又有隔着屏幕讨几十万人欢心的能力，不会真有人信他是孤独之星吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么搞和隔壁真以为女主播都是恐男女同的🦄杏奴有什么区别
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34018#       发表于 2021-3-13 12:27
+
+
+
+<blockquote>nowaki 发表于 2021-3-13 10:09
+毛桃是桃皇一口咬死自己口嗨，你要尊妈一口要死自己养了野男人么</blockquote>
+毛桃关键是前女友出来辟谣
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 34019#       发表于 2021-3-13 12:28
+
+
+
+
+所以是真男人还是怂了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34020#       发表于 2021-3-13 12:29
+
+
+
+ 本帖最后由 十四洲 于 2021-3-13 12:33 编辑 
+
+粉丝信不信是一回事，捅不捅破又是一回事，这本来就是管人的醍醐味，隔壁维阿不就是被中之人搞出来的各种破事弄得乱七八糟
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34021#       发表于 2021-3-13 12:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你虹现在不是有正儿八经的公关部的吗，该出来干活了啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34022#       发表于 2021-3-13 13:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 其实如果找了个圈外美女，那这件事怎么都好，
+
+
+这事最离谱的还是搞社内恋爱，
+
+
+不知道当初老虹人吹嘘的问题儿童疗养院，彩虹婚介所的那些人是什么心情
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34023#       发表于 2021-3-13 13:10
+
+
+
+
+草草草，场内场外同样精彩，看到三波不同的人在隔空喷v综相关人
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34024#       发表于 2021-3-13 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50610066&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-13 13:10</a>
+
+草草草，场内场外同样精彩，看到三波不同的人在隔空喷v综相关人</blockquote>
+原来这v综还有人看阿，真是让人欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 34025#       发表于 2021-3-13 13:25
+
+
+
+
+乐了 国内葛尊就是国内虹人传播的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+公关组早就干活了，那个视频删了又传，传了又删
+
+
+我的卯月什么时候找正经女友，别搞营业暧昧网恋了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34026#       发表于 2021-3-13 13:27
+
+
+
+<blockquote>渡鸦骑士 发表于 2021-3-13 13:22
+原来这v综还有人看阿，真是让人欣慰</blockquote>
+这事在asmr阶段我在微博看到的就是2000总结的版本截图。
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 34027#       发表于 2021-3-13 13:35
+
+
+
+
+阳光虹人要来清算了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               
