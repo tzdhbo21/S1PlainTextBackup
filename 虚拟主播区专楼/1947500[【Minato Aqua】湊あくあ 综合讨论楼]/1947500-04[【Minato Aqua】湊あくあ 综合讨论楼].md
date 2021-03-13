@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 14:36** 
+> ## **本文件最后更新于2021-03-13 08:39** 
 
 
 
@@ -11217,16 +11217,7 @@ b企划也没写明版权具体归属，cover这边旗下艺人有个演唱权�
 ####  若风之景  
 ##### 5108#       发表于 2021-2-17 19:12
 
-
-
-
-？
-
-—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14742,11 +14733,485 @@ syl，这直播抽卡也太欧了
 
 
 
+ 本帖最后由 面具13 于 2021-3-10 22:37 编辑 
 
-怪物，太不熟了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（486秒了）
-
-
-
+怪物，太不熟了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（486秒了）跑调地狱啊
 
 
-                       
+
+
+
+
+
+-----
+
+####  499  
+##### 5284#       发表于 2021-3-10 23:33
+
+
+
+
+以前不知道在nga还是哪看到的来着，这点描の唄是给mea酱唱的<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5285#       发表于 2021-3-10 23:42
+
+
+
+
+大亏今天这APEX意识看起来进步挺大的，看样子是真想solo上大师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5286#       发表于 2021-3-11 19:07
+
+
+
+
+要播新东西了。看来是apex状态不好。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5287#       发表于 2021-3-11 19:30
+
+
+
+
+怕不是第一次的ns版apex
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 5288#       发表于 2021-3-11 19:37
+
+
+
+
+简简单单上个大师
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5289#       发表于 2021-3-11 19:46
+
+
+
+
+嘛 又掉钻4了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5290#       发表于 2021-3-11 19:56
+
+
+
+
+掉到7728了，像隔壁小千一样一路掉到7200也是有可能的。钻石分段单排apex，随机因素大，就像股市一样刺激<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5291#       发表于 2021-3-11 20:01
+
+
+
+
+？gbf吗，玩个赛马掉到cy坑了？
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 5292#       发表于 2021-3-11 20:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5293#       发表于 2021-3-11 20:04
+
+
+
+
+草 blhx不行了就播blhx吧
+
+听说是个深坑……几个肝都不够用的那种
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5294#       发表于 2021-3-11 20:18
+
+
+
+
+以后打算用手游来接大乱斗和MC的班吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5295#       发表于 2021-3-11 20:21
+
+
+
+
+下判断：姨了姨了
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 5296#       发表于 2021-3-11 20:30
+
+
+
+
+草 前几天486播GBF好像还提过哪个角色给人的感觉像阿夸<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5297#       发表于 2021-3-11 20:36
+
+
+
+
+等什么时候开始搞ASMR 台词回 饮酒/被窝杂谈才是真的姨了好吗
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5298#       发表于 2021-3-11 21:03
+
+
+
+
+cy游戏应该玩了不少了，傻之比断断续续玩了挺长时间，还有有次读空气的时候看到手机里有pcr和cgss
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5299#       发表于 2021-3-11 21:07
+
+
+
+
+说起来自从上次mc联动取消之后是不是就没播过mc了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5300#       发表于 2021-3-11 21:53
+
+
+
+
+原本就是debuff game，自己还不擅长播jrpg，还要关sc，要是长期播就真要回到5k同接了。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5301#       发表于 2021-3-11 21:57
+
+
+
+
+初见gbf倒是感觉还挺有趣的
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5302#       发表于 2021-3-11 22:02
+
+
+
+
+要梦回大舅了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5303#       发表于 2021-3-11 22:16
+
+
+
+
+アクアンキラー　草草草
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5304#       发表于 2021-3-11 22:17
+
+
+
+ 本帖最后由 面具13 于 2021-3-12 07:19 编辑 
+
+あくアンキラー<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">anti快跑啊
+
+
+
+熬夜打apex，涨回去了。估计是图一个晚上挂少。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5305#       发表于 2021-3-12 15:49
+
+
+
+
+Q……胃疼
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 5306#       发表于 2021-3-12 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">决赛圈一个挂壁
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5307#       发表于 2021-3-12 22:20
+
+
+
+
+和我初见Q时一样满脑子困惑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5308#       发表于 2021-3-13 00:35
+
+
+
+
+那边看完的时候b站evaQ同时观看人数瞬间少了100多
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5309#       发表于 2021-3-13 02:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/020841o5y152wwtu2wckw8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210313_013051_jp.co.cygames.umamusume.jpg</strong> (181.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 02:08 上传
+
+
+
+
+
+
+sj了一下夸宝赛马娘账号发现西野花满破了
+
+本来还觉得她不像是氪金废人的
+
+不过即使有这么多满破s卡，好像养成成果还是不尽人意啊
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5310#       发表于 2021-3-13 16:14
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-13 16:19 编辑 
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5311#       发表于 2021-3-13 16:14
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-13 16:17 编辑 
+
+两个手游加APEX你就是时间管理大师<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
