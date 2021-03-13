@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-12 19:10** 
+> ## **本文件最后更新于2021-03-13 01:18** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_Y43D6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_ldNy2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_NZ0K7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_P1bX3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_CuU2w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_Ud2ah" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -16554,6 +16554,25 @@ king一天2000，兔头几天1000，正常来说能挣扎也就今明两天了�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 昆西昆希昆| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -19095,10 +19114,11 @@ syl，尊妈小人什么时候出，到时候和葛叶小人摆一起<img src="h
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|以后再多来点葛尊|
 | alcoholic1000| + 1||
 
 
@@ -19192,4 +19212,442 @@ king不来借鉴一下国产黑黑的经验？同样都是有过另一半的，�
 
 
 
-                 
+
+
+-----
+
+####  IDIDIDID  
+##### 33976#       发表于 2021-3-13 03:13
+
+
+
+
+暗示king喜欢年轻的，自己已经老了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/031330zf7m7urul2226lcg.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #063 - 'Latest Tweets _ Twitter' - twitter_com.png</strong> (4.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 03:13 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 33977#       发表于 2021-3-13 03:14
+
+
+
+
+2000的反应丝毫不出我所料，甚至是此时此刻会有一丁点儿真情混在里面尚也在我所料之中
+
+
+毕竟2000和脑中king的那场对喷这下是输惨了：笃定king会缩在尊妈缩在虚拟的皮下，任由外界流言也不会站起来负起责任，建立在这一切之上的2000发散在king虽说不职业然而堂堂地发言面前瞬间从令人作呕化为苍白无力。
+
+
+世间之事，往往就怕堂堂，要是这时候2000还不zqsg一波，那也太没有自尊了，所以2000没有回避，而是还挺有风度的打了gg。
+
+
+对于king我个人一向颇不以为然。抛开前世的种种传闻和直播风格，king常常因运而获得的直播效果也并没有被我当做他的本事。自始至终我对king的评价不过是一个还算有能力但是运气好到爆炸的寻常赢家组。king在我心目中从来没有得到过叶师那种微妙的敬意。
+
+
+所以，今天king给我带来的震撼也是不言自明了。
+
+
+当然，king此举无论是对自己的vtb生涯，自己的女粉，还是虹的未来（哦对了还有vjuan虚拟度，等等还有那个东西吗），都可以说是非常不负责，然而除了黑黑贴贴人，黑黑女噶吃以及虹箱粉，我认为不会有任何一个思维理智的人攻击king的这个决定。
+
+
+说难听点，谁都想当一次英雄，把那些该想的不该想的，该顾虑的不该顾虑的，该畏惧的不该畏惧的
+
+
+统统抛在脑后
+
+
+原想说一些关于后续可能的影响之类的话，不过还是算了，都输麻了，无论是不服还是事后诸葛亮，都很可笑
+
+
+就把我小号的签名档献给名副其实的king和屏幕前的你
+
+
+“Men at some time are masters of their fates”《Julius Ceasar》1.2.140-143
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 33978#       发表于 2021-3-13 03:20
+
+
+
+ 本帖最后由 netwof2008 于 2021-3-13 03:56 编辑 
+
+啊这，深夜吃瓜本来还想说挺有担当，根据云来的情报，爱情长跑修得正果不是很好，尊妈看评价大家都夸的啊，有这样的老婆不是很好嘛，旧人设虽然崩了，起码会脱一层皮，但是新人设也可以出现啊，直接转型成游戏主播不也挺好，总是要结婚的啊。。
+
+没想到看虹楼repo会限居然说自己独居，那有什么不好公开说的呢，直接解释清楚大家都好，这不是完全锤死了吗。。是想对外拉路人缘，对内稳gachi吗？这逻辑能站的住吗。。
+
+
+syl 本来最近云的葛叶为我推讲话，好感回了一点，现在觉得这人真的一言难尽了，19年那样对我推看来真的有故意的成分了，黑黑顺势就拆了，球球了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 33979#       发表于 2021-3-13 03:31
+
+
+
+
+KING会限这招，把快要浮出水面的「真相」按了回去，已经不明白了，不想再思考了
+
+
+「议程设置」「反沉默螺旋」，KING游戏打累了去指教下ickrマスコミ吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 33980#       发表于 2021-3-13 03:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">偶然想起元宵节和同事在食堂吃元宵时的轶事，
+
+食堂的元宵有几种不同的馅料，有巧克力，黑芝麻，草莓等等
+
+“你来猜猜我这一碗元宵里第一个吃到的是什么馅？”
+
+“虽然猜不出你吃到的第一个是什么”
+
+我原本打算吐槽一下这句话，但之后他说：
+
+“虽然有很多种馅的汤圆，我也不知道第一个吃到的是什么，但可以确定的是，
+
+你第一个吃到的一定是让人忘掉不愉快的甜味，”
+
+这件事虽然是有一个意外的开始，但一定也有一个让人甜到发腻的结局，
+
+就是这样。
+
+
+
+
+
+
+
+-----
+
+####  半年  
+##### 33981#       发表于 2021-3-13 03:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+我同意这门婚事
+
+
+2434可不是什么养噶吃的地方
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 33982#       发表于 2021-3-13 04:36
+
+
+
+
+现在会限这条出来以后，还真有两种思路了
+
+现在信的也有不信的也有
+
+隔着推理小说呢
+
+
+反正葛尊szd！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33983#       发表于 2021-3-13 04:41
+
+
+
+
+不论真假 能看到楼友发情 这波不亏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 33984#       发表于 2021-3-13 05:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葛尊不是19年就开始有了的吗,现在官宣?
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 33985#       发表于 2021-3-13 05:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607544&amp;ptid=1969498" target="_blank">zore 发表于 2021-3-13 05:23</a>
+
+葛尊不是19年就开始有了的吗,现在官宣?</blockquote>
+没 依旧是谜语人
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 33986#       发表于 2021-3-13 05:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595129&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-12 00:40</a>
+
+cr结束了最协，最协结束了cr
+
+别想了，除非apex在日本退潮
+
+不然这个节奏不会断的</blockquote>
+太君喜欢玩就算了，还喜欢全程无交流自闭苟分，导致日服排位九成时间都在搜东西和发呆，无聊死了。无法理解太君的游戏方式。
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 33987#       发表于 2021-3-13 05:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595214&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-12 00:51</a>
+
+给ow招个魂，我想看管人打</blockquote>
+等OW2吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 33988#       发表于 2021-3-13 06:54
+
+
+
+
+火畜躺平得好快
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 33989#       发表于 2021-3-13 07:52
+
+
+
+
+怎么剧情还一波三折的，这就是虚拟推理小说吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 33990#       发表于 2021-3-13 08:31
+
+
+
+
+这到底是哪样啊？看前面楼友说默认了，现在又变回谜语了？
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 33991#       发表于 2021-3-13 08:47
+
+
+
+
+真是精彩，观望了这么久，刚想夸king来着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+但怎么说应该都是翻篇了，那只能期待这两位下次的情人节声音作品了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 33992#       发表于 2021-3-13 08:50
+
+
+
+
+king的待机间现在还在加会员，太可怕了
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 33993#       发表于 2021-3-13 08:54
+
+
+
+
+不管，信则有，翻页真，葛尊szd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 33994#       发表于 2021-3-13 08:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么听起来一股懂的都懂的意思，这不是啥都没回应么
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 33995#       发表于 2021-3-13 09:08
+
+
+
+
+独居不也很正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+早点把窗户纸捅破也挺好，人设改下以后男女联动注意点就行，像之前高野菜那里我觉得葛那个反应明显就是装的
+
+
+
+
+
+                

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-12 12:01** 
+> ## **本文件最后更新于2021-03-13 01:41** 
 
 
 
@@ -124,10 +124,11 @@
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 11116等| + 1||
 | 六连星mk2| + 1|欢乐多|
 | shazam| + 1|哈哈哈好笑|
 
@@ -296,6 +297,25 @@
 萌翻天天往国内发日本这个不爽那个恶心又坚决不肯回国的表演还是很好看的。 ...</blockquote>
 二次元陈平<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 风动心静| + 1|思路广|
+
+
+
+查看全部评分
 
 
 
@@ -882,6 +902,25 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 太平洋啊宽又广，好像劳模亚丝娜。
 抽查多了哔-自宽，两根绝对塞得下。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OVTVO| + 1|看到这绷不住了|
+
+
+
+查看全部评分
 
 
 
@@ -2235,10 +2274,18 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 
 
 
- 参与人数 17战斗力 +17
+ 参与人数 25战斗力 +25
 
 |昵称|战斗力|理由|
 |----|---|---|
+| OVTVO| + 1|来泥潭晚，没见识到萌翻这一手绝活，遗憾.|
+| 你听得到| + 1|欢乐多|
+| xxjj8899| + 1|欢乐多|
+| Nemo艇长| + 1|欢乐多|
+| pliee| + 1|欢乐多|
+| 不和谐音| + 1|欢乐多|
+| 大江户战士| + 1|欢乐多|
+| carfisher| + 1|得罪了婆罗门，有你好果子吃|
 | loli公园巡游者| + 1|欢乐多|
 | 八月琉璃| + 1|谢谢你，萌翻|
 | SaltyGhoti| + 1||
@@ -2251,11 +2298,6 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 | bikan1425| + 1|欢乐多|
 | avayazhg| + 1|欢乐多|
 | ambivalence| + 1|欢乐多|
-| zcrptx| + 1|欢乐多|
-| 羽桐れもん| + 1|很有精神|
-| 待宵| + 1|笑死我|
-| Tomorrow_D| + 1|欢乐多|
-| 春哥亲自| + 1|很有精神！|
 
 
 
@@ -3580,4 +3622,591 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 
 
 
-                                           
+
+
+-----
+
+####  爱尔米娜  
+##### 184#       发表于 2021-3-12 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599578&amp;ptid=1992727" target="_blank">katun 发表于 2021-3-12 12:46</a>
+
+我记得当初有个人因为开小号疯狂精分自演被喷出了s1一段时间，是这个人么？还是我记错了 ...</blockquote>
+就是这个，好像是11年漫区，那会真是炸鱼炸到粪海狂蛆。后来道歉淡出一段时间，再后来一看萌二troll成日本傻事了
+
+
+
+
+
+
+
+-----
+
+####  Gooddays  
+##### 185#       发表于 2021-3-12 20:17
+
+
+
+ 本帖最后由 Gooddays 于 2021-3-12 20:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603440&amp;ptid=1992727" target="_blank">在空中自杀 发表于 2021-3-12 18:43</a>
+炸的最严重的就是这点。明日香不爱相田剑介，却被塞给了相田剑介，这代表着她对人生无奈的妥协与认输。你 ...</blockquote>
+明日香的傲是对同年人的傲，她对年纪大的人可傲不了多少，而她开始时喜爱的加持在行为上怎也不像父亲类人物，但至少比同为14岁的男主成熟多了，谈讨及行为明显更好。
+
+明日香更像是讨厌思想简单的小孩子（她是跳级大学毕业），喜好交流能力好也懂对女性温柔的成熟男性，而男主是14岁中学生人生经验（没有社会经验），剑介是28岁人生经历，那差别的14年还是世界大变在新环境下活下去的人生，当中所打造出来的成熟程度便不是男主那中学生思维能比较的。
+
+
+
+
+
+
+
+-----
+
+####  katun  
+##### 186#       发表于 2021-3-12 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604100&amp;ptid=1992727" target="_blank">爱尔米娜 发表于 2021-3-12 20:05</a>
+
+就是这个，好像是11年漫区，那会真是炸鱼炸到粪海狂蛆。后来道歉淡出一段时间，再后来一看萌二troll成日 ...</blockquote>
+谢谢，细节全忘光了，但自演这事果然没记错，难怪当初看到长风难度事件觉得如此熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bakura222  
+##### 187#       发表于 2021-3-12 20:51
+
+
+
+
+自演又不是什么原则性错误，萌翻在大是大非的问题上三观还是很正的，比泥潭很多精日巨魔正气多了，我们对萌翻的评价，应该是七分功绩三分错误 。
+
+
+
+
+
+
+
+-----
+
+####  marsquake  
+##### 188#       发表于 2021-3-12 20:57
+
+
+
+
+萌翻挺正常的啊
+
+
+
+
+
+
+
+-----
+
+####  黑夜守望者  
+##### 189#       发表于 2021-3-12 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597142&amp;ptid=1992727" target="_blank">星野莉莉 发表于 2021-3-12 09:37</a>
+
+所以到现在五天了，有哪位勇士带🔪去找痞子促膝长谈吗？就这点儿战斗力也难怪痞子看不起E粉 ...</blockquote>
+这个......我觉得守法不是为了让人看得起还是看不起的<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  六连星mk2  
+##### 190#       发表于 2021-3-12 21:00
+
+
+
+
+我记得当初微博上对萌翻说了句，加油留下，早日归化，结果就被双了，非常不理解为啥又要去日本，又讨厌别人希望他归化
+
+
+
+
+
+
+
+-----
+
+####  黑夜守望者  
+##### 191#       发表于 2021-3-12 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598691&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:43</a>
+
+看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天 ...</blockquote>
+爱之深责之切，人家是真爱日本啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  在空中自杀  
+##### 192#       发表于 2021-3-12 21:24
+
+
+
+ 本帖最后由 在空中自杀 于 2021-3-12 21:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604239&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 20:17</a>
+明日香的傲是对同年人的傲，她对年纪大的人可傲不了多少，而她开始时喜爱的加持在行为上怎也不像父亲类人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">能说出明日香喜欢加持我也无法跟你继续下去了。你哪怕是在看笑话的过程中云了剧透，也不会说出明日香是喜欢剑剑的。
+
+
+
+
+
+
+
+-----
+
+####  mumubear  
+##### 193#       发表于 2021-3-12 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598848&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:54</a>
+好叫，在中国爱日本，在日本爱中国，你猜是啥成色</blockquote>
+他把日本脑补成爱莉后面被美丽奸输出前面被王叔叔口火暴的爱，这“爱”也就那样吧。。。
+
+
+
+
+
+
+
+-----
+
+####  枫紫  
+##### 194#       发表于 2021-3-12 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598800&amp;ptid=1992727" target="_blank">钱君 发表于 2021-3-12 11:50</a>
+好叫，千叶很好了好哇，又不是琦玉，别小看米老鼠自治领啊</blockquote>
+可是赛他吗人觉得自己是东京人啊
+
+
+
+
+
+
+
+-----
+
+####  KOPKOM  
+##### 195#       发表于 2021-3-12 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604239&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 20:17</a>
+明日香的傲是对同年人的傲，她对年纪大的人可傲不了多少，而她开始时喜爱的加持在行为上怎也不像父亲类人 ...</blockquote>
+好叫，明日香跟你们剑剑同岁好伐
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 196#       发表于 2021-3-12 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598691&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:43</a>
+
+看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天 ...</blockquote>
+当时出国主要是出于两个考虑
+
+1 大学日语专业，不会理科，感觉自己要混下去只能去日本镀金然后干翻译
+
+2 当时网络环境挺不好的，天天担心再也不能顺畅接触到ACG了。我个死宅就指望这点活了，一焦虑，就想出去了
+
+
+然后到了日本久住了，才发现，除了接触ACG顺畅外，缺点一抓一大把
+
+当然细说就涉及到政治了，所以不细说
+
+
+那为什么不回国呢？
+
+因为我运气好，找到的住处和工作都令人满意，又出门遇贵人，过上了还算舒适的日子，
+
+所以虽然天天骂日本，但暂时不打算改变现状了
+
+
+
+
+
+
+
+-----
+
+####  sakura79  
+##### 197#       发表于 2021-3-12 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604555&amp;ptid=1992727" target="_blank">bakura222 发表于 2021-3-12 20:51</a>
+
+自演又不是什么原则性错误，萌翻在大是大非的问题上三观还是很正的，比泥潭很多精日巨魔正气多了，我们对萌 ...</blockquote>
+生艹，萌翻旅日以来若干历史问题的决议吗？
+
+
+
+
+
+
+
+-----
+
+####  kanago  
+##### 198#       发表于 2021-3-12 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604878&amp;ptid=1992727" target="_blank">在空中自杀 发表于 2021-3-12 21:24</a>
+
+能说出明日香喜欢加持我也无法跟你继续下去了。你哪怕是在看笑话的过程中云了剧透，也不会说出明 ...</blockquote>
+后者不知道，但我觉得明日香喜欢加持，但不是恋人那种喜欢，而是那种憧憬/想要依赖的那种喜欢
+
+就像女孩子喜欢大毛绒玩具那种，就像阿宅喜欢猫咪狗狗那种
+
+
+
+
+
+
+
+-----
+
+####  在空中自杀  
+##### 199#       发表于 2021-3-12 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605004&amp;ptid=1992727" target="_blank">kanago 发表于 2021-3-12 21:36</a>
+后者不知道，但我觉得明日香喜欢加持，但不是恋人那种喜欢，而是那种憧憬/想要依赖的那种喜欢
+
+就像女孩子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明日香对加持就是恋父情结以及想要借加持假装自己不是小孩子啊
+
+
+
+
+
+
+
+-----
+
+####  枫紫  
+##### 200#       发表于 2021-3-12 21:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604946&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 21:31</a>
+当时出国主要是出于两个考虑
+
+1 大学日语专业，不会理科，感觉自己要混下去只能去日本镀金然后干翻译
+
+2 当 ...</blockquote>
+贵人是指那位棒妹？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 201#       发表于 2021-3-12 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605224&amp;ptid=1992727" target="_blank">枫紫 发表于 2021-3-12 21:56</a>
+
+贵人是指那位棒妹？</blockquote>
+是挑我发小财的朋友
+
+
+
+
+
+
+
+-----
+
+####  枫紫  
+##### 202#       发表于 2021-3-12 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605244&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 21:58</a>
+是挑我发小财的朋友</blockquote>
+挺好奇你现在生活开销占收入几成的，不过这问题太隐私，还是算了
+
+
+
+
+
+
+
+-----
+
+####  Calandra  
+##### 203#       发表于 2021-3-12 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604946&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 21:31</a>
+当时出国主要是出于两个考虑
+
+1 大学日语专业，不会理科，感觉自己要混下去只能去日本镀金然后干翻译
+
+2 当 ...</blockquote>
+和过去相比你觉得网络环境变好了吗，能不能顺畅的接触到acg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 204#       发表于 2021-3-12 22:27
+
+
+
+ 本帖最后由 HGCG 于 2021-3-12 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605458&amp;ptid=1992727" target="_blank">Calandra 发表于 2021-3-12 22:16</a>
+
+和过去相比你觉得网络环境变好了吗，能不能顺畅的接触到acg</blockquote>
+动画电视里直接看，剧场版动画第一时间看
+
+漫画看KINDLE
+
+游戏么……本来住练马区的时候车站对面有家租碟店能提前一天买到游戏，
+
+现在住的村子里没有这种店，只能去24小时租碟店零点去买
+
+上网么，除了网速都好
+
+这该死的孙棒子的网线……
+
+不过不下片子了也无所谓
+
+
+就是美国大片就要等很久了，哥斯拉大战金刚日本竟然要5月才有
+
+
+
+
+
+
+
+-----
+
+####  dllplayer  
+##### 205#       发表于 2021-3-12 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603365&amp;ptid=1992727" target="_blank">不得小于三字 发表于 2021-3-12 18:35</a>
+
+我家上海外环三林这里，到人广也就30分钟左右，他家能有多远。。</blockquote>
+济阳路跨线桥距离人广大概是11.5KM...
+
+他家.....距离人广大概在20KM以上...你自己开东京地图画两个圈看看分别到哪里了
+
+
+
+
+
+
+
+-----
+
+####  fff10tw  
+##### 206#       发表于 2021-3-12 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605556&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 22:27</a>
+动画电视里直接看，剧场版动画第一时间看
+
+漫画看KINDLE
+
+游戏么……本来住练马区的时候车站对面有家租碟店 ...</blockquote>
+日本网速不是世界领先？
+
+
+
+
+
+
+
+-----
+
+####  旋转吃草  
+##### 207#       发表于 2021-3-12 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50600733&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 14:32</a>
+那位-27的亲急吼吼得定义出个3线的..
+
+不是咱说的...其实我很怀疑那位根本不知道萌翻在哪里张嘴就来的三线 ...</blockquote>
+不说平时泥潭一说日本都是东京一线，大阪二线，剩下全是三线及以下
+我记得萌翻现在住的地方连amazon fresh都不送，这啥二线城市标准啊<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  herostratus  
+##### 208#       发表于 2021-3-12 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598023&amp;ptid=1992727" target="_blank">pharos 发表于 2021-3-12 10:54</a>
+
+https://bbs.saraba1st.com/2b/thread-1130845-1-1.html
+
+https://bbs.saraba1st.com/2b/thread-1130791-1- ...</blockquote>
+是有等级限制吗，看不了
+
+
+
+
+
+
+
+-----
+
+####  yst234  
+##### 209#       发表于 2021-3-12 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605733&amp;ptid=1992727" target="_blank">fff10tw 发表于 2021-3-12 22:46</a>
+
+日本网速不是世界领先？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 软银好像是挺拉垮的
+
+以前看管人用软银的网极易掉线
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 210#       发表于 2021-3-13 06:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605716&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 22:45</a>
+
+济阳路跨线桥距离人广大概是11.5KM...
+
+他家.....距离人广大概在20KM以上...你自己开东京地图画两个圈看看 ...</blockquote>
+据我所知，萌翻上海的家要去人民广场只需要坐地铁八号线
+
+
+
+
+
+
+
+-----
+
+####  枫紫  
+##### 211#       发表于 2021-3-13 08:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605733&amp;ptid=1992727" target="_blank">fff10tw 发表于 2021-3-12 22:46</a>
+日本网速不是世界领先？</blockquote>
+别闹，民用早给中国超越了，当然我国有那啥在所以限制比较多
+
+
+
+
+
+
+
+-----
+
+####  观自在  
+##### 212#       发表于 2021-3-13 08:32
+
+
+
+ 本帖最后由 观自在 于 2021-3-13 08:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604640&amp;ptid=1992727" target="_blank">六连星mk2 发表于 2021-3-12 21:00</a>
+我记得当初微博上对萌翻说了句，加油留下，早日归化，结果就被双了，非常不理解为啥又要去日本，又讨厌别人 ...</blockquote>
+在日本工作就要归化？这是什么道理你给讲讲。
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  岛田开  
+##### 213#       发表于 2021-3-13 08:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607616&amp;ptid=1992727" target="_blank">待宵 发表于 2021-3-13 06:22</a>
+
+据我所知，萌翻上海的家要去人民广场只需要坐地铁八号线</blockquote>
+卧槽，已经很好了，要那些真转乘两三个地铁的怎么活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          
