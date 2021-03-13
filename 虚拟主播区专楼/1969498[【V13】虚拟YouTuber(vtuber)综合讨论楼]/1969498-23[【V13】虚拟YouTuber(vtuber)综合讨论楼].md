@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 05:36** 
+> ## **本文件最后更新于2021-03-13 11:36** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_q6vbm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Nbeeo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_TBddG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_KKsf2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_liBSu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_LCqe0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -20224,4 +20224,722 @@ https://mobile.twitter.com/TwitterJP/status/1370162810517344256
 
 
 
-               
+
+
+-----
+
+####  UnhappyTails  
+##### 34028#       发表于 2021-3-13 13:37
+
+
+
+ 本帖最后由 UnhappyTails 于 2021-3-13 13:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50610219&amp;ptid=1969498" target="_blank">cqkxywj 发表于 2021-3-13 13:25</a>
+
+乐了 国内葛尊就是国内虹人传播的
+
+
+公关组早就干活了，那个视频删了又传，传了又删</blockquote>
+
+可恶，我家卵用就不可以找男朋友吗！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 34029#       发表于 2021-3-13 14:01
+
+
+
+
+来点小少爷色图
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 34030#       发表于 2021-3-13 14:06
+
+
+
+
+阳光虹人能不能留阴虱虹人一条命，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34031#       发表于 2021-3-13 14:12
+
+
+
+
+这有啥好喷的？s1现在不是唯一指定净土吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34032#       发表于 2021-3-13 14:25
+
+
+
+
+整个S1 V版就是“卵用没有”这四个字在字典上的解释，有什么迫害的必要吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34033#       发表于 2021-3-13 14:39
+
+
+
+
+谱皇今晚全篇免费大气啊，能不能让某个推特都被橄榄的老姐多洗一会脚<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 34034#       发表于 2021-3-13 14:45
+
+
+
+
+记得来看。
+
+[https://live.bilibili.com/22030718](https://live.bilibili.com/22030718)
+
+<img src="https://img.saraba1st.com/forum/202103/03/131819q110gbllxghbn44y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  怜  
+##### 34035#       发表于 2021-3-13 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">口了最近复播是不是好时机
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34036#       发表于 2021-3-13 15:21
+
+
+
+
+今天！
+
+花譜 2nd ONE-MAN LIVE「不可解弐Q2」
+
+目覚まし時計2021年3月13日（土）
+
+開場18:30/開演19:15（予定）
+<strong>※YouTube Liveにて全編無料配信</strong>
+
+※アーカイブなし
+
+<img src="https://img.saraba1st.com/forum/202103/13/152045fmoy2990ysft7muy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>花譜2nd ONE-MAN LIVE『不可解弐Q2』.jpg</strong> (1005.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 15:20 上传
+
+
+
+
+
+[https://twitter.com/sakusya2hond ... 69831131141/photo/1](https://twitter.com/sakusya2honda/status/1370634069831131141/photo/1)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34037#       发表于 2021-3-13 15:44
+
+
+
+
+还有一刻钟ワクワク
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34038#       发表于 2021-3-13 16:26
+
+
+
+
+花谱酱真大气啊，好爽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34039#       发表于 2021-3-13 17:03
+
+
+
+
+昨晚一定被尊妈好好安慰了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34040#       发表于 2021-3-13 17:25
+
+
+
+
+神椿的正社员真是棒<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34041#       发表于 2021-3-13 17:41
+
+
+
+
+提早这么久开播就是持续循环广告是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34042#       发表于 2021-3-13 17:42
+
+
+
+
+18:15开播
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34043#       发表于 2021-3-13 18:16
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-13 18:18 编辑 
+
+神椿好闲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+谁来点无料 vs 6000
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34044#       发表于 2021-3-13 18:21
+
+
+
+
+渲染风格还是没有变…
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34045#       发表于 2021-3-13 18:26
+
+
+
+
+好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34046#       发表于 2021-3-13 18:26
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-13 18:29 编辑 
+
+发重了，编辑
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34047#       发表于 2021-3-13 18:27
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-13 18:28 编辑 
+
+渲染风格倒是无所谓，毕竟日本人人均做VR梦。
+
+别的方面都在突飞猛进唯独这新宝岛般的螃蟹步没找个舞蹈老师设计一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34048#       发表于 2021-3-13 18:27
+
+
+
+
+怎么还是这个渲染
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34049#       发表于 2021-3-13 18:27
+
+
+
+
+轮到你了吗？
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/182805y3kzq1b0m6k3w1cc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (292.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 18:28 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34050#       发表于 2021-3-13 18:40
+
+
+
+
+这段rap有点意思
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34051#       发表于 2021-3-13 18:49
+
+
+
+
+valis怎么又出来伴舞了，喷了
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34052#       发表于 2021-3-13 18:49
+
+
+
+
+这动个手连脚都不抬起来也太真实了，是太紧张啦吗😂
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34053#       发表于 2021-3-13 18:51
+
+
+
+
+谱皇这动作和后面伴舞一比有6000块内味儿了，神椿呢救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34054#       发表于 2021-3-13 18:53
+
+
+
+
+花谱一直都是这个样子，不管做什么都很僵硬，但就是这种素人感才可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34055#       发表于 2021-3-13 19:02
+
+
+
+
+理芽理芽理芽理芽理芽
+
+
+
+
+
+
+
+-----
+
+####  moerisa  
+##### 34056#       发表于 2021-3-13 19:05
+
+
+
+
+都没现场观众的，这俩姐妹紧张过头了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34057#       发表于 2021-3-13 19:05
+
+
+
+
+抖音神曲我🔪了你
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34058#       发表于 2021-3-13 19:09
+
+
+
+
+这空气尬得我有点经不住了，怎么能做到这么浓烈地表现出“没话聊”
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34059#       发表于 2021-3-13 19:10
+
+
+
+
+哦这个牛逼有想法
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34060#       发表于 2021-3-13 19:12
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-13 19:15 编辑 
+
+看到现在最爽的一曲
+
+唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 34061#       发表于 2021-3-13 19:12
+
+
+
+ 本帖最后由 CielChloe 于 2021-3-13 19:20 编辑 
+
+别尬黑，没看楼上说的这是重要的素人感，你们是来听歌又不是来听杂谈的
+
+syl
+结果开始演起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sgssk  
+##### 34062#       发表于 2021-3-13 19:16
+
+
+
+<blockquote>しらたま 新人Vtuberになりました
+
+@shiratamacaron
+
+いきなりですが！
+
+新人Vtuberになりました！！！
+
+
+本日21：00～生配信です、
+
+すごく緊張しているのでぜひ応援しに来てください……！！！握った手深くお辞儀する女性キラキラ
+
+#しらたま2D
+
+
+午後3:49 · 2021年3月13日·Twitter Web App</blockquote>确实是很いきなり
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34063#       发表于 2021-3-13 19:16
+
+
+
+
+原来可不还没发售<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想最近怎么全是小春六花没可不
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34064#       发表于 2021-3-13 19:18
+
+
+
+
+激寒话剧yamero
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 34065#       发表于 2021-3-13 19:19
+
+
+
+
+快唱就行了，尬
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 34066#       发表于 2021-3-13 19:20
+
+
+
+
+尬尬尬尬尬尬尬尬尬尬尬尬尬
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 34067#       发表于 2021-3-13 19:35
+
+
+
+
+尬到让我想起 mea和小虾鱼聊天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+              
