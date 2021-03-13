@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 12:51** 
+> ## **本文件最后更新于2021-03-13 13:39** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_JiFwY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_j4Zzx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_ap6sa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_w7qzp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_w350Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_q82x2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -20559,9 +20559,9 @@ https://mobile.twitter.com/TwitterJP/status/1370162810517344256
 
 
 
- 本帖最后由 FCCHua 于 2021-3-13 18:29 编辑 
+ 本帖最后由 FCCHua 于 2021-3-13 21:18 编辑 
 
-发重了，编辑
+风怒
 
 
 
@@ -21571,4 +21571,337 @@ syl  新正太？   怎么你也搞个动画pv啊<img src="https://static.sa
 
 
 
-             
+
+
+-----
+
+####  十四洲  
+##### 34103#       发表于 2021-3-13 20:54
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/205403jzif8m9mfznnlndx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (75.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 20:54 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/205329vqkt1z1i4plzk1ij.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (172.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 20:53 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34104#       发表于 2021-3-13 20:54
+
+
+
+
+ema不出来发个翻唱表达一下喜爱吗，想听神椿曲了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34105#       发表于 2021-3-13 20:57
+
+
+
+
+玩具组，我的玩具组
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34106#       发表于 2021-3-13 21:03
+
+
+
+
+神椿都还准备6月开新live，为什么HH的live这么早就取消了呢…
+承日难，承日难
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 34107#       发表于 2021-3-13 21:04
+
+
+
+
+钱还够烧得嘛?
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34108#       发表于 2021-3-13 21:07
+
+
+
+
+6月的live又是众筹的
+
+对这个裸春市建设中越来越感兴趣了，PV里那个白毛男干啥的，是新人吗...
+
+
+
+
+
+
+
+-----
+
+####  名余竹  
+##### 34109#       发表于 2021-3-13 21:15
+
+
+
+
+跑去听了一下昆明南站的生日live，liz唱一句拉一句，妹啊你要不闭嘴放lita solo算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  名余竹  
+##### 34110#       发表于 2021-3-13 21:15
+
+
+
+ 本帖最后由 名余竹 于 2021-3-13 21:16 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34111#       发表于 2021-3-13 21:17
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-13 21:34 编辑 
+
+Le Jouet，我的Le Jouet<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+Syl，
+
+03/17
+
+They're back. #にじさんじギャングスター
+
+<img src="https://img.saraba1st.com/forum/202103/13/211708xog6ygi5n6k5wzzo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>03:17  They're back. #にじさんじギャングスター.jpg</strong> (366.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 21:17 上传
+
+
+
+
+
+
+
+2021/03/14　20:00~
+
+歌動画プレミア公開
+
+<img src="https://img.saraba1st.com/forum/202103/13/213320w349zt72aof2ta32.jpg" referrerpolicy="no-referrer">
+
+
+<strong>歌動画プレミア公開.jpg</strong> (72.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 21:33 上传
+
+
+
+
+
+
+
+你虹还是奔三代最有意思...
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34112#       发表于 2021-3-13 21:22
+
+
+
+
+每次看到这种靠音乐写故事的企划我就后背一凉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34113#       发表于 2021-3-13 21:31
+
+
+
+[https://www.bilibili.com/video/BV1P64y1D7xN](https://www.bilibili.com/video/BV1P64y1D7xN)
+
+【V.W.P】Debut Trailer / V.W.P #0
+
+这个组合在B站还开了个号啊
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 34114#       发表于 2021-3-13 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50615082&amp;ptid=1969498" target="_blank">ヒトニナル 发表于 2021-3-13 21:22</a>
+
+每次看到这种靠音乐写故事的企划我就后背一凉</blockquote>
+阳炎的ptsd还是潘多拉box的ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34115#       发表于 2021-3-13 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的很好奇 神椿这种路线 回得了本吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34116#       发表于 2021-3-13 21:37
+
+
+
+
+pied piper差不多得了别尼玛尬编世界设定了今天那狗屁演剧看的人脚趾抠出一个标准泳池好吧。
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 34117#       发表于 2021-3-13 21:37
+
+
+
+
+king现在直播这差评300都过不了，可以宣布胜利了吧<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34118#       发表于 2021-3-13 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">互联网公司其实赚不了钱才是常态吧，就是拉投资然后烧钱然后再拉投资循环。
+
+
+
+
+
+            
