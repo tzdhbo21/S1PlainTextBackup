@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 11:36** 
+> ## **本文件最后更新于2021-03-13 12:51** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_KKsf2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_liBSu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_LCqe0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_JiFwY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_j4Zzx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_ap6sa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -20801,11 +20801,14 @@ valis怎么又出来伴舞了，喷了
 
 
 
- 本帖最后由 alcoholic1000 于 2021-3-13 19:15 编辑 
+ 本帖最后由 alcoholic1000 于 2021-3-13 19:51 编辑 
 
 看到现在最爽的一曲
 
 唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+或许，很有舞台风格、想法很多的歌势可以考虑把live重心放在演唱上
 
 
 
@@ -20942,4 +20945,630 @@ syl
 
 
 
-              
+
+
+-----
+
+####  katern  
+##### 34068#       发表于 2021-3-13 19:39
+
+
+
+
+出去吃了个饭没看到，是有多尬啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+这就最后一曲了？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 34069#       发表于 2021-3-13 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50613773&amp;ptid=1969498" target="_blank">thisisaspider 发表于 2021-3-13 19:35</a>
+尬到让我想起 mea和小虾鱼聊天了</blockquote>
+别瞎说，小虾鱼那个更尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 34070#       发表于 2021-3-13 19:45
+
+
+
+
+现在放的播片是啥?
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 34071#       发表于 2021-3-13 19:47
+
+
+
+ 本帖最后由 CielChloe 于 2021-3-13 19:50 编辑 
+
+原来是这个意义的“自由”啊
+
+这个特殊形态怎么看都还是怪
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34072#       发表于 2021-3-13 19:47
+
+
+
+
+疫情特别观测者宣传动画（笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34073#       发表于 2021-3-13 19:49
+
+
+
+
+这小剧场太尬了也……
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 34074#       发表于 2021-3-13 19:49
+
+
+
+
+老爱：今天不播明天才播（看花谱
+
+【未来明】来看看近些日子VTB们的粉丝数量
+https://b23.tv/srb61U
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34075#       发表于 2021-3-13 19:50
+
+
+
+
+草，这前面的播片也太青春文学了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34076#       发表于 2021-3-13 19:50
+
+
+
+
+还是很土
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34077#       发表于 2021-3-13 19:51
+
+
+
+
+这个衣服是上次就有了吧，不过这次仔细看了下上半身，这个配色怎么让我觉得像某个年代的奥特曼阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 34078#       发表于 2021-3-13 19:55
+
+
+
+
+衣服有点宇宙感
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34079#       发表于 2021-3-13 20:02
+
+
+
+
+异世界情绪的单独live啥时候能安排上啊 神椿求你了我什么都会做的
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 34080#       发表于 2021-3-13 20:02
+
+
+
+
+用最炫的衣服跳最尬的舞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34081#       发表于 2021-3-13 20:03
+
+
+
+
+好帅惹
+
+
+
+
+
+
+
+-----
+
+####  tankai  
+##### 34082#       发表于 2021-3-13 20:03
+
+
+
+
+完了,我第一次听觉得情绪唱得更好.
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34083#       发表于 2021-3-13 20:04
+
+
+
+
+这首宣战牛逼
+
+
+
+
+
+
+
+-----
+
+####  名余竹  
+##### 34084#       发表于 2021-3-13 20:04
+
+
+
+
+神椿总算舍得把宣战放出来了，我好了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34085#       发表于 2021-3-13 20:08
+
+
+
+[https://www.youtube.com/watch?v=ce1nW-cn6l8](https://www.youtube.com/watch?v=ce1nW-cn6l8)
+
+【Vの体初配信！】新人Vtuberしらたまです！
+<img src="https://p.sda1.dev/1/7562ba8678a98834b111063a461ed52c/@W4KFTRR__JSO34__F__QU3.png" referrerpolicy="no-referrer">
+
+
+大量SC袭来
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34086#       发表于 2021-3-13 20:09
+
+
+
+
+果然还是情绪最带感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34087#       发表于 2021-3-13 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50614176&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-3-13 20:08</a>
+
+https://www.youtube.com/watch?v=ce1nW-cn6l8
+
+【Vの体初配信！】新人Vtuberしらたまです！</blockquote>
+白玉妈也下场了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34088#       发表于 2021-3-13 20:10
+
+
+
+
+明日14日は郡道が県外へ泊まりの出張で配信出来ない代わりに、メンバー子豚が24時間リレーでキャス配信してるよ(๑•🐽•๑)！
+#子豚キャスリレー
+↑このタグ付けてやってると思うので気になったら覗いてあげてください〜
+
+播得好的选来做郡道新中之人
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 34089#       发表于 2021-3-13 20:13
+
+
+
+ 本帖最后由 CielChloe 于 2021-3-13 20:21 编辑 
+
+后半场量大劲足
+
+嫡系5人战队VWP齐了哦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34090#       发表于 2021-3-13 20:17
+
+
+
+
+太尬聊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34091#       发表于 2021-3-13 20:17
+
+
+
+
+原来是这种尬，我感受到了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34092#       发表于 2021-3-13 20:18
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-13 20:21 编辑 
+
+聊天环节像没有台本一样自由随性...
+
+这场live从演出到特效都贯彻着虚拟的概念，特别是中场MC，毕竟三次元人类大概是不会这样讲话的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34093#       发表于 2021-3-13 20:20
+
+
+
+
+企业文化式的mc
+
+这几首合唱好棒啊
+
+“怎么没有ema”
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34094#       发表于 2021-3-13 20:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50614296&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-13 20:18</a>
+
+聊天环节像没有台本一样自由随性...</blockquote>
+应该就是没有吧，我不信有台本能这么随便<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34095#       发表于 2021-3-13 20:23
+
+
+
+
+派遣社员不配
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34096#       发表于 2021-3-13 20:23
+
+
+
+
+这次最v的明明是和可不合唱好吧
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34097#       发表于 2021-3-13 20:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/202104w9n91y9r1y83yg91.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210313202037.jpg</strong> (70.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 20:21 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/202112qanapfcgn5i5etga.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210313202044.jpg</strong> (55.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 20:21 上传
+
+
+
+
+
+
+难道大家都忘了tskk的网络暴行嘛，互联网真的没有记忆了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34098#       发表于 2021-3-13 20:27
+
+
+
+
+跟可不那段确实不错
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34099#       发表于 2021-3-13 20:31
+
+
+
+ 本帖最后由 katern 于 2021-3-13 20:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl  新正太？   怎么你也搞个动画pv啊<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34100#       发表于 2021-3-13 20:47
+
+
+
+
+这饼画的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34101#       发表于 2021-3-13 20:47
+
+
+
+
+卫星满天飞，期待期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34102#       发表于 2021-3-13 20:50
+
+
+
+
+惹，画饼不如给理芽多弄几首歌
+
+
+
+
+
+             
