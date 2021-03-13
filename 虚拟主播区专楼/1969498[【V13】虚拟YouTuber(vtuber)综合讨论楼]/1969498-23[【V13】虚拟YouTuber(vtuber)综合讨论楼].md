@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 13:39** 
+> ## **本文件最后更新于2021-03-13 17:02** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_w7qzp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_w350Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_q82x2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_vLMl8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_GULXT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_uYHnE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -21904,4 +21904,585 @@ king现在直播这差评300都过不了，可以宣布胜利了吧<img src="htt
 
 
 
-            
+
+
+-----
+
+####  free  
+##### 34119#       发表于 2021-3-13 21:41
+
+
+
+
+今天那小剧场是真的尴尬，黑白滤镜加上疑似给霸凌的女主，吓我一跳还以为出啥事呢，结果就是东京疫情搞到去不了线下，求求下次别整这节目了，最后都看笑了
+
+
+
+
+
+
+
+-----
+
+####  الطائر  
+##### 34120#       发表于 2021-3-13 21:42
+
+
+
+<img src="https://i.loli.net/2021/03/13/28DNtZqO4RlCWc5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34121#       发表于 2021-3-13 21:45
+
+
+
+ 本帖最后由 flyskywalker92 于 2021-3-13 21:50 编辑 
+
+所以彩虹摊开这么大还能赚钱 挺出人意料的
+
+
+syl hh的live怎么取消了 奥运会都能办 live不能办？
+
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34122#       发表于 2021-3-13 22:08
+
+
+
+
+这就是文化差异啊，日本人戴个口罩都能“哀”到各种抒发情感，搞得跟伤痛文学一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34123#       发表于 2021-3-13 22:11
+
+
+
+
+奥运不是也改成无观客了吗，这时候就别非得办线下了
+
+
+省一楼，这个算V吗
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/221133d5ayw294w2w2dapw.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (69.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 22:11 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34124#       发表于 2021-3-13 22:16
+
+
+
+
+没观众？日本本国人也不能现场看？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34125#       发表于 2021-3-13 22:27
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/211949r0fxchnognn2ycfn.jpg" referrerpolicy="no-referrer">
+
+
+
+偷隔壁杏综的，真的蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34126#       发表于 2021-3-13 22:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/223110brn9r7ffxjufzt26.png" referrerpolicy="no-referrer">
+
+
+<strong>【アニメ】助けて！！！やられる！！！！！！！！-0.png</strong> (152.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 22:31 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/222907rl767aa97l69p9sf.png" referrerpolicy="no-referrer">
+
+
+<strong>【アニメ】助けて！！！やられる！！！！！！！！-1.png</strong> (150.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 22:29 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/222906x0c4pcgqqqsfip11.png" referrerpolicy="no-referrer">
+
+
+<strong>【アニメ】助けて！！！やられる！！！！！！！！-2.png</strong> (143.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 22:29 上传
+
+
+
+
+
+
+阿葵<strong>自制的非官方动画第一集，很可爱</strong>
+[https://www.youtube.com/watch?v=tcWsuE57Lvw](https://www.youtube.com/watch?v=tcWsuE57Lvw)
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34127#       发表于 2021-3-13 22:40
+
+
+
+
+虽然这么说不太好，这不就是にじぐら么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葵中堂这是看本社的薪水小偷看不下去了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34128#       发表于 2021-3-13 22:41
+
+
+
+
+我发现这届CR杯的观众好像很喜欢美夜子 每次在吵有些队伍太强要求限制的时候 突然表扬起美夜子就不吵了 话说他们这么喜欢 美夜子同接还这么低 在搞毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 34129#       发表于 2021-3-13 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50615982&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-13 22:32</a>
+
+阿葵自制的非官方动画第一集，很可爱
+
+https://www.youtube.com/watch?v=tcWsuE57Lvw</blockquote>
+官方是只有彩虹官号才算么
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34130#       发表于 2021-3-13 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50615201&amp;ptid=1969498" target="_blank">2517君改二 发表于 2021-3-13 21:32</a>
+阳炎的ptsd还是潘多拉box的ptsd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">阳炎
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34131#       发表于 2021-3-13 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50616114&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2021-3-13 22:41</a>
+我发现这届CR杯的观众好像很喜欢美夜子 每次在吵有些队伍太强要求限制的时候 突然表扬起美夜子就不吵了 话 ...</blockquote>
+她能通过这次cr涨点粉我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34132#       发表于 2021-3-13 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50616158&amp;ptid=1969498" target="_blank">FCCHua 发表于 2021-3-13 22:44</a>
+
+她能通过这次cr涨点粉我就满足了</blockquote>
+美夜子从打铂金恼火到现在能solo钻石 这次CR杯越打越打好 虽然枪法确实不如你虹其他钻石女V 但人家一步步努力上来的 打得脑子很清晰 观众喜欢很正常 今天bora发挥不如前面几天 就由美夜子的来补足<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 34133#       发表于 2021-3-13 22:47
+
+
+
+
+今天看到有人踩凑阿夸apex吹黑黑千，但我看了下段位都差不多，有没有都看的人说说事实如此还是有点偏见了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34134#       发表于 2021-3-13 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50616198&amp;ptid=1969498" target="_blank">Suzutsuki 发表于 2021-3-13 22:47</a>
+美夜子从打铂金恼火到现在能solo钻石 这次CR杯越打越打好 虽然枪法确实不如你虹其他钻石女V 但人家一步步 ...</blockquote>
+真好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34135#       发表于 2021-3-13 22:58
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-13 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50616126&amp;ptid=1969498" target="_blank">aptx318 发表于 2021-3-13 22:42</a>
+
+官方是只有彩虹官号才算么</blockquote>
+这个就叫ほまアニ，阿葵自己磨了很久运营，才被允许以个人名义制作的，披露企划的时候强调了好几次非彩虹社官方（个人名义顾虑比较少吧，参演者也是她邀请的）
+
+Syl，刀哥这次又在用什么粪游戏钓鱼执法？
+
+<img src="https://img.saraba1st.com/forum/202103/13/230701q6c7nr4f4644djnd.png" referrerpolicy="no-referrer">
+
+
+<strong>【人vs恐竜】最強の男、ARKに降臨【にじさんじ】.png</strong> (46.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 23:07 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/13/231148shnzl3nrohlno7sh.png" referrerpolicy="no-referrer">
+
+
+<strong>【人vs恐竜】最強の男、ARKに降臨【にじさんじ】-2.png</strong> (196.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 23:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34136#       发表于 2021-3-13 23:02
+
+
+
+
+葵皇这个，很多地方流畅的不像MMD啊，是本人动捕弄的吧
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34137#       发表于 2021-3-13 23:07
+
+
+
+
+工具人的下场呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 34138#       发表于 2021-3-13 23:11
+
+
+
+
+试水效果好也不是没转官方的可能吧
+
+是怕被说抄袭才这么畏手畏脚？
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 34139#       发表于 2021-3-13 23:15
+
+
+
+
+真要说的话MMD是完全可以K到这种流畅度的，看下来动作难度并不高，一些复杂的地方用了flash式的夸张手法简化。用动捕的特点是动作更自然，而不是这种带夸张感的流畅
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34140#       发表于 2021-3-13 23:17
+
+
+
+
+还是别转官方了。转官方什么小废物都要上一下，葵皇自己的班底都是有梗有流量的上位，到时候K个黑黑3D小剧场杀疯了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34141#       发表于 2021-3-13 23:41
+
+
+
+
+这个拿出去给不看V的说是某个动画里的5人美少女战队，一定有很多人相信吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/VWP_virtual](https://twitter.com/VWP_virtual)
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/234133yg6wg1uj3uu8161z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vwp.jpg</strong> (90.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 23:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34142#       发表于 2021-3-13 23:52
+
+
+
+
+应该是卡了一层楼
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34143#       发表于 2021-3-14 00:02
+
+
+
+
+说起来昨天是ema生日
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34144#       发表于 2021-3-14 00:05
+
+
+
+
+话说这五个定下来是不是说明神椿也不发船票了？小蜜蜂我的小蜜蜂😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 34145#       发表于 2021-3-14 00:16
+
+
+
+
+这黑黑千CR杯三个人都被打出阴影来了吧，随便一看刚一把挺大优势都被人翻盘了，平时看你们solo也没那么多低级错误啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34146#       发表于 2021-3-14 00:20
+
+
+
+
+selly神经枪起来有几个顶得住，小问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+yysy，打的比上次好多了
+
+
+
+
+
+           
