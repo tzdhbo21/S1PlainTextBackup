@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-14 10:40** 
+> ## **本文件最后更新于2021-03-14 12:47** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_bnqsY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_DLU81" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_FVy0Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_MiHz2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_gCL6l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_GnWKK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -23169,11 +23169,852 @@ MyBora一如既往的正赛不行
 
 
 
+ 本帖最后由 FCCHua 于 2021-3-14 19:05 编辑 
 
 德龙队至少前两局来说好稳定，虽然击杀不太行，但是指挥行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第三把击杀多了
 
 
 
 
 
-          
+
+
+-----
+
+####  十四洲  
+##### 34178#       发表于 2021-3-14 18:42
+
+
+
+ 本帖最后由 十四洲 于 2021-3-14 18:51 编辑 
+
+bora加油啊
+
+省一楼，[https://youtu.be/s2IBPDWqlr4](https://youtu.be/s2IBPDWqlr4)
+
+安洁和绿仙的罗密欧
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34179#       发表于 2021-3-14 19:04
+
+
+
+
+第三场
+<img src="https://p.sda1.dev/1/37ebd3eec8483a80f8365f61e03acf3f/QQ截图20210314182636.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34180#       发表于 2021-3-14 19:06
+
+
+
+
+这把最后cpt难得有点急了 就在后面再等一下ras和德龙那边可能能打起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34181#       发表于 2021-3-14 19:10
+
+
+
+
+towa队连冠了，好像击杀分不是很多？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34182#       发表于 2021-3-14 19:12
+
+
+
+ 本帖最后由 Suny08 于 2021-3-14 19:26 编辑 
+
+wokka这次真的梦回19major了，指挥状态简直好的爆炸，这次看看能不能从这一堆韩国人里面把冠军拿回来了，能的话算是圆了19major的梦了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+这次夜见不在，全程看得他的第一视角，希望他能像major那次一样用自己爆炸的状态把队友丽姐和towa带动起来
+
+
+
+行吧奶死了，以后还是比赛完再发言了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34183#       发表于 2021-3-14 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50622783&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-3-14 19:10</a>
+
+towa队连冠了，好像击杀分不是很多？</blockquote>
+第三把没主动刚枪，一直在边缘OB，最后坐收渔翁之利
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34184#       发表于 2021-3-14 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50622806&amp;ptid=1969498" target="_blank">NBXX 发表于 2021-3-14 19:13</a>
+
+第三把没主动刚枪，一直在边缘OB，最后坐收渔翁之利</blockquote>
+主视角切到他们仨猥琐的时候我就在现场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34185#       发表于 2021-3-14 19:19
+
+
+
+
+没想到倒得最彻底的是练习赛无敌的mondo
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34186#       发表于 2021-3-14 19:26
+
+
+
+
+彩虹干碎了holo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34187#       发表于 2021-3-14 19:26
+
+
+
+
+被针对了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34188#       发表于 2021-3-14 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king的同接还是有6w左右的，已经超过了最协自己的记录，总的来说炎上没什么影响？
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 34189#       发表于 2021-3-14 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50623042&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-3-14 19:38</a>
+
+king的同接还是有6w左右的，已经超过了最协自己的记录，总的来说炎上没什么影响？ ...</blockquote>
+正面影响也是影响
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34190#       发表于 2021-3-14 19:44
+
+
+
+ 本帖最后由 Suzutsuki 于 2021-3-14 19:46 编辑 
+
+还有1把还是2把来着 这把第四15杀 还有机会 只能阴暗的希望前面的队伍早点没了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34191#       发表于 2021-3-14 19:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在打了4局，除了第一局小狮子拿了，后面全是杏女吃鸡，holo最强!
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 34192#       发表于 2021-3-14 19:46
+
+
+
+
+排名在kck下面的队还是入土吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34193#       发表于 2021-3-14 19:48
+
+
+
+
+holo确实最强，冠军还得是bora的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 34194#       发表于 2021-3-14 19:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50623042&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-3-14 19:38</a>
+
+king的同接还是有6w左右的，已经超过了最协自己的记录，总的来说炎上没什么影响？ ...</blockquote>
+apex民路人粉是真的不会在乎啥同居的。。或者说根本不知道
+
+影响也是以后影响sc音声周边这些拼厨力的东西。
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34195#       发表于 2021-3-14 19:49
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-14 19:54 编辑 
+
+整挺好，towa 马自立都吃过鸡了
+syl 继续夸夸美夜子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 狱卒队上把感觉急了
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34196#       发表于 2021-3-14 19:50
+
+
+
+
+第四场
+<img src="https://p.sda1.dev/1/6d72086e9805834493aaaa5a7c81f907/EwcA5mCVEAQbPbm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 34197#       发表于 2021-3-14 19:55
+
+
+
+
+阿希吃鸡了？是否是天道酬勤<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34198#       发表于 2021-3-14 19:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">mondo和哈弟垫底笑死我了
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34199#       发表于 2021-3-14 19:56
+
+
+
+
+尼哥嘲笑我脑死apex没人看，我笑尼哥不懂天道酬勤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34200#       发表于 2021-3-14 20:04
+
+
+
+
+还有最后一局，美夜子boraCpt队48分第一，Towa丽姐Wokka队46分第二，Ras队38分第三
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34201#       发表于 2021-3-14 20:06
+
+
+
+ 本帖最后由 NBXX 于 2021-3-14 20:27 编辑 
+
+第五场
+<img src="https://p.sda1.dev/1/fde6bf9425f43446224938f9a736d411/QQ图片20210314202640.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34202#       发表于 2021-3-14 20:06
+
+
+
+ 本帖最后由 NBXX 于 2021-3-14 20:09 编辑 
+
+Towa丽姐Wokka队没了
+
+
+还是夏哥队给收掉的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 34203#       发表于 2021-3-14 20:11
+
+
+
+
+阿希你做了什么啊！！
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34204#       发表于 2021-3-14 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">阿希，小早川战神
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34205#       发表于 2021-3-14 20:13
+
+
+
+
+有内鬼
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34206#       发表于 2021-3-14 20:13
+
+
+
+
+阿希牛逼！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34207#       发表于 2021-3-14 20:14
+
+
+
+
+提前恭喜bora和ssn吧<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34208#       发表于 2021-3-14 20:16
+
+
+
+
+叶师傅这是第几把carry了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34209#       发表于 2021-3-14 20:18
+
+
+
+
+虾丸，nrk,噗提，这把决赛圈虹人好多
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34210#       发表于 2021-3-14 20:18
+
+
+
+
+噗噗有机会吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34211#       发表于 2021-3-14 20:18
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-14 20:41 编辑 
+
+可以，不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有奖，这就是陪老板玩的福利吗
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34212#       发表于 2021-3-14 20:20
+
+
+
+
+还行吧
+
+只能说mafuyu亡灵的理解还是有问题，但是运气不错
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34213#       发表于 2021-3-14 20:20
+
+
+
+
+bora！cpt！美夜子！优胜！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34214#       发表于 2021-3-14 20:21
+
+
+
+
+仍然是虹人的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34215#       发表于 2021-3-14 20:23
+
+
+
+
+我奶中了！！！！！
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34216#       发表于 2021-3-14 20:23
+
+
+
+
+噗噗虽然拉垮但还是吃了虹人惟一一鸡，满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34217#       发表于 2021-3-14 20:24
+
+
+
+
+bora这队圈运不太行 后面几次打得可以了 连打几个队然后进不去圈或者没位置
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34218#       发表于 2021-3-14 20:26
+
+
+
+
+kck这次cr发挥还行啊
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34219#       发表于 2021-3-14 20:32
+
+
+
+
+行了，以后噗噗就和你葵ark贴贴吧，直布玩得像残疾人。mafuyu也两次在圈外放棺材了，都是战犯
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34220#       发表于 2021-3-14 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">七武海这娱乐队练习最后一天定阵容，奥林匹斯沉迷打拳没好好练过，这次正赛表现不错了
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34221#       发表于 2021-3-14 20:38
+
+
+
+
+黑黑千果然还是有奖拿的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34222#       发表于 2021-3-14 20:39
+
+
+
+
+偏爱
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34223#       发表于 2021-3-14 20:40
+
+
+
+
+团宠是这样的，虽然因为有千单推在，还以为会给小千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34224#       发表于 2021-3-14 20:42
+
+
+
+
+主办还是知道关照高人气的队<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34225#       发表于 2021-3-14 20:43
+
+
+
+
+主舞台21W同接，kck加起来11W同接
+
+谁给的人气主办要有逼数啊
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34226#       发表于 2021-3-14 20:44
+
+
+
+
+是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34227#       发表于 2021-3-14 20:47
+
+
+
+
+不管怎么样都是cr的胜利
+
+
+
+
+
+         
