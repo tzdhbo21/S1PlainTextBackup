@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-10 17:00** 
+> ## **本文件最后更新于2021-03-14 14:34** 
 
 
 
@@ -9536,7 +9536,15 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 ####  飞姆托  
 ##### 11024#       发表于 2021-1-23 22:43
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">该哭了该哭了，傻紫，我的傻紫
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
 
 
 
@@ -12833,7 +12841,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_MhL4q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_sFCCJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13168,15 +13176,7 @@ https://twitter.com/horizone3/status/1362712801249124353?s=19
 ####  雷修特  
 ##### 11231#       发表于 2021-2-20 00:20
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">被默默努力4个字逗笑了
-
-[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13871,15 +13871,7 @@ BV1CN411X7Bw
 ####  雷修特  
 ##### 11271#       发表于 2021-2-25 16:18
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">呜呜呜，连绫总都摸不了鱼的时代来临了吗
-
-[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16060,4 +16052,536 @@ apex yyds
 
 
 
-                   
+
+
+-----
+
+####  stedckk  
+##### 11402#       发表于 2021-3-11 04:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/11/045216wqe2qj76eq4agr67.png" referrerpolicy="no-referrer">
+
+
+<strong>X$@H~7QH{HIEP{}A}0@4$I6.png</strong> (18.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-11 04:52 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/11/045224l5q5w70wa5c4e5cq.png" referrerpolicy="no-referrer">
+
+
+<strong>U3[32[YXEZPE%SPH@VG5U_M.png</strong> (17.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-11 04:52 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11403#       发表于 2021-3-11 08:59
+
+
+
+
+有人说投不出红sc很抱歉 绫总说这种话并不好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11404#       发表于 2021-3-11 09:29
+
+
+
+
+你绫总虽然是情商挺高很会读空气的 但架不住任性啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11405#       发表于 2021-3-11 10:47
+
+
+
+
+绫总在直播要钱这方面还是有点矜持的，不会太直白
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11406#       发表于 2021-3-11 12:45
+
+
+
+
+聊天室NTD浓度越来越高
+不安
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11407#       发表于 2021-3-12 01:51
+
+
+
+
+b站怎么开始天天给我推狗狗的apex片段了，不过还真挺有趣<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11408#       发表于 2021-3-12 10:56
+
+
+
+
+holo里大概只剩绫总和夸能脑死APEX人气还愈来愈高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他打枪的都成了底边，绫总成功活成了阿希最羡慕的形状
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11409#       发表于 2021-3-12 11:08
+
+
+
+
+说明不是游戏不行，是播的人不行啊
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11410#       发表于 2021-3-12 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希可以向绫总请教下pua百鬼众的方法
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11411#       发表于 2021-3-12 12:15
+
+
+
+
+确实
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 11412#       发表于 2021-3-12 12:18
+
+
+
+
+绫给了一个锦囊，打开后只有一个字“摸”
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 11413#       发表于 2021-3-12 12:56
+
+
+
+
+老天爷赏饭可遇不可求<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11414#       发表于 2021-3-12 13:17
+
+
+
+ 本帖最后由 cctvyt1 于 2021-3-12 13:20 编辑 
+
+学不来 阿希那些长文祭丝就算毕业了也不会放过她的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+爱之深责之切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11415#       发表于 2021-3-12 13:59
+
+
+
+
+不要啊，再人气下去下次打枪比赛还找绫总
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11416#       发表于 2021-3-12 14:46
+
+
+
+
+草，下届最协见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11417#       发表于 2021-3-12 19:44
+
+
+
+
+不敢播派派了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11418#       发表于 2021-3-12 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉每次她播稍微长一点都得去厕所，别人动不动四五个小时都不用去的。
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11419#       发表于 2021-3-12 22:48
+
+
+
+
+不是 那么久都不去才不正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11420#       发表于 2021-3-12 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一这也是一种养gachi呢
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11421#       发表于 2021-3-12 23:40
+
+
+
+
+不喜欢可乐也太怪了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11422#       发表于 2021-3-14 01:17
+
+
+
+
+b站怎么这么多直接搬推特剪辑再起个和内容完全没关系的标题发出来的mmr
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11423#       发表于 2021-3-14 13:00
+
+
+
+
+救世啊，搞的b站老是给我推狗狗笑场的切片啊，完全无法拒绝，mmr太可恶了！<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11424#       发表于 2021-3-14 14:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我们绫人就是被笑声脑控住的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11425#       发表于 2021-3-14 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚不播，懂的都懂
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11426#       发表于 2021-3-14 20:09
+
+
+
+
+隔壁太紫被运营嗯抬了一手 下一个该不会轮到你绫总了吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11427#       发表于 2021-3-14 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你们推的主播情人节不播，就应该有点自觉啊
+
+
+
+
+
+
+
+-----
+
+####  夏小筱ss  
+##### 11428#       发表于 2021-3-14 22:16
+
+
+
+
+怎么又有人在转播她lol
+
+
+
+
+
+
+
+-----
+
+####  nian1538  
+##### 11429#       发表于 2021-3-14 22:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/221739ou2piupopi5x5iuf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1615728821105.jpg</strong> (17.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 22:17 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11430#       发表于 2021-3-14 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别告诉我是在阿夸那里
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11431#       发表于 2021-3-14 22:28
+
+
+
+
+草，不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                  

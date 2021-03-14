@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-14 12:50** 
+> ## **本文件最后更新于2021-03-14 14:36** 
 
 
 
@@ -7883,4 +7883,766 @@ b博超级回复，少见
 
 
 
-                                  
+
+
+-----
+
+####  A2014720  
+##### 10952#       发表于 2021-3-14 20:55
+
+
+
+
+彼时彼刻，恰如此时此刻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Shiromeshi  
+##### 10953#       发表于 2021-3-14 21:03
+
+
+
+
+好 久 不 见
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10954#       发表于 2021-3-14 21:04
+
+
+
+
+听起来微妙的在《很熟》和《真不熟》之间摇摆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10955#       发表于 2021-3-14 21:04
+
+
+
+
+那里小？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10956#       发表于 2021-3-14 21:04
+
+
+
+
+这bgm这么喜庆的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10957#       发表于 2021-3-14 21:05
+
+
+
+
+有无亡国民形容一下感觉，有以前的味吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10958#       发表于 2021-3-14 21:07
+
+
+
+
+不熟 这人是BS成员？
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10959#       发表于 2021-3-14 21:07
+
+
+
+
+莉莉丝给个地址呀
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10960#       发表于 2021-3-14 21:07
+
+
+
+
+装起来了
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10961#       发表于 2021-3-14 21:08
+
+
+
+
+鬼灯童搬运
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10962#       发表于 2021-3-14 21:10
+
+
+
+
+这狂笑
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 10963#       发表于 2021-3-14 21:10
+
+
+
+
+稍微点进去听了下，说话音调辨识度还是挺高的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10964#       发表于 2021-3-14 21:11
+
+
+
+
+别装了，是个人都看得出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10965#       发表于 2021-3-14 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">坛友，科普一下呀，不要谜语
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10966#       发表于 2021-3-14 21:18
+
+
+
+
+没那味儿，是挺正常的联动，反而证明了某cp的特殊性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10967#       发表于 2021-3-14 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50624065&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-3-14 21:17</a>
+
+坛友，科普一下呀，不要谜语</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">saya啊，今天听还是挺明显的
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10968#       发表于 2021-3-14 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">谷歌夢乃リリス 中の人不就有了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10969#       发表于 2021-3-14 21:21
+
+
+
+
+快进到bs战队12不和，35太菜，其他人只知道打游戏
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10970#       发表于 2021-3-14 21:31
+
+
+
+
+在现场。当时高个胖子让矮个胖子少玩游戏练下歌池，矮个胖子当场发飙把高个胖子的脑袋按进了显示器
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10971#       发表于 2021-3-14 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不演了
+
+
+
+
+
+
+
+-----
+
+####  __ineRsseL77  
+##### 10972#       发表于 2021-3-14 21:35
+
+
+
+
+不演了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10973#       发表于 2021-3-14 21:37
+
+
+
+
+草，突然带货
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10974#       发表于 2021-3-14 21:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">saya笑声好姨
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10975#       发表于 2021-3-14 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民又赢了
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 10976#       发表于 2021-3-14 21:46
+
+
+
+
+这是实锤坦克了吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10977#       发表于 2021-3-14 21:47
+
+
+
+
+腹部装甲已经被证实了，大胜利！<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 10978#       发表于 2021-3-14 21:49
+
+
+
+
+离姨不远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10979#       发表于 2021-3-14 21:49
+
+
+
+
+小圆梗原来是bs内部都知道的么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10980#       发表于 2021-3-14 21:50
+
+
+
+ 本帖最后由 rosevalley46 于 2021-3-14 21:59 编辑 
+
+saya这笑的我有点遭不住
+
+这两人最后是玩嗨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10981#       发表于 2021-3-14 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一想到你麻以后也会这么姨
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10982#       发表于 2021-3-14 22:00
+
+
+
+
+麻酱单独和小姐妹玩都是这么尬的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10983#       发表于 2021-3-14 22:02
+
+
+
+
+挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10984#       发表于 2021-3-14 22:04
+
+
+
+
+盖了一层苔本味还是有点怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10985#       发表于 2021-3-14 22:05
+
+
+
+
+贴贴人已经开始脑补怪味儿糖了，实不相瞒，我想看mearua联动
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10986#       发表于 2021-3-14 22:06
+
+
+
+
+讲见面还有说入浴套装那段是真的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太真了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10987#       发表于 2021-3-14 22:10
+
+
+
+
+又是手机tc
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10988#       发表于 2021-3-14 22:10
+
+
+
+
+不继续叙旧的吗，手机tc再开，妈耶刷牙生活音，好了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10989#       发表于 2021-3-14 22:10
+
+
+
+
+管人的醍醐味唯有在这种时候才显得格外突出与可笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10990#       发表于 2021-3-14 22:10
+
+
+
+ 本帖最后由 rosevalley46 于 2021-3-14 22:20 编辑 
+
+居然没接着聊两句直接tc了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+一点进去就在刷牙
+
+最后一段遭不住莉莉丝的笑声跳过去了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 10991#       发表于 2021-3-14 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 10992#       发表于 2021-3-14 22:12
+
+
+
+
+不是lilith要求mea播来当作业背景音的吗，你们没听最后一段吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10993#       发表于 2021-3-14 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10994#       发表于 2021-3-14 22:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说lilith用的是哪个tc号啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10995#       发表于 2021-3-14 22:30
+
+
+
+
+这tc也太养了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10996#       发表于 2021-3-14 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 阿姨的任务罢了
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 10997#       发表于 2021-3-14 22:35
+
+
+
+
+这是阿姨的陷阱，大家要警惕，是陷阱<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
