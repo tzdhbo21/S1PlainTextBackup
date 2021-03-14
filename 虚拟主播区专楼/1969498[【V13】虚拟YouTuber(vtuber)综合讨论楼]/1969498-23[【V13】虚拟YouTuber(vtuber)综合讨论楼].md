@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-14 12:47** 
+> ## **本文件最后更新于2021-03-14 13:37** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_MiHz2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_gCL6l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_GnWKK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_Z5EfQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Fs7Xy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_c4B14" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -24017,4 +24017,235 @@ kck这次cr发挥还行啊
 
 
 
-         
+
+
+-----
+
+####  poipanchao  
+##### 34228#       发表于 2021-3-14 20:48
+
+
+
+
+虽然CR胜利了，但mybora永远不亏
+
+蹭到人气就是胜利
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34229#       发表于 2021-3-14 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> bora能不能进你虹ark啊
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34230#       发表于 2021-3-14 20:50
+
+
+
+
+跟本间角色重复了，应该不行吧（）
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34231#       发表于 2021-3-14 20:50
+
+
+
+
+血赚啊mafuyu桑
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34232#       发表于 2021-3-14 20:51
+
+
+
+
+test
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34233#       发表于 2021-3-14 20:53
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-14 21:01 编辑 
+
+这奖品们，虹人大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+kck三个钻石第六
+ras是真的猛
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34234#       发表于 2021-3-14 20:58
+
+
+
+
+相声队第五 好！
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 34235#       发表于 2021-3-14 21:02
+
+
+
+
+kck第六真不错了 上次did17位<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34236#       发表于 2021-3-14 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50623280&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-3-14 20:04</a>
+
+还有最后一局，美夜子boraCpt队48分第一，Towa丽姐Wokka队46分第二，Ras队38分第三 ...</blockquote>
+排名没变，恭喜Bora（美夜子和Cpt）
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34237#       发表于 2021-3-14 21:06
+
+
+
+
+bora美夜子cpt第一 好耶！
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34238#       发表于 2021-3-14 21:07
+
+
+
+
+丽姐虐狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+恭喜美夜子，bora，cpt
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 34239#       发表于 2021-3-14 21:16
+
+
+
+
+V综毒奶还是厉害<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+其实是没吃鸡但靠击杀分拿的硬实力冠军
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34240#       发表于 2021-3-14 21:23
+
+
+
+
+这真是硬实力冠军了……杀出来的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34241#       发表于 2021-3-14 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 别的实力没看出来，cpt的硬实力倒是体现的挺淋漓尽致的
+
+
+
+
+
+        
