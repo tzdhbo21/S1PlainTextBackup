@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-08 09:45** 
+> ## **本文件最后更新于2021-03-14 15:39** 
 
 
 
@@ -12863,4 +12863,561 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 
 
 
-                         
+
+
+-----
+
+####  三合一出现  
+##### 722#       发表于 2021-3-8 21:59
+
+
+
+
+你也是醋鱼啊。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 723#       发表于 2021-3-9 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50548168&amp;ptid=1963832" target="_blank">imzosi 发表于 2021-3-8 09:54</a>
+
+这屑人鱼醋劲好大</blockquote>
+西湖醋鱼
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 724#       发表于 2021-3-10 09:57
+
+
+
+
+今年打扮比去年healing闪亮好多，summer的q娃型态越看越可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 725#       发表于 2021-3-10 11:12
+
+
+
+
+看不到珊瑚变身我要死了.jpg
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 726#       发表于 2021-3-10 11:27
+
+
+
+
+完了，才第二集我就有点戒断，天天想着珊瑚变身
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 727#         楼主| 发表于 2021-3-11 19:10
+
+
+
+<img src="http://wx3.sinaimg.cn/large/69559a0aly1gofo44u9rrj20zk0k0jvc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 728#       发表于 2021-3-12 15:00
+
+
+
+
+剧场版上映是什么时候？
+
+
+
+
+
+
+
+-----
+
+####  只等待明天  
+##### 729#       发表于 2021-3-13 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50534369&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-3-6 20:30</a>
+其实我个人觉得紫色还是挺“高贵"的
+
+治愈的艾苏米、星闪的阿圆、拥抱的露露、甜点的猫姐、魔法的李可(只截 ...</blockquote>
+想了想红色都是偏强势的角色吧，假小子、熊孩子、原反派这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 730#       发表于 2021-3-14 08:06
+
+
+
+
+然而今天我能找到的房间名中有Q娃字样的直播间都没开<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 731#       发表于 2021-3-14 08:11
+
+
+
+
+今年变身节奏真的怪，完全没有流畅感
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 732#       发表于 2021-3-14 10:18
+
+
+
+
+小招也很奇怪。刚开始叠棉花糖，我以为要把自己发射出去。然后生长珊瑚，我以为是珊瑚树欧拉欧拉欧拉。最后结果是变了个门……
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 733#         楼主| 发表于 2021-3-14 11:17
+
+
+
+
+原来是个盾？
+
+
+
+
+
+
+
+-----
+
+####  本间日阳  
+##### 734#       发表于 2021-3-14 11:24
+
+
+
+ 本帖最后由 本间日阳 于 2021-3-14 11:27 编辑 
+
+座布团+二叉树攻击
+
+
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 735#       发表于 2021-3-14 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">没有珊瑚看我要死了
+
+这周是停播？
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 736#       发表于 2021-3-14 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619983&amp;ptid=1963832" target="_blank">丹德里恩 发表于 2021-03-14 12:58:45</a>
+没有珊瑚看我要死了
+
+这周是停播？</blockquote>爱奇艺搜tropical rouge然后点第0集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 737#       发表于 2021-3-14 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619154&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-03-14 11:17:34</a>
+原来是个盾？</blockquote>但是这个深红色的盾还是头一个啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  adsn  
+##### 738#       发表于 2021-3-14 14:17
+
+
+
+ 本帖最后由 adsn 于 2021-3-14 14:20 编辑 
+
+今年这变身又是强氵先脑型的，连技能都自动释放了
+
+算起来Q娃业界也就在在抓心时代良心了一次，没给变身器搭载氵先脑功能，结果最弱Q娃被叫了好几年<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 739#       发表于 2021-3-14 14:30
+
+
+
+
+珊瑚变身之后打怪直接就手拉手了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+今年的变身更像是打扮，大招的动作相比前两年复杂了好多，看了下集预告感觉是还是那么稳，真好看
+
+
+
+
+
+
+
+-----
+
+####  Frezard  
+##### 740#       发表于 2021-3-14 14:34
+
+
+
+
+以为这集真夏会吃瘪然后珊瑚变身，结果真夏打得还是一如既往的莽，珊瑚出来就是开个盾😂
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 741#       发表于 2021-3-14 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50620502&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-14 13:59</a>
+
+爱奇艺搜tropical rouge然后点第0集
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我用网页端的搜出来只有1和2啊....要用app？
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 742#       发表于 2021-3-14 15:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个太难找了，爱奇艺怎么回事
+
+珊瑚可爱
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 743#       发表于 2021-3-14 15:53
+
+
+
+
+这媚眼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蓝色书签  
+##### 744#       发表于 2021-3-14 16:37
+
+
+
+
+珊瑚居然除了净化技还能放盾，那这样看真夏不就少了个技能
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 745#       发表于 2021-3-14 17:43
+
+
+
+<blockquote>菊妖不是怪 发表于 2021-3-14 13:59
+爱奇艺搜tropical rouge然后点第0集
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+搜索第0集这种操作……爱奇艺又出了啥幺蛾子？
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 746#       发表于 2021-3-14 18:54
+
+
+
+
+今年是财团b强调变身要突出化妆了吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 747#         楼主| 发表于 2021-3-14 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50620502&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-14 13:59</a>
+
+爱奇艺搜tropical rouge然后点第0集
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+哪位能给个链接？
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 748#       发表于 2021-3-14 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50623618&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-03-14 20:33:10</a>
+哪位能给个链接？</blockquote>[http://m.iqiyi.com/v_218h559nmgg ... mTxmDUMDEbamKc6s%3D](http://m.iqiyi.com/v_218h559nmgg.html?social_platform=link&amp;p1=2_22_221&amp;_frd=69s96Qr%2FfKa9npJAZ2g2M1sJoregWGLPAxYHNNzHYkgYwwbnegbCkpmz1KgINpCctTdoKtckDMlRaPlvrbvmUNllx%2FUmTxmDUMDEbamKc6s%3D)
+试试这个
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 749#       发表于 2021-3-14 21:37
+
+
+
+[http://m.iqiyi.com/v_218h559nmgg.html](http://m.iqiyi.com/v_218h559nmgg.html)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 750#         楼主| 发表于 2021-3-14 21:53
+
+
+
+
+哦哦感谢
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 751#       发表于 2021-3-14 22:50
+
+
+
+
+珊瑚不愧是今年东大妈带货最终兵器这集的可爱力简直就是b52用云爆弹进行地毯式轰炸 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 752#       发表于 2021-3-14 23:08
+
+
+
+
+珊瑚无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">今年最爱的女人
+
+
+还有萝拉这么莽，在现实里遇到什么坏的称赞几句就被拖去切片了吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 753#       发表于 2021-3-14 23:24
+
+
+
+
+我说怎么晚上了爱奇艺还没更，还以为停播了，原来又是bug
+
+
+
+
+
+                        
