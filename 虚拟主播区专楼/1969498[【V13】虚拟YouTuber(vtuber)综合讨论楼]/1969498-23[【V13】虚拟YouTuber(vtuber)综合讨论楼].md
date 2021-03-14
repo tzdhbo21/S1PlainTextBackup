@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 17:02** 
+> ## **本文件最后更新于2021-03-14 10:40** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_vLMl8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_GULXT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_uYHnE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_bnqsY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_DLU81" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_FVy0Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -22485,4 +22485,695 @@ yysy，打的比上次好多了
 
 
 
-           
+
+
+-----
+
+####  Suzutsuki  
+##### 34147#       发表于 2021-3-14 01:10
+
+
+
+
+今天bora状态不好队伍好像还是很高位 看明天了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34148#       发表于 2021-3-14 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50616204&amp;ptid=1969498" target="_blank">499 发表于 2021-3-13 22:47</a>
+今天看到有人踩凑阿夸apex吹黑黑千，但我看了下段位都差不多，有没有都看的人说说事实如此还是有点偏见了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">king&gt;aqua&gt;叶&gt;千，一切请以同接为基准
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34149#       发表于 2021-3-14 01:27
+
+
+
+
+这几位同接平均下差不多10倍杀阿希<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moerisa  
+##### 34150#       发表于 2021-3-14 01:36
+
+
+
+
+讲道理裸春资源倾斜都这么严重了，再多招人那纯属贪多嚼不烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34151#       发表于 2021-3-14 11:27
+
+
+
+
+郡道不是在搞那个粉丝接力t台直播嘛，
+郡an：郡道美玲要**啦～郡道美玲要脱离彩虹啦～
+
+也许吧！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34152#       发表于 2021-3-14 13:25
+
+
+
+[https://twitter.com/vtama_info/status/1370965312594604033](https://twitter.com/vtama_info/status/1370965312594604033)
+
+vtama要关了，还想看的赶紧快去看看
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/132526o46j60zv7uvxujju.png" referrerpolicy="no-referrer">
+
+
+<strong>vtama.png</strong> (69.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 13:25 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 34153#       发表于 2021-3-14 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50620207&amp;ptid=1969498" target="_blank">free 发表于 2021-3-14 13:25</a>
+
+https://twitter.com/vtama_info/status/1370965312594604033
+
+vtama要关了，还想看的赶紧快去看看</blockquote>
+怕个P又不是以后就见不到了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 34154#       发表于 2021-3-14 13:54
+
+
+
+
+apex斗虫加个哈弟呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34155#       发表于 2021-3-14 14:16
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-3-14 14:22 编辑 
+
+终于有机会去看了本间桑的小剧场……
+
+配音捧读先丢一边。
+
+剧本上确实没优势阿……，就算是holo那个意义不明的小动画的剧本完成度和情节冲击力夸张感也是很颠覆性的。
+
+果然人才是第一驱动力阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34156#       发表于 2021-3-14 14:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/143043j59q2bfskz4s49wq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ewavcz4UcAI3VTs.jpg</strong> (268.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 14:30 上传
+
+
+
+
+
+
+
+
+那小动画不就是垃圾么？至于净土彩虹综没讨论，
+
+
+没有男人、月之出现的东西都是垃圾，没有讨论的必要已经是定论了，，
+
+
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 34157#       发表于 2021-3-14 15:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迪士尼拉屎小孩确定为男性
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34158#       发表于 2021-3-14 15:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">holo那可是脱胎于点又超越了点的质，虹这半路出家的野鸡就省省吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34159#       发表于 2021-3-14 16:46
+
+
+
+
+二期生周年团建竟是由爱丽丝来搞，意外，
+感觉大概不超过四个人会接discord
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34160#       发表于 2021-3-14 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50621524&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-14 16:46</a>
+
+二期生周年团建竟是由爱丽丝来搞，意外，
+
+感觉大概不超过四个人会接discord ...</blockquote><blockquote>红桃黑桃物述有栖方块梅花
+
+@AliceMononobe
+
+え？！？！あのにじさんじ個人勢の物述がいきなりフリーダムな2期生にこんなフリーダムなことを…？！？？！？？！！？
+
+
+本日23時～噤声给嘴巴拉上拉链的嘴
+[https://youtu.be/we_UT37b7fk](https://youtu.be/we_UT37b7fk)
+
+#2期生アポなし逆凸</blockquote>
+个人势爱丽丝逆凸，凸到几个赚几个<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34161#       发表于 2021-3-14 17:00
+
+
+
+[https://www.mildom.com/10115448](https://www.mildom.com/10115448)
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">先转个CR主视角
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34162#       发表于 2021-3-14 17:04
+
+
+
+
+我以为今天你虹会出点啥虹男白情音声刮钱的。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34163#       发表于 2021-3-14 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50621524&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-14 16:46</a>
+
+二期生周年团建竟是由爱丽丝来搞，意外，
+
+感觉大概不超过四个人会接discord ...</blockquote>
+其实下周披露的未来人3D概要栏也AT了二期生全员，Alice是真没想到
+
+
+Syl，白情音声男女都有的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34164#       发表于 2021-3-14 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> lize-lulu电台专门宣传了男人白情人节音声了
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 34165#       发表于 2021-3-14 17:33
+
+
+
+
+虹男白情音声的挑染组封面发好久了吧
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34166#       发表于 2021-3-14 17:44
+
+
+
+
+CR杯各vtuber视角
+
+
+「ししゃもtyan」
+
+渋谷ハル
+[https://www.youtube.com/watch?v=Ib8Hi_4GjPQ](https://www.youtube.com/watch?v=Ib8Hi_4GjPQ)
+
+
+「VORUTO」
+
+常闇トワ 
+[https://www.youtube.com/watch?v=C11RPqj7lAU](https://www.youtube.com/watch?v=C11RPqj7lAU)
+
+一ノ瀬うるは 
+[https://www.youtube.com/watch?v=d5pTue8NHzc](https://www.youtube.com/watch?v=d5pTue8NHzc)
+
+
+「かなちーくず」
+
+勇気ちひろ 
+[https://www.youtube.com/watch?v=WPsqvKDX7rk](https://www.youtube.com/watch?v=WPsqvKDX7rk)
+
+叶 
+[https://www.youtube.com/watch?v=ae0Gk9YAoQQ](https://www.youtube.com/watch?v=ae0Gk9YAoQQ)
+
+葛葉 
+[https://www.youtube.com/watch?v=ofxLbPWpYHQ](https://www.youtube.com/watch?v=ofxLbPWpYHQ)
+
+
+「でっけぇわ」
+
+アルス・アルマル
+[https://www.youtube.com/watch?v=vuFkIy1rmLI](https://www.youtube.com/watch?v=vuFkIy1rmLI)
+
+エクス・アルビオ
+[https://www.youtube.com/watch?v=fT8QBgxoPdU](https://www.youtube.com/watch?v=fT8QBgxoPdU)
+
+
+「しばくぞヤンキース」
+
+樋口楓
+[https://www.youtube.com/watch?v=ycJRd_1jwwM](https://www.youtube.com/watch?v=ycJRd_1jwwM)
+
+
+「あさRuトライオン」
+
+獅子神レオナ
+[https://www.youtube.com/watch?v=t1XhbGkcVYQ](https://www.youtube.com/watch?v=t1XhbGkcVYQ)
+
+
+「にるまふてぃ」
+
+ラトナ・プティ
+[https://www.youtube.com/watch?v=QZIjk0fgT0Y](https://www.youtube.com/watch?v=QZIjk0fgT0Y)
+
+
+「のりまゆげch」
+
+夏色まつり
+[https://www.youtube.com/watch?v=f5RJguGVO9E](https://www.youtube.com/watch?v=f5RJguGVO9E)
+
+杏戸ゆげ 
+[https://www.youtube.com/watch?v=eR3xTbSaLtY](https://www.youtube.com/watch?v=eR3xTbSaLtY)
+
+
+「雪夜の一番星」
+
+ヌンボラ 
+[https://www.youtube.com/watch?v=leivOCUsdIY](https://www.youtube.com/watch?v=leivOCUsdIY)
+
+瀬戸美夜子 
+[https://www.youtube.com/watch?v=lzdwGFmtxr0](https://www.youtube.com/watch?v=lzdwGFmtxr0)
+
+
+「きなこミルクセーキ」
+
+杏仁ミル
+[https://www.youtube.com/watch?v=rvJYHOsw_D8](https://www.youtube.com/watch?v=rvJYHOsw_D8)
+
+
+「OKM大作戦」
+
+胡桃のあ
+[https://www.youtube.com/watch?v=854Nfi2rrTI](https://www.youtube.com/watch?v=854Nfi2rrTI)
+
+
+「チグサ様は罵られたい」
+
+西園チグサ
+[https://www.youtube.com/watch?v=XVJPSMb3kc4](https://www.youtube.com/watch?v=XVJPSMb3kc4)
+
+
+「ウイスキーのチェイサーにモエ」
+
+久檻夜くぅ
+[https://www.youtube.com/watch?v=m3u6Z0hopZA](https://www.youtube.com/watch?v=m3u6Z0hopZA)
+
+
+「卍Ψ鬼†神Ψ卍」
+
+奈羅花
+[https://www.youtube.com/watch?v=Ds9-JEiWC4g](https://www.youtube.com/watch?v=Ds9-JEiWC4g)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nehon13| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34167#       发表于 2021-3-14 17:47
+
+
+
+
+第一场结果
+<img src="https://p.sda1.dev/1/603c71dee6c41be6f83f147cbd7305bf/SK_7OX25R_`__@4LL_D`DOB.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34168#       发表于 2021-3-14 17:47
+
+
+
+ 本帖最后由 NBXX 于 2021-3-14 18:30 编辑 
+
+第二场
+<img src="https://p.sda1.dev/1/4b87ec98720b450725e2d349c179b490/EwbuWUuVEAUVACC.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 34169#       发表于 2021-3-14 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50616974&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-14 00:02</a>
+
+说起来昨天是ema生日</blockquote>
+确实，symboli rudolf还有我也是昨天生日
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34170#       发表于 2021-3-14 18:06
+
+
+
+ 本帖最后由 mmbk 于 2021-3-14 18:13 编辑 
+
+看看训练赛烂掉的噗噗正赛如何<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer"> 安心地烂掉啦，没事了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34171#       发表于 2021-3-14 18:10
+
+
+
+
+EMA的滤镜还是一如既往的阴间
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34172#       发表于 2021-3-14 18:11
+
+
+
+
+正赛也烂了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34173#       发表于 2021-3-14 18:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> bora也烂掉了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34174#       发表于 2021-3-14 18:26
+
+
+
+
+什么才是曾经的亚洲第一击杀位日本r6第一人啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34175#       发表于 2021-3-14 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">相声队换亡灵后至少能渔几个人了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34176#       发表于 2021-3-14 18:32
+
+
+
+
+MyBora一如既往的正赛不行
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34177#       发表于 2021-3-14 18:34
+
+
+
+
+德龙队至少前两局来说好稳定，虽然击杀不太行，但是指挥行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+          
