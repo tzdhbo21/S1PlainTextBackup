@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-12 03:41** 
+> ## **本文件最后更新于2021-03-15 05:36** 
 
 
 
@@ -1876,16 +1876,7 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 ####  紫苑寺友子MKIII  
 ##### 15103#       发表于 2021-3-7 20:03
 
-
-
-
-批话少说，上号！没有fhkr的世界，就是我想要的世界<img src="https://p.sda1.dev/1/7dc4fa76844a7ff2deba85c032b74c4e/24db5411072177a9.jpg" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3277,4 +3268,541 @@ C4新职业几号解锁
 
 
 
-                                           
+
+
+-----
+
+####  iqbsh38  
+##### 15182#       发表于 2021-3-12 15:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉能从0抽到月底攒出1井
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15183#       发表于 2021-3-13 00:35
+
+
+
+
+看了5突方案虽然还是很愤怒，但意外的能接受了，又成功的被木村桑PUA了，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15184#       发表于 2021-3-13 00:43
+
+
+
+
+kmr PUA真有一套，唯一一次买贵族必得中的唯一突满的暗老王还是有用 更新又送一个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是jg极缺
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15185#       发表于 2021-3-13 09:57
+
+
+
+
+一个jgj，勉强可以接受，还是勋章拖天人超限进度比较恶心，水贤者两个废物领域也恶心
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">当然最恶心的还是nm呱呱乐每天给几个银天cpu然后群友都在狗叫新lm
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 15186#       发表于 2021-3-13 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">也没啥想砸的老王了，jgj基本富余了被pua下也没啥所谓了。就是这天人硬卡1年半该占用勋章太恶心了，不出150之前都不敢突130了
+
+
+
+
+
+
+
+-----
+
+####  初雪绫  
+##### 15187#       发表于 2021-3-13 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大家一起团战慢慢做不是挺好的 
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15188#       发表于 2021-3-13 16:22
+
+
+
+
+5属老王完全不够jgj做，也舍不得30金月，只好先牺牲风老王了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  边界循环  
+##### 15189#       发表于 2021-3-13 19:04
+
+
+
+
+水光暗3属老王 暗有多两个 水用送的突了 光用一个jgj 我感觉还行 反正也没贝 贤者也就剩两个 jgj也没地方用
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15190#       发表于 2021-3-13 21:01
+
+
+
+
+战货的单抽和百抽按钮是不是位置互换了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 15191#       发表于 2021-3-13 22:06
+
+
+
+
+可以伸手要个剧情视频合集吗？快进了一下主线剧情，芙莉雅人设太顶了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15192#       发表于 2021-3-14 08:12
+
+
+
+
+130做不了倒是觉得解放了，顺着做一波120就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fange  
+##### 15193#       发表于 2021-3-14 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50615657&amp;ptid=1158205" target="_blank">lyz1196 发表于 2021-3-13 22:06</a>
+
+可以伸手要个剧情视频合集吗？快进了一下主线剧情，芙莉雅人设太顶了 ...</blockquote>
+[https://www.bilibili.com/video/B ... 2700389754243175570](https://www.bilibili.com/video/BV1pE411c7T5?from=search&amp;seid=2700389754243175570) 
+
+
+B站的，应该可以看看
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 15194#       发表于 2021-3-14 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50618404&amp;ptid=1158205" target="_blank">fange 发表于 2021-3-14 09:09</a>
+
+https://www.bilibili.com/video/BV1pE411c7T5?from=search&amp;seid=2700389754243175570 
+
+
+B站的，应该可以 ...</blockquote>
+就是看完了这个了所以想找后续<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+难道要上油管？
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15195#       发表于 2021-3-14 10:09
+
+
+
+
+突入出了章鱼，从来没有这么搞笑出重复的召唤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhhwmxd  
+##### 15196#       发表于 2021-3-14 11:00
+
+
+
+
+耳环确实有效减少了脑溢血，但我还是希望耳环离开刮刮乐
+
+
+
+
+
+
+
+-----
+
+####  fange  
+##### 15197#       发表于 2021-3-14 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50618453&amp;ptid=1158205" target="_blank">lyz1196 发表于 2021-3-14 09:20</a>
+
+就是看完了这个了所以想找后续
+
+难道要上油管？</blockquote>
+B站搜一下 碧蓝幻想 剧情 大概都有了
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 15198#       发表于 2021-3-14 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619936&amp;ptid=1158205" target="_blank">fange 发表于 2021-3-14 12:55</a>
+
+B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
+看了一下wiki，知道怎么用关键字了，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15199#       发表于 2021-3-14 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">120级之后要农的东西好多啊！
+风土2.0，然后法武/六龙武，然后还要补水火1.5（树枝龙虾拳），农起来太累了
+
+现在光暗也到了瓶颈，光还有几把剑等着红黄石和剑碎，暗现在缺大马斧和椰子但是阿努比斯我也农不动……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉每天一个小时完全不够用啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15200#       发表于 2021-3-14 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50625549&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-14 23:37</a>
+120级之后要农的东西好多啊！
+风土2.0，然后法武/六龙武，然后还要补水火1.5（树枝龙虾拳），农起来 ...</blockquote>
+是这样的了，算上沙盒，我全日课的时候最长时间能从上班打到下班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就一个小时建议就不要全打了，只打金本和对应团战属性就好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15201#       发表于 2021-3-15 08:31
+
+
+
+
+一个小时够个屁。
+
+你游现在最累的就是认真打塔罗的。
+
+沙盒和门票每天清理就够累了。
+这阴间门票小怪能不能出现次数减半啊。
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15202#       发表于 2021-3-15 08:44
+
+
+
+
+不打沙盒，扫荡塔罗，每天上线打10个银片就算成功.jpg
+
+
+
+
+
+
+
+-----
+
+####  MARBLE  
+##### 15203#       发表于 2021-3-15 09:40
+
+
+
+
+风土2.0可以农，水火1.5我感觉靠自发和商店换就算了
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15204#       发表于 2021-3-15 10:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">打限界突破的银片已经很折磨了，想想贤者领域的要求就头疼
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15205#       发表于 2021-3-15 10:33
+
+
+
+
+每次都死在做110的路上
+
+上次是2姐 这次是4
+
+打着 打着就不想打了。。。
+
+感觉等67来了，把他们依代刷好可以直接做了。
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 15206#       发表于 2021-3-15 11:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自从放弃了沙盒每天打一轮boss的想法 
+
+清完100aap就跑路 每天神清气爽 
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15207#       发表于 2021-3-15 11:10
+
+
+
+
+沙盒都懒得打只要大家不打就白送
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15208#       发表于 2021-3-15 11:13
+
+
+
+
+突入三连3个金月，NM说好的召唤石UP呢<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凌云三才  
+##### 15209#       发表于 2021-3-15 11:19
+
+
+
+
+总算打够十个碎了，那么是先做1还是先做4好点？我看1最近风评也上来了？
+
+
+
+
+
+
+
+-----
+
+####  peh  
+##### 15210#       发表于 2021-3-15 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629180&amp;ptid=1158205" target="_blank">凌云三才 发表于 2021-3-15 11:19</a>
+
+总算打够十个碎了，那么是先做1还是先做4好点？我看1最近风评也上来了？</blockquote>
+你要打拳顶配就突1，就为了10%上限罢了，
+
+风评没什么改良的，非打拳场合基本不会带的水平，那3回合的吸收跟妈的lb领域不就一个水平？
+
+
+相比之下1104更泛用一点，奥义追伤解放法武进境，古战肯定能上场，别的也就那样吧
+
+
+反正现在超限4个就都那样呗，考虑保底ffj和130的300勋章，自己斟酌吧..
+
+
+
+
+
+
+
+-----
+
+####  绯红残叶  
+##### 15211#       发表于 2021-3-15 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619022&amp;ptid=1158205" target="_blank">zhhwmxd 发表于 2021-3-14 11:00</a>
+
+耳环确实有效减少了脑溢血，但我还是希望耳环离开刮刮乐</blockquote>
+这次刮刮乐最让我脑溢血的就是耳环了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          
