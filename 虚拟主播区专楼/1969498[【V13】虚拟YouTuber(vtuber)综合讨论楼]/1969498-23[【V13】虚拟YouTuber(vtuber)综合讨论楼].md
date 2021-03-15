@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-14 13:37** 
+> ## **本文件最后更新于2021-03-15 01:19** 
 
 
 
@@ -3797,9 +3797,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_Z5EfQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Fs7Xy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_c4B14" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_vF5Ot" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_R751G" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_K4zjG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -24248,4 +24248,582 @@ V综毒奶还是厉害<img src="https://static.saraba1st.com/image/smiley/face20
 
 
 
-        
+
+
+-----
+
+####  poipanchao  
+##### 34242#       发表于 2021-3-14 21:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/213902snky983i8807t97k.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210314213852.png</strong> (236.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 21:39 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/213904dhxabehoxab8s07a.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210314213846.png</strong> (99.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 21:39 上传
+
+
+
+
+
+
+
+最终顺位表和个人击杀数
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34243#       发表于 2021-3-14 21:55
+
+
+
+
+幸祜也要开翻唱live了，这位昨天live上唱的几句来看还行，就是MV总弄的那么带电......希望干声好听点
+[https://twitter.com/KOKO__virtual/status/1371025076124983299](https://twitter.com/KOKO__virtual/status/1371025076124983299)
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/215513ipo503e5oo08vnfj.png" referrerpolicy="no-referrer">
+
+
+<strong>koko.png</strong> (72.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 21:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34244#       发表于 2021-3-14 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50624332&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-14 21:39</a>
+
+最终顺位表和个人击杀数</blockquote>
+ちびぱんだ@趣味垢@minipan_craft_·27分
+
+訂正(敬称略)
+
+
+誤
+
+葛葉　10kill  3863ダメ
+
+叶　　3kill　3653ダメ
+
+
+正
+
+葛葉　7kill　2964ダメ
+
+叶　　6kill　4552ダメ
+
+
+叶さんはダメージランキングで8位まで上がりますね！
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34245#       发表于 2021-3-14 22:01
+
+
+
+[https://www.twitch.tv/mmafu_/clip/AnnoyingPricklyAlligatorArgieB8-CeB-TBQbFwkJJ5Wa](https://www.twitch.tv/mmafu_/clip/AnnoyingPricklyAlligatorArgieB8-CeB-TBQbFwkJJ5Wa)
+
+
+
+
+
+
+
+-----
+
+####  netwof2008  
+##### 34246#       发表于 2021-3-14 22:05
+
+
+
+
+看到的一张cr杯伤害和人头统计表
+
+
+
+
+
+
+img-1615729361021467cc5a487a2097432f3e218910ee0aa.jpg
+(323.48 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-14 22:04 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/220413gd7zekzdd9kj8o89.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34247#       发表于 2021-3-14 22:15
+
+
+
+ 本帖最后由 十四洲 于 2021-3-14 22:33 编辑 
+
+叶子ark碰上星川了，双重耳膜爆破装置
+
+syl，不破和真白合唱roki
+
+<img src="https://img.saraba1st.com/forum/202103/14/223319ulhhtdd6bl6x8spt.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (96.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 22:33 上传
+
+
+
+
+
+
+没想到还能看到这两人的合作
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34248#       发表于 2021-3-14 22:20
+
+
+
+
+双叶ark搞快点
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34249#       发表于 2021-3-14 22:22
+
+
+
+
+阿葵那个mmd动画还真的是因为游戏部啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34250#       发表于 2021-3-14 22:54
+
+
+
+
+我的郡郡，京都之旅看起来快乐似神仙<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34251#       发表于 2021-3-14 23:02
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/230058zeuii38sfaaimskk.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210314225849.png</strong> (49.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 23:00 上传
+
+
+
+
+
+
+
+KING不如找个表面上的CP给尊灭灭火吧，
+
+
+正好bora也是在韩国，杜绝了线下私联的可能，一举两得
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 34252#       发表于 2021-3-14 23:36
+
+
+
+
+fuwasiro终于来了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">，这个组合要是愿意重点发展一下我觉得不下黑黑好吧。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34253#       发表于 2021-3-14 23:38
+
+
+
+
+铲弟才懒得陪你玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34254#       发表于 2021-3-14 23:39
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-14 23:55 编辑 
+
+湊皇得先改掉叫人家九血鬼的习惯才行<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+Syl，2021年了...
+
+<img src="https://img.saraba1st.com/forum/202103/14/234746k6q4xiqszoga6fap.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【配信告知】3:21 21-00~ 桃鉄で家族旅行だ！？SP サムネ募集中～っ.jpg.jpg</strong> (550.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 23:47 上传
+
+
+
+
+
+
+
+Zsyl,森中新衣装
+
+<img src="https://img.saraba1st.com/forum/202103/14/234925rh0808eqio2f5mmo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>小学校の制服、似合ってる？.jpg</strong> (197.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 23:49 上传
+
+
+
+
+
+
+
+Zzsyl，2021年了...
+
+PLAY ALIVE｜プレアラ@PLAYALIVE_jp
+
+【#FallGuysスーパーマッチ】
+
+🅴🅽🆃🆁🆈
+
+┗『にじさんじ』から出場決定 !!
+
+
+虹チーム＜SilverDevilS＞
+
+葉山舞鈴
+
+アルス・アルマル
+
+でびでび・でびる
+
+舞元啓介
+
+
+虹チーム＜ささしーふ＞
+
+笹木咲
+
+椎名唯華
+
+三枝明那
+
+不破湊
+
+
+虹チーム＜寒色シスターズ＞
+
+森中花咲
+
+夕陽リリ
+
+相羽ういは
+
+黛灰
+[https://twitter.com/PLAYALIVE_jp/status/1371023293541613573](https://twitter.com/PLAYALIVE_jp/status/1371023293541613573)
+
+
+Zzzsyl，
+
+<img src="https://img.saraba1st.com/forum/202103/14/235512ozaqhuhcyhy0nuua.png" referrerpolicy="no-referrer">
+
+
+<strong>葛葉さんの出演が決定.png</strong> (351.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 23:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34255#       发表于 2021-3-14 23:43
+
+
+
+
+感觉有好久不破没和女liver联动了，是我的错觉吗？
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34256#       发表于 2021-3-15 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50625616&amp;ptid=1969498" target="_blank">qq845629713 发表于 2021-3-14 23:43</a>
+
+感觉有好久不破没和女liver联动了，是我的错觉吗？</blockquote>
+如你所愿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34257#       发表于 2021-3-15 00:09
+
+
+
+
+感觉有好久郡道没和ロア联动了，是我的错觉吗？（试着奶一下）
+
+
+
+
+
+
+
+-----
+
+####  突然空虚  
+##### 34258#       发表于 2021-3-15 00:46
+
+
+
+
+结果虹二期就JS和JK没来（太晚了大概），然后个人势又跟废太子放卫星（手动狗头）
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34259#       发表于 2021-3-15 00:53
+
+
+
+
+爱丽丝能叫到这么多人不容易了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34260#       发表于 2021-3-15 01:03
+
+
+
+
+感觉有好久没叶え葉联动了，是我的错觉吗？（起点作用啊）
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34261#       发表于 2021-3-15 02:52
+
+
+
+
+久违地刷了下串
+
+第一第二局的bora被diss的够惨
+
+从第三局开始就是どりゃああああ拉满了
+
+
+看到这么久的努力终于得到回报真的好开心
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34262#       发表于 2021-3-15 07:44
+
+
+
+
+功利奶不可取<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+       
