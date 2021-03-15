@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-04 03:40** 
+> ## **本文件最后更新于2021-03-15 09:37** 
 
 
 
@@ -2811,4 +2811,679 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 
 
 
-                                            
+
+
+-----
+
+####  johnkamsar  
+##### 78152#       发表于 2021-3-4 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506203&amp;ptid=1085254" target="_blank">auraria 发表于 2021-3-4 10:47</a>
+第四章不就是熊孩子出去打打打，每一节都四五次打各种杂兵人偶，打到吐了对面的中boss不知不觉都被打跪了 ...</blockquote>
+所以就是犯了机械降神的大忌，一切剧情推动都毫无逻辑可言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78153#       发表于 2021-3-4 18:15
+
+
+
+<blockquote>johnkamsar 发表于 2021-3-4 12:29
+所以就是犯了机械降神的大忌，一切剧情推动都毫无逻辑可言</blockquote>
+第四章的烂已经超越了机械降神，Deus EX Machina的意义在于便利的解决问题，但是玉藻前和金时完全意义不明，就因为后者和雷电有关就召唤出来了，甚至连战斗模组都没上......玉藻这种蘑菇也喜欢的高人气角色就这样浪费了第一次出场机会，真亏运营好意思在万圣节UP时写“即将在第四章大活跃的玉藻前限时UP”。
+
+
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78154#       发表于 2021-3-4 18:16
+
+
+
+
+FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，我一开始以为是秦始皇，杰基尔和福尔摩斯，今天看了个翻译发现后两者是大卫和特斯拉......
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 78155#       发表于 2021-3-5 09:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511190&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-3-4 18:15</a>
+第四章的烂已经超越了机械降神，Deus EX Machina的意义在于便利的解决问题，但是玉藻前和金时完全意义不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但本质还是剧作者强行机械降神啊...
+你这么想，樱井不知道出了特总怎么压制，毕竟太屌啦
+圆逻辑樱井又不行，续写蘑菇会去骂，咋办？
+于是樱井灵机一动，强行机械降神出一堆奇怪东西说啪啪打爆特总啦！
+多方便啊～<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78156#       发表于 2021-3-5 09:43
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-3-5 09:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50517292&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-3-5 09:16</a>
+
+但本质还是剧作者强行机械降神啊...
+
+你这么想，樱井不知道出了特总怎么压制，毕竟太屌啦
+
+圆逻辑樱 ...</blockquote>
+是这样的，如此的处理都是写作上的败笔。我只是想落井下石一下，假如机械降神算0分的话，那第四章就得是-100分。（好的作品其实机械降神了也不至于太拉胯，比如漫画结界师）
+
+
+玉藻和金时如果跳过剧情都不知道他们出场过，就好像戏剧演到僵局，旁边的机器放下来一个宙斯，一个周星驰，一个Rick Astley，宙斯把问题解决了，观众问后两者有什么用，编剧说我喜欢...
+
+
+更迷惑的是没有问题强行制造问题的黑枪呆，台词都没有就被小莫自说自话打爆，人家可是秩序善啊...
+
+
+第四章连反面教材都配不上，建议配上天野喜孝的插画一起作为恶劣乙方受人嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  auraria  
+##### 78157#       发表于 2021-3-5 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50517292&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-3-5 09:16</a>
+但本质还是剧作者强行机械降神啊...
+你这么想，樱井不知道出了特总怎么压制，毕竟太屌啦
+圆逻辑樱 ...</blockquote>
+问题是机械降神这两个完全就是多余的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+剧情里也没强调这两个毫无关系的家伙如何打趴特总和黑枪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+也就是导演为推自己亲儿子硬塞他进剧在大结局时突然站C位龙套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 78158#       发表于 2021-3-5 10:32
+
+
+
+
+樱井写的哪一章不是机械降神，第二章突然跳出个大王把雷夫一刀秒了，希腊突然跳出个戴森球给亲女儿刷逼格（蘑菇：卡俄斯这个锅我背）
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 78159#       发表于 2021-3-7 18:10
+
+
+
+
+所以这楼里大概真没几个人从第四章之前打过来的了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第四章当时被喷到死一开始跟小玉金时特总这仨儿其实没啥关系，是因为玛修全篇复读机+憋出个所罗门结果完全意义不明还整了个小便王的外号，把人血压都给看高了，串场三人组是因为后面开始婊樱井才被大规模拉出来鞭尸的
+
+第五章没啥，值得一提的是死了尼禄然后贴吧里的厨子带节奏闹了一波，热度大概还不如第四章
+
+第六章基本都是在真夸，可惜关注度都被高文夺走了，还有个点事一开始大家都以为苍银拉二那个表现是樱井厨力放出，结果第六章那段时间战力讨论都炸了
+
+第七章因为前半段那个galgame式写法强行注水浪费时间骂菌类的人不少，风评转折点是黑泥入侵，bgm和地图的变化，然后气氛才一路走高的，真是被后期救回来的
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78160#       发表于 2021-3-7 19:57
+
+
+
+ 本帖最后由 黑上シグマ 于 2021-3-7 20:23 编辑 
+
+街机那边的新限定人物是雅克德莫莱，最后的圣殿骑士团长
+
+街机内容终于踢出去开新推特号了wwwwwwwww
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 78161#       发表于 2021-3-7 20:31
+
+
+
+
+居然是FR1里的竞技场炮灰卫星之一<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+FR扯了一堆名字当卫星还真有点效用啊
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78162#       发表于 2021-3-7 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543180&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-7 20:31</a>
+
+居然是FR1里的竞技场炮灰卫星之一
+
+FR扯了一堆名字当卫星还真有点效用啊 ...</blockquote>
+不过这样跟六章/ZERO也不太对的上了……可能是采用了新的设定吧
+
+
+狮子王众：？？？
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 78163#       发表于 2021-3-7 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543205&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-7 20:33</a>
+
+不过这样跟六章/ZERO也不太对的上了……可能是采用了新的设定吧
+
+
+狮子王众：？？？ ...</blockquote>
+今天生放送里对街机的剧情解释来看，整个街机主线和手游都是不一样的，主线关键词有“黄金之杯”、“七个都市”之类的，估计往后有主线剧情对话（虽然看这次的演示里也没几句）的六、七章剧情都要大改
+
+
+街机我看着是一部完结就跑路的节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78164#       发表于 2021-3-8 15:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大碧池强化本什么时候开的..最近摸的有点透彻
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78165#       发表于 2021-3-8 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552083&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-3-8 15:10</a>
+大碧池强化本什么时候开的..最近摸的有点透彻</blockquote>
+这次活动开始的那一刻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我也还没打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78166#       发表于 2021-3-9 22:27
+
+
+
+ 本帖最后由 khxooo 于 2021-3-9 22:31 编辑 
+
+高难其实就是之前梅菲那个高难的升级版吧，将从者杀了让教授上场。眩晕好像可以阻止教授走人？
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 78167#       发表于 2021-3-10 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50569619&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-3-9 22:27</a>
+高难其实就是之前梅菲那个高难的升级版吧，将从者杀了让教授上场。眩晕好像可以阻止教授走人？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我直接仇凛车过去了....完全没care教授走不走......
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78168#       发表于 2021-3-10 19:15
+
+
+
+
+UP小王子 看来今年没FR复刻了
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78169#       发表于 2021-3-10 19:22
+
+
+
+
+想想俗话说天草复刻后必有大事，然后我就课了一单，然后看到卫星PU就扔了个十一连，出了
+明天正好能领50天登录的30石，等于没课（不对
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78170#       发表于 2021-3-10 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50579811&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-10 19:22</a>
+
+想想俗话说天草复刻后必有大事，然后我就课了一单，然后看到卫星PU就扔了个十一连，出了
+
+明天正好能领50天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹跳得太快
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78171#       发表于 2021-3-10 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580323&amp;ptid=1085254" target="_blank">areklose 发表于 2021-3-10 20:02</a>
+
+豹跳得太快</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚换的狗粮又没了……苦
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78172#       发表于 2021-3-10 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580897&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-10 20:51</a>
+
+刚换的狗粮又没了……苦</blockquote>
+令人羡慕的苦恼<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78173#       发表于 2021-3-10 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50579811&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-10 19:22</a>
+
+想想俗话说天草复刻后必有大事，然后我就课了一单，然后看到卫星PU就扔了个十一连，出了
+
+明天正好能领50天 ...</blockquote>
+你这个天启的效果越来越怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78174#       发表于 2021-3-11 00:25
+
+
+
+<blockquote>引用第78172楼里村紅葉于2021-03-10 21:01发表的  :
+
+引用:黑上シグマ 发表于 2021-3-10 19:22想想俗话说天草复刻后必有大事，然后我就课了一......</blockquote>
+然后刚才把剩下的石头拿去赌特斯拉，毛都没，心灰意冷准备睡觉……
+
+……的时候突然接收到天启，跑去打了个强化本，凑够3石，一发单抽，三根线，银卡弓阶，变金，特斯拉
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">心满意足睡觉
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78175#       发表于 2021-3-12 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拿着30天登录石去赌老李，结果给我new个奥德修斯是什么鬼？
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78176#       发表于 2021-3-13 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605912&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-12 23:08</a>
+
+拿着30天登录石去赌老李，结果给我new个奥德修斯是什么鬼？</blockquote>
+国日联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78177#       发表于 2021-3-14 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605912&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-12 23:08</a>
+
+拿着30天登录石去赌老李，结果给我new个奥德修斯是什么鬼？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">天启不对
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78178#       发表于 2021-3-14 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">卧槽 这活动不是周三而是明天结束。我沉迷马娘和天地劫完全不怎样动过。。
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78179#       发表于 2021-3-14 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50624057&amp;ptid=1085254" target="_blank">areklose 发表于 2021-3-14 21:16</a>
+
+卧槽 这活动不是周三而是明天结束。我沉迷马娘和天地劫完全不怎样动过。。 ...</blockquote>
+这商店也没啥好东西搬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78180#       发表于 2021-3-15 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50625734&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-14 23:54</a>
+
+这商店也没啥好东西搬吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">金芙芙不值吗！
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 78181#       发表于 2021-3-15 17:07
+
+
+
+
+看到更新100多兆我还想起码能来个幕间吧，真有你的啊YLS<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78182#       发表于 2021-3-15 17:08
+
+
+
+
+看这预告。。。怕不是新式百重塔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  森兰丸  
+##### 78183#       发表于 2021-3-15 17:13
+
+
+
+
+这种超级毒池真的有人会抽么
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78184#       发表于 2021-3-15 17:14
+
+
+
+
+百重塔<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 78185#       发表于 2021-3-15 17:29
+
+
+
+
+百重塔不挺好的，你游少有的能放开手正面干的活动，不然仓库都要生霉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78186#       发表于 2021-3-15 17:30
+
+
+
+
+百重塔好啊，那就是登录一分钟下线完事嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78187#       发表于 2021-3-15 17:32
+
+
+
+
+泔，今年的是男人就下200层还是来了，这种对社畜不友好的活动就不能像别的手游改成半常驻的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
