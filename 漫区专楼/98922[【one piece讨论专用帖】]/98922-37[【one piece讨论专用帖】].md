@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-12 16:59** 
+> ## **本文件最后更新于2021-03-15 13:34** 
 
 
 
@@ -1816,7 +1816,14 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  chenffluy  
 ##### 54095#       发表于 2020-12-30 12:56
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+这事记得当时就有人提了，不过只在小圈子內，现在被再次提起是因为和之国太垃粉丝看不下去转黑举报吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -1984,7 +1991,14 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  chenffluy  
 ##### 54106#       发表于 2020-12-30 13:04
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+微博热搜第五了，怕是真的要凉，不过海贼王国内版权有腾讯一份，有tony马在或许能无事发生
+
+
+
+
 
 
 
@@ -2385,7 +2399,14 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ####  chenffluy  
 ##### 54131#       发表于 2020-12-30 18:19
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+说起来半天过去到现在好像都没大一点的媒体或yhx发过相关报道，连上帝之鹰发的都是洗白的，小马哥出手了？
+
+
+
+
 
 
 
@@ -12167,6 +12188,7 @@ queen那么菜的吗</blockquote>
 
 
 
+ 本帖最后由 banglian 于 2021-3-13 02:49 编辑 
 
 当初把凯多的计谋搞的太low，又把御田战力设的过强，于是被套路导致两个人都形象下降<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
@@ -12298,4 +12320,520 @@ queen那么菜的吗</blockquote>
 
 
 
-                           
+
+
+-----
+
+####  阿虚家的三味  
+##### 54666#       发表于 2021-3-13 01:54
+
+
+
+
+是桃之助也很简单啊，反正有天降老妈这个往前未来单向跳的工具人，再整个往过去跳的工具人不就结了
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 54667#       发表于 2021-3-13 06:33
+
+
+
+
+我觉得从“很久不见”，来说应该是刚到one piece的御田，one piece 很可能就有能送人去看看梦想如何实现的东西（御田的梦想是开国，所以到了这个时间），罗杰也通过op看到了自己的梦想被路飞实现，所以又哭又笑
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54668#       发表于 2021-3-13 08:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605861&amp;ptid=98922" target="_blank">传说中的小鱼 发表于 2021-3-12 23:02</a>
+
+大和男儿为什么不是天下无敌？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我竟无言以对！
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54669#       发表于 2021-3-13 08:12
+
+
+
+ 本帖最后由 DGIL 于 2021-3-13 08:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606158&amp;ptid=98922" target="_blank">evangelina 发表于 2021-3-12 23:36</a>
+
+这样来解释伊姆对草帽的执着？因为就是路飞本人，完成预言成为救世主之后回到过去留下预言？可这不是太宿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那可以轮回一下，上一轮穿越颠覆世界时，因为一些东西失败了，但留下了草帽，还留有乔伊波伊的道歉信等等，再参考伊姆看着路飞通缉令有所思的样子，那现在就那个巨大的草帽还不能解释
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">反正草帽正是那传承。
+
+
+这一次在三王加持下的路飞带领同伴再次来到OP进行穿越时，一切都会被修正颠覆。
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">罗杰他们看到路飞这么有趣的人所以笑得开心，又因为还没到路飞出生的年代
+
+不能一起同行感到失落。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+御田死等20年后不就是因为命运之人路飞还没出生么。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+这样一来没法解释的，就只有剧场版中，罗杰说，一定是我儿子拿到OP这个问题了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54670#       发表于 2021-3-13 08:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606239&amp;ptid=98922" target="_blank">武男 发表于 2021-3-12 23:44</a>
+
+然后又带着过去的人气角色去垫底，现在我们知道了凯多还当了海军的小白鼠。。套娃下来，大家都LOW ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">不怕，海军也逃不掉
+
+黑炭大蛇：”天龙人？海军?世界政府？
+
+我们根本不惧他们，你们就算联手也无法攻陷这里，因为我的背后可是有着凯多！“
+
+这一波是大家一起LOW，谁也逃不掉
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54671#       发表于 2021-3-13 08:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607626&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-3-13 06:33</a>
+
+我觉得从“很久不见”，来说应该是刚到one piece的御田，one piece 很可能就有能送人去看看梦想如何实现的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我觉得他带着，没有罗杰的罗杰海贼团，加上白胡子海贼团的话
+
+强行开国也不是问题，既然都能看到未来了，那带着当世最强的两个海贼团强杀凯多
+
+就可以避免自己国破家亡的悲剧
+
+只有一个解释，主要还是路飞没到位
+
+现在开国也会被世界政府吃掉。
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 54672#       发表于 2021-3-13 08:24
+
+
+
+
+怎么说呢……虽然现在的OP已经不比当年，但乔巴变身抽奎因之后下面一排人捂嘴那段太特么OP味了OTL
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 54673#       发表于 2021-3-13 08:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607905&amp;ptid=98922" target="_blank">icewolf01 发表于 2021-3-13 08:24</a>
+
+怎么说呢……虽然现在的OP已经不比当年，但乔巴变身抽奎因之后下面一排人捂嘴那段太特么OP味了OTL ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">我也觉得，可算是近期的惊喜了
+
+
+
+
+
+
+
+-----
+
+####  海克托尔  
+##### 54674#       发表于 2021-3-13 09:03
+
+
+
+
+说起来大蛇就被一刀砍死了？它那个果实是真恶魔果实吧，真不是玩“砍掉一个，还有八个”？让御田被这么个下三滥角色坑真不觉得跌份？
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 54675#       发表于 2021-3-13 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606158&amp;ptid=98922" target="_blank">evangelina 发表于 2021-3-12 23:36</a>
+
+这样来解释伊姆对草帽的执着？因为就是路飞本人，完成预言成为救世主之后回到过去留下预言？可这不是太宿 ...</blockquote>
+我信你~
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 54676#       发表于 2021-3-13 10:56
+
+
+
+<blockquote>阿虚家的三味 发表于 2021-3-13 01:54
+是桃之助也很简单啊，反正有天降老妈这个往前未来单向跳的工具人，再整个往过去跳的工具人不就结了 ...</blockquote>
+是这样设定比较简单但是这样就很无聊…所以说有些尬，希望能有意思一些吧
+
+
+
+
+
+
+
+-----
+
+####  1041275274  
+##### 54677#       发表于 2021-3-13 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607626&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-03-13 06:33:54</a>
+我觉得从“很久不见”，来说应该是刚到one piece的御田，one piece 很可能就有能送人去看看梦想如何实现的 ...</blockquote>你这个假设其实看佩刀就知道了，如果是拉夫德鲁的御田佩刀肯定是阎魔和天羽羽斩
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 54678#       发表于 2021-3-13 11:29
+
+
+
+<blockquote>1041275274 发表于 2021-3-13 11:01
+你这个假设其实看佩刀就知道了，如果是拉夫德鲁的御田佩刀肯定是阎魔和天羽羽斩
+
+
+  -- 来自 能搜索的 Stage ...</blockquote>
+其实不用看这些，这话突然的做实了龙人造果实的设定，然后是桃之助的压抑，镜头一转“御田”登场，从写作的角度上说这肯定是桃之助了，后边就是有凯多果实能力的“御田”打凯多这种桥段，只是桃之助怎么出现的这个设定还不好说
+
+
+
+
+
+
+
+-----
+
+####  亚尔迪8424  
+##### 54679#       发表于 2021-3-13 15:37
+
+
+
+
+乔巴说了句和现时疫情很合的话。
+
+尾田有点意思啊
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 54680#       发表于 2021-3-13 18:39
+
+
+
+
+话说我对凯多的果实解释还是很失望，什么鱼鱼果实太拉跨了
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 54681#       发表于 2021-3-13 21:13
+
+
+
+
+现在桃之助的作用除了拉仇恨难道就是帮忙放福利？？？<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/211251xxqabxsvqj4xamds.jpg" referrerpolicy="no-referrer">
+
+
+<strong>12er12r12r.jpg</strong> (221.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 21:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54682#       发表于 2021-3-13 22:09
+
+
+
+
+是要有正经果实才能提取这个果实的因子吗？无论吃了没？
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 54683#       发表于 2021-3-13 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">说起来以前没在意过 桃之助能变龙是不是知道的人没那么多
+
+虽然也没藏但也不会特别去说
+
+
+
+
+
+
+
+-----
+
+####  团结奋进碇真嗣  
+##### 54684#       发表于 2021-3-14 01:27
+
+
+
+
+从“你们看上去老了不少”这句话看，就是玉田从过去穿来的吧
+那么为九侠疗伤的是谁？首先玉田大概是没有治疗能力的，看起来又像是刚进门的样子。也可能是治完人再开门见光，不过玉田**咧咧的性格会做这种偷偷摸摸的事吗
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 54685#       发表于 2021-3-14 09:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606158&amp;ptid=98922" target="_blank">evangelina 发表于 2021-3-12 23:36</a>
+这样来解释伊姆对草帽的执着？因为就是路飞本人，完成预言成为救世主之后回到过去留下预言？可这不是太宿 ...</blockquote>
+血统论之后是宿命论，也不奇怪了
+
+
+
+
+
+
+
+-----
+
+####  不吃胡萝卜  
+##### 54686#       发表于 2021-3-14 12:22
+
+
+
+
+尼玛。和之国到底什么时候能结束，我看到刚上和之国就看不下去了，桃之助讨厌得要命，一群忍者就是感觉又菜又丑<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+漫画连载画面也变得巨乱，看不懂位置看不懂背景，现在画面混乱的要死每个格子都画得满满的一点详略差异都没有，复习下新世界之前的画面，就算是一直以来本身战斗分镜和战斗设计就一般般，跟现在比起来也是天壤之别
+
+
+
+
+
+
+
+-----
+
+####  迪奧  
+##### 54687#       发表于 2021-3-15 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595036&amp;ptid=98922" target="_blank">584520184 发表于 2021-3-12 00:29</a>
+
+卧槽，虎扑有个猜测我觉得靠谱
+
+
+这就是真御田，不过是从过去穿越过来的，打赢这场之后又回去了，所以咬定了 ...</blockquote>
+tenet
+
+
+
+
+
+
+
+-----
+
+####  魏柔  
+##### 54688#       发表于 2021-3-15 15:15
+
+
+
+
+赶紧结束和之国这又臭又长的副本吧
+
+
+御田父子恶心人程度快赶上红鸟了
+
+
+
+
+
+
+
+-----
+
+####  导游  
+##### 54689#       发表于 2021-3-15 19:33
+
+
+
+
+这个御田会不会是九尾狐果实 变的？
+
+黑胡子  参战？
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 54690#       发表于 2021-3-15 19:58
+
+
+
+
+离结束还要很久的感觉，凯多团的中boss还没有任何一个变白眼
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 54691#       发表于 2021-3-15 21:12
+
+
+
+
+御田单挑凯多团赢了单挑大妈团赢了最后单挑黑胡子团由于太累了惜败，五皇补刀打晕黑胡子加冕和之国fmvp，成为公认历史第二人（草帽小弟们则坚称五皇理念更先进，已经超越罗杰成为历史第一人）
+
+
+和之国最终幕：宴会过后，五皇和大和披麻戴孝在御前墓前长跪不起：“谢谢你，御田”
+
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 54692#       发表于 2021-3-15 21:21
+
+
+
+
+又翻页bug了，刷半天没反应
+
+
+
+
+
+                          
