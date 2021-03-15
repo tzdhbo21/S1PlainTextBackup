@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 09:54** 
+> ## **本文件最后更新于2021-03-15 17:18** 
 
 
 
@@ -2029,7 +2029,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_LZe37" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_OxV2z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -2953,14 +2953,7 @@ rp入脑www，holoen 三期debut</blockquote>
 ####  OldGlory  
 ##### 104#       发表于 2021-3-6 02:23
 
-
-
-
-火鸡这个直播也太辛苦了，德日英轮流说一遍
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3872,7 +3865,26 @@ I'll have to figure out when to do supa sunday 🤔
 
 
 
+ 本帖最后由 wiig 于 2021-3-13 00:46 编辑 
+
 <img src="https://p.sda1.dev/1/12ff0996f4eaff455072dbfd256a42a0/IMG_CMP_206805733.jpeg" referrerpolicy="no-referrer">量产king
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/004641ydlewiyeg7pg7sgg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (411.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 00:46 上传
+
+
+
+
+
+续一张
+
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
@@ -4049,4 +4061,648 @@ Ame是去旅游了吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                            
+
+
+-----
+
+####  wiig  
+##### 153#       发表于 2021-3-12 14:57
+
+
+
+<img src="https://p.sda1.dev/1/889778c6d11d9757639d25ad6e12d167/IMG_CMP_221675776.jpeg" referrerpolicy="no-referrer">お絵かき配信ありがとう～～✨
+イナ！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡🧡
+大ちゅき！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+#inART #いなート https://t.co/xaoSZqYy7V
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 154#         楼主| 发表于 2021-3-12 15:23
+
+
+
+
+Anya收获两张生日贺图
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 155#       发表于 2021-3-12 17:17
+
+
+
+
+Ame贺图<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/969c6c580b65f69a959bbae03bafe899/20210312_171715.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 156#       发表于 2021-3-12 17:19
+
+
+
+
+Ina<img src="https://p.sda1.dev/1/6cf47b15903a7e40d8202032385cc7af/IMG_CMP_63640212.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 157#       发表于 2021-3-12 17:20
+
+
+
+
+Calli<img src="https://p.sda1.dev/1/da70de7e97063a5372e85928170fb33c/IMG_CMP_22626307.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 158#       发表于 2021-3-12 21:29
+
+
+
+
+pochi<img src="https://p.sda1.dev/1/f020ad83523b6f59d79defa445c72bcd/IMG_CMP_229675299.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 159#       发表于 2021-3-13 08:11
+
+
+
+
+mod设定无比详实<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 160#       发表于 2021-3-13 08:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/082720qk8g8qdk38dvzdgv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210313082705.jpg</strong> (9.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 08:27 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">很懂
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 161#       发表于 2021-3-13 08:37
+
+
+
+
+Kiara:I think I have lost my sense of direction.
+
+Ame:You've also lost my respect when you killed me.
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 162#       发表于 2021-3-13 09:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">Gura哭了好久
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 163#       发表于 2021-3-13 09:12
+
+
+
+
+立牌 钥匙扣 Soundtrack 玩偶
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 164#       发表于 2021-3-13 09:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/13/091832xbnq38i974843w7c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (176.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-13 09:18 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 165#         楼主| 发表于 2021-3-13 11:22
+
+
+
+<blockquote>wiig 发表于 2021-3-13 09:10
+Gura哭了好久</blockquote>
+鲨鱼本人很感性，唱歌都能唱哭
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 166#       发表于 2021-3-13 11:57
+
+
+
+
+happy half year anniversary to the holoEN family🎉🎉
+#gawrt #ameliaRT #inART #いなート #artsofashes #絵ニックス #callillust #hololiveEnglish https://t.co/r4Jhm1AEgC<img src="https://p.sda1.dev/1/deb710e71654d58734936ba3217ab843/IMG_CMP_252604173.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  蒼島燃灯  
+##### 167#       发表于 2021-3-13 23:33
+
+
+
+
+印象曲里个人最喜欢Ina的部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+神秘感真的好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 S1Next-鹅版[/url] v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 168#       发表于 2021-3-14 01:31
+
+
+
+ 本帖最后由 wiig 于 2021-3-14 01:32 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/012932l6h30fliz36dfi3r.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (74.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 01:29 上传
+
+
+
+
+
+
+L2D未知bug 用这个表情唱了两首歌<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 169#       发表于 2021-3-14 02:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/022627hmryx4qjdx6p4qxx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (376.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 02:26 上传
+
+
+
+
+
+
+这周Ame的直播设备
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 170#       发表于 2021-3-14 11:26
+
+
+
+
+ame说她出了个很重要得差，之后是会有啥披露吗？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 171#       发表于 2021-3-14 12:30
+
+
+
+
+彩蛋<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 172#       发表于 2021-3-14 12:31
+
+
+
+ 本帖最后由 wiig 于 2021-3-14 12:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619241&amp;ptid=1989758" target="_blank">IDIDIDID 发表于 2021-3-14 11:26</a>
+ame说她出了个很重要得差，之后是会有啥披露吗？</blockquote>
+没说，甚至不知道是不是工作相关[f:017］
+破案了，在会限里有说是搬家
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 173#       发表于 2021-3-14 15:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/152641mj9f8lebue9z8kuc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (55.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 15:26 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 174#       发表于 2021-3-15 01:04
+
+
+
+Hololive English -Myth- Image Soundtrack(ft. Camellia)
+以下内容需要积分高于 6000 才可浏览
+https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">Calli这首好好听
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 175#         楼主| 发表于 2021-3-15 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619728&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-14 12:31</a>
+
+没说，甚至不知道是不是工作相关[f:017］
+
+破案了，在会限里有说是搬家</blockquote>
+4chan贴贴人已经进化到华鲨搬一起了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 176#       发表于 2021-3-15 01:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/15/011215qjllemfhhmfdqfms.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (323.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-15 01:12 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">太色了 准备用舌头去舔
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 177#       发表于 2021-3-15 01:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50626284&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-15 01:07</a>
+
+4chan贴贴人已经进化到华鲨搬一起了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那我同意
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 178#         楼主| 发表于 2021-3-15 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50626309&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-15 01:12</a>
+
+太色了 准备用舌头去舔</blockquote>
+原人设也很色。。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 179#       发表于 2021-3-15 17:33
+
+
+
+
+Calli病休 推到明天了
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 180#       发表于 2021-3-15 21:05
+
+
+
+<img src="https://p.sda1.dev/1/c3a0e6ba83ac09b1aa8f20e26f39cd7e/IMG_CMP_247471005.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/f26ba790d408dee98fa6c05a8ca520f0/20210315_210122.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 181#       发表于 2021-3-16 00:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/004414ywq8ahkfrujkufa0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (56.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 00:44 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 182#       发表于 2021-3-16 00:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/005227kl88r8e8ckqndlqm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (140.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 00:52 上传
+
+
+
+
+
+
+
+
+
+                                           
