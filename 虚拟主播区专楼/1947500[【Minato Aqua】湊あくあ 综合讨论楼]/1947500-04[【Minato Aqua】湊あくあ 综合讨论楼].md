@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-13 08:39** 
+> ## **本文件最后更新于2021-03-15 17:47** 
 
 
 
@@ -5832,16 +5832,7 @@ syl，狐狸不开台是不是为了方面盯着夸宝打啊
 ####  OldGlory  
 ##### 4817#       发表于 2021-1-11 23:05
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005899&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-11 22:59</a>
-
-我反正心态很正，夸宝有不足，运气也不算最佳，输了就输了，也不是输不起。但是狐狸全村唯一一个不开台，两 ...</blockquote>
-小声bb一下：巧可也没开台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9198,14 +9189,7 @@ syl  这分镜有点意思啊，燃的
 ####  OldGlory  
 ##### 4994#       发表于 2021-1-27 13:24
 
-
-
-
-这种东西你去盯着色指定都比盯个作监靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11301,14 +11285,7 @@ F ...</blockquote>
 ####  OldGlory  
 ##### 5111#       发表于 2021-2-17 19:19
 
-
-
-
-“中国送的”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -15206,12 +15183,618 @@ sj了一下夸宝赛马娘账号发现西野花满破了
 
 
 
- 本帖最后由 乌鸦绅士 于 2021-3-13 16:17 编辑 
+ 本帖最后由 乌鸦绅士 于 2021-3-13 16:56 编辑 
 
-两个手游加APEX你就是时间管理大师<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
+两个手游加APEX你就是时间管理大师<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">十年后大赛出场的孤独传说
 
 
 
-                      
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5312#       发表于 2021-3-13 17:38
+
+
+
+ 本帖最后由 Kanchiki 于 2021-3-13 18:45 编辑 
+
+今天好像有点……意外的暴躁？
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5313#       发表于 2021-3-13 18:18
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-13 18:21 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5314#       发表于 2021-3-13 18:18
+
+
+
+
+怎么今天全是队友死完sololive的剧本啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5315#       发表于 2021-3-13 19:27
+
+
+
+
+今天好惨
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5316#       发表于 2021-3-13 19:35
+
+
+
+
+夸虐大满足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5317#       发表于 2021-3-13 20:30
+
+
+
+
+嘛 打到后面已经意识模糊了吧
+
+白甲就在脸上没捡还问怎么都没甲
+
+FPS还是不能长时间玩 集中力下降影响太大了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5318#       发表于 2021-3-14 13:30
+
+
+
+ 本帖最后由 面具13 于 2021-3-14 13:57 编辑 
+
+希望今天抽到的队友强一点，自己的心态也稳一点吧。
+
+掉到钻四就下播。最坏可能3-4把下播
+
+
+
+还吃兴奋剂啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（红牛）
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5319#       发表于 2021-3-14 14:49
+
+
+
+
+社长打apex被间谍（本人否认）偷家了
+
+
+<img src="https://img.saraba1st.com/forum/202103/14/144854meklck44k5nddet5.png" referrerpolicy="no-referrer">
+
+
+<strong>5S9`}$KE{}9ZC}[2BAOF74P.png</strong> (21.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 14:48 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5320#       发表于 2021-3-14 15:02
+
+
+
+
+这把爽啊
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5321#       发表于 2021-3-14 15:02
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-14 16:42 编辑 
+
+终于吃鸡了 钻2有戏了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5322#       发表于 2021-3-14 16:45
+
+
+
+
+这走路上队友突然倒两个真的难顶
+
+是不是最近KD太高了系统为了平衡就匹配菜鸡队友了
+
+真就打得好不如排得好？
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5323#       发表于 2021-3-14 18:43
+
+
+
+
+怎么还有特别嘉宾的，难道是<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5324#       发表于 2021-3-14 18:44
+
+
+
+
+分身阿夸，没跑
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 5325#       发表于 2021-3-14 18:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">大脸猫吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5326#       发表于 2021-3-14 22:54
+
+
+
+ 本帖最后由 Kanchiki 于 2021-3-14 23:06 编辑 
+
+草 原来是整活
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5327#       发表于 2021-3-14 23:11
+
+
+
+
+居然不是分身，说起来除了犬山那次连麦，上次跟别人联动是什么时候来着，好像mc联动之后就没联动过来着
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5328#       发表于 2021-3-14 23:13
+
+
+
+
+竟然接着唱了，还以为嘉宾环节会放到最后
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5329#       发表于 2021-3-15 01:27
+
+
+
+
+歌回后又是安定的深夜排位上分，然后不出所料的在掉分<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5330#       发表于 2021-3-15 12:57
+
+
+
+
+一个想法就当看个乐，之前辛辛苦苦做了扭蛋机，联动也准备好了，结果当晚突发情况突然取消联动，然后失联了一整天，第三天发了个推说心情很失落（虽然当时很多人说是因为家里的事不过我那时是觉得mc的事情），之后再也没播过mc（也有可能只是因为要争分夺秒apex上分）。昨天天音彼方给akukin建设做了个bgm估计就是想把社长喊回来玩mc
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 5331#       发表于 2021-3-15 13:00
+
+
+
+
+mc可以和ark贴贴去了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5332#       发表于 2021-3-15 16:11
+
+
+
+ 本帖最后由 面具13 于 2021-3-15 18:16 编辑 
+
+午休睡醒，绝赞掉分中。
+RP再创新高8482。
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5333#       发表于 2021-3-15 21:19
+
+
+
+
+文化放送的广播节目，不知道夸夸能不能见到她最爱（之一）的佐仓
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5334#       发表于 2021-3-15 22:17
+
+
+
+
+可惜差点
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5335#       发表于 2021-3-15 23:34
+
+
+
+
+惨惨惨
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5336#       发表于 2021-3-16 00:13
+
+
+
+
+感觉她为了打游戏已经连命都不要了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5337#       发表于 2021-3-16 00:24
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-16 00:29 编辑 
+
+应该是为了自己的好胜心和自尊心变得偏执且不顾其他了    这局打的漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">终于吃鸡了
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 5338#       发表于 2021-3-16 00:38
+
+
+
+
+没有腿带着去打架老想着苟排名见人就跑甚至放弃了自己的优势高地 跑就算了还没事先侦查撞另一队脸上
+自己水平不够还要嗯脑死 真不配上钻二
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5339#       发表于 2021-3-16 01:09
+
+
+
+
+不管用什么方法，只要是游戏承认的手段，上了就是上了，配不配也不是由你说了算的，你又算个什么🐔吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 5340#       发表于 2021-3-16 01:13
+
+
+
+
+粗口都出来了啊 到时候苟上去了crew不要拿这个出来吹你家夸宝多厉害好不好<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5341#       发表于 2021-3-16 01:18
+
+
+
+ 本帖最后由 星の守 于 2021-3-16 01:23 编辑 
+
+能苟上去也是一种本事，只要是上了，就是正正当当的为什么不能说了？
+
+syl不过我不看好这么苟能上去，还是要在思想上有所突破才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+zsyl你这上来就配不配的很难让人不感官极差，要不你想一下，我到你百鬼楼里大谈主播配不配的问题，你的感官会怎样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mine-Deo  
+##### 5342#       发表于 2021-3-16 01:29
+
+
+
+
+这不是crew还没开始吹，你已经冲进别人楼直球骂不配了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+syl 如果想看的是1个人冲给两路人队友嗯拉身位，那确实只有猎杀哥配单排钻二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+夸的思路就是一直ping转点躲劝架，掉分掉到菜的乱送那几把别骂了别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5343#       发表于 2021-3-16 01:31
+
+
+
+
+人家前几个赛季都才艰难上钻的
+
+这赛季挑战一下单排大师
+
+打得很艰难不是很正常
+
+水平又不可能突然飞升
+
+不要用职业选手的水准要求一个女主播好吗……
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 5344#       发表于 2021-3-16 01:35
+
+
+
+
+我是被这样打法的日本人恶心多了 看夸宝这能钻可真酸死了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+syl我们可是都清楚自己主子那数据到底多少是干货 有人说她不配我们甚至跟着一起说的 早就被野男人磨的抗压拉满了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 5345#       发表于 2021-3-16 01:35
+
+
+
+
+嘛，阿夸确实一直是这风格，观感不一定好但能上分的打法就是好打法。而且坚持单排上分不抱腿也是让我挺敬佩都
+
+
+
+
+
+                     
