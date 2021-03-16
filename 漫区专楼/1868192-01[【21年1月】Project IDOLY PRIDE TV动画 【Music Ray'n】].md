@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-02-23 09:38** 
+> ## **本文件最后更新于2021-03-16 14:41** 
 
 
 
@@ -223,7 +223,7 @@ Aile to Yell / TRINITYAiLE
 
 
 比较好奇的是推上这个人物好像不在10人内？
-<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_aZH0z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_WKuU9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1369,7 +1369,16 @@ CG制作：ラークスエンタテインメント
 ####  银盾长枪兵  
 ##### 69#       发表于 2021-1-11 02:20
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+偶像番过于内卷，搞乐队的、唱歌剧的、打碟的、打牌的、赛跑的，选议员的，这又搞出了个亡灵偶像。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
 
 
 
@@ -2186,7 +2195,16 @@ CG制作：ラークスエンタテインメント
 ####  银盾长枪兵  
 ##### 117#       发表于 2021-1-18 03:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+这片可以改个名叫成神之日
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
 
 
 
@@ -3488,49 +3506,49 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 
 
 好評放送中のTVアニメ「IDOLY PRIDE」。星見プロダクションに集まった10人のアイドルたちは長瀬琴乃をリーダーとする「月のテンペスト」と川咲さくらがリーダーの「サニーピース」という2グループに分かれ、第6話「かけがえのないステージを」にて念願のデビューライブを成功させました。ここでは「月のテンペスト」のメンバー、長瀬琴乃役・橘美來さん、伊吹渚役・夏目ここなさん、白石沙季役・宮沢小春さん、成宮すず役・相川奏多さん、早坂芽衣役・日向もかさんが集まって、ここまでの展開を振り返ってもらいました。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571435.jpg/w600h450/" height="450" id="aimg_kSJHq" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/2/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571435.jpg/w600h450/" height="450" id="aimg_xdQ3f" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/2/)
 
 月のテンペストの5人
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 ――サニーピース（サニピ）と月のテンペスト（月スト）のデビューライブが第6話で描かれました。映像をご覧になっての感想はいかがでしたか？橘　サニピも、月ストも、それぞれ個性が出ていたなと思いました。ライティングもサニピちゃんは明るい色を使っていたり、月ストは夜をイメージさせる青や黄色を使っていたりして、そのコントラストが素敵だなって。個人的にはひとりひとりの顔が映ったときの、光の差し込み方が好きですね。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571297.jpg/w600h450/" height="450" id="aimg_a7h71" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/3/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571297.jpg/w600h450/" height="450" id="aimg_lJonT" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/3/)
 
 橘美來さんが演じる長瀬琴乃
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 夏目　サニピは明るい太陽の下で歌うのかなと思っていたら、夕日の中で歌っていたのが意外で。月ストの夜の光もきれいなだけじゃなく、その中に悲しみとかも入っているなと思って、両方とも深みが出ているところが素敵だなと思いました。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571299.jpg/w600h450/" height="450" id="aimg_Dpx7Z" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/6/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571299.jpg/w600h450/" height="450" id="aimg_bNlZ9" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/6/)
 
 夏目ここなさんが演じる伊吹渚
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 宮沢　私は沙季を演じているので、（沙季の妹の）千紗がちゃんとアイドルしているところにすごく感動しました。月ストはダンスが難しそうだなと思っていたら、実際難しかったです（笑）。月ストのみんなみたいになれるように、私たちもダンスを頑張りたいと思います！
-<[img src="https://webnewtype.com/rsz/S1/248177/1571300.jpg/w600h450/" height="450" id="aimg_jymel" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/7/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571300.jpg/w600h450/" height="450" id="aimg_lL60s" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/7/)
 
 宮沢小春さんが演じる白石沙季
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 相川　月スト、ニピとしての衣装が出るのは、これが初めてですよね。それぞれのグループの個性がよく表れている衣装だと思いました。私たちもいつか月ストとしてパフォーマンスを披露させてもらうときは、あの衣装をイメージしたものを着ることになると思うので、私個人としてもすごく楽しみですし、皆さんに楽しみにしていただきたいところでもあります。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571303.jpg/w600h450/" height="450" id="aimg_cqfEC" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/5/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571303.jpg/w600h450/" height="450" id="aimg_uLzwL" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/5/)
 
 相川奏多さんが演じる成宮すず
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 日向　衣装で言うと、それなりのものを持っている子はちゃんとそこが露出しているんですよね。芽衣ちゃんは唯一、肩が片方しか隠れていなかったりとか、沙季ちゃんも胸元が開いていたりして……。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571296.jpg/w600h450/" height="450" id="aimg_OrMB7" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/4/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571296.jpg/w600h450/" height="450" id="aimg_dhHhp" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/4/)
 
 日向もかさんが演じる早坂芽衣
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 橘　やだー！　えっちー！日向　オタク目線から見ると、そこのデザインがまたいいなという（笑）。衣装の細部にもいろいろこだわりが詰め込まれているところがいいなと思いました。――月ストでは琴乃がリーダーとなりました。最初はソロアイドルをめざしていた琴乃ですが、心境の変化を橘さんはどのように捉えていますか？橘　琴乃はひとりで頑張りたいという気持ちが強い子なんですけど、これからグループとして活動していくとなったときに、どう気持ちの整理をつけていき、どうグループに向き合っていくのか？　そういった部分も今後描かれていくと思うので、ぜひ注目していただきたいです。あと、琴乃はデレた顔がめちゃめちゃかわいいので（笑）。ほかのメンバーと接していく中でどんな顔が見られるかというところも、注目して見ていただきたいですね。――誰相手のときに、いちばんデレた顔になりますか？橘　さくらとか渚とかは心を許しがちなので、その2人と接するときはかわいい表情を見せてくれるんじゃないかなと思います。――親友の琴乃を支えるためにアイドルをめざした渚ですが、お話が進むごとに琴乃はさくらと一緒にいることのほうが増えているような……？夏目　たぶん渚的にはちょっと嫉妬とかあるんじゃないかなと、私は思っていて。4話で芽衣が入ってきて、琴乃が牧野に「どういうことですか？」と言いに行くときに、渚も一緒についていっていたんですよ。「なぜこの子はついてきたんだろう？」と私も思っていたんですけど、たぶん琴乃ちゃんを守りたいという思いで隣にいたんだろうなって。そのくらい、琴乃のことをわかってあげようという気持ちは誰よりも強いような気がします。橘　琴乃はちょっとぞんざいに扱いすぎですよね、渚のことを（笑）。もっと渚の気持ちをくみとって、渚にも寄り添ってあげられたらな、と私も思います。――琴乃と渚は親友同士で同じグループですが、沙季は妹の千紗と別グループになってしまって、宮沢さんとしては寂しさを感じることはありますか？宮沢　そりゃあ寂しいです。私自身もどこか千紗だったり、（高尾）奏音ちゃんだったりに頼もしさを感じていたりしますし、千紗に支えられている部分が沙季にもあるので、すごく寂しくはありますよね。でも、同じグループじゃないということで、一ファンとして千紗を見られるというのは楽しみだなとは思います。ライバルとして切磋琢磨していきつつも、応援できる立場というのがいいですよね。――沙季はしっかりしているので、あまり寂しさを表に出さないですよね。宮沢　でもやっぱり、寂しいんじゃないですか。ずっと一緒にいた家族ですし、一緒に練習してきた仲間でもあるので。千紗だけじゃなくて、グループがサニピと月ストで2つに分かれるというのは寂しいなと、私自身としては感じています。――リーダーの座は琴乃に譲ってもセンターはあきらめていないと、すずは言っていましたが、どうしたらセンターになれると思いますか？相川　それは私も知りたいです（笑）。でも、そうやってみんなに宣言しても、笑って流してもらえるところがすずちゃんのいいところかなと思っていて。そういう愛すべき末っ子みたいなところが、これからチームを明るくしていくこともあると思っています。橘　デビューライブの映像を見たときに、すずのステージに立ったときのギャップがすごくいいなと思いました。ふだん「ですわ！」とか言っているのに、この表情ができるすずのポテンシャルはすごいなと。相川　実はできる子なんです！橘　真剣な表情のすずは、まさに美少女！という感じ。いつもはかわいい末っ子という感じですけれども。琴乃も油断していたら本当にセンターを奪われるぞと思いつつ、たぶん琴乃は譲らないと言うと思います（笑）。――ギャップで言えば、いつも明るい芽衣がクールなイメージの月ストに入ったのも意外でしたが、芽衣にギャップ萌えを感じる瞬間はありますか？日向　アニメの収録でディレクションをしていただいたときに「普段は明るく元気な感じだけど、ここはかっこいいところを見せたいから、ちょっと落ち着いた雰囲気でよろしく」と言われたところがあったりしましたね。芽衣ちゃんって、たまにさらっとかっこいいことを言うんですよ。こんなかわいい顔して、ふだん元気っ子なのに、たまにイケメンなところを見せてくれると「かっこいい、芽衣！」ってなります（笑）。しかも、本人も狙って言っているわけじゃないというのがまたギャップだなと思って。第三者からすると「今すごくいいこと言ったよ」と思うけど、たぶん本人は気づいていないという。相川　芽衣ちゃんはいつも、すずちゃんにちょっかいをかけてくるんです。でも、すずちゃんもまんざらでもなくて、「やめてよ！」みたいな感じで返すんですけど、本当はうれしいというのが私も見ていてすごく好きなところで。そういう空気が月のテンペストも和ませてくれると思いますし、芽衣ちゃんの存在って本当に大きくて。言いにくいことを言ってくれたりとか、和ませてくれたりするけど、ちゃんとしているところはちゃんとしているみたいな。そういうところがグループの潤滑油になっているというか、いい役目をしてくれているなと思います。――これからこのメンバーで月ストとして頑張っていくということで、リーダー・琴乃役の橘さんからファンの皆さんへ向けてのメッセージをお願いします。橘　星見プロダクションの10人が2つのグループに分かれてはしまったんですけど、サニピも、月ストも、それぞれアイドルの頂点をめざしていきます。これからライブシーンも描かれていくと思いますし、まだ謎に包まれたところも多いと思いますので、そういったものがどうやって明かされていくのか？　そして、琴乃はグループになじめるのか（笑）。琴乃をはじめ、みんなの成長にご注目ください。加えて特に「IDOLY PRIDE」は楽曲がめちゃめちゃいいので、楽しみにしていただけたらすごくうれしいです。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_h3yY6" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_kVXFC" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
 
 
 
@@ -3880,4 +3898,736 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 
 
 
-                                          
+
+
+-----
+
+####  ReginaldMorgan  
+##### 212#       发表于 2021-3-1 11:27
+
+
+
+
+看到现在感想只剩下mana别成佛，主角团什么的……1202年还整这种友谊魔法确实有点看多了无感了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 213#       发表于 2021-3-1 11:34
+
+
+
+
+mana在阳光下没有影子的画面越来越故意了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 214#       发表于 2021-3-1 16:56
+
+
+
+
+弹幕（第八集）<blockquote>（07:34）这是产前检查的既视感！？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  songchen_bruce  
+##### 215#       发表于 2021-3-8 11:25
+
+
+
+
+成佛是肯定要成佛的，就是不知道成佛前会不会在所有相关人士面前演一出闹鬼戏。
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 216#       发表于 2021-3-8 14:12
+
+
+
+
+这群偶像加起来的观感都不如人鬼情未了，成佛了还能看什么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  shadow001  
+##### 217#       发表于 2021-3-8 14:30
+
+
+
+
+所以太陽組那首歌是不是MANA那首歌？
+
+
+
+
+
+
+
+-----
+
+####  格雷殿下  
+##### 218#       发表于 2021-3-8 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">居然没有扭曲剧情，烦死了
+
+太正能量了，啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 219#       发表于 2021-3-8 15:41
+
+
+
+ 本帖最后由 支仓爱理 于 2021-3-8 15:44 编辑 
+
+这一话的歌好听 总算有点IDOLY PRIDE的感觉了
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 220#       发表于 2021-3-8 20:58
+
+
+
+
+这集挺喜欢的，樱解开心结，芽衣传话也挺有趣，樱唱歌还挺感人。
+
+还有各位的服装价格
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701f7umna7aemzke9jn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EjzUKO_UcAUtL6e.jpg</strong> (403.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701j1qaop8ekbrh4rth.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EjzUKQpVgAIfyRj.jpg</strong> (378.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701t6n6irii9dn1ir3b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EjzUKUgUYAAOhFa.jpg</strong> (363.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701bopp0z5m8myyoqmq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EjzUKN-VkAEkd-Q.jpg</strong> (358.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701yn4rry13izyo1yj1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EkcFoWgUcAEWkoj.jpg</strong> (358.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701zqdcmjx8gqn7g8vl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EkcFoWVVgAAHYcY.jpg</strong> (380.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701lpgavdinpygd55ix.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EvnvgZmU8AMJKJX.jpg</strong> (370.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701e36ufo625di66fud.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EkvUqwXU0AIgGvt.jpg</strong> (404.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205701zr5g4d5anmmjmzvd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ek7BHiRU8AEGSoe.jpg</strong> (388.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/08/205702d7h7r77jnls7j49r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ek7BHmIUwAAnhth.jpg</strong> (385.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 20:57 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 221#       发表于 2021-3-8 21:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不愧是大小姐 六位数都来了 
+
+
+
+
+
+
+
+-----
+
+####  格雷殿下  
+##### 222#       发表于 2021-3-8 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">900的裤子，这就是地摊的王吗
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 223#       发表于 2021-3-8 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50556692&amp;ptid=1868192" target="_blank">格雷殿下 发表于 2021-3-8 21:55</a>
+
+900的裤子，这就是地摊的王吗</blockquote>
+大小姐的袜子2w 都什么材料啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 224#       发表于 2021-3-8 23:13
+
+
+
+
+这新曲牛啊，非常有高级感，有种剧场版ed的感觉
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 225#       发表于 2021-3-9 18:28
+
+
+
+
+战力……年收膨胀还没完<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/09/182810blb7dzzleqh4zw20.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ElUIARRVgAAuQlh.jpg</strong> (355.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 18:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/182810vjycmybej9lmyusc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EleLNFEVoAED4BJ.jpg</strong> (394.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 18:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/09/182810bwt6tqbza3veaoto.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EmH8bFRUcAAW6Tk.jpg</strong> (367.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 18:28 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 226#       发表于 2021-3-9 19:58
+
+
+
+
+那条狗多少钱（
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 227#       发表于 2021-3-10 11:24
+
+
+
+[https://www.youtube.com/watch?v=7bPgTVea4Fo](https://www.youtube.com/watch?v=7bPgTVea4Fo)
+[https://www.bilibili.com/video/BV1Wv411Y7cg](https://www.bilibili.com/video/BV1Wv411Y7cg)
+
+song for you好汀，开始循环。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 228#       发表于 2021-3-10 11:26
+
+
+
+
+新曲循环好几天了，完全不腻，非常上头，真的神曲
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 229#       发表于 2021-3-11 16:30
+
+
+
+
+这番的妹子们都太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊布桑  
+##### 230#       发表于 2021-3-11 16:40
+
+
+
+
+大妈之家上有mana的前传漫画了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">。之前都没有这个，只有正传和四格
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  千本blur  
+##### 231#       发表于 2021-3-13 03:33
+
+
+
+ 本帖最后由 千本blur 于 2021-3-16 13:44 编辑 
+
+是我小看了这个动画了，觉得剧中十人的两个组合并不精彩，但是事实证明索尼的音乐还是强大。
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 232#       发表于 2021-3-15 12:53
+
+
+
+
+我真的受不了中西这个编剧把一段话拆给几个人说的惯用手法了。
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 233#       发表于 2021-3-15 22:31
+
+
+
+
+前传漫画就是麻奈为了成为牧野眼中的唯一而过关斩将，本传漫画版也补充了小樱在第一次遇上牧野是就仿佛听到心脏说这就是能带自己上顶点的人
+
+
+可惜全部都是苦瓜糖
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 234#       发表于 2021-3-16 00:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期这就炮灰了,那下周岂不是随便就手刃一半死肥鸭
+
+
+
+
+
+
+
+-----
+
+####  xjx  
+##### 235#       发表于 2021-3-16 01:04
+
+
+
+
+还是[划掉]TrySail[/划掉]那边kz的作曲好听啊，舞台服也好看。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 236#       发表于 2021-3-16 01:22
+
+
+
+
+还能给TRINITYAiLE单独彻底主角的一回。
+
+Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
+
+
+
+
+
+
+
+-----
+
+####  狂河冰不烈  
+##### 237#       发表于 2021-3-16 08:39
+
+
+
+
+我现在越来越期待麻奈成佛后staff们会怎么表现Producer崩溃的状态了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 238#       发表于 2021-3-16 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637965&amp;ptid=1868192" target="_blank">狂河冰不烈 发表于 2021-3-16 08:39</a>
+
+我现在越来越期待麻奈成佛后staff们会怎么表现Producer崩溃的状态了。</blockquote>
+根据第一话看应该是释怀了吧。当然也说不定麻奈就像小倩一样一世绑在他身上
+
+
+
+
+
+
+
+-----
+
+####  酥蕤  
+##### 239#       发表于 2021-3-16 12:43
+
+
+
+
+虽然有点雨宫天ptsd，但还是感觉雨宫天这边live强一点
+
+
+
+
+
+
+
+-----
+
+####  P-link  
+##### 240#       发表于 2021-3-16 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638122&amp;ptid=1868192" target="_blank">PKVSBOSS 发表于 2021-3-16 09:02</a>
+
+根据第一话看应该是释怀了吧。当然也说不定麻奈就像小倩一样一世绑在他身上 ...</blockquote>
+你就是盗别人号的？还若无其事发帖，还要不要脸。
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 241#       发表于 2021-3-16 21:53
+
+
+
+
+编剧你可做个人吧，看了最新一话漫画再回来看这一集，md这不是往mana伤口上撒盐吗<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/16/215300hzqt3pqq3kp8a3b3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>b20021035aafa40f787dbf91bc64034f79f01930.jpg</strong> (281.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:53 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/215306w2qh4c7g8qk5rggc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dec04a25b899a901138e2a7a0a950a7b0308f531.jpg</strong> (229.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:53 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/215310dreszb86zkbopbfe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>e154e52209f79052e7a436721bf3d7ca7acbd531.jpg</strong> (216.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+                                         
