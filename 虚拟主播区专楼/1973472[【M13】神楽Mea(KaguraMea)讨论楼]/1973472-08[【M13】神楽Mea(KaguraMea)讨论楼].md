@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-15 04:45** 
+> ## **本文件最后更新于2021-03-16 11:36** 
 
 
 
@@ -8953,4 +8953,482 @@ tc录播站求一个<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-                                
+
+
+-----
+
+####  makourisu-2  
+##### 11017#       发表于 2021-3-15 12:48
+
+
+
+
+就知道吃了睡，睡了吃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+刚刚这大力嗦面差点听成擤鼻涕的动静<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11018#       发表于 2021-3-15 13:12
+
+
+
+
+隔壁的[录播机](https://bbs.nga.cn/read.php?tid=17024052)
+
+最新的在十一号
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| physi1202| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11019#       发表于 2021-3-15 14:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+当然了，要是能躺着拥她入怀，听她说一夜悄悄话我也是可以的。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 11020#       发表于 2021-3-15 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50631102&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-3-15 14:16</a>
+
+有时候就不得不惊叹，这女人到底有多能聊。哪怕连刷两小时论坛我都觉得累，她就能开着tc台动不动几 ...</blockquote>
+中国女人也这样，而且越喜欢你越能聊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 11021#       发表于 2021-3-15 14:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">喜欢的也是阿宅，可我不是阿宅了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11022#       发表于 2021-3-15 15:25
+
+
+
+
+今天还有什么预定吗？是不是说了还有次歌会来着
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11023#       发表于 2021-3-15 15:27
+
+
+
+
+今晚上如月1周年，真快啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11024#       发表于 2021-3-15 15:53
+
+
+
+
+好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11025#       发表于 2021-3-15 16:45
+
+
+
+
+今天的预订大概就是副频道录个翻唱，然后我只补了前二十多分钟不清楚她最后有没有确定会限画头像还是普通直播
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11026#       发表于 2021-3-15 19:10
+
+
+
+
+fleet，歇了
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 11027#       发表于 2021-3-15 19:52
+
+
+
+
+20210315东京20点
+
+
+<img src="https://img.saraba1st.com/forum/202103/15/195155qhyuxveg27lfpwev.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D6282770-8C2D-4A8A-9E1F-5A5738698ABF.jpeg</strong> (204.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-15 19:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11028#       发表于 2021-3-15 20:06
+
+
+
+
+小僵尸一周年开了，有空去看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+https://t.co/MEDAlxwVyk
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11029#       发表于 2021-3-15 20:19
+
+
+
+
+生气(*｀･з･)ﾑｯ
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11030#       发表于 2021-3-15 20:46
+
+
+
+
+小紫去哪了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11031#       发表于 2021-3-16 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50635125&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-3-15 20:46</a>
+
+小紫去哪了</blockquote>
+没直播动力 休息 然后又是快半个月没直播这样 老摸鱼了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11032#       发表于 2021-3-16 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11033#       发表于 2021-3-16 12:32
+
+
+
+
+差不多该醒了吧，今天还有tc吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11034#       发表于 2021-3-16 14:22
+
+
+
+
+感觉不好说，这人花粉症昨天来看好像还严重了点，估计顶多有个会限给死宅画画头像这些？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11035#       发表于 2021-3-16 14:24
+
+
+
+
+挺好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11036#       发表于 2021-3-16 16:15
+
+
+
+
+tc
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 11037#       发表于 2021-3-16 18:49
+
+
+
+
+男朋友被子不肯放开我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 11038#       发表于 2021-3-16 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">hso
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11039#       发表于 2021-3-16 19:01
+
+
+
+
+tc越来越耐久了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11040#       发表于 2021-3-16 19:03
+
+
+
+
+一副懒猪样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11041#       发表于 2021-3-16 19:10
+
+
+
+
+当你 妈事业民，天天这手机tc听这人撒娇不香？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 11042#       发表于 2021-3-16 19:27
+
+
+
+
+你们要的直播睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11043#       发表于 2021-3-16 19:31
+
+
+
+
+东京22点再播
+
+
+
+
+
+                               
