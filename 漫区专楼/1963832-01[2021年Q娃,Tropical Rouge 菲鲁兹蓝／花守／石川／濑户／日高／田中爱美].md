@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-14 15:39** 
+> ## **本文件最后更新于2021-03-16 02:53** 
 
 
 
@@ -13420,4 +13420,525 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 
 
 
-                        
+
+
+-----
+
+####  宅音  
+##### 754#       发表于 2021-3-15 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">屑人鱼真的好可爱
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 755#       发表于 2021-3-15 00:48
+
+
+
+
+感觉这部还是挺有贵乱潜质，虽然基本不会往这个方向发展
+
+
+
+
+
+
+
+-----
+
+####  loli公园巡游者  
+##### 756#       发表于 2021-3-15 00:56
+
+
+
+
+珊瑚比前年的伦伦怪还要可爱。今年的爱心眼真是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 757#       发表于 2021-3-15 06:16
+
+
+
+
+目前三集的物理battle力度比上年一年都多
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 758#         楼主| 发表于 2021-3-15 07:45
+
+
+
+<img src="http://wx4.sinaimg.cn/large/a9484b15gy1gojwqnjy3ug208w050kjn.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 759#       发表于 2021-3-15 08:11
+
+
+
+ 本帖最后由 lyflyflxf 于 2021-3-15 08:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50622645&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-3-14 18:54</a>
+
+今年是财团b强调变身要突出化妆了吧
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+今年财团B是真的要卖儿童化妆品了，做现实中的Pretty Holic。
+
+广告中的口红：[https://p-bandai.jp/item/item-1000154320](https://p-bandai.jp/item/item-1000154320)
+
+<img src="https://img.saraba1st.com/forum/202103/15/081326rbr4vzrjxhvr1v17.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021.03.1508.05.38.jpg</strong> (383.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-15 08:13 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  lj205  
+##### 760#       发表于 2021-3-15 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">珊瑚爱了
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 761#       发表于 2021-3-15 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">珊瑚变身好评，感觉4个人变身风格都会不太一样，好奇红战士会有什么花样
+开盾是打叉那里笑到了wwww
+屑人鱼真是每集的快乐源泉wwww
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 762#       发表于 2021-3-15 09:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们也就现在才能说珊瑚爱爱，我就等着你们叛变！
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 763#       发表于 2021-3-15 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50627539&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-03-15 09:00:37</a></blockquote>等一个萝拉长腿满地跑<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 764#       发表于 2021-3-15 12:27
+
+
+
+
+渔网袜来了就知道什么是性感战胜可爱<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 765#       发表于 2021-3-15 13:14
+
+
+
+
+话说去年还是挺伤的
+
+专楼26页要么没开播，要么开播第一集
+
+今年第三集了才到26页
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 766#       发表于 2021-3-15 17:08
+
+
+
+
+还是想说一句，珊瑚涩图真的很涩<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 767#       发表于 2021-3-15 17:59
+
+
+
+
+老外截屏的Q娃精彩瞬间<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/088f9e6d6f67fa03d4b5432c4b2d90f2/2021-03-15_17-59-43.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/40f43597a094b4f73fd0bdfc1c466c5e/2021-03-15_18-00-17.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 768#       发表于 2021-3-15 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50633416&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-3-15 17:59</a>
+
+老外截屏的Q娃精彩瞬间</blockquote>
+躺着也中枪
+
+
+
+
+
+
+
+-----
+
+####  memo2  
+##### 769#       发表于 2021-3-15 18:59
+
+
+
+
+听说今年走沙雕路线就回来看了，屑人鱼可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 770#       发表于 2021-3-15 19:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">珊瑚找抚子cv来配太对了！！！希望后面别隐形...
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 771#       发表于 2021-3-15 21:17
+
+
+
+
+紫色 有点谐 可爱担任）
+
+人鱼真的搞
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 772#       发表于 2021-3-15 21:24
+
+
+
+
+你们都喜欢珊瑚，我就喜欢屑人鱼
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">最喜欢这种沙雕系吃瘪型美少女了
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 773#       发表于 2021-3-15 21:29
+
+
+
+
+我等这周日的黄色入队，第一眼就看上了，看到时会弄出什么活
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 774#       发表于 2021-3-15 21:32
+
+
+
+<img src="http://wx1.sinaimg.cn/large/da25cd0egy1gohjmrq21pj21vo0v87g3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 775#       发表于 2021-3-15 22:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50635612&amp;ptid=1963832" target="_blank">hgcg-ix 发表于 2021-3-15 21:32</a></blockquote>
+这集太成功了
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 776#       发表于 2021-3-15 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50635589&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-3-15 21:29</a>
+
+我等这周日的黄色入队，第一眼就看上了，看到时会弄出什么活</blockquote>
+我也是，黄色人间体太吸引我眼球了，希望性格也好玩点
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 777#       发表于 2021-3-15 22:26
+
+
+
+
+珊瑚拉盾居然是摆个小叉叉手势，确实挺可爱的，不过我也觉得以后可能会变小透明<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+前三集小黄和小红居然完全没出场，后面一出就变身，有点奇怪
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 778#       发表于 2021-3-15 22:43
+
+
+
+
+暂时还是最喜欢海岛姑娘真夏，真情不做作，虽然坚持己见但有不会搞坏空气
+
+
+
+
+
+
+
+-----
+
+####  李可  
+##### 779#       发表于 2021-3-16 00:29
+
+
+
+
+真夏的性格是真的讨喜，有海王潜质<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 780#       发表于 2021-3-16 02:43
+
+
+
+
+Coral那顶小帽子是真的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+不过盾役总感觉是Debuff
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 781#       发表于 2021-3-16 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50635612&amp;ptid=1963832" target="_blank">hgcg-ix 发表于 2021-3-15 21:32</a></blockquote>
+这么看夏哥和红毛的人气也不错<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 782#       发表于 2021-3-16 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637432&amp;ptid=1963832" target="_blank">lhawp 发表于 2021-03-16 02:43:58</a>
+Coral那顶小帽子是真的可爱
+
+不过盾役总感觉是Debuff</blockquote>Coral的裙子其实比较常规，真正的亮点就是帽子，发型，面妆这些小细节，只能说中谷友纪子太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                       
