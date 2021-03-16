@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-16 10:40** 
+> ## **本文件最后更新于2021-03-16 17:02** 
 
 
 
@@ -3733,9 +3733,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_jT1hF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_N17t0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_FMrSf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_S76j6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_pQ33S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_kWwEB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -26028,4 +26028,670 @@ GBR到底转生去哪里，很急。
 
 
 
-     
+
+
+-----
+
+####  秋月孝三  
+##### 34326#       发表于 2021-3-16 19:09
+
+
+
+
+那么有管人直播《我的暑假》any%RTA的🐎
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34327#       发表于 2021-3-16 19:54
+
+
+
+ 本帖最后由 free 于 2021-3-16 20:34 编辑 
+
+能看得清吗，总结一下就是远坂yura因身体原因退出调色板，以个人名义继续活动
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/195355csebztt1x3phota9.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (51.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 19:53 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/203447iv33u66jtz38i3j5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (320.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 20:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 34328#       发表于 2021-3-16 20:51
+
+
+
+
+你虹里想当台柱只有凑三人组，照抄爱马仕的营业就得有三巨头，露和gbr有三人组早就是另一批3bk了。
+
+nijifes也是要把jk组和3bk拿出来当人偶。
+
+你虹里也要讲系谱的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34329#       发表于 2021-3-16 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 对彩虹的king放尊重点啊，人没组三人组随随便便就秒杀各种三人组，
+
+
+速报，king新电脑 5950x+3090
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34330#       发表于 2021-3-16 21:09
+
+
+
+ 本帖最后由 NBXX 于 2021-3-16 21:14 编辑 
+
+发现一个新的公司
+
+【公式】Virtual Union(準備中）
+[https://twitter.com/ocgvmce94bbvffr](https://twitter.com/ocgvmce94bbvffr)
+
+官网
+[http://www.vunijp.com/](http://www.vunijp.com/)
+
+事業内容：
+
+Vtuber運営事業
+
+マーチャンダイジング事業
+
+现在一期生三个带皮招人。看这个「十二神将」莫不是要出12个？
+<img src="https://p.sda1.dev/1/24c5343f49a220b8d3067aeaa89eb1be/QQ截图20210316210638.png" referrerpolicy="no-referrer">
+
+
+而且litsvn和マジョMaJO这两个应该都是国人画师，中间那个不太清楚
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 34331#       发表于 2021-3-16 21:12
+
+
+
+
+今天又变成
+#Vtuberの瞳が見たい
+了
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34332#       发表于 2021-3-16 21:13
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-16 21:27 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/211207ujeqc3nmvn3kgma5.png" referrerpolicy="no-referrer">
+
+
+<strong>【 峰倉太 】古のでえち【 マイクラ 】.png</strong> (95.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:12 上传
+
+
+
+
+
+
+King对ARK的无声反抗？
+
+为什么在MC啊，有懂哥吗
+
+
+自己在串翻到了：刚刚Ark还在下载
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34333#       发表于 2021-3-16 21:24
+
+
+
+
+可是他相好在ark啊😅
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34334#       发表于 2021-3-16 21:26
+
+
+
+
+郡道玩涩游玩了一天，晚上说ytb状态不好不播了，
+真是精力十足啊
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34335#       发表于 2021-3-16 21:26
+
+
+
+
+尊妈播了？
+
+
+
+
+
+
+
+-----
+
+####  CielChloe  
+##### 34336#       发表于 2021-3-16 21:28
+
+
+
+
+现在没有其他高同接的mc台，这波是king的谋略好吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34337#       发表于 2021-3-16 21:33
+
+
+
+
+看了一下hiyoko，新时代虹男精美综艺团建1.5倍碾压旧时代虹男低清像素游戏，彩虹好可怕。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34338#       发表于 2021-3-16 21:38
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-16 21:53 编辑 
+
+Bsyl，不基德
+
+<img src="https://img.saraba1st.com/forum/202103/16/213732x1b8u1ffgwh1bghf.png" referrerpolicy="no-referrer">
+
+
+<strong>？！.png</strong> (88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:37 上传
+
+
+
+
+
+
+Twitter→[https://twitter.com/LutoAraka?s=20](https://twitter.com/LutoAraka?s=20)
+
+それロアのでよ
+
+ついに来たか[https://i.loli.net/2021/03/16/hAYsBzdjTXMy1pc.png](https://i.loli.net/2021/03/16/hAYsBzdjTXMy1pc.png)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34339#       发表于 2021-3-16 21:40
+
+
+
+
+一提到十二神将第一时间想到的是......
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34340#       发表于 2021-3-16 21:41
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-16 21:51 编辑 
+
+甘城老师你<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/16/214143mzyck2fxxnxzcx64.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EwVzeQSUYAA-sUM.jpg</strong> (182.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:41 上传
+
+
+
+
+
+
+
+SYL：混出头了可不可以去和郡道联动啊
+
+
+
+
+ZSYL：建议唯独king不许玩mc
+
+<img src="https://img.saraba1st.com/forum/202103/16/215059idvsruvx5ss57rpi.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #065 - 'ライブ - VNUMA' - hiyoko_sonoj_net.png</strong> (21.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 21:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 34341#       发表于 2021-3-16 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这是多重蹭热度堆buff阿  
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34342#       发表于 2021-3-16 21:55
+
+
+
+
+好可爱的妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">，可以观察一下诶
+
+siosio学西语复活，roa学英语复活，怎么可能啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 34343#       发表于 2021-3-16 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50646402&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-16 21:41</a>
+
+甘城老师你</blockquote>
+今天youtube故障 他的窗也中了  刚冲上2w5就暴掉到2w1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34344#       发表于 2021-3-16 22:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/220515wwrprxjyupp5up1w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>pc04_yokoku.jpg</strong> (537.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 22:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34345#       发表于 2021-3-16 22:23
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-3-16 22:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645395&amp;ptid=1969498" target="_blank">free 发表于 2021-3-16 19:54</a>
+
+能看得清吗，总结一下就是远坂yura因身体原因退出调色板，以个人名义继续活动</blockquote>
+以个人名义活动也不是第一个了吧。
+
+不过看这个说法应该是脱离女团不训练，路线偏向直播了吧
+
+看向笑虹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34346#       发表于 2021-3-16 22:26
+
+
+
+
+鬼神老八电妹机枪，太欢乐了
+
+连续吃两鸡
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 34347#       发表于 2021-3-16 22:45
+
+
+
+<blockquote>free 发表于 2021-3-16 21:40
+一提到十二神将第一时间想到的是......</blockquote>
+半点！
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34348#       发表于 2021-3-16 23:19
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-16 23:50 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/231837ndz2k32dth29ku0j.png" referrerpolicy="no-referrer">
+
+
+<strong>【ARK】Весело провести время с динозаврамиどぁｌ.png</strong> (309.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 23:18 上传
+
+
+
+
+
+
+与油管艰难对抗
+[https://www.youtube.com/watch?v=-lFqsYQ3sh4](https://www.youtube.com/watch?v=-lFqsYQ3sh4)
+
+
+阿葵的ARK初配信尝试了4个窗，都因为油管BUG没办法正常播
+
+King应该也是有考虑油管还没恢复，播了MC、大乱斗和PAPERS,PLEASE（趁ARK播爆前玩点别的）
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34349#       发表于 2021-3-16 23:26
+
+
+
+
+俄语……？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34350#       发表于 2021-3-16 23:32
+
+
+
+ 本帖最后由 cheatdeath3 于 2021-3-16 23:40 编辑 
+
+兵隊ロシア語<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+海外进出真是苦了樱花厂妹，日语都不一定熟练，还得了解不同语系下的各种语言。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 34351#       发表于 2021-3-16 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50646620&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-16 22:05</a></blockquote>
+这也太像Akari之前那个版本了吧，我乍一看以为是一堆人COS她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+This one
+
+<img src="https://img.saraba1st.com/forum/202103/16/235759hpm7p3uxc37ox3cm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>sukima542654s.jpg</strong> (86.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 23:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34352#       发表于 2021-3-17 00:15
+
+
+
+
+其实有件事也想吐槽了，就现在业界的平均水平来看，除了那几个打工战士就没几个是厂妹吧。
+
+不谈转生的，和企业势。
+
+个人势撑了三年的也大有人在吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34353#       发表于 2021-3-17 00:39
+
+
+
+
+猜你不喜欢:めあ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+hiiro是学生，露拉夫是社畜，原生个人势一开始不都是来玩的，搞得好当兼职，搞不好就摸了。说到底正经人谁当v啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
