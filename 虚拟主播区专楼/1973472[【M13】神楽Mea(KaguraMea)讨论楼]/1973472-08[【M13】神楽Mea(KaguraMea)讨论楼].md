@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-16 18:38** 
+> ## **本文件最后更新于2021-03-17 11:38** 
 
 
 
@@ -9883,4 +9883,684 @@ tc最后说了个本月会有个和黄兔子苔苔一起的合唱
 
 
 
-                              
+
+
+-----
+
+####  physi1202  
+##### 11072#       发表于 2021-3-17 08:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">那也太可怕了
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 11073#       发表于 2021-3-17 09:46
+
+
+
+
+苔苔的话参考之前合唱的バレリーコ，明明是校内男女关系苔苔唱得像职场男女关系
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11074#       发表于 2021-3-17 10:19
+
+
+
+
+苔苔的调音师还是香的，几首合唱咩的声音好听
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11075#       发表于 2021-3-17 11:11
+
+
+
+
+https://www.taptap.com/app/174001
+
+喷了，恐怖害怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11076#       发表于 2021-3-17 11:13
+
+
+
+
+点开眼瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11077#       发表于 2021-3-17 11:13
+
+
+
+
+贴贴人武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11078#       发表于 2021-3-17 11:14
+
+
+
+
+答应我，去贴贴楼发好吗，那里的人爱看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11079#       发表于 2021-3-17 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50650791&amp;ptid=1973472" target="_blank">时雨rain 发表于 2021-3-17 11:14</a>
+答应我，去贴贴楼发好吗，那里的人爱看</blockquote>
+下次一定
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11080#       发表于 2021-3-17 11:37
+
+
+
+
+你们不知道这个嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候我也还是个贴贴人呢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11081#       发表于 2021-3-17 11:44
+
+
+
+
+恕我直言，你楼就没有不是贴贴人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 11082#       发表于 2021-3-17 11:49
+
+
+
+
+和谁贴不是贴呢 和我贴我也是贴贴人啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 11083#       发表于 2021-3-17 11:57
+
+
+
+
+最近想要增加杂谈，指狂播tc
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11084#       发表于 2021-3-17 11:59
+
+
+
+
+tc动
+
+住在tc的人<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 11085#       发表于 2021-3-17 12:05
+
+
+
+
+tc播不算播
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11086#       发表于 2021-3-17 12:10
+
+
+
+
+大家不要看tc，这是咩姨的陷阱<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 11087#       发表于 2021-3-17 12:16
+
+
+
+
+要做第一个被陷阱套牢的人<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11088#       发表于 2021-3-17 12:29
+
+
+
+
+这周小麻回老家了要，估计周末不播了，盒限难怪移到了周二去了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11089#       发表于 2021-3-17 12:32
+
+
+
+
+终于回老家了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11090#       发表于 2021-3-17 12:44
+
+
+
+
+每个月一次的定番老家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11091#       发表于 2021-3-17 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又要到相亲环节了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11092#       发表于 2021-3-17 14:47
+
+
+
+
+每天都有tc也挺好，就像小麻在身边一样。后面没听完，今天还有要播的打算吗，什么时候回老家她说了吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11093#       发表于 2021-3-17 15:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50653026&amp;ptid=1973472" target="_blank">pei23333 发表于 2021-3-17 14:47</a>
+每天都有tc也挺好，就像小麻在身边一样。后面没听完，今天还有要播的打算吗，什么时候回老家她说了吗？
+
+   ...</blockquote>
+【神楽めあ 发布】
+内容：今日は昨日できなかったメン限配信する予定なんだけど、今日もyoutube調子悪いっぽいのでわからん！！！！
+一応時間は22：00予定
+时间：2021-03-17 15:10:25 UTC+08:00
+
+
+回老家也就这周吧，上面有人说了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11094#       发表于 2021-3-17 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50653026&amp;ptid=1973472" target="_blank">pei23333 发表于 2021-3-17 14:47</a>
+
+每天都有tc也挺好，就像小麻在身边一样。后面没听完，今天还有要播的打算吗，什么时候回老家她说了吗？
+
+
+   ...</blockquote>
+盒限是23号，你可以当做这周末多半没了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11095#       发表于 2021-3-17 17:36
+
+
+
+
+希望小麻回家不要被圣地巡礼的狂热信徒逮住<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11096#       发表于 2021-3-17 17:37
+
+
+
+
+打麻麻，分肥肉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11097#       发表于 2021-3-17 17:39
+
+
+
+
+我要一条羊腿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11098#       发表于 2021-3-17 18:11
+
+
+
+
+我要羊舌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 11099#       发表于 2021-3-17 18:13
+
+
+
+
+那给我来盘羊头<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11100#       发表于 2021-3-17 18:30
+
+
+
+
+别分了，晚上又摸了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 11101#       发表于 2021-3-17 18:54
+
+
+
+
+20210317东京19点
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/185402ndvk14z5444un486.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1A8D506E-E88B-453E-8014-01548226B591.jpeg</strong> (239.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 18:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11102#       发表于 2021-3-17 19:06
+
+
+
+
+又被怪文书纠缠了吗
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11103#       发表于 2021-3-17 19:08
+
+
+
+
+感觉小麻还是不够姨，看看爱丽丝阿姨怎么做的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11104#       发表于 2021-3-17 19:09
+
+
+
+
+也许是姨妈要来了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11105#       发表于 2021-3-17 19:11
+
+
+
+
+不都是月初吗
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11106#       发表于 2021-3-17 19:16
+
+
+
+ 本帖最后由 Cushaw 于 2021-3-17 19:23 编辑 
+
+不能体谅一下社畜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+整天白天手机tc有个鬼时间看啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11107#       发表于 2021-3-17 19:17
+
+
+
+
+经期不稳定的咩姨什么时候来都有可能的^^
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11108#       发表于 2021-3-17 19:20
+
+
+
+
+这边没人车b限啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，真好
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11109#       发表于 2021-3-17 19:31
+
+
+
+
+这边没人车 但b站评论区已经有很多nt了 沙口b限民怎么还没4万啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11110#       发表于 2021-3-17 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">论迹不论心吧
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11111#       发表于 2021-3-17 19:37
+
+
+
+
+批限有屁用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人均能听懂日语是吧
+
+
+
+
+
+                             
