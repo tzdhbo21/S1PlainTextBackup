@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-17 11:38** 
+> ## **本文件最后更新于2021-03-17 13:39** 
 
 
 
@@ -10563,4 +10563,387 @@ tc播不算播
 
 
 
-                             
+
+
+-----
+
+####  十九号大侠  
+##### 11112#       发表于 2021-3-17 19:41
+
+
+
+
+其实是事业民罢了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11113#       发表于 2021-3-17 19:42
+
+
+
+ 本帖最后由 Cushaw 于 2021-3-17 19:47 编辑 
+
+别尬黑，就算听不懂也有参与感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，不需要杞忧，肉体厨希望她明天就真人出道<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11114#       发表于 2021-3-17 19:43
+
+
+
+
+参与感，指scp哥不在就只能等官组半个月的熟肉那种<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">要我看还是作业少了
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11115#       发表于 2021-3-17 19:47
+
+
+
+
+我是不懂批限民 如果是因为喜欢互动的话 那一定会日语吧 直接去404和tc互动的成功率比在b高吧
+
+如果不懂日语 那看转播和批限有很大区别吗 反正也互动不起来<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11116#       发表于 2021-3-17 19:47
+
+
+
+ 本帖最后由 A2014720 于 2021-3-17 19:48 编辑 
+
+说真的某些人受不了就去看那些主b的国v日v去吧，这个环境又不是b不b限的问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+如果不是翻不了墙的话，并不觉得她b播和油管的内容差别特别大，b播她就不说日语了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你要是觉得她不来是不在意中国观众了，建议多看点直播别云了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+事业民为什么还没死完啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11117#       发表于 2021-3-17 19:48
+
+
+
+
+来个经典aoe,不会日语看尼玛的日V<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11118#       发表于 2021-3-17 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想和她玩lol呀，你们都不喜欢看他lol
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11119#       发表于 2021-3-17 19:50
+
+
+
+
+还有相当一部分人只是看不惯你麻 而批限又是很好的武器 就是今天你麻因为404播不了来b了 照样会说b是备胎 404播不了才会来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11120#       发表于 2021-3-17 19:50
+
+
+
+
+呜呜呜，小麻的lol不好看，b限民放我一马吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11121#       发表于 2021-3-17 19:52
+
+
+
+
+ lol真8行 看不懂 在我这还不如转播歌回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11122#       发表于 2021-3-17 19:56
+
+
+
+
+肉体人不知道你们在说什么，我只想让小麻为我怀上一次孩子<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11123#       发表于 2021-3-17 19:56
+
+
+
+
+不如麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11124#       发表于 2021-3-17 19:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">肉体民这么可怕吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11125#       发表于 2021-3-17 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">想捏她肚子上的泳圈
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11126#       发表于 2021-3-17 20:30
+
+
+
+
+其实我是想说打次胎的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11127#       发表于 2021-3-17 20:39
+
+
+
+ 本帖最后由 Mr.shelter 于 2021-3-17 20:50 编辑 
+
+nt处处有，（）特别多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+好家伙去NGA看了一圈，妖魔鬼怪嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（）能不能早点死啊蹦哒个jb哦
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11128#       发表于 2021-3-17 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50656762&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-3-17 20:30</a>
+其实我是想说打次胎的</blockquote>
+我一般是会和她做安全措施的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 11129#       发表于 2021-3-17 21:06
+
+
+
+
+不是你们能不能不要在这散步恐慌
+
+听你们说的我还以为她评论区又被冲了呢 一看发现就这 nt就一两个
+
+你咩评论区nt何止一两个 这连小场面都算不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11130#       发表于 2021-3-17 21:07
+
+
+
+
+什么批小将<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11131#       发表于 2021-3-17 21:12
+
+
+
+
+说起来她有说新的ive2d大概什么时候出来么
+
+有点等不及了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11132#       发表于 2021-3-17 21:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50657176&amp;ptid=1973472" target="_blank">rosevalley46 发表于 2021-3-17 21:12</a>
+说起来她有说新的ive2d大概什么时候出来么
+
+有点等不及了</blockquote>
+四五月左右 算起来就一两个月
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11133#       发表于 2021-3-17 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50657176&amp;ptid=1973472" target="_blank">rosevalley46 发表于 2021-3-17 21:12</a>
+
+说起来她有说新的ive2d大概什么时候出来么
+
+有点等不及了</blockquote>
+最近大概是说可能四月中旬，なかば
+
+反正最迟5月应该就有了
+
+
+
+
+
+                            
