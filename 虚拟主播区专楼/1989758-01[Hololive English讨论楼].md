@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-15 17:18** 
+> ## **本文件最后更新于2021-03-17 17:21** 
 
 
 
@@ -2029,7 +2029,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_OxV2z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_v6Yiq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -4705,4 +4705,779 @@ Calli病休 推到明天了
 
 
 
-                                           
+
+
+-----
+
+####  nowaki  
+##### 183#       发表于 2021-3-16 08:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨皇的声线是靠声卡拉上去的吗
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 184#       发表于 2021-3-16 12:19
+
+
+
+<img src="https://p.sda1.dev/1/0ebb9e7353b60dfa54387d5bb0e7b892/-325e5d5c8b8a38d9.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 185#       发表于 2021-3-16 13:12
+
+
+
+
+中午sc问什么时候和jp联动，gura说之后有一个活动，到时候就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 186#       发表于 2021-3-16 13:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还来啊？来点不需要语言交流的吧
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 187#       发表于 2021-3-16 14:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡同鸭讲也是节目效果的一环，偶尔来一次还是挺新鲜的
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 188#       发表于 2021-3-16 18:51
+
+
+
+
+上一秒：I'll focus
+
+下一秒：（倒地）It's warm up
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 189#       发表于 2021-3-16 19:12
+
+
+
+
+*HIC<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 190#       发表于 2021-3-16 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Mel和Ollie互让紫甲，结果被Ame抢走了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 191#       发表于 2021-3-16 19:26
+
+
+
+
+这负重训练太哈人了，有丶看不下去了😅
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 192#       发表于 2021-3-16 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">又是那个延迟bug
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 193#       发表于 2021-3-16 19:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">惊觉Ame没有延迟丢包的提示，是开加速器了还是飞日本了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 194#       发表于 2021-3-16 20:11
+
+
+
+
+One last try
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 195#       发表于 2021-3-16 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">Ame直球拒绝了Ollie的床上邀请，上次明明说要考虑一下，果然变心了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 196#       发表于 2021-3-16 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">险些吃鸡，GG
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 197#       发表于 2021-3-16 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638087&amp;ptid=1989758" target="_blank">nowaki 发表于 2021-3-16 08:57</a>
+
+鲨皇的声线是靠声卡拉上去的吗</blockquote>
+不可能，开过ukulele弹唱，没法拉。
+
+
+（再努努力都要成氦气音了，可怕：[https://youtu.be/Jpeu86Cg5-U?t=1927](https://youtu.be/Jpeu86Cg5-U?t=1927)
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 198#       发表于 2021-3-17 00:02
+
+
+
+
+鲨妹抖家务系列：
+
+直播料理
+
+直播吸尘
+
+直播叠洗好的衣物 ←NEW!
+
+
+Duolingo这期犹犹豫豫地说自己干过做清洁的工作，这样联系到Luigi Mansion那次说，她在Hololive之前或之后有点想干清洗地毯的工作，就不像是开玩笑了。上周Terraria那期倒是又有说，离开Hololive之后想开咖啡厅。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 199#       发表于 2021-3-17 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647637&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-17 00:02</a>
+
+鲨妹抖家务系列：
+
+直播料理
+
+直播吸尘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">开咖啡厅的理由好好笑，饮料上的稀奶油完全不够！我肯定能做得更好
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 200#       发表于 2021-3-17 01:13
+
+
+
+
+Calli喝酒回
+
+因为间断性转圈，完全没能接上说的话
+
+听到一个solo trip
+
+不要告诉Ina我很喜欢吃章鱼、也不要告诉Gura我有点想吃鲨鱼肉
+
+三色新笛子 黑 白 粉
+
+<img src="https://img.saraba1st.com/forum/202103/17/004219ax7tkklpprztd6ii.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (89.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 00:42 上传
+
+
+
+
+
+
+发现最近肩膀会那么痛，可能是因为披风的刺太重了
+
+刚看完猛鬼追魂（hellraiser），本来想留一部分给同时视听，结果全都看完了
+
+同时视听目前的名单上有电锯惊魂（SAW）和恶灵骑士（ghostrider）
+
+喜欢的电影有功夫熊猫（Kung Fu Panda）查理的巧克力工厂（Charlie and the Chocolate Factory）
+
+omori会在最近的时间里玩完，但是不会跑所有结局
+
+未来会玩青鬼<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">一边喝酒划拳一边玩青鬼
+
+到了春天事情都有了好转，意思应该是工作告一段落了
+
+最近打算养宠物，每一种类都很可爱，还是想要猫，猫的话要提前问房东许可
+
+想养成年猫，因为觉得大家倾向不要领养成年猫、这样成年猫很可怜
+
+床上有超多枕头，想到枕头就会困，打了个哈欠
+
+下个月有asmr和karaoke，本月月底有联动，不是en
+
+RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画是自己做的
+
+选一个字，如果SC里有这个字就喝一杯，选了hype，chat说选dad，calli说如果选dad会喝到断片
+
+把DB写的信都整理好，觉得需要被鼓励的时候就再回去看一看
+
+用卡祖笛念SC 爬了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 201#       发表于 2021-3-17 01:25
+
+
+
+ 本帖最后由 wiig 于 2021-3-17 01:32 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/012508cjjydfaqi4rbfj5e.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (315.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 01:25 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我裂开
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 202#       发表于 2021-3-17 01:31
+
+
+
+ 本帖最后由 wiig 于 2021-3-17 01:33 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/013024z952pivfvi88x0c5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (346.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 01:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 203#         楼主| 发表于 2021-3-17 03:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638087&amp;ptid=1989758" target="_blank">nowaki 发表于 2021-3-16 08:57</a>
+
+鲨皇的声线是靠声卡拉上去的吗</blockquote>
+她有开autotune，不过本音就是那个样子的，健身环30难度还能保持假音的很少见。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 204#       发表于 2021-3-17 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/75877775d9c7a6cca35229344e8c9fa0/IMG_CMP_263921855.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 205#       发表于 2021-3-17 22:25
+
+
+
+
+惩罚
+
+1、剩下回合句尾加nya
+
+2、用唱的方式讲一回合
+
+3、一回合句尾加nanora
+
+4、一回合只用日语
+
+5、一回合用奶奶口音
+
+6、最终赢家可以用所有输家的推特账号发一条推
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 206#       发表于 2021-3-17 22:39
+
+
+
+
+takotune<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 207#       发表于 2021-3-17 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无尽折磨，这一把怎么这么久
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 208#       发表于 2021-3-17 23:04
+
+
+
+
+PAIN TAKO
+
+<img src="https://img.saraba1st.com/forum/202103/17/230354dsbesct4qpzqj36x.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (31.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 23:03 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 209#       发表于 2021-3-17 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Why are we still here?Just to suffer?
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 210#       发表于 2021-3-17 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">mama在rap里教我怎么说fuck
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 211#       发表于 2021-3-17 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Ina拯救世界，这一把打了34分钟
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 212#       发表于 2021-3-17 23:24
+
+
+
+
+I'm not happy, I'm INA
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 213#       发表于 2021-3-17 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Calli已经完全不信任Kiara了
+
+赢了比赛输了人生
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 214#       发表于 2021-3-17 23:33
+
+
+
+
+Ina - Gura，你喜欢什么颜色
+
+Gura - 红色！拜托！
+
+Ina - oya（选了绿色
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 215#       发表于 2021-3-17 23:35
+
+
+
+
+Ina三连胜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 216#       发表于 2021-3-17 23:38
+
+
+
+ 本帖最后由 wiig 于 2021-3-17 23:47 编辑 
+
+9000岁的老年痴呆grandma Gura
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 217#       发表于 2021-3-17 23:42
+
+
+
+
+Gura - 很久很久以前...WHAT THE HECK!
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 218#       发表于 2021-3-17 23:51
+
+
+
+
+Ina四胜，要每个人的账号发一条推
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 219#       发表于 2021-3-18 00:02
+
+
+
+
+
+Gawr Gura三叉象征holoEN
+
+@gawrgura
+
+TENSAI WILL HAVE REVENGE 大脑
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 220#       发表于 2021-3-18 00:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/18/005838x7rlxul7xwlu7twq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (101.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 00:58 上传
+
+
+
+
+
+
+
+
+
+                                          
