@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-11 06:40** 
+> ## **本文件最后更新于2021-03-17 03:38** 
 
 
 
@@ -18868,4 +18868,612 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 
 
 
-                  
+
+
+-----
+
+####  wqm2008  
+##### 2432#       发表于 2021-3-11 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587598&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-11 13:30</a>
+
+您是哪里啊，一个省应该有几个服务站点吧
+
+
+这里可以查站点</blockquote>
+黑龙江，我用自带的索尼中国查到了，哈尔滨有一家特约维修站。发票和盒子忘记放在哪里了，下周打算直接去看看
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2433#       发表于 2021-3-12 00:20
+
+
+
+
+新问题
+
+
+手机发热过高会遇到“记忆卡损坏”报错，并无限次重启相机。
+
+
+还有啊，微信步数也失灵了，跟我一起行动的朋友微信步数7500，我只有两千出头，全天行动都在一起的
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2434#       发表于 2021-3-12 00:21
+
+
+
+
+阿索的用机体验，前三个月永远是最强的
+
+
+
+
+
+
+
+-----
+
+####  他言無用  
+##### 2435#       发表于 2021-3-12 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50578678&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-10 17:47</a>
+
+官壳除了厚点都挺不错的，不过闲鱼应该只要一百出头。膜用小小鱼雷一百块的，值 ...</blockquote>
+感谢这位老哥的推荐，但我还是忍不住思考我为什么要买这么贵的壳<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2436#       发表于 2021-3-12 12:00
+
+
+
+
+港版更新了，不知道bug修复了没有
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2437#       发表于 2021-3-12 12:12
+
+
+
+
+港版从 A.1 更新到 A.3，感觉应该是包含了一些修复吧，正在更新中
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2438#       发表于 2021-3-12 16:45
+
+
+
+
+58.1.A.3.87  已知修復內容&amp;更新內容
+
+★修正通知喚醒-《在拿起裝置時顯示》時間凍結
+
+★修正性能異常低弱CPU核心無法滿載情形(Geekbench跑分恢復正常)
+
+★修正 工程模式RGBC-IR SENSOR數值異常問題
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2439#       发表于 2021-3-12 18:16
+
+
+
+<blockquote>leyenda 发表于 2021-3-12 16:45
+58.1.A.3.87  已知修復內容&amp;更新內容
+
+★修正通知喚醒-《在拿起裝置時顯示》時間凍結
+
+★修正性能異常低弱CPU ...</blockquote>
+啊，快让我很废纸同学试试他的 5m2 XD
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2440#       发表于 2021-3-12 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603152&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-12 18:16</a>
+啊，快让我很废纸同学试试他的 5m2 XD</blockquote>
+我还没收到，急死了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+这个月被翔移逼得换了台win10掌机打游戏顺带办公了（没错，就是你，垃圾优化原神），然后现在上班天天一堆领导围观我用7寸大的gx1 pro跑excel<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 2441#       发表于 2021-3-13 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605386&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-12 22:10</a>
+我还没收到，急死了
+
+这个月被翔移逼得换了台win10掌机打游戏顺带办公了（没错，就是你，垃圾优化 ...</blockquote>
+win10掌机体验如何？有推荐吗
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  藤原亮政  
+##### 2442#       发表于 2021-3-13 02:34
+
+
+
+
+1m2港版早上更新了
+基本正常了
+
+—— 來自 Sony XQ-AT52, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2443#       发表于 2021-3-13 02:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607190&amp;ptid=1915171" target="_blank">cleaner 发表于 2021-3-13 02:13</a>
+win10掌机体验如何？有推荐吗
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+总体而言都是大玩具，请慎重考虑
+
+目前主流三款：
+
+aya，抢不到，原价性价比还行，没键盘真纯玩具。
+
+win3，没发货，手柄键位奇葩，屏幕太小。
+
+gx1 pro，超低压牙膏（虽然可以解锁至20W，但依旧不如楼上），价格死贵，手柄按键稀烂摇杆飘，而且连接有较明显延迟感，风扇声明显，性价比最低。
+
+我是买了gx1 pro，自认了冤大头。但是说完了确定也说说好处，三者之中唯一的1080P屏，除了打游戏也能拿来看看B站，虽然屏幕色彩有些偏，需要手工矫正。自带键盘，虽然小，不好用，但比另外两个强，有办公需要的时候可以顶上。手柄可拆卸，带出门完全可以装是办公本。支持LTE，省去了手机开热点的麻烦。比大多数老久的8代以前的办公电脑跑得快，目前每天带去公司当成excel计算器用，跑起来比公司的8100快多了，就是屏幕这么小真的费眼睛。
+
+目前来看gpd那边好像会在win max3上换5800U，也许算是一个办公、游戏、价格三者会更均衡一点的选择。推荐等等再说吧，win掌机这个市场感觉在zen2和11代牙膏出来以后才逐渐进入一个相对不错的时期，核显能打了，CPU也不算太差，比起以前用超低压或者hd620这种垃圾，好多了。但目前市面上的机器给人感觉都是玩具，属于干啥都差那么一口气的体验，能心态平和的接受就推荐，不能就老实看正经笔记本吧。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2444#       发表于 2021-3-13 20:29
+
+
+
+
+所以国行52什么时候更新没有问题的11啊？
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2445#       发表于 2021-3-14 14:09
+
+
+
+
+完全没收到修复性能的新版11更新，果然港版又被抛弃了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2446#       发表于 2021-3-14 18:55
+
+
+
+
+pro那个均热板加散热垫有点厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斑驳的阴影  
+##### 2447#       发表于 2021-3-15 06:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587598&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-11 13:30</a>
+
+您是哪里啊，一个省应该有几个服务站点吧
+
+
+这里可以查站点</blockquote>
+搜了下本省最近的服务站在隔壁市，近200km<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">这品控着实劝退
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2448#       发表于 2021-3-15 12:11
+
+
+
+
+X5M2的港版更新了，然而并没有修复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/8aa91f12e6c2bd2cfc4c853fc68ac4e0/IMG_CMP_59213193.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 2449#       发表于 2021-3-15 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629764&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-15 12:11</a>
+X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观</blockquote>
+不能强刷回之前的固件吗
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2450#       发表于 2021-3-15 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50630291&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-3-15 12:54</a>
+不能强刷回之前的固件吗
+
+—— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+工作机，折腾不起强刷回退以后恢复数据的麻烦。
+
+现在打游戏交给win10掌机了，换个方式解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2451#       发表于 2021-3-16 02:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629764&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-15 12:11</a>
+
+X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观</blockquote>
+你把Geekbench丢到游戏管理器里面再看看？
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2452#       发表于 2021-3-16 07:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637447&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-16 02:54</a>
+你把Geekbench丢到游戏管理器里面再看看？</blockquote>
+这种简单的办法当然没有效果……不要相信翔移的游戏模式真的有别家那样激进的调度+温度墙<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+游戏模式唯二作用就是绕过电池直接供电和调节屏幕刷新率触控采样率
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2453#       发表于 2021-3-16 08:03
+
+
+
+ 本帖最后由 我很费纸 于 2021-3-16 13:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637447&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-16 02:54</a>
+你把Geekbench丢到游戏管理器里面再看看？</blockquote>
+补图，打开游戏模式获得更少性能，翔移的游戏模式更多的是保GPU，对于geekbench跑分更加DEBUFF<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/5a29341b7b0b33bdede195097b1b2783/IMG_CMP_5789405.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  藤原亮政  
+##### 2454#       发表于 2021-3-16 08:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637800&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-16 08:03</a>
+
+补图，打开游戏模式获得更多性能，翔移的游戏模式更多的是保GPU，对于geekbench跑分更加DEBUFF</blockquote>
+我1m2剛更新完也是這樣
+
+更新完放兩個小時然後關機-再開機就正常了手遊也不卡了
+
+
+
+
+
+
+
+-----
+
+####  没有未来的未来  
+##### 2455#       发表于 2021-3-16 08:55
+
+
+
+
+感谢各位，不想换手机了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 2456#       发表于 2021-3-16 10:32
+
+
+
+
+上周港版更新后，我升到安卓11后掉电稀快的毛病解决了
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2457#       发表于 2021-3-16 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638010&amp;ptid=1915171" target="_blank">藤原亮政 发表于 2021-3-16 08:47</a>
+我1m2剛更新完也是這樣
+
+更新完放兩個小時然後關機-再開機就正常了手遊也不卡了
+
+ ...</blockquote>
+修了一台另一台没修这种事情翔移也不是没干过啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+讲真这次更新包才150M，严重怀疑只是安全补丁月度更新
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Vicarious  
+##### 2458#       发表于 2021-3-16 21:50
+
+
+
+
+刚刚还是下单了港版8G的X1马克兔
+
+主要是实在看着这两天国内发布的手机一个比一个糟心
+
+想了想这个耳机孔至少也值500
+
+早点决定省得天天想着换手机的事儿
+
+买的某宝销量最高的那家店，希望不会翻车吧
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2459#       发表于 2021-3-16 23:44
+
+
+
+<blockquote>引用第2452楼我很费纸于2021-03-16 08:03发表的  :
+
+本帖最后由 我很费纸 于 2021-3-16 13:14 编辑 引用:Cray 发表于 2021-3......</blockquote>
+我等下用国行跑跑看<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  newtypelv2  
+##### 2460#       发表于 2021-3-17 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50641053&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-16 13:14</a>
+
+修了一台另一台没修这种事情翔移也不是没干过啊
+
+
+讲真这次更新包才150M，严重怀疑只是安全补丁月 ...</blockquote>
+喷了,我更新完也发现了这个问题
+
+
+
+
+
+
+
+-----
+
+####  newtypelv2  
+##### 2461#       发表于 2021-3-17 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50641053&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-16 13:14</a>
+
+修了一台另一台没修这种事情翔移也不是没干过啊
+
+
+讲真这次更新包才150M，严重怀疑只是安全补丁月 ...</blockquote>
+去5ch搜了一圈 发现也有这个问题,然后解决方式是完全关机再开机,我试了下是可以的.
+
+
+
+
+
+                 
