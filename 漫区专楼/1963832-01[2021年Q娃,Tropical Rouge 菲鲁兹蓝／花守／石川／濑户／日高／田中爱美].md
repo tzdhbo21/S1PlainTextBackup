@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-16 02:53** 
+> ## **本文件最后更新于2021-03-17 14:46** 
 
 
 
@@ -13941,4 +13941,591 @@ Coral那顶小帽子是真的可爱
 
 
 
-                       
+
+
+-----
+
+####  三合一出现  
+##### 783#       发表于 2021-3-16 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然还没单推珊瑚，但是珊瑚变身戳脸的画面真的好可爱，恨不能发图。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 784#       发表于 2021-3-16 11:18
+
+
+
+
+珊瑚桃心眼妆实在是太戳我了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+可爱满分！
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 785#       发表于 2021-3-16 19:11
+
+
+
+
+我觉得大友人气就是紫黄二选一了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 786#       发表于 2021-3-16 19:16
+
+
+
+
+我相信渔网袜登场后会绝杀
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 787#       发表于 2021-3-16 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645056&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-16 19:16</a>
+
+我相信渔网袜登场后会绝杀
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+我觉得不会
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 788#       发表于 2021-3-16 20:45
+
+
+
+
+最近都没时间补，去年的Q娃都还没补完。<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 789#       发表于 2021-3-16 21:22
+
+
+
+
+今年总算好好讲日常了，看真夏这活泼劲以及op的小伙伴，应该是不会有小圈子感了
+前十几分钟不会很生硬地把珊瑚写成那种“所有人都看得出我不高兴在装合群”的人，一遇到真夏就“她好率真，好不做作哦”(什么女频套路文)
+星q要是有这观感，何至于我黑它至今。可惜就连土田丰做演出的狗狗星我都觉得不行，星奈光的cv当居首功
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 790#       发表于 2021-3-16 21:43
+
+
+
+
+眼残把“コロリン”看错了…… ​
+<img src="http://wx1.sinaimg.cn/mw690/9657fdc2gy1gom0l6amlcj20u00vhe81.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 791#       发表于 2021-3-16 21:45
+
+
+
+
+就是这一幕
+
+
+
+
+
+
+下载.png
+(188.7 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-16 21:45 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/214508htxpmxn5mmdwonwp.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 792#       发表于 2021-3-16 21:48
+
+
+
+
+papaya那个睫毛太怪了还是有点不能接受
+不过感觉她的变身前后反差会很大，大概就是变身前文学少女，变身后是痴女杀人魔吧
+“哈哈哈，看啊，人类就像垃圾一样”(papaya beam)“污物就要消毒”
+话说人鱼的传说，好像大部分都是悲剧啊，不知道编剧会不会从这方面下手。
+别再搞出个35岁的真夏女士在水族馆当导游，然后被通知水族馆要关掉了的同人甚至官方小说了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 793#       发表于 2021-3-16 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50646450&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-16 21:48</a>
+papaya那个睫毛太怪了还是有点不能接受
+不过感觉她的变身前后反差会很大，大概就是变身前文学少女，变身后 ...</blockquote>
+有这种官方小说吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  面包店柿子菌  
+##### 794#       发表于 2021-3-17 00:36
+
+
+
+
+一个人看得实在是憋不住，反反复复看，只能说热q有活力真好啊
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 795#       发表于 2021-3-17 00:39
+
+
+
+
+珊瑚可爱，不过我觉得人间体更可爱，尤其是睡衣那个打扮，太行了！
+
+真夏性格挺好的，这两集的打斗都有点短，希望能再多一点第二集过肩摔那种打法。下一话黄战士居然就进来了。。不过说实在的我觉得黄战士变身后的造型有点。。。不好看= =
+
+
+ED里有去年的女人，两组人并列在一起后就明显感觉，治Q的角色除了阿苏米以外，肤色好像都比较深？今年的对比之下显得特别白
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 796#       发表于 2021-3-17 00:42
+
+
+
+
+开盾是个手指比个小小的叉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 797#       发表于 2021-3-17 07:53
+
+
+
+
+所以多了挺多在奇奇怪怪位置举差的同人图<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 798#       发表于 2021-3-17 08:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647624&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-16 23:59</a>
+
+有这种官方小说吗
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+说的大概是幸神那个同人吧。。。不是官方小说，不过传播很广
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 799#       发表于 2021-3-17 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647624&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-16 23:59</a>
+
+有这种官方小说吗
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+著名肮脏大人同人。建议不看。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 800#       发表于 2021-3-17 16:34
+
+
+
+
+原来如此，同人的话只看过一个推特写手写的光拉前提下的光圆同人，设定上很讲究，看的非常过瘾
+https://www.konjikiblog.com/entry/sutapuriss-15kounen15miri1
+推荐<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 801#       发表于 2021-3-17 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647624&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-16 23:59</a>
+
+有这种官方小说吗
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+奸笑的官方小说是五人组24岁人生不如意
+
+其中直哥最惨
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 802#       发表于 2021-3-17 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50655546&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-17 18:33</a>
+奸笑的官方小说是五人组24岁人生不如意
+
+其中直哥最惨</blockquote>
+有地址啥的吗？之前在光吧看了一眼，开头幸神做书店导购还啥的被告知要倒闭直接把我ptsd吓出来了，就没看了
+现在搜都是啥查理九世同人文
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 803#       发表于 2021-3-17 19:38
+
+
+
+
+说来都三集了怎么还没看到这部的yin兽，就第一集小露了个脸，这河狸吗？
+
+<img src="https://img.saraba1st.com/forum/202103/17/193800otf89nsf8iiyv4ym.png" referrerpolicy="no-referrer">
+
+
+<strong>yinshou.png</strong> (4.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 19:38 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sAviOr  
+##### 804#       发表于 2021-3-17 19:41
+
+
+
+
+我觉得真夏的声音表现比星奈光强得有限。
+
+—— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 805#       发表于 2021-3-17 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50655868&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-17 19:05</a>
+
+有地址啥的吗？之前在光吧看了一眼，开头幸神做书店导购还啥的被告知要倒闭直接把我ptsd吓出来了，就没看 ...</blockquote>
+我买的实体书……
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 806#       发表于 2021-3-17 20:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50656231&amp;ptid=1963832" target="_blank">sAviOr 发表于 2021-3-17 19:41</a>
+
+我觉得真夏的声音表现比星奈光强得有限。
+
+
+—— 来自 Sony G8441, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+强的有限但毕竟才开头，真夏声音相对更自然随意些，阿光那个真的是硬掐着嗓子，所以很吵
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 807#       发表于 2021-3-17 20:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50656231&amp;ptid=1963832" target="_blank">sAviOr 发表于 2021-03-17 19:41:54</a>
+我觉得真夏的声音表现比星奈光强得有限。
+
+—— 来自 Sony G8441, Android 9上的  v2.4.4.1 ...</blockquote>阿光那是公鸭嗓听着就难受的，夏哥也就稍微吵了点，声线还是挺正常的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 808#       发表于 2021-3-17 21:32
+
+
+
+
+两边都是吵和闹，但真夏一方面是没星奈光那么尖，另一方面是她很好动，或者说肢体语言丰富
+这能让人(至少我是)把动作和声音匹配起来，把注意力从声音上分散开
+其实要说今年配音不行，我觉得是珊瑚。不知道是我盗版上源有问题还是啥，珊瑚的声音听着很“虚”，“飘”。我原以为是为了体现她弱气的一面，没想到下定决心的时候也这么飘
+给我一种看以前的男偶像番时，声优们为了让声音变得很“苏”，又或者磁性，特意用气音说话
+不知道爱奇艺版有没有这问题
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 809#       发表于 2021-3-17 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50657377&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-03-17 21:32:08</a>
+两边都是吵和闹，但真夏一方面是没星奈光那么尖，另一方面是她很好动，或者说肢体语言丰富
+这能让人(至少我 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">花守由美里配各务原抚子也是这个声线，等后续剧集话多起来再看看吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 810#       发表于 2021-3-17 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50657672&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-17 22:01</a>
+花守由美里配各务原抚子也是这个声线，等后续剧集话多起来再看看吧
+
+  -- 来自 有消息提醒的 Stage1 ...</blockquote>
+没看过露营，看到抚子还以为是唱恋爱循环的那个，但那个的声优我记得是香菜。
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 811#       发表于 2021-3-17 22:28
+
+
+
+
+成濑女士是偶像 不是声优 同理还有点心两位女士 仔细想想这几年剧场版那些友情客串的才叫一个惨烈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+菲鲁兹(请懂阿拉伯人名 来解释一下她是姓菲鲁兹 名あい)怎么说听多了隔壁爱丽丝和常叶 反而有点出戏
+很多q娃声优配音向来在前期不行 没有进入状态 去年umb河野这时候也配的很怪 一般后面就好了 但一年也这样就一生黑<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
