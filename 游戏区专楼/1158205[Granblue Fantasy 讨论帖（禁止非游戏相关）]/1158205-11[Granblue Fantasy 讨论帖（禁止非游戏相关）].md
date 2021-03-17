@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-15 05:36** 
+> ## **本文件最后更新于2021-03-17 05:37** 
 
 
 
@@ -129,14 +129,7 @@
 ####  peh  
 ##### 15008#       发表于 2021-2-14 19:31
 
-
-
-
-没忍住拆了30抽，果然屁都没有
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -300,15 +293,7 @@
 ####  peh  
 ##### 15018#       发表于 2021-2-15 01:29
 
-
-
-<blockquote>peh 发表于 2021-2-14 19:31
-没忍住拆了30抽，果然屁都没有</blockquote>
-晚上睡不着，上头抽了一井..情人节角色齐了。但是没出lm很蛋疼
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -897,14 +882,7 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15050#       发表于 2021-2-19 18:43
 
-
-
-
-之前谁问进境法还是浑身法来着<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -984,25 +962,7 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15055#       发表于 2021-2-20 12:52
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385289&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-2-20 11:52</a>
-
-水方出什么大事了吗（看着手上准备砸钢的lm武器
-
-
-  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
-1104奥义追加一割追伤，因为是奥義枠所以和目前章鱼割草常用的杖职主手进境法冲突了（虽然割草好像也不带4，现在可以带了到是），
-
-
-比较尴尬的一点是，脱离主手法武支持萌王开书会变卡（浑身法主手奥义效果太差），而且章鱼现在还没有优质的进境（lm）..所以其实，还是带方阵浑身法割草吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-相比之下水方因为法武只能选浑身，4的追伤倒是放在割草环境也是很大的增强了，毕竟水方现在也是带龙枪的
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1035,20 +995,7 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15057#       发表于 2021-2-22 23:14
 
-
-
-<blockquote>phoenixxj 发表于 2021-2-22 13:21
-1104的主场肯定是150
-
-这150能不能用武僧都是个问号
-
-到时候老男人能不能去也是个问号
-</blockquote>
-我记得去年150帽子都能用，老男人更是前排铁板..
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1136,20 +1083,7 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15062#       发表于 2021-2-23 09:18
 
-
-
- 本帖最后由 peh 于 2021-2-23 09:22 编辑 
-
-fa不是更随便了吗?本来水防御性能就过剩，去年井的bba还没用呢，1101/莉莉/bba，1104，狗，插两根椰子随便吧..掉血没伤害的问题看看新lm了只能，说不定零圈同款..
-
-至于老男人，手操场合肯定铁板啊，fa开3技能你后备插龙吉修正主义开局点下3其实也不太影响的
-
-
-150hl我印象最深的还是鹰人了，满屏dodge真是恶心得不行
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1210,18 +1144,7 @@ fa不是更随便了吗?本来水防御性能就过剩，去年井的bba还没�
 ####  peh  
 ##### 15066#       发表于 2021-2-23 17:27
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50416696&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2021-2-23 15:28</a>
-
-所以没错啊
-
-这是章鱼佬的余裕</blockquote>
-水方也可以啊，水防御不是集中在角色端么..说不定设计一个能让仇闪站前排的boss，常驻130防
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1322,17 +1245,7 @@ https://www.youtube.com/watch?v=U_a8C0348zg
 ####  peh  
 ##### 15072#       发表于 2021-2-28 11:58
 
-
-
- 本帖最后由 peh 于 2021-2-28 12:00 编辑 
-
-没有单面打拳的盘子，但我记得狗1路射程也已经超过95血量了，有zeta大概能快一点但这大概是英雄佬需要考虑的，关键是单面打拳盘子保底2弓2枪...
-
-想了想是不是只有水单面还要靠凑暴击撑盘子的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1640,14 +1553,7 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 ####  peh  
 ##### 15089#       发表于 2021-3-5 16:01
 
-
-
-
-七周年了，自开要么重氪多吃点暗锅卡池的屎要么先养个一年再说（别忘了换欠片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1952,13 +1858,7 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 ####  peh  
 ##### 15108#       发表于 2021-3-7 20:32
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">水老王活了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2289,13 +2189,7 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 ####  peh  
 ##### 15128#       发表于 2021-3-9 18:20
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，我也好像好几井没神石了，说再抽就行的可能是每次百六都下井的大佬吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2359,16 +2253,7 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 ####  peh  
 ##### 15132#       发表于 2021-3-10 00:21
 
-
-
-
-刮之前：哪个sb想出来把耳环塞进去的
-
-刮之后：能把白戒指换成耳环吗，哪个属性都行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2926,39 +2811,7 @@ EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那�
 ####  peh  
 ##### 15164#       发表于 2021-3-11 09:09
 
-
-
- 本帖最后由 peh 于 2021-3-11 09:11 编辑 
-
-有人给我讲一下剧情里ヤチマ和レベリ的关系吗，アイザク问是不是旧识，怎么还能扯到アラン的，之前活动提到过レベリ人格是アラン那边的?
-
-还有那个我吃了阿兰的头也完全不懂在说什么。。
-
-
-妹妹还好吧，总比女儿好，这段剧情最搞笑的还是两人机神。巴叔：zeta你坐啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +2
-
-|昵称|战斗力|理由|
-|----|---|---|
-| wolftooth| + 2|抱歉，给您补回来。|
-
-
-
-查看全部评分
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3110,14 +2963,7 @@ EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那�
 ####  peh  
 ##### 15173#       发表于 2021-3-11 14:42
 
-
-
-
-这次新职业倒是不错，给单面没法搞出打拳盘的提供了一个双面的短期选项
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3178,16 +3024,7 @@ EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那�
 ####  peh  
 ##### 15177#       发表于 2021-3-11 16:52
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50589692&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-11 16:14</a>
-
-ex2除了职武是不是四天刃又可以竞争上岗了</blockquote>
-这职业不缺连击啊
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3215,19 +3052,7 @@ ex2除了职武是不是四天刃又可以竞争上岗了</blockquote>
 ####  peh  
 ##### 15179#       发表于 2021-3-12 01:03
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50594015&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-11 23:12</a>
-不如说过气短lm又竞争上岗了，四天刃也太臭鱼烂虾了
-
-—— 来自 Sony J9110, Android 10上的 S1Ne ...</blockquote>
-我觉得这职业要么就fa拿点别的主手，想打短期还得靠职武不然叠层太慢了，这职业短期靠全队ta二动领域追伤配合回合斩选手还有一手的
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3326,16 +3151,7 @@ kmr PUA真有一套，唯一一次买贵族必得中的唯一突满的暗老王�
 ####  peh  
 ##### 15185#       发表于 2021-3-13 09:57
 
-
-
-
-一个jgj，勉强可以接受，还是勋章拖天人超限进度比较恶心，水贤者两个废物领域也恶心
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">当然最恶心的还是nm呱呱乐每天给几个银天cpu然后群友都在狗叫新lm
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3632,14 +3448,7 @@ B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
 ####  peh  
 ##### 15202#       发表于 2021-3-15 08:44
 
-
-
-
-不打沙盒，扫荡塔罗，每天上线打10个银片就算成功.jpg
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3768,24 +3577,7 @@ B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
 ####  peh  
 ##### 15210#       发表于 2021-3-15 11:36
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629180&amp;ptid=1158205" target="_blank">凌云三才 发表于 2021-3-15 11:19</a>
-
-总算打够十个碎了，那么是先做1还是先做4好点？我看1最近风评也上来了？</blockquote>
-你要打拳顶配就突1，就为了10%上限罢了，
-
-风评没什么改良的，非打拳场合基本不会带的水平，那3回合的吸收跟妈的lb领域不就一个水平？
-
-
-相比之下1104更泛用一点，奥义追伤解放法武进境，古战肯定能上场，别的也就那样吧
-
-
-反正现在超限4个就都那样呗，考虑保底ffj和130的300勋章，自己斟酌吧..
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3805,4 +3597,597 @@ B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
 
 
 
-                                          
+
+
+-----
+
+####  银域放浪者  
+##### 15212#       发表于 2021-3-15 19:56
+
+
+
+
+aap经常连续出宝箱怪+200 一天都打不完.jpg
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 15213#       发表于 2021-3-16 07:40
+
+
+
+
+转盘转十连，刮刮乐刮垃圾
+碧蓝幻想，狗都不玩！
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15214#       发表于 2021-3-16 09:32
+
+
+
+
+转到10连重转20连<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15215#       发表于 2021-3-16 09:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50634606&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-3-15 19:56</a>
+
+aap经常连续出宝箱怪+200 一天都打不完.jpg
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+曾经一个箱子接1个箱子白嫖了4小时
+
+然后一个精不出
+
+感觉在给kmr打工。
+
+正常来说，以我这摸鱼速度，一小时2精是打底的。 真就被kmr玩弄。
+
+
+
+
+
+
+
+-----
+
+####  罗喉  
+##### 15216#       发表于 2021-3-16 15:34
+
+
+
+
+沙盒属精减负……我感觉是在浪费时间……
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 15217#       发表于 2021-3-16 19:01
+
+
+
+
+土芬和羊二选一交井的话，谁更好？是有土宇宙胚子的，但不确定愚者什么时候能出来。
+
+
+
+
+
+
+
+-----
+
+####  古典吉他  
+##### 15218#       发表于 2021-3-16 19:21
+
+
+
+
+新职业有点小帅
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 15219#       发表于 2021-3-16 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50644908&amp;ptid=1158205" target="_blank">Aureth 发表于 2021-3-16 19:01</a>
+土芬和羊二选一交井的话，谁更好？是有土宇宙胚子的，但不确定愚者什么时候能出来。 ...</blockquote>
+我觉得如果你能问出来这个问题的话，说明你应该对无属性本撕逼没什么强烈的需求，况且你目前还没有愚者…那还是推荐火属性全能辅助羊。等月末白嫖完再看看吧？
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15220#       发表于 2021-3-16 20:07
+
+
+
+
+EP4......................................................................也就那样吧
+
+
+
+
+
+
+
+-----
+
+####  Aureth  
+##### 15221#       发表于 2021-3-16 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645509&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2021-3-16 20:07</a>
+
+我觉得如果你能问出来这个问题的话，说明你应该对无属性本撕逼没什么强烈的需求，况且你目前还没有愚者… ...</blockquote>
+有道理，确实没那么多时间泡无属性本，不犹豫了。
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 15222#       发表于 2021-3-16 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645520&amp;ptid=1158205" target="_blank">navarra 发表于 2021-3-16 20:07</a>
+
+EP4......................................................................也就那样吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">只有三章 蒂安和机神都要打的话就会不充分燃烧了
+
+本来以为给了这么多描写帝安会反水的
+
+
+
+
+
+
+
+-----
+
+####  navarra  
+##### 15223#       发表于 2021-3-16 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645894&amp;ptid=1158205" target="_blank">windlikeman 发表于 2021-3-16 20:46</a>
+
+只有三章 蒂安和机神都要打的话就会不充分燃烧了
+
+本来以为给了这么多描写帝安会反水的 ...</blockquote>
+结果看了一整话的男上加男，你感觉如何了，感觉如何了啊！
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 15224#       发表于 2021-3-16 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645918&amp;ptid=1158205" target="_blank">navarra 发表于 2021-3-16 20:49</a>
+
+结果看了一整话的男上加男，你感觉如何了，感觉如何了啊！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">我现在就在想，有没有人能P个这样的图：
+
+madao抱着迪安，迪安抱着以撒，以撒抱着卡西乌斯
+
+究极男上加男上加男上加男
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 15225#       发表于 2021-3-16 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50646037&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2021-3-16 21:03</a>
+
+我现在就在想，有没有人能P个这样的图：
+
+madao抱着迪安，迪安抱着以撒，以撒抱着卡西乌斯
+
+究极男 ...</blockquote>
+天蓝3的何屌剑法。
+
+
+比列背刺萨利叶，拔了他鸡翅
+
+别西卜背刺比列
+
+法桑背刺别西卜
+
+
+能串一块了
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15226#       发表于 2021-3-16 22:41
+
+
+
+
+这新职业也太猛了，没见过起手常驻平砍100w的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15227#       发表于 2021-3-16 22:48
+
+
+
+
+恍惚间我以为这新职业是技工的EX2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  初雪绫  
+##### 15228#       发表于 2021-3-16 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 两键充一百奥 确实有点技工味
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 15229#       发表于 2021-3-17 07:28
+
+
+
+
+这职业同时鲨了技工和双剑，而且剑主手的时候神他妈平A50%天司上限<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+土贝也不弱，被动3层很好叠，叠满之后奥义就是650W+580W（没芬剑也有500W），然鹅我一个戒指砸下去浑身10<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15230#       发表于 2021-3-17 07:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新职业日常是真的爽
+
+不过古战什么性能还是得打个问号，被当目标就掉气球，而且本身防御就低，遇到个乱击或者顺劈的boss，怕是光速主落
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15231#       发表于 2021-3-17 08:00
+
+
+
+
+这职业就六属打牛
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15232#       发表于 2021-3-17 08:21
+
+
+
+
+现在U武还有必要做嘛
+
+我有一把土U剑，感觉用的角色里面格斗越来越多了，要不要做个U爪？
+
+然后我看还有六龙武，之后还有法武虚空武汉星幽之类的武器，这几种哪些优先级比较高？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  夜之光  
+##### 15233#       发表于 2021-3-17 08:28
+
+
+
+ 本帖最后由 夜之光 于 2021-3-17 08:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50648856&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-17 08:21</a>
+
+现在U武还有必要做嘛
+
+
+我有一把土U剑，感觉用的角色里面格斗越来越多了，要不要做个U爪？</blockquote>
+U武就是几个没平A或技伤上限的(方阵)-用来补上限顺带拉一下连击的.基本不怎么会用到,看需要做就行了,反正日常用不到的情况下芯片其实也算挺多.
+
+法武优先度最高,接着是星幽,虚空武挺少用到但做起来很简单,旧龙武全是垃圾你喜欢可以做个火当主手就结束了,新龙武基本都要农没啥好说.
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15234#       发表于 2021-3-17 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不知道周年超谁了……
+
+火暂时有了涅墨涅，没有泳装那个一键at的
+
+水几个泳装都没有
+
+风没有情军
+
+土没有圣诞大奶魔女和泽塔双人卡
+
+光没有泳装双子万圣政委
+
+暗没有泳阿米拉
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15235#       发表于 2021-3-17 10:52
+
+
+
+
+情军喇叭老男人都属于各个属性的核心构筑了，尤其是喇叭和老男人，情军没有还可以玩老版的7军猴嘛，剩下的后面那几位应该是比不上的
+
+个人建议是从这三个里选
+
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15236#       发表于 2021-3-17 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50649822&amp;ptid=1158205" target="_blank">zzy516232108 发表于 2021-3-17 09:59</a>
+
+不知道周年超谁了……
+
+火暂时有了涅墨涅，没有泳装那个一键at的
+
+水几个泳装都没有</blockquote>
+一般决赛圈最常见的选手
+
+nmn 土mao 喇叭 （人人都有的泳盾）
+
+你这前2位都有了，剩下的就不用说了吧
+
+至于水
+
+我看到个说法很有意思
+
+泥鳅不值得超，他不配。
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15237#       发表于 2021-3-17 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50650524&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-17 10:52</a>
+
+情军喇叭老男人都属于各个属性的核心构筑了，尤其是喇叭和老男人，情军没有还可以玩老版的7军猴嘛，剩下的 ...</blockquote>
+老男人有了，现在就是纠结情军还是喇叭，有点头疼
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15238#       发表于 2021-3-17 11:38
+
+
+
+
+现在有新职业全属性都能2键at
+喇叭也就多个湿婆斩，而且不是刀老王根本打不满
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 15239#       发表于 2021-3-17 12:18
+
+
+
+
+nga对火方的火力有基本认识了，泥潭还没<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15240#       发表于 2021-3-17 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50651578&amp;ptid=1158205" target="_blank">xzhlj0325 发表于 2021-3-17 12:18</a>
+nga对火方的火力有基本认识了，泥潭还没</blockquote>
+来个连接看看？
+
+—— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 15241#       发表于 2021-3-17 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50651910&amp;ptid=1158205" target="_blank">zzy516232108 发表于 2021-3-17 12:50</a>
+
+来个连接看看？
+
+
+—— 来自 samsung SM-G7810, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+[https://bbs.nga.cn/read.php?tid=25940633](https://bbs.nga.cn/read.php?tid=25940633)
+[https://bbs.nga.cn/read.php?tid=25701072](https://bbs.nga.cn/read.php?tid=25701072)
+
+
+
+
+
+                                         
