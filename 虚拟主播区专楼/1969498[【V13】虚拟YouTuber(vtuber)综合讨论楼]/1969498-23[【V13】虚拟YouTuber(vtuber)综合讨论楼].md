@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-16 17:02** 
+> ## **本文件最后更新于2021-03-18 15:41** 
 
 
 
@@ -3733,9 +3733,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_S76j6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_pQ33S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_kWwEB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_h8dE7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_EPIZi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_FG1ua" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -25816,6 +25816,25 @@ syl，话说爱丽丝前几天一反常态的拥抱大家庭
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KarsusNeko| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -26694,4 +26713,653 @@ hiiro是学生，露拉夫是社畜，原生个人势一开始不都是来玩的
 
 
 
-    
+
+
+-----
+
+####  KarsusNeko  
+##### 34354#       发表于 2021-3-17 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50646125&amp;ptid=1969498" target="_blank">wiig 发表于 2021-3-16 21:12</a>
+
+今天又变成
+
+#Vtuberの瞳が見たい
+
+了</blockquote>
+<img src="https://ftp.bmp.ovh/imgs/2021/03/a8dfa86bc1a2af9c.png" referrerpolicy="no-referrer">
+
+本当に綺麗だね
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34355#       发表于 2021-3-17 10:11
+
+
+
+
+郡道美玲のキャス総合配信時間見たら741時間って出てきてそっと見ないフリした
+
+twitcasting的女王（在时长方面）
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 34356#       发表于 2021-3-17 13:14
+
+
+
+
+#Vtuberの瞳が見たい
+
+<img src="https://img.saraba1st.com/forum/202103/17/131436ygzmvgl1mhv2n019.png" referrerpolicy="no-referrer">
+
+
+<strong>210317131423.png</strong> (6.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 13:14 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 34357#       发表于 2021-3-17 14:32
+
+
+
+
+千草里推账号解锁了，之前推文全删了。也算是个新的开始吧，分享了和朋友一起赏樱，去水族馆的照片。好起来了！希望你能一直坚强快乐地走下去 
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/143129w3w1nznr5snrsvi3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210317_143119_com.twitter.android.jpg</strong> (354.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 14:31 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/143138n6s6ehfpqq74nr31.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210317_143105_com.twitter.android.jpg</strong> (281.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 14:31 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| FCCHua| + 1|哎，加油|
+| ylssb10438| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 34358#       发表于 2021-3-17 15:41
+
+
+
+
+所以2月26号发的“わんちゃん 春に 会社 辞めれるかもしれない”还有没有后续了 看了半年黑泥 这快20万订阅真的好辛苦
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34359#       发表于 2021-3-17 16:04
+
+
+
+
+才看到，多井pro今天生日，郡道跑过去一起打麻了（顺便催女装）。
+
+省一楼，【初めて来るカレー屋に来て注文しようとしたら首振られてメニュー表のネパール語対応表指されて、どうやらネパール語で注文しないと反応してくれないらしいんだけど何で郡道の人生こんなに試されてんの？？？？？？？ハードモードなの？？？？？？？？？？？？？？】
+
+又是村姑进城笑话，希望哪天日本也卖qqㄋㄟㄋㄟ好喝到咩噗茶
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34360#       发表于 2021-3-17 16:15
+
+
+
+
+不省一楼，好像是还蛮实用的实时翻译机，不知道实用性和收益化许可如何，要是真能用上的话哪怕是无人气无同传底边liver（无特指）也能跟英语使用者交流了（[https://twitter.com/himono_vtuber/status/1371807637478633472?s=21](https://twitter.com/himono_vtuber/status/1371807637478633472?s=21)）
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34361#       发表于 2021-3-17 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 昨晚你葵那里没法播ark，你葵频道就像被404诅咒了一样，今天这诅咒传到釜山直播间了，
+
+
+赶紧解绑吧，连直播都搞不定的直播员，还有什么存在的意义呢？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34362#       发表于 2021-3-17 17:14
+
+
+
+
+叶师路遇卡墙的南巨，贪到以后捕获的时候自己卡BUG了，把东西放雪鸮上他自杀，再回来雪山飞龙又卡虚空了；
+
+带着雪鸮救虚空中的雪山飞龙，位置原地刷出了新南巨，他自己、雪鸮、两只雪山飞龙（一只虚空的被新南巨带走，另一只行方不明）全没了...
+
+
+全家灭绝
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 34363#       发表于 2021-3-17 19:09
+
+
+
+
+这就是饭圈吗，爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/8d38ca61fdfe97238f6162505985628f/IMG_CMP_178437692.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SteveS| + 1|很难不加鹅|
+| 獅白ぼたん| + 1|平衡|
+| 某穆克拉| + 1|？|
+| 黑之和|-1|好评减鹅|
+| alcoholic1000|-1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34364#       发表于 2021-3-17 19:16
+
+
+
+[https://twitter.com/ReebokCLASSICjp/status/1372133359187546113](https://twitter.com/ReebokCLASSICjp/status/1372133359187546113)
+
+昆明南站联动锐步
+
+
+
+
+
+
+
+-----
+
+####  freakystar  
+##### 34365#       发表于 2021-3-17 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50655911&amp;ptid=1969498" target="_blank">sonyjam 发表于 2021-3-17 19:09</a>
+
+这就是饭圈吗，爱了爱了</blockquote>
+这做视频的，是传说中的粉转黑吗？有些都没听说过。也可能是我太不关注KING了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 34366#       发表于 2021-3-17 20:14
+
+
+
+
+Walfie
+#Vtuberの瞳が見たい https://t.co/r4KAXmzntA
+<img src="https://p.sda1.dev/1/11338ee7945914d86348f57ee5a6fc09/20210317_201126.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34367#       发表于 2021-3-17 22:00
+
+
+
+
+七武海这相声队好有趣，还能看狱卒打枪，真不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34368#       发表于 2021-3-17 23:48
+
+
+
+
+看到了葵的新周边，分别是原宿系/运动风/平面艺术，KUMAWARI感觉可以直接加太阳花了，
+郡道能不能学学，那个LGBTQ马克杯真的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 34369#       发表于 2021-3-18 00:08
+
+
+
+
+叶师ib社长的ark同接都明显吃到buff，反而不破有点播崩了
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 34370#       发表于 2021-3-18 00:10
+
+
+
+
+啊 才发现nanohana大佬投了个船长的视频 不知道模型有没有公开
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34371#       发表于 2021-3-18 15:48
+
+
+
+[https://realsound.jp/2021/03/post-722238.html](https://realsound.jp/2021/03/post-722238.html)
+
+ヰ世界情緒×somunia “文通”対談　お互いの印象や「透明な呼吸」でのコラボについて
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34372#       发表于 2021-3-18 18:38
+
+
+
+
+战斗歌姬怎么还重新招中之人要重开的……
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34373#       发表于 2021-3-18 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> KING播ark都没人说了嘛？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34374#       发表于 2021-3-18 21:36
+
+
+
+ 本帖最后由 黑之和 于 2021-3-18 22:26 编辑 
+
+今晚十点有黑黑频道白情直播
+感觉又有新歌了
+不过你楼应该也没几个人看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+草记错了，是十一点，还以为没赶上<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nehon13  
+##### 34375#       发表于 2021-3-18 21:52
+
+
+
+ 本帖最后由 nehon13 于 2021-3-18 21:54 编辑 
+
+【#音楽を止めるな3 いよいよ】
+
+Vtuberのオリジナル楽曲ノンストップ放送イベント「音楽を止めるな3」いよいよ明日からです！
+
+
+今回はなんと400組以上1000曲超え...
+
+48時間の予定が24時間くらい延長します（？）
+
+
+3つの枠に分けて合計4日間お届けします！！
+
+楽しみ[https://t.co/Myq5k83kui?amp=1](https://youtu.be/TUCbmfxZ544)
+
+
+<img src="https://img.saraba1st.com/forum/202103/18/215042ibz55x56zz6pb77d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eww5GK6VoAI7DkL.jpg</strong> (1004.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 21:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 34376#       发表于 2021-3-18 22:07
+
+
+
+
+月灵居然上油管播了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34377#       发表于 2021-3-18 22:25
+
+
+
+
+只有14同接。月综确实亡了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34378#       发表于 2021-3-18 23:26
+
+
+
+
+黑黑新组合服！！！
+我没了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34379#       发表于 2021-3-18 23:29
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-18 23:33 编辑 
+
+一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">这什么啊，你们不打游戏吗
+
+
+<img src="https://img.saraba1st.com/forum/202103/18/233224r5p84mni878rvnlm.png" referrerpolicy="no-referrer">
+
+
+<strong>【？？】＿＿＿＿＿＿＿＿＿＿。【にじさんじ : くろのわ】.png</strong> (405.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 23:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34380#       发表于 2021-3-18 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得一言难尽，有点像站在饭店门口迎宾的门童
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34381#       发表于 2021-3-18 23:34
+
+
+
+
+估计新3D就是这套？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34382#       发表于 2021-3-18 23:35
+
+
+
+
+男子偶像也喊了好久了
+打游戏？
+一点都不男子偶像<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 34383#       发表于 2021-3-18 23:41
+
+
+
+
+无论是哪套赶紧做出来吧，别穿拖鞋唱歌了。
+
+
+
+
+
+   
