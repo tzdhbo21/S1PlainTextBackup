@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-18 15:41** 
+> ## **本文件最后更新于2021-03-19 05:41** 
 
 
 
@@ -3733,9 +3733,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_h8dE7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_EPIZi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_FG1ua" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_PwW4z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_dzMjx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_OV73y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -26961,10 +26961,11 @@ twitcasting的女王（在时长方面）
 
 
 
- 参与人数 5战斗力 +1
+ 参与人数 6战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1|平衡|
 | SteveS| + 1|很难不加鹅|
 | 獅白ぼたん| + 1|平衡|
 | 某穆克拉| + 1|？|
@@ -27362,4 +27363,626 @@ Vtuberのオリジナル楽曲ノンストップ放送イベント「音楽を�
 
 
 
-   
+
+
+-----
+
+####  黑之和  
+##### 34384#       发表于 2021-3-18 23:42
+
+
+
+
+哈？这就完了？
+ark是坏文明，ark有瘾是吧
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34385#       发表于 2021-3-18 23:43
+
+
+
+ 本帖最后由 十四洲 于 2021-3-19 00:43 编辑 
+
+第一次觉得叶比葛叶的看起来好一点……
+
+救命本来觉得叶的发型还行的，哪个天才说端木磊的，我回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34386#       发表于 2021-3-18 23:46
+
+
+
+
+铁十字章有点牛逼啊，胆子大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  freakystar  
+##### 34387#       发表于 2021-3-18 23:50
+
+
+
+ 本帖最后由 freakystar 于 2021-3-19 01:14 编辑 
+
+还是得看动起来的效果，男V的3D太麻杆了反而很奇怪，估计身高得缩
+
+真要上台关键还是看机师<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+这衣服真不是为了消除（）影响、抓紧（）营业赶工出来的吗，身体部分蛮怪的。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34388#       发表于 2021-3-18 23:57
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-18 23:58 编辑 
+
+Unravel Two还打不打了，越想越气
+
+能不能填个坑干点正事，整这桑拿房衣服谁看啊
+
+唱又唱不好，阵势一套一套的，打完卡就下班，也不打游戏，就嗯混
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34389#       发表于 2021-3-18 23:57
+
+
+
+
+铁十字无所谓吧
+
+不是万字就行
+
+
+
+
+
+
+
+-----
+
+####  dybang  
+##### 34390#       发表于 2021-3-19 00:31
+
+
+
+
+感觉还是和设计图不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34391#       发表于 2021-3-19 01:10
+
+
+
+
+ＳＳＳ　Ras
+ＳＳ　selly Genberten
+Ｓ＋ ぴのた T1(3人)
+Ｓ　デスセイヤ ゆきお
+Ａ＋まさのり raky アレル
+Ａ　NIRU きなこ ゆふな wokka カワセ
+Ｂ　釈迦 スパイギア TIERU すもも 天月 渋谷ハル
+Ｃ　スタヌ ヌンボラ ボドカ 胡桃のあ 湊あくあ
+Ｄ　葛葉 叶 花芽すみれ 白雪レイド 蛇足 勇気ちひろ
+Ｅ　加藤純一 杏戸ゆげ 一ノ瀬うるは エクスアルビオ
+Ｆ　こーすけ 布団
+Ｇ　もこう 兎田ぺこら おにや
+先心痛一秒reid<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">d档唯一大师
+
+
+
+
+
+
+
+-----
+
+####  freakystar  
+##### 34392#       发表于 2021-3-19 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50670307&amp;ptid=1969498" target="_blank">winda 发表于 2021-3-19 01:10</a>
+
+ＳＳＳ　Ras
+
+ＳＳ　selly Genberten
+
+Ｓ＋ ぴのた T1(3人)</blockquote>
+歪一下。没想到还能看到蛇足的名字……看样子这家伙起死回生混得还不错嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  443421870  
+##### 34393#       发表于 2021-3-19 03:04
+
+
+
+
+爱丽丝这是直播睡觉？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wangkaijie  
+##### 34394#       发表于 2021-3-19 03:24
+
+
+
+
+我们原神玩家真是太厉害了，半夜四点也要爬起来玩原神<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34395#       发表于 2021-3-19 07:44
+
+
+
+<blockquote>winda 发表于 2021-3-19 01:10
+ＳＳＳ　Ras
+
+ＳＳ　selly Genberten
+
+Ｓ＋ ぴのた T1(3人)</blockquote>
+什么野鸡榜，genberten凭什么比ras低啊，别人mith亚洲第一强队，T1在algs 上面天天干cr结果还把别人排这么后面，现在日韩最强fendo,t1二选一，根本没cr的事，日本人就喜欢瞎逼吹ras，ras综合素质拿到职业赛上根本不够，就跟lou 一样，天天有人吹10万分，你枪法再强没指挥卵用没有，直布的理解差现在的猎杀第一rouge一万条街
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34396#       发表于 2021-3-19 07:51
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-19 08:10 编辑 
+
+所以谁是硬实力冠军
+还有mondo和cpt不配有姓名吗
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 34397#       发表于 2021-3-19 08:02
+
+
+
+
+怎么变apex楼了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34398#       发表于 2021-3-19 08:19
+
+
+
+
+这个榜单也太...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 34399#       发表于 2021-3-19 08:43
+
+
+
+<blockquote>【カンザキイオリ&amp;花譜＆EMA】
+
+6月に公開されるアニメーション映画「映画大好きポンポさん」の挿入歌をカンザキイオリが書き下ろし、花譜とEMA(from DUSTCELL)が歌唱を担当することが決定！！どうぞお楽しみに！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/19/084305pz9zyb9vuvwhkw9z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (138.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-19 08:43 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34400#       发表于 2021-3-19 09:02
+
+
+
+
+终于可以给谱皇洗脚了吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 34401#       发表于 2021-3-19 09:59
+
+
+
+
+夸宝排不进C吧。怀疑是アクアン改的榜单。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 34402#       发表于 2021-3-19 11:29
+
+
+
+<img src="https://p.sda1.dev/1/f8acb2454ddfc0fe693c67549f158520/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 34403#       发表于 2021-3-19 11:48
+
+
+
+<blockquote>『ホロライブ』所属の人気バーチャルVTuber『ときのそら』が1/3アスタリスクコレクションシリーズよりドール化！
+
+なんと「あん肝」も🧸
+
+
+商品情報は3月24日(水)公開予定。
+
+お楽しみにお待ちください🎵
+
+
+#azone #アゾン #ホロライブ #hololive #ときのそら #ときのそら生放送</blockquote>
+[@free](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=86255) 
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34404#       发表于 2021-3-19 11:49
+
+
+
+
+音楽を止めるな3DAY1​
+
+[https://www.youtube.com/watch?v=TUCbmfxZ544](https://www.youtube.com/watch?v=TUCbmfxZ544)
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 34405#       发表于 2021-3-19 12:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">木口厉害啊，虹也就和sega老任签了书面公开的合同，现在木口还多一个卡婊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34406#       发表于 2021-3-19 12:09
+
+
+
+
+在猛汉起飞发售前达成正式合作，杏也要起飞了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34407#       发表于 2021-3-19 12:14
+
+
+
+
+免费怒草空妈
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 34408#       发表于 2021-3-19 12:15
+
+
+
+
+杏又赢
+
+
+
+
+
+
+
+-----
+
+####  1570752915  
+##### 34409#       发表于 2021-3-19 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50670307&amp;ptid=1969498" target="_blank">winda 发表于 2021-3-19 01:10</a>
+
+ＳＳＳ　Ras
+
+ＳＳ　selly Genberten
+
+Ｓ＋ ぴのた T1(3人)</blockquote>
+这排名槽点太多了。。。
+
+
+
+
+
+
+
+-----
+
+####  -rm7-  
+##### 34410#       发表于 2021-3-19 12:23
+
+
+
+
+能不能不要蝗起飞<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  突然空虚  
+##### 34411#       发表于 2021-3-19 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">谁会先过试玩怨虎
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34412#       发表于 2021-3-19 12:55
+
+
+
+
+cr那队打比赛天天被暴打 要论队伍实力T1不是亚洲第一也是第二 果然大家还是喜欢吹天梯牛逼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  katern  
+##### 34413#       发表于 2021-3-19 12:56
+
+
+
+
+杏女能有几个播的下去猛汉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 34414#       发表于 2021-3-19 13:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个夸夸怨虎龙耐久 
+
+复刻当初剑圣一心 一战成名 
+
+拿下唯一指定猎人称号好吧
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 34415#       发表于 2021-3-19 13:16
+
+
+
+
+那想多了，凛玩的双刀，就这试玩版的终极刮痧双刀，人常年双刀竞速的大佬把能用的资源全用了上了不知道重置了几百把才打出7分44秒，除非凛转太刀练居合<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 34416#       发表于 2021-3-19 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50674327&amp;ptid=1969498" target="_blank">katern 发表于 2021-3-19 12:56</a>
+
+杏女能有几个播的下去猛汉啊</blockquote>
+虽然但是，holo里还是挺多人玩过怪猎吧🤔
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 34417#       发表于 2021-3-19 13:20
+
+
+
+ 本帖最后由 holoan 于 2021-3-19 13:39 编辑 
+
+不过免费这么扣平时cd都不买的估计出不起这5w吧
+
+
+
+
+
+  
