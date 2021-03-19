@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-19 05:41** 
+> ## **本文件最后更新于2021-03-19 12:55** 
 
 
 
@@ -3733,9 +3733,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_PwW4z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_dzMjx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_OV73y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_zl44N" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_N0ty9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_IqSp0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -27985,4 +27985,510 @@ cr那队打比赛天天被暴打 要论队伍实力T1不是亚洲第一也是第
 
 
 
-  
+
+
+-----
+
+####  死体残留  
+##### 34418#       发表于 2021-3-19 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">葛叶有播过世界和冰原，还记得单刷过普贝，不过rise还没玩
+
+syl https://www.nijisanji.jp/     虹主页更新了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34419#       发表于 2021-3-19 16:35
+
+
+
+
+v圈里有能勉强竞速的怪猎人吗（底边不算）
+不用顶尖，差不多就行
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34420#       发表于 2021-3-19 16:52
+
+
+
+
+https://youtu.be/HolOAX5Uy1Q
+未来明看去年下半年vtb排位变化
+---
+你现在还能排在第一页，不是因为你有这个人气，而是因为木口人太少填不满一页
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34421#       发表于 2021-3-19 16:59
+
+
+
+
+黑骑士那个皮好像人定下了
+这么说起来新人要来了？
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34422#       发表于 2021-3-19 17:04
+
+
+
+
+上次fes里叶子的吃人广告感觉就有点迹象了
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34423#       发表于 2021-3-19 17:09
+
+
+
+
+冷无缺的说一句，木口该踢掉点废物了。
+
+不是那种现在订阅不高同接不高的，毕竟只要在风口上猪都能起飞，底边蹭到个好对象起飞可太正常不过了，比如某八字母就是沾了一边的光，一个付出体力精力脑力各种想办法维持关系，另一个就知道抱怨吸血。该踢掉点社内的害群之马了，有的人和所有人都处不来，就知道蹭资源不付出，和所有人都是关系越处越差，别人看着她都躲着走。
+
+别人捧她尾巴就翘到天上去了，连同社人干了啥都不知道要别人重复一下三天前的工作，玩尬的是吧，难怪越混朋友越少。某个群体该明白为什么毕业的hcn都有新衣服你没有了，把同事关系搞尬的害群之马，只有早点交辞职信这一条路的，别舔着脸占着黄金时间摆烂了，把资源让给能力强，情商高的人早点毕业吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 34424#       发表于 2021-3-19 17:44
+
+
+
+
+翻译一下nowaki的话：建议把sc和同接都低于pekora的全部清退，天分不够又不如pekora勤奋，就天天知道整些人际关系的破玩意儿，留着也没用，然后就有资源给pekora整新衣服了。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34425#       发表于 2021-3-19 17:56
+
+
+
+ 本帖最后由 cheatdeath3 于 2021-3-19 17:57 编辑 
+
+箱推:鲨皇牛逼
+
+毒唯:鲨皇以下皆废物
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34426#       发表于 2021-3-19 18:05
+
+
+
+
+郡道美玲也是时间管理大师，和伊东天开庆祝完多井生日，又要和星川玩儿了，会不会再约几个呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34427#       发表于 2021-3-19 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">从bora几百人看到现在6k 也不错
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34428#       发表于 2021-3-19 18:33
+
+
+
+
+老师和星川一起的t台有戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34429#       发表于 2021-3-19 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> bora 打apex都有6k，你葵播热门游戏ark 2600，建议把你葵的皮送给bora嗷
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34430#       发表于 2021-3-19 18:48
+
+
+
+
+别尬黑，bora皮很top了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34431#       发表于 2021-3-19 19:08
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-19 19:09 编辑 
+
+待会8点未来人3d
+3.27北京时间9点，女神3d，虽然之前已经看过了
+这是恢复一周一个3d披露的速度了？
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34432#       发表于 2021-3-19 19:23
+
+
+
+
+臭不要脸的开始抢同社前面播生化危机是吧？刚拿到版权就占着黄金时间先播了，我真的吐了。
+
+能不能播出效果自己不清楚么，等人真正会直播的播完抄作业不会？什么cjb，早点毕业。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34433#       发表于 2021-3-19 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 反正那个大裙子我是欣赏不来，而且在kr，别想有3D和2.0了，
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34434#       发表于 2021-3-19 19:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/193218qyae7s59mhe33p3w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>モイラ ３Dお披露目配信決定！！.jpg</strong> (94.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-19 19:32 上传
+
+
+
+
+
+
+补个图，顺便未来人的待机室
+[https://www.youtube.com/watch?v=IRTcTESAEdI](https://www.youtube.com/watch?v=IRTcTESAEdI)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| FCCHua| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34435#       发表于 2021-3-19 19:37
+
+
+
+
+叶唱歌了
+[馬鹿/歌わせていただきました。](https://youtu.be/eWX-0Yweu4s)
+又是soraru的mix啊
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34436#       发表于 2021-3-19 19:42
+
+
+
+
+喷了，怎么还有独轮车开到叶直播间的，而且还是白上的怪文书
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34437#       发表于 2021-3-19 19:54
+
+
+
+
+cover的孝子帆船4v罢了，肯定不是有虹人在开车
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34438#       发表于 2021-3-19 20:05
+
+
+
+
+未来人这个开场op，嘉宾挺多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 34439#       发表于 2021-3-19 20:08
+
+
+
+
+白上的罪状到处发到别人直播间就是不发到白上直播间，一看就是玉米人干的
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34440#       发表于 2021-3-19 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">未来人这3d，好素，好中性
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34441#       发表于 2021-3-19 20:21
+
+
+
+
+彩虹这3D债要还到哪一天啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34442#       发表于 2021-3-19 20:25
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-19 20:50 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/202210bih7xe7xk7hd2wfo.png" referrerpolicy="no-referrer">
+
+
+<strong>【3Dお披露目　#未来人3D​　】2％【夕陽リリ:にじさんじ】.png</strong> (114.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-19 20:22 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+二期生的素人感啊，虽然在走剧情...棒読み<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+警惕电信诈骗
+
+
+啊！虽然很俗套但还挺感人的啊！！三周年恭喜
+
+<img src="https://img.saraba1st.com/forum/202103/19/205030dvtswzk38zeq7ti4.png" referrerpolicy="no-referrer">
+
+
+<strong>【3Dお披露目　#未来人3D​　】2％【夕陽リリ:にじさんじ】-2.png</strong> (246.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-19 20:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34443#       发表于 2021-3-19 20:49
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-19 20:55 编辑 
+
+原来是未来人一人两角啊，这耳麦好未来科技<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+多唱唱歌吧
+
+
+
+
+
+ 
