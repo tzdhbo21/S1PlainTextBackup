@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-17 03:38** 
+> ## **本文件最后更新于2021-03-19 11:41** 
 
 
 
@@ -19476,4 +19476,604 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 
 
 
-                 
+
+
+-----
+
+####  我很费纸  
+##### 2462#       发表于 2021-3-17 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647488&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-16 23:44</a>
+我等下用国行跑跑看
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+国行X5M2还没更11吧，天天都在微博哀嚎<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2463#       发表于 2021-3-17 13:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50650881&amp;ptid=1915171" target="_blank">newtypelv2 发表于 2021-3-17 11:21</a>
+去5ch搜了一圈 发现也有这个问题,然后解决方式是完全关机再开机,我试了下是可以的. ...</blockquote>
+测试了在，没用
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2464#         楼主| 发表于 2021-3-17 13:58
+
+
+
+
+昨天差点冲动3750买下一台二手5ii
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2465#       发表于 2021-3-17 15:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50651404&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-17 12:04</a>
+
+国行X5M2还没更11吧，天天都在微博哀嚎
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+有种说法是11更容易触发省电功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  newtypelv2  
+##### 2466#       发表于 2021-3-17 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50652017&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-17 13:03</a>
+
+测试了在，没用
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+我又仔细看了眼，确实大核一般就打开应用的时候动一下
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2467#       发表于 2021-3-18 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50653782&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-17 15:54</a>
+有种说法是11更容易触发省电功能</blockquote>
+低情商：翔移的Android 11有调度bug，七核有难，大核围观
+高情商：Android 11更容易触发省电模式<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+12预览版都出来了，翔移还没折腾清楚11，软件工程师真的可以拉去吊路灯了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  SplashCrBy  
+##### 2468#       发表于 2021-3-18 10:33
+
+
+
+
+贴吧说港版不会支持SA 5G
+
+
+
+
+
+
+
+-----
+
+####  zzzeven  
+##### 2469#       发表于 2021-3-18 13:21
+
+
+
+
+港版的5 ii 新的11版本，终于解决了5G之下不能GPS的bug，翔移的工程师真牛逼
+
+
+
+
+
+
+
+-----
+
+####  Vicarious  
+##### 2470#       发表于 2021-3-18 17:18
+
+
+
+
+今天机子到手了
+感觉有点找回了当年用Nexus5的感觉。。。
+
+最难受的是这个全面屏手势不能自定义
+还有这个launcher实在是比原生还简陋。。。。
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2471#       发表于 2021-3-18 17:21
+
+
+
+<blockquote>引用第2466楼我很费纸于2021-03-18 09:35发表的  :
+
+引用:Cray 发表于 2021-3-17 15:54有种说法是11更容易触发省电功能低情商：翔移的......</blockquote>
+外包了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  adslnet0519  
+##### 2472#       发表于 2021-3-19 08:13
+
+
+
+
+国行x5ii我发现绿色守护不能被island调用起来，于是刷了港版的安卓11，root后体验良好，和之前用的xz2c相比，除了长了一节和背面没有弧度不够如xz2c贴手，其他基本上一毛一样<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2473#       发表于 2021-3-19 09:42
+
+
+
+<blockquote>Vicarious 发表于 2021-3-18 17:18
+今天机子到手了
+
+感觉有点找回了当年用Nexus5的感觉。。。
+</blockquote>
+这个 launcher 是去年配合 1 推出的，之前那个发展了很多年的其实还不错，结果砍掉重做了。
+
+我之前见过开发新版 launcher 的日本小哥，一个腼腆的男生，问我们觉得是否流畅，会不会经常假死。我说是啊，他就哈哈哈不好意思地笑起来，说一定会改善…
+
+
+我妹觉得文件夹图标圆形的空隙太大，第一天就换了微软桌面了，看着还行。
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2474#       发表于 2021-3-19 11:02
+
+
+
+
+一直在用微软桌面，都忘了原生桌面啥样了……
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2475#       发表于 2021-3-19 11:34
+
+
+
+
+国行 5M2 推送58.1.A.3.112
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2476#       发表于 2021-3-19 12:22
+
+
+
+
+900多m，我还是等小白鼠吧。
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2477#       发表于 2021-3-19 12:23
+
+
+
+
+Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反馈：
+
+· AOD 通知图标显示问题已修复
+
+· 5G SA 网络定位问题已修复，5G 网络支持改善
+
+· Android 11 原生动画效果、全局暗色模式、录屏等原生功能已添加
+
+· Android 安全更新 2021 年 2 月
+
+· 节电优能适配 Android 11（需要重新开关一次）
+
+· 应用市场更新为应用宝（可卸载，建议卸载）
+
+· 浏览器更新为 360 浏览器（换标，可卸载，建议卸载使用 edge 或 chrome 等）
+
+· 修复了之前在  1 II Android 11 上遇到的性能调度问题
+
+· 游戏增强器新增游戏归集（归集后游戏图标不会在桌面应用图标列表中显示）
+
+
+目前使用下来没有明显的 bug，但是，更新安装过程中后手机会发热，这是正常情况，等更新进程结束后发热量就会降下来了，推荐更新。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2478#       发表于 2021-3-19 12:44
+
+
+
+
+等国行5M2的朋友更新完来个geekbench跑分看看到底是真修复还是假修复<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2479#       发表于 2021-3-19 12:51
+
+
+
+
+换成应用宝了有点讨厌啊
+本来这个特供应用宝还挺好的
+现在有些国产应用不给下载的地儿，就直接让你去各种市场里下……
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2480#       发表于 2021-3-19 13:43
+
+
+
+
+等小白鼠体验之后再决定是否更新
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2481#       发表于 2021-3-19 14:43
+
+
+
+
+对手游需求不是很高，我来当小白鼠啦
+
+
+
+
+
+
+
+-----
+
+####  asakura20005  
+##### 2482#       发表于 2021-3-19 15:06
+
+
+
+
+已更新，目前发现的问题是，三大金刚没法隐藏了，其余都没啥问题，动画流畅了一丢丢
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2483#       发表于 2021-3-19 15:27
+
+
+
+ 本帖最后由 猫空 于 2021-3-19 15:35 编辑 
+
+软件更新里的中国节假日安装了怎么找不到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+找到了，原来不会自动添加到主界面
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  majiyabakunei  
+##### 2484#       发表于 2021-3-19 15:39
+
+
+
+
+多任务的屏幕截图有办法关掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Vicarious  
+##### 2485#       发表于 2021-3-19 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50672102&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-19 09:42</a>
+这个 launcher 是去年配合 1 推出的，之前那个发展了很多年的其实还不错，结果砍掉重做了。
+
+我之前见过开 ...</blockquote>
+我感觉这个launcher最离谱的两点
+不能调整一排几个图标
+图标夹的背景透明程度不能调，模糊的白色会遮住壁纸
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2486#       发表于 2021-3-19 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50676004&amp;ptid=1915171" target="_blank">majiyabakunei 发表于 2021-3-19 15:39</a>
+
+多任务的屏幕截图有办法关掉吗
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+那个其实就是用来取代之前的长按开关截屏的，习惯了还挺方便
+
+
+
+
+
+
+
+-----
+
+####  majiyabakunei  
+##### 2487#       发表于 2021-3-19 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677176&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-19 17:43</a>
+那个其实就是用来取代之前的长按开关截屏的，习惯了还挺方便</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是我截屏都用的侧感啊。这个多任务界面下的截屏键感觉还是挺容易误触的。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2488#       发表于 2021-3-19 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677349&amp;ptid=1915171" target="_blank">majiyabakunei 发表于 2021-3-19 18:01</a>
+
+可是我截屏都用的侧感啊。这个多任务界面下的截屏键感觉还是挺容易误触的。
+
+
+—— 来自 Sony XQ-A ...</blockquote>
+<img src="http://i.loli.net/2021/03/19/8rTflbHJxBgWDvy.jpg" referrerpolicy="no-referrer">
+
+判定区域很小的，我倒是从桌面拿起的时候经常误触侧感，人和人的体质不同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2489#       发表于 2021-3-19 18:12
+
+
+
+<blockquote>Vicarious 发表于 2021-3-19 16:20
+我感觉这个launcher最离谱的两点
+
+不能调整一排几个图标
+
+图标夹的背景透明程度不能调，模糊的白色会遮住壁 ...</blockquote>
+是啊，不知道索尼移动内部发生了什么，可能就是 cost saving 太厉害了
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2490#       发表于 2021-3-19 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677446&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-19 18:12</a>
+是啊，不知道索尼移动内部发生了什么，可能就是 cost saving 太厉害了</blockquote>
+交给东京来管理了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  andychen  
+##### 2491#       发表于 2021-3-19 19:16
+
+
+
+
+国行刚更新了，升完第一时间吧应用宝卸载了
+性能方面跑了下我常玩的AGA和明日方舟，帧数表现都是正常的
+launcher的动画过渡效果多了很多
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+                
