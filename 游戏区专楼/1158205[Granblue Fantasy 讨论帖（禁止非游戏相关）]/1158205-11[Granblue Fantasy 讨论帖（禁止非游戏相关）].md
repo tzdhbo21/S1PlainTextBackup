@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-17 05:37** 
+> ## **本文件最后更新于2021-03-20 23:37** 
 
 
 
@@ -4190,4 +4190,542 @@ nga对火方的火力有基本认识了，泥潭还没</blockquote>
 
 
 
-                                         
+
+
+-----
+
+####  syndrome2032  
+##### 15242#       发表于 2021-3-17 13:41
+
+
+
+ 本帖最后由 syndrome2032 于 2021-3-17 13:45 编辑 
+
+火方浑身也就是打短期啊。
+
+沙盒里可以靠塔罗武器凑暴击浑身拳皇一套乱打日三格怪出门票。
+
+但是出了沙盒需要的东西就比较麻烦了，20技的鸡腿现在砸起来倒是方便了，但是高浑身的鸡腿那就真的可遇不可求。
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15243#       发表于 2021-3-17 14:59
+
+
+
+
+有章鱼高手帮我分析一下水芬今年水团手打还能上前排吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ps:去年水团缺了蛮多角色打了个英雄但是过程异常痛苦 今年想再打一个<img src="https://static.saraba1st.com/image/smiley/carton2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 15244#       发表于 2021-3-17 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50648856&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-16 16:21</a>
+
+现在U武还有必要做嘛
+
+
+我有一把土U剑，感觉用的角色里面格斗越来越多了，要不要做个U爪？</blockquote>
+做 OMEGA拳配普攻上限是按拳皇打拳必備
+
+
+槍跟杖做也不虧 可以給火風闇3屬性用
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15245#       发表于 2021-3-17 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50651955&amp;ptid=1158205" target="_blank">xzhlj0325 发表于 2021-3-17 12:55</a>
+https://bbs.nga.cn/read.php?tid=25940633
+
+https://bbs.nga.cn/read.php?tid=25701072</blockquote>
+谢邀，要浑身鸡腿的，散了散了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就树枝玩玩算了。
+
+—— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  leeskies  
+##### 15246#       发表于 2021-3-18 08:33
+
+
+
+ 本帖最后由 leeskies 于 2021-3-18 08:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看错角色
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15247#       发表于 2021-3-18 15:48
+
+
+
+
+明天下午还是百六，所以早上不用抽的样子
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15248#       发表于 2021-3-18 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50665097&amp;ptid=1158205" target="_blank">Yeaha123 发表于 2021-3-18 15:48</a>
+ 明天下午还是百六，所以早上不用抽的样子</blockquote>
+明天没新角色，而且是全up毒池
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15249#       发表于 2021-3-19 08:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哇刚发现这次活动送了新职业，还能送一把职业武器
+
+我在想新职业换把光剑职武入光方怎么样，我只有光的剑队能看了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 15250#       发表于 2021-3-19 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个池嫖了200抽一个up都没抽到就过分..艾萨克我的艾萨克
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15251#       发表于 2021-3-19 09:54
+
+
+
+<blockquote>引用第15247楼404489039于2021-03-18 15:51发表的  :
+
+引用:Yeaha123 发表于 2021-3-18 15:48 明天下午还是百六，所以早上不用抽的样......</blockquote>
+@404489039
+
+说得好像up了能抽到一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15252#       发表于 2021-3-19 09:59
+
+
+
+
+毕竟人和人的体质是不一样的，群友半井赌到欧枪顺带多了3个球，我多了3个金月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15253#       发表于 2021-3-19 19:37
+
+
+
+ 本帖最后由 -みゆめ- 于 2021-3-20 17:58 编辑 
+
+新职业对转世真是重大利好……轻松好多……
+
+
+
+
+
+
+
+-----
+
+####  古典吉他  
+##### 15254#       发表于 2021-3-20 10:25
+
+
+
+
+哇，这是个什么转盘，毒池果然毒。
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 15255#       发表于 2021-3-20 11:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于出了贝了，不用做人下人了
+
+
+
+
+
+
+
+-----
+
+####  Tzzt  
+##### 15256#       发表于 2021-3-20 13:49
+
+
+
+
+kmr出个lm换黑钢吧 五个组长球了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15257#       发表于 2021-3-20 13:52
+
+
+
+
+不愧为毒池100连0ML 不过好歹new了两个普池<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15258#       发表于 2021-3-20 14:29
+
+
+
+
+章鱼和加百列成套来，不愧是我，省了俩jgj了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  JMFluorece  
+##### 15259#       发表于 2021-3-20 18:31
+
+
+
+
+我这两个池子加起来快300抽还没有百三，这难道就是大转盘吗，真可笑呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15260#       发表于 2021-3-20 18:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这7倍经验算上bug重置两回了，不会就是拿来倒逼玩家做110用的吧
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15261#       发表于 2021-3-20 21:13
+
+
+
+
+天人开花的经验真是踢死人……现在就这么难受了很难想象接下来会怎么样。
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15262#       发表于 2021-3-20 21:17
+
+
+
+
+原来一阶法仅凭舔就能做啊……
+
+
+不过也只能舔了 这伤害也太高了，完全站不住
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15263#       发表于 2021-3-20 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50683574&amp;ptid=1158205" target="_blank">404489039 发表于 2021-3-20 13:52</a>
+
+不愧为毒池100连0ML 不过好歹new了两个普池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">同 不过还好是我想超的普池 省下好多钱 无UP池可以说是最毒的池了
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15264#       发表于 2021-3-20 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686765&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-20 21:17</a>
+
+原来一阶法仅凭舔就能做啊……
+
+
+不过也只能舔了 这伤害也太高了，完全站不住 ...</blockquote>
+每天自发 荣誉也不少 还有二阶法和二阶星幽都是可以打多人拿的 星幽打六龙 自发拿材料比较稳 放出去等大哥进来打就行了
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15265#       发表于 2021-3-20 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686794&amp;ptid=1158205" target="_blank">iqbsh38 发表于 2021-3-20 21:22</a>
+
+每天自发 荣誉也不少 还有二阶法和二阶星幽都是可以打多人拿的 星幽打六龙 自发拿材料比较稳 放出去等大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我好像还没开本……可能是主线还没到进度
+
+顺便这吃属性晶吃的好多 攒下来的氪金石头快被拆完了……
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15266#       发表于 2021-3-20 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686908&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-20 21:34</a>
+
+我好像还没开本……可能是主线还没到进度
+
+顺便这吃属性晶吃的好多 攒下来的氪金石头快被拆完了… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">属晶慢慢攒吧 每天自发打岛主 实际上大量攒属晶的机会是各种活动和SIDE STORY
+
+真正吃的是技狗材料 还好现在有杯子吃 以前光是把技狗砸出够1个法武吃的量就得点小半小时
+
+
+
+
+
+
+
+-----
+
+####  super0395  
+##### 15267#       发表于 2021-3-20 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686787&amp;ptid=1158205" target="_blank">iqbsh38 发表于 2021-3-20 21:21</a>
+同 不过还好是我想超的普池 省下好多钱 无UP池可以说是最毒的池了</blockquote>
+就这种毒池nga还有人写篇数学小作文说下井lm期望高，真的坏批我只能说
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15268#       发表于 2021-3-20 21:58
+
+
+
+
+lm期望肯定是低 某些人只是更喜欢做赌/狗
+
+
+
+
+
+
+
+-----
+
+####  板板  
+##### 15269#       发表于 2021-3-20 22:56
+
+
+
+
+有没有人弄了nga那个专线啊，想找人合租一个<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15270#       发表于 2021-3-20 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687019&amp;ptid=1158205" target="_blank">super0395 发表于 2021-3-20 21:49</a>
+
+就这种毒池nga还有人写篇数学小作文说下井lm期望高，真的坏批我只能说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">0up哪里来的期望高 做这个的脑子不知道怎么长的
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15271#       发表于 2021-3-21 07:32
+
+
+
+
+狗不到一百连，算了，等月末了
+
+
+
+
+
+                                        
