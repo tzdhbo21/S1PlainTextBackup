@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-17 14:46** 
+> ## **本文件最后更新于2021-03-20 17:52** 
 
 
 
@@ -14528,4 +14528,571 @@ https://www.konjikiblog.com/entry/sutapuriss-15kounen15miri1
 
 
 
-                      
+
+
+-----
+
+####  达达葱2  
+##### 812#       发表于 2021-3-17 23:44
+
+
+
+
+奸笑24岁的官方小说
+
+就是直哥断腿、丽华当老师被写匿名信要求辞退，然后茜和美国人同居的那个？
+
+有翻译的资源吗？
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 813#       发表于 2021-3-17 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50658710&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-17 23:44</a>
+奸笑24岁的官方小说
+
+就是直哥断腿、丽华当老师被写匿名信要求辞退，然后茜和美国人同居的那个？
+
+有翻译的资 ...</blockquote>
+草，这么狠<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 814#       发表于 2021-3-17 23:57
+
+
+
+ 本帖最后由 banglian 于 2021-3-18 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50658008&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-17 22:28</a>
+
+成濑女士是偶像 不是声优 同理还有点心两位女士 仔细想想这几年剧场版那些友情客串的才叫一个惨烈
+
+ ...</blockquote>
+福原遥也还过得去，点心当时被喷最多的还是美山女士的一花<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+另外主角争议组可以加上更早5的梦原教组与水果的罗武哥（抓心的水树刚开播时也被泥潭大友说配的不好）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 815#       发表于 2021-3-18 08:04
+
+
+
+ 本帖最后由 天邪鬼 于 2021-3-18 08:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50658710&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-17 23:44</a>
+奸笑24岁的官方小说
+
+就是直哥断腿、丽华当老师被写匿名信要求辞退，然后茜和美国人同居的那个？
+
+有翻译的资 ...</blockquote>
+我记得以前在龙空还看到有人分析说微笑看上去很乐呵，但剧情却很悲观，所以才会有35岁和24岁的小说里大家过得都不好。就像是某种滤镜被摘下来后发现现实就是这么操蛋，都这样了还要我笑
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 816#       发表于 2021-3-18 09:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50660108&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-18 08:04</a>
+
+我记得以前在龙空还看到有人分析说微笑看上去很乐呵，但剧情却很悲观，所以才会有35岁和24岁的小说里大家 ...</blockquote>
+有帖子链接吗？想看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 817#       发表于 2021-3-18 11:17
+
+
+
+
+要较真的话，专业的声优和那些外行人比烂的时候就已经输了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 818#       发表于 2021-3-18 12:06
+
+
+
+ 本帖最后由 PrincessBanana 于 2021-3-18 12:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50658710&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-17 23:44</a>
+
+奸笑24岁的官方小说
+
+就是直哥断腿、丽华当老师被写匿名信要求辞退，然后茜和美国人同居的那个？
+
+有翻译的资 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/18/115542szeh45r9bo57vzrt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>b3e4cbfcc3cec3fdeb860d6edf88d43f86942762.jpg</strong> (93.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 11:55 上传
+
+
+
+
+
+
+是这个吗？贴吧倒是有点翻译的资源，不过好像不齐。
+
+内容上似乎没说得那么过激，像茜那个应该也不是美国人，而是36话的那个英国留学生（CV.柿原徹也）<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
+
+这玩意是真的有点太冷门了，找半天都妹找到
+
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 819#       发表于 2021-3-18 12:53
+
+
+
+
+我记得不是说奸笑小说是类似一场梦这样么
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 820#       发表于 2021-3-18 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50660514&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-3-18 09:06</a>
+有帖子链接吗？想看</blockquote>
+老久以前的了，说不定都被删掉了
+如果龙空能搜索的话你可以试着去动漫板块搜一下微笑或者光美之类的关键词
+
+
+
+
+
+
+
+-----
+
+####  千恋万花  
+##### 821#       发表于 2021-3-18 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50662710&amp;ptid=1963832" target="_blank">PrincessBanana 发表于 2021-3-18 12:06</a>
+
+是这个吗？贴吧倒是有点翻译的资源，不过好像不齐。
+
+内容上似乎没说得那么过激，像茜那个应该也不是美国人 ...</blockquote>
+这本的生肉扫图我倒是找到了，虽然不是很清楚，但能将就看
+[[小林雄次] 小説 スマイルプリキュア!.pdf](https://files.catbox.moe/4bpxaw.pdf)
+
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 822#       发表于 2021-3-18 14:16
+
+
+
+
+今年这么沙雕就不要制胃药了吧<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 823#       发表于 2021-3-18 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肮脏的大友总想看q娃吃瘪。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 824#       发表于 2021-3-18 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50664138&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-3-18 14:20</a>
+肮脏的大友总想看q娃吃瘪。</blockquote>
+对不起，Q娃大部分时间都是龙傲天
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 825#       发表于 2021-3-18 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50658836&amp;ptid=1963832" target="_blank">banglian 发表于 2021-3-17 23:57</a>
+福原遥也还过得去，点心当时被喷最多的还是美山女士的一花我个人觉得一花阿光真夏这几个中真夏都算 ...</blockquote>
+战队三瓶时候我不知道
+水果冲其实开始时候棒读严重 但能看到肉眼进步 把桃园爱配成罗武哥 
+抓心近藤女士我早说过是被当时的nc粉逼的
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 826#       发表于 2021-3-18 20:14
+
+
+
+
+所以说ss和战队小说呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有拥抱小说也可以安排一下 毕竟还有好多坑要填
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 827#       发表于 2021-3-18 20:37
+
+
+
+
+你们俩为什么这么熟练啊？这拉入伙、变身一气呵成。
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 828#       发表于 2021-3-19 19:16
+
+
+
+
+成田阿姨现在在做cw那个子供片系构吧，东a什么的，真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">战队和ss的小说估计还是得坑着
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 829#       发表于 2021-3-19 21:57
+
+
+
+
+完了，这期的紫色女人太戳我了
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 830#       发表于 2021-3-19 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677980&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2021-3-19 19:16</a>
+成田阿姨现在在做cw那个子供片系构吧，东a什么的，真不熟战队和ss的小说估计还是得坑着 ...</blockquote>
+名字叫啥？
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 831#       发表于 2021-3-19 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50679541&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-19 22:00</a>
+名字叫啥？</blockquote>
+のりものまん，交通工具人（大概）
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 832#       发表于 2021-3-19 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50679981&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2021-3-19 22:55</a>
+のりものまん，交通工具人（大概）</blockquote>
+搜了一下，原本以为至少是人与人之间的故事，没想到真的就是交通工具
+有种杨红樱去写小猪佩奇的感觉
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 833#       发表于 2021-3-20 18:56
+
+
+
+
+今天去看了剧场版
+
+好短
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 834#       发表于 2021-3-20 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剧场版黄红q娃应该没出场吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 835#       发表于 2021-3-20 19:50
+
+
+
+
+话说我觉得公主之后东大妈可能也没有弄官方小说的想法了
+
+整出来tv最后一集后日谈，小说反而就不好发挥
+
+何况现在小说也未必好卖
+
+本身q娃小说的目标人群算是年龄最大的了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 836#       发表于 2021-3-20 19:58
+
+
+
+
+q娃小说策划八成是被阉掉 毕竟ss和战队小说没有下文了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 当然也可能是成田大妈的问题
+话说魔法不是有小说 是讲李可爸妈的事来着
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 837#       发表于 2021-3-20 20:28
+
+
+
+<img src="http://wx3.sinaimg.cn/mw690/a3f7af34ly1goqj1cw2quj20g00sgq6x.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 838#       发表于 2021-3-20 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感受到了巨大的反差萌
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 839#       发表于 2021-3-21 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686370&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-20 20:28</a></blockquote>
+这是戒毒前 戒毒后么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 840#       发表于 2021-3-21 00:39
+
+
+
+
+有点像小时候的人设
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 841#       发表于 2021-3-21 01:15
+
+
+
+
+胳膊上没鳍，是人类形态吧
+
+
+
+
+
+                     
