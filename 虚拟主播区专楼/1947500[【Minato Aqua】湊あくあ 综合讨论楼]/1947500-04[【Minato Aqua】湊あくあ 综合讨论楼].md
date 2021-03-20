@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-16 15:37** 
+> ## **本文件最后更新于2021-03-20 11:34** 
 
 
 
@@ -16932,4 +16932,702 @@ S7的数据</blockquote>
 
 
 
-                   
+
+
+-----
+
+####  面具13  
+##### 5404#       发表于 2021-3-16 23:53
+
+
+
+ 本帖最后由 面具13 于 2021-3-17 00:13 编辑 
+
+这把有戏，可惜是鸡屁股
+
+
+
+
+
+
+
+-----
+
+####  猫南北  
+##### 5405#       发表于 2021-3-17 13:37
+
+
+
+
+昨天的录播怎么找不到了。。
+
+
+
+
+
+
+
+-----
+
+####  愛さ実  
+##### 5406#       发表于 2021-3-17 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50652341&amp;ptid=1947500" target="_blank">猫南北 发表于 2021-03-17 13:37:14</a>
+昨天的录播怎么找不到了。。</blockquote>[https://youtu.be/qO8Ld-qLjb0](https://youtu.be/qO8Ld-qLjb0)
+还没转档完成
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5407#       发表于 2021-3-17 21:20
+
+
+
+ 本帖最后由 面具13 于 2021-3-18 13:54 编辑 
+
+估计是红牛也顶不住的疲劳，玩两把休闲感觉状态不行就不播了。
+
+
+醒了，开始练apex
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5408#       发表于 2021-3-18 17:14
+
+
+
+
+今天这是又没了吗
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5409#       发表于 2021-3-18 22:40
+
+
+
+ 本帖最后由 Maonpuyo 于 2021-3-18 22:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">或者高情商：她不具备上大师的各种条件
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5410#       发表于 2021-3-18 22:44
+
+
+
+
+舞蹈课有点多啊，还有收录，会不会是类似日清的那种工商啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5411#       发表于 2021-3-18 22:58
+
+
+
+ 本帖最后由 面具13 于 2021-3-19 13:35 编辑 
+
+收录可能是和狐狸一起参加的文化放送的电台节目（没记错的话应该是4月11号和友人A两人主持），看狐狸今晚也去收录了。
+
+舞蹈课嘛，大家注意捂紧口袋，2nd sololive不是在开玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+emmm，上半赛季感觉上不去大师了。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5412#       发表于 2021-3-19 15:41
+
+
+
+
+蒸发了接近300分，心态要炸了
+
+
+
+
+
+
+
+-----
+
+####  wym888168  
+##### 5413#       发表于 2021-3-19 16:19
+
+
+
+
+这么惨吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5414#       发表于 2021-3-19 16:31
+
+
+
+[https://tieba.baidu.com/p/6626067813?pn=2](https://tieba.baidu.com/p/6626067813?pn=2)在apex吧看到的，底下全是夸的，v圈还是严格啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+apex.png
+(50.93 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-19 16:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/163005ml3s7sdmm7mlb7fv.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+apex1.png
+(20.27 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-19 16:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/163009g7u7gpkimzuzxh0z.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+apex2.png
+(36.36 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-19 16:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/163013xmsvku75vxztzqpo.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+apex3.png
+(48.68 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-19 16:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/163016hikw5j60555jzhjw.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+apex4.png
+(37.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-19 16:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/163020dqu44vkv4gqk4zkc.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5415#       发表于 2021-3-19 16:46
+
+
+
+ 本帖最后由 面具13 于 2021-3-19 17:33 编辑 
+
+钻三了，估计整个人都觉得不对劲了。心疼了.
+
+
+触底反弹，回到钻二了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 5416#       发表于 2021-3-19 17:19
+
+
+
+
+单排有时候真的很折磨...
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5417#       发表于 2021-3-19 19:44
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-19 21:10 编辑 
+
+[https://www.youtube.com/watch?v=g72fyzjTZy4](https://www.youtube.com/watch?v=g72fyzjTZy4) 和星街约好4月4日联动Apex    syl,推特上看到明天还有和486的碧蓝幻想抽卡联动，真实性未确认
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5418#       发表于 2021-3-19 20:07
+
+
+
+ 本帖最后由 面具13 于 2021-3-19 20:20 编辑 
+
+没连麦，sui酱读了discord内容。「一時間すいちゃんを姫にする配信。どんな敵も、姫を守るために、自分戦います！」「23日以後なら大丈夫」「あさの？（19時）」
+
+最后定了4月4号晚上7点apex联动。
+
+
+9点播。封面跟上次卡D3的时候一样放了一张黑白大脸。等一个直播中再度掉落D3，心疼一秒。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5419#       发表于 2021-3-19 21:20
+
+
+
+ 本帖最后由 面具13 于 2021-3-19 22:15 编辑 
+
+今晚想熬到升钻一，感觉睡醒以后可能还在。
+
+尬聊time，折磨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5420#       发表于 2021-3-19 22:42
+
+
+
+
+还行，吃了个满分
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5421#       发表于 2021-3-19 22:43
+
+
+
+ 本帖最后由 面具13 于 2021-3-19 23:48 编辑 
+
+帅哦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+差点当战犯但是被队友拯救了
+
+
+她好懂独角兽心理啊。
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5422#       发表于 2021-3-20 01:12
+
+
+
+
+不如去睡觉醒来再打
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5423#       发表于 2021-3-20 03:28
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-20 05:21 编辑 
+
+终于吃鸡了，这局最后完全靠自己拿下了冠军<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5424#       发表于 2021-3-20 05:05
+
+
+
+
+打了8小时回到原地
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5425#       发表于 2021-3-20 15:17
+
+
+
+
+觉醒之日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是指一口气灌了两瓶红牛
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5426#       发表于 2021-3-20 16:22
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-20 16:44 编辑 
+
+狙击枪用的越来越好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">   あくシオ助かる
+
+
+
+
+
+
+
+-----
+
+####  猫南北  
+##### 5427#       发表于 2021-3-20 16:54
+
+
+
+
+今天的分数，明天的目标。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5428#       发表于 2021-3-20 17:12
+
+
+
+
+地震？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 5429#       发表于 2021-3-20 18:22
+
+
+
+
+这把鸡真是运气好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫南北  
+##### 5430#       发表于 2021-3-20 18:41
+
+
+
+
+2连鸡了！
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5431#       发表于 2021-3-20 18:42
+
+
+
+
+带飞带飞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 5432#       发表于 2021-3-20 19:04
+
+
+
+
+正分就是赢
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5433#       发表于 2021-3-20 19:21
+
+
+
+
+队友倒了终于可以跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5434#       发表于 2021-3-20 19:27
+
+
+
+
+评论栏为什么突然激战了起来
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5435#       发表于 2021-3-20 19:32
+
+
+
+
+因为被队友骂了:Nice Jump, f*cking noob。
+
+
+
+
+
+                  
