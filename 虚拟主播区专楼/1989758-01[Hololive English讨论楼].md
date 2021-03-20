@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-17 17:21** 
+> ## **本文件最后更新于2021-03-20 04:59** 
 
 
 
@@ -186,16 +186,7 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 ####  赞美太阳  
 ##### 2#       发表于 2021-2-25 17:03
 
-
-
-
-绝了
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2029,7 +2020,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_v6Yiq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_RI0i0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -5480,4 +5471,468 @@ TENSAI WILL HAVE REVENGE 大脑
 
 
 
-                                          
+
+
+-----
+
+####  wiig  
+##### 221#       发表于 2021-3-18 01:31
+
+
+
+
+更新<img src="https://p.sda1.dev/1/c5d3219510a2f2c4ede636899c0f93d4/IMG_CMP_1885927.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 222#         楼主| 发表于 2021-3-18 01:33
+
+
+
+
+这UNO笑死了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 223#       发表于 2021-3-18 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50659459&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-18 01:33</a>
+这UNO笑死了</blockquote>
+超级耐久的那一把，各种阿鼻叫唤，语言形容不出来的好笑
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 224#       发表于 2021-3-18 09:09
+
+
+
+<img src="https://p.sda1.dev/1/f74a832343e8963b0790ab97048b3321/IMG_CMP_154503770.jpeg" referrerpolicy="no-referrer">
+ネ申
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 225#       发表于 2021-3-18 09:18
+
+
+
+<img src="https://p.sda1.dev/1/b7e38598426eae6e4c674ecc8e7f547a/IMG_CMP_219773380.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 226#       发表于 2021-3-18 11:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/18/111343n0wtvwvwrannwnn0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>“Your Mori.” 4.4.2021 .jpg</strong> (117.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 11:13 上传
+
+
+
+
+
+
+
+“Your Mori.”
+
+4.4.2021
+
+
+Not much longer now...
+
+A new MV will be released on the same day, with artwork by 零 (@ rei_17)!
+
+
+期待
+[https://calliope.streamlink.to/2ndEPCD](https://calliope.streamlink.to/2ndEPCD)
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 227#         楼主| 发表于 2021-3-19 03:30
+
+
+
+
+Mel与EN/ID合作，一图流
+
+
+
+
+
+
+u66vanohbsn61.jpg
+(469.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-19 03:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/19/032953t4819u1dovmiiidw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 228#       发表于 2021-3-19 05:56
+
+
+
+
+Ina玩健身环的时候说肩膀不舒服，是伏案工作太久肌肉过于僵硬了吧……
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 229#         楼主| 发表于 2021-3-19 12:50
+
+
+
+
+鲨鱼小时候不想涂脚趾甲，告诉因此告诉朋友自己足控。23333
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 230#       发表于 2021-3-19 13:04
+
+
+
+
+刚刚是不是说想玩生化危机
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 231#       发表于 2021-3-19 13:06
+
+
+
+
+Meanwhile in our universe,Ame 在玩#amearm，画风这样<img src="https://p.sda1.dev/1/a939d43d5f5c60da510f0f59be15e6d6/IMG_CMP_42724624.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|看上去很自然|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 232#       发表于 2021-3-19 13:34
+
+
+
+
+"idol meeting"
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 233#         楼主| 发表于 2021-3-19 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50674436&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-19 13:06</a>
+
+Meanwhile in our universe,Ame 在玩#amearm，画风这样
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Ne ...</blockquote>
+天才2333
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 234#       发表于 2021-3-19 19:46
+
+
+
+
+#amesame<img src="https://p.sda1.dev/1/a6221240bdb215d8c921618f8485ef79/IMG_CMP_264344135.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 235#       发表于 2021-3-19 21:22
+
+
+
+
+因为不知道NS怎么插网线<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">51没得玩了，换成双头狗
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 236#         楼主| 发表于 2021-3-19 22:47
+
+
+
+ 本帖最后由 smy20011 于 2021-3-19 22:49 编辑 
+<blockquote>wiig 发表于 2021-3-19 21:22
+因为不知道NS怎么插网线51没得玩了，换成双头狗</blockquote>
+没买网线的配件？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 237#       发表于 2021-3-20 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50679924&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-19 22:47</a>
+
+没买网线的配件？</blockquote>
+怕不是拎个裸机就回去了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 238#       发表于 2021-3-20 00:30
+
+
+
+
+Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 239#         楼主| 发表于 2021-3-20 01:33
+
+
+
+<blockquote>wiig 发表于 2021-3-20 00:30
+Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA</blockquote>
+前世歌曲轮播（
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 240#         楼主| 发表于 2021-3-20 01:44
+
+
+
+
+火鸡要在德国最大的动漫展里面当guest了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 241#       发表于 2021-3-20 12:07
+
+
+
+
+( ° ͜ʖ͡°)
+#ameliaRT https://t.co/sBy6LCeYLV
+<img src="https://p.sda1.dev/1/b7c600c514dbf8eb9395b5bd82170b7f/IMG_CMP_127336954.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/0be18c5b86c4b352069d59252a71fa4b/IMG_CMP_181996.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 242#       发表于 2021-3-20 12:07
+
+
+
+
+neta楚门的世界
+<img src="https://p.sda1.dev/1/33805e2758854c2fabca9b6bd43266e8/IMG_CMP_205456159.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/72d3acd7e515dc0a7abeae279c1a4ca8/IMG_CMP_155711242.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                                         
