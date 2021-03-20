@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-17 18:39** 
+> ## **本文件最后更新于2021-03-20 09:36** 
 
 
 
@@ -12834,7 +12834,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_w2VN9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_R47FP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17081,4 +17081,570 @@ _(┐「﹃ﾟ｡)__<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-                 
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11462#       发表于 2021-3-18 12:21
+
+
+
+
+是不是油管播不了又懒得去开新台就一直装死啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11463#       发表于 2021-3-18 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50659122&amp;ptid=1914409" target="_blank">因为你不会 发表于 2021-3-18 00:32</a>
+
+几……天？</blockquote>
+啊这，新粉没啥概念，之前最高记录是摸了多久来着
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11464#       发表于 2021-3-18 12:45
+
+
+
+
+我记得的最摸记录是一个月只播了5小时
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11465#       发表于 2021-3-18 12:49
+
+
+
+
+熟悉的感觉要回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11466#       发表于 2021-3-18 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50662930&amp;ptid=1914409" target="_blank">昆西昆希昆 发表于 2021-3-18 12:24</a>
+
+啊这，新粉没啥概念，之前最高记录是摸了多久来着</blockquote>
+17天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/18/132758ks6mmah5hphzz434.jpg" referrerpolicy="no-referrer">
+
+
+<strong>摸.JPG</strong> (41.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 13:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11467#       发表于 2021-3-18 13:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/18/133200lu9x7vqxvxne6nku.jpg" referrerpolicy="no-referrer">
+
+
+<strong>14d8d4041ca1a3bc95b0234ec4c7d2d2.jpg</strong> (237.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 13:32 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Fami水| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11468#       发表于 2021-3-18 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且还是直接消失17天 推特都没动的
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11469#       发表于 2021-3-18 16:02
+
+
+
+
+这怕不是扎到绫总大动脉了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11470#       发表于 2021-3-18 18:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有你的，现在还学会每天不重样了。
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11471#       发表于 2021-3-18 18:59
+
+
+
+
+前两周不算会限也播了25小时，这周给自己放假<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+周五是阿綾慣例的通宵遊戲日，可能也摸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11472#       发表于 2021-3-18 19:47
+
+
+
+
+跑去TMT的MV留言了，羡慕人家有原创曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 11473#       发表于 2021-3-19 09:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不要马娘
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11474#       发表于 2021-3-19 10:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">不要马娘，继续apex也是可以商量的嘛
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11475#       发表于 2021-3-19 10:12
+
+
+
+
+玩马娘，独食，不播，鸽
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11476#       发表于 2021-3-19 11:48
+
+
+
+
+百鬼众的性情是总喜欢调和折中的，譬如你说，余瘾上来了，想连播几天apex，大家一定不允许的。但如果你说马娘真好玩，余想摸鱼，他们就来调和，愿意看你apex了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11477#       发表于 2021-3-19 14:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/19/142912iqav3yvycdd4yjyl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>宅.JPG</strong> (50.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-19 14:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  水城雪风_Z  
+##### 11478#       发表于 2021-3-19 14:54
+
+
+
+
+马娘，下载
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11479#       发表于 2021-3-19 17:18
+
+
+
+
+其实不是讨厌播什么，只是不想看毫无观赏性的直播，更往前的apex播到后面就是脑死直播了，完全看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11480#       发表于 2021-3-19 21:57
+
+
+
+
+绫总天天熬夜不会变成丑逼吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11481#       发表于 2021-3-19 22:49
+
+
+
+
+你怎么就来上班了。绫总你怎么了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11482#       发表于 2021-3-19 23:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下周要跟bzml联动？
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11483#       发表于 2021-3-20 05:47
+
+
+
+
+这sc有一大半是台币
+自己都工作到半夜看不上直播还给管人打红的 甚至写要再多工作打更多sc也太魔怔了
+不安desu
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11484#       发表于 2021-3-20 09:19
+
+
+
+
+也不能说魔怔，可能这就是社畜释放压力的方式吧
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11485#       发表于 2021-3-20 13:38
+
+
+
+
+还搁这想派派排位呢 变着法不播拖到上赛季结束没上钻就有理由说是想打没时间打了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 11486#       发表于 2021-3-20 13:56
+
+
+
+
+valorant这游戏是凉透了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11487#       发表于 2021-3-20 14:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不使用点魔法 来不及上钻了吧
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11488#       发表于 2021-3-20 14:55
+
+
+
+
+说没时间上周还在LOL排位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11489#       发表于 2021-3-20 16:34
+
+
+
+
+看看夸夸，你这借口真的很苍白无力，还说想证明自己，我看你是想屁吃，估计最后还是装傻萌混过关
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 11490#       发表于 2021-3-20 16:49
+
+
+
+
+就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11491#       发表于 2021-3-20 16:55
+
+
+
+
+不要说出来<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11492#       发表于 2021-3-20 17:09
+
+
+
+
+要是有夸那么努力，那不是人设重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+绫总的人设就是吃天赋，气死那些努力的人
+
+
+
+
+
+                
