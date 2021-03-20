@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-19 12:55** 
+> ## **本文件最后更新于2021-03-20 14:41** 
 
 
 
@@ -3733,9 +3733,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_zl44N" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_N0ty9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_IqSp0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_yA2Ps" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Z9ZZK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_WT2Bs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -28482,13 +28482,582 @@ cover的孝子帆船4v罢了，肯定不是有虹人在开车
 
 
 
- 本帖最后由 FCCHua 于 2021-3-19 20:55 编辑 
+ 本帖最后由 FCCHua 于 2021-3-19 21:24 编辑 
 
 原来是未来人一人两角啊，这耳麦好未来科技<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 多唱唱歌吧
+sky今晚两播，感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 明天quiz加油啊
 
 
 
 
 
- 
+
+
+-----
+
+####  豆芽123  
+##### 34444#       发表于 2021-3-19 21:03
+
+
+
+
+葵皇在ARK里能和最喜欢的不破贴贴同接再低也开心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34445#       发表于 2021-3-19 21:38
+
+
+
+
+不去看一下还不知道HH今天唱歌了，我还以为要和平时一样嗯混的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34446#       发表于 2021-3-19 22:10
+
+
+
+
+结果是郡道神田星川恐怖游戏联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34447#       发表于 2021-3-19 22:21
+
+
+
+ 本帖最后由 kangkangsama 于 2021-3-19 22:27 编辑 
+
+来了来了 郡道星川过夜t台
+[https://twitcasting.tv/g9v9g_mire](https://twitcasting.tv/g9v9g_mirei)
+[https://live.bilibili.com/21575212](https://live.bilibili.com/21575212)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34448#       发表于 2021-3-19 22:42
+
+
+
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34449#       发表于 2021-3-20 01:02
+
+
+
+
+烂货圆脸怎么今天还搞虚拟签名会，看看写那个破字，还没我好看，签个屁名？还有脸卖这卖那呢，有人会买吗？烂货一个，赶紧毕业吧。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 34450#       发表于 2021-3-20 01:05
+
+
+
+
+秀一手给大伙康康啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 34451#       发表于 2021-3-20 02:02
+
+
+
+
+刚进来就看见了小免<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 34452#       发表于 2021-3-20 07:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50679726&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-3-19 22:21</a>
+来了来了 郡道星川过夜t台
+
+https://twitcasting.tv/g9v9g_mire
+
+https://live.bilibili.com/21575212</blockquote>
+昨晚十点就睡着了裂开<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34453#       发表于 2021-3-20 10:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/20/104434ids31do333on7mds.png" referrerpolicy="no-referrer">
+
+
+<strong>誰がなんと言おうとその夢を実現するために進みます！折れねぇ！！.png.png</strong> (255.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-20 10:44 上传
+
+
+
+
+
+
+发生了这样一件事，也说了除非被辞退，否则不会毕业
+[https://www.youtube.com/watch?v=O9XpqXEdgW8](https://www.youtube.com/watch?v=O9XpqXEdgW8)
+
+最新推文
+
+おはよう☀
+
+
+沢山の人に心配をおかけしてしまいました...1日考えて、夢を諦めるのは僕じゃねぇなって思ったんで、誰がなんと言おうとその夢を実現するために進みます！折れねぇ！！
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34454#       发表于 2021-3-20 11:17
+
+
+
+
+是梦想和粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34455#       发表于 2021-3-20 11:17
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 34456#       发表于 2021-3-20 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">吃虫都能答应的staff到底会ng啥企划
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 34457#       发表于 2021-3-20 11:41
+
+
+
+
+社内相亲💑
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34458#       发表于 2021-3-20 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">stars和hololive那能一样么!一样问题就大了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34459#       发表于 2021-3-20 12:52
+
+
+
+
+对于这种人，很喜欢嘉心糖的一句话：你寄吧谁啊😅
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 34460#       发表于 2021-3-20 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50682915&amp;ptid=1969498" target="_blank">winda 发表于 2021-3-20 12:10</a>
+stars和hololive那能一样么!一样问题就大了。</blockquote>
+怎么不一样，hololive绝对头牌的回馈粉丝企划不也是直接毙了，直接搞崩心态。不怎么赚钱甚至亏本的企划应该是没得谈的，除非学船长自掏腰包把人力物力成本付了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34461#       发表于 2021-3-20 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50681425&amp;ptid=1969498" target="_blank">Sanguine 发表于 2021-3-20 07:23</a>
+昨晚十点就睡着了裂开而且老师t台还没留档，请问现在哪里还有录播吗 ...</blockquote>
+没事，错过就错过了，郡道聊手游星川写计划案，姐妹间玩一些捕捉爱的小游戏罢了
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34462#       发表于 2021-3-20 14:58
+
+
+
+
+星川这百合贴贴的对象还挺多
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34463#       发表于 2021-3-20 15:02
+
+
+
+<blockquote>rzrbtk 发表于 2021-3-20 14:53
+没事，错过就错过了，郡道聊手游星川写计划案，姐妹间玩一些捕捉爱的小游戏罢了 ...</blockquote>
+想想，胸枕，大腿枕，按摩（60握力的郡道搞得星川叫苦不迭），闻脚，摸头，就这些吧。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 34464#       发表于 2021-3-20 15:16
+
+
+
+ 本帖最后由 Sanguine 于 2021-3-20 15:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50684061&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-3-20 15:02</a>
+想想，胸枕，大腿枕，按摩（60握力的郡道搞得星川叫苦不迭），闻脚，摸头，就这些吧。 ...</blockquote>
+只听到推上切片，非常馋
+还有个下台后说被咬耳朵了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 34465#       发表于 2021-3-20 15:29
+
+
+
+
+这做了个啥企划，80分钟搞定后一转APEX
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34466#       发表于 2021-3-20 17:40
+
+
+
+
+才发现这次的azki48改成azki72了，人太多了
+
+
+原来重大发表就是7th live呀，这个广告打的挺好
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34467#       发表于 2021-3-20 19:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">一看daruma同接已经1w1了，鬼神组这么火的么。
+虹女绿叶当得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34468#       发表于 2021-3-20 20:19
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-20 22:31 编辑 
+
+原来quiz还没开始第一题，还以为错过了
+有医疗环节，我满足了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+没想到历史题你也会？！
+赢了，好耶
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34469#       发表于 2021-3-20 21:11
+
+
+
+<blockquote>winda 发表于 2021-3-20 19:19
+一看daruma同接已经1w1了，鬼神组这么火的么。
+
+虹女绿叶当得好啊</blockquote>
+Naraka6000都还不满足，不比平时多多了？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34470#       发表于 2021-3-20 21:20
+
+
+
+
+郡道偶尔也有帅气的时候嘛<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">，不丢人不丢人
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34471#       发表于 2021-3-20 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686782&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-20 21:20</a>
+
+郡道偶尔也有帅气的时候嘛，不丢人不丢人</blockquote>
+丢死人了！
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 34472#       发表于 2021-3-20 22:11
+
+
+
+
+奈羅花现在跟他们两个一起玩apex的同接也很高 比以前高多了 这波算互相成就吧 这组合也挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34473#       发表于 2021-3-20 22:22
+
+
+
+
+说实话这组nrk才是吃福利的那个
+
+daruma好像本来同接就挺高的
+
+而且这个组合效果大半来自他，属于骚话特别多的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34474#       发表于 2021-3-20 22:29
+
+
+
+
+草草草居然是niji赢了，给面子啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">！
+郡郡摸了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
