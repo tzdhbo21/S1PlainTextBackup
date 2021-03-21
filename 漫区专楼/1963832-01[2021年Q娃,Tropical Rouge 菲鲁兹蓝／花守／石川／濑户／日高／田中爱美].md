@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-20 17:52** 
+> ## **本文件最后更新于2021-03-21 10:47** 
 
 
 
@@ -15095,4 +15095,719 @@ q娃小说策划八成是被阉掉 毕竟ss和战队小说没有下文了<img sr
 
 
 
-                     
+
+
+-----
+
+####  dragrass  
+##### 842#       发表于 2021-3-21 07:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/073629n5v555el7hdi572h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (37.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 07:36 上传
+
+
+
+
+
+开始啦
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 843#       发表于 2021-3-21 07:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/073912g7ppu4122aann7gw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.JPG</strong> (49.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 07:39 上传
+
+
+
+
+
+前辈
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 844#       发表于 2021-3-21 07:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/074149q9h39h3zopih8art.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.JPG</strong> (89.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 07:41 上传
+
+
+
+
+
+
+
+烈海王夏哥
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 845#       发表于 2021-3-21 07:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 846#       发表于 2021-3-21 08:47
+
+
+
+
+变身后的反差很可爱，好有活力<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 847#       发表于 2021-3-21 08:52
+
+
+
+
+必杀技总是一言难尽
+
+
+
+
+
+
+
+-----
+
+####  星のMerita  
+##### 848#       发表于 2021-3-21 11:25
+
+
+
+
+两个人的bank剪的怪怪的，虽说最终之前凑合一下也未免太突兀了
+
+最终版应该是每人喊一个部位，ドレス归入队后的萝拉（无端联想到go役的某人）
+
+
+人鱼。。。好热衷让别人摸自己尾巴啊。劝诱黄毛签约时一口一个真夏怎样怎样，已经完全是夏哥的女人了（
+
+黄毛的回忆还留了一个悬念（homo雷达鸣响），看看什么时候会揭晓
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 849#       发表于 2021-3-21 12:02
+
+
+
+
+再给你们一次机会，紫还是黄
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 850#       发表于 2021-3-21 12:13
+
+
+
+
+真夏：飞鸟学姐，我对你一向敬重，对珊瑚心生感激，对一之濑学姐意存怜惜，而对萝拉……却是刻骨铭心的相爱
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 851#       发表于 2021-3-21 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50690209&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-21 12:02</a>
+
+再给你们一次机会，紫还是黄</blockquote>
+答案是红
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 852#       发表于 2021-3-21 13:40
+
+
+
+
+屑人鱼一开始藏的挺好，一听说人鱼公主的剧情就忍不住了
+
+"凭什么为了人类去死啊" ​
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 853#       发表于 2021-3-21 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50690926&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-03-21 13:40:26</a>
+屑人鱼一开始藏的挺好，一听说人鱼公主的剧情就忍不住了
+
+"凭什么为了人类去死啊" ​ ...</blockquote>就怕是flag<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 854#       发表于 2021-3-21 14:02
+
+
+
+
+好看的说不出话来，这集还是那么稳，想看下一集
+
+<img src="https://img.saraba1st.com/forum/202103/21/135952v82z9j4jdw2jy4at.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210321135916.png</strong> (116.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 13:59 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/135953biacminqpgigiubg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210321135919.png</strong> (89.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 13:59 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/135953l5h534opjsoev033.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210321135924.png</strong> (42.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 13:59 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/135953myama03k1x04i0hi.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210321135931.png</strong> (89.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 13:59 上传
+
+
+
+
+
+
+话说这集居然有这么多这样的构图，夏哥撩妹真是熟练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Frezard  
+##### 855#       发表于 2021-3-21 14:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/140439b43y35lcji1jaz3k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0FF7366E-687B-42CD-9951-263E20BE6519.jpeg</strong> (90.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-21 14:04 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/140439a53z5bi6culb6u7d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E0FE2014-9EAC-4C93-985D-934E8EF83D10.jpeg</strong> (73.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-21 14:04 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/140439gh76ilx7vv7zeg27.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B3A604D7-4241-4761-9A2B-D7482E9F8E0D.jpeg</strong> (86.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-21 14:04 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/140439txh4m2f4545xmwc5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CB144622-2C42-4E55-85C4-E3D89D405789.jpeg</strong> (28.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-21 14:04 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 856#       发表于 2021-3-21 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691047&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-21 14:02</a>
+好看的说不出话来，这集还是那么稳，想看下一集</blockquote>
+最后一张有既视感了
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 857#       发表于 2021-3-21 14:51
+
+
+
+<blockquote>最强惠酱 发表于 2021-3-17 23:56
+草，这么狠
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1</blockquote>
+那是和反派三干部战斗过程中被下了幻觉，到后面就回到现在的时间线继续战斗了
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 858#       发表于 2021-3-21 14:53
+
+
+
+
+奸笑这本小说我记得好几年前买的了 原来根本没人看吗，这种幻觉假药还流传这么广<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kkl12355  
+##### 859#       发表于 2021-3-21 14:54
+
+
+
+<blockquote>dragrass 发表于 2021-3-21 13:59
+就怕是flag
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+变成泡沫再新生成q娃不也挺好，就怕吓哭小友，pta举报
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 860#       发表于 2021-3-21 15:13
+
+
+
+ 本帖最后由 天邪鬼 于 2021-3-21 15:19 编辑 
+
+这一季确实挺轻松的，萝拉测光美直接随手一抛。后面陷入僵局了才想着把黄给骂醒(名字没记住)这一季没啥玩具要卖，光美集齐后要干啥
+不过看格兰城这描述，好像是自给自足那种社会，会不会也是因为这样相互之间比较冷漠。反派那边倒是比较有人情味
+不过海马原来叫巴特拉，这集还老是幻想真实的，我都以为跑海猫那去了
+以及cure papaya这技能是真的杂耍，papaya光线跟拿手电筒晃眼睛的效果差不多。木瓜射击张力是有了，就是自己变木瓜有点……期待剧场版有奇效吧，毕竟是攻防一体的招，没了bank能发挥的作用就多了
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 861#       发表于 2021-3-21 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691376&amp;ptid=1963832" target="_blank">kkl12355 发表于 2021-3-21 14:54</a>
+变成泡沫再新生成q娃不也挺好，就怕吓哭小友，pta举报</blockquote>
+查了一下，lamer好像是个面霜品牌，说不定追加的变身思路是涂面霜，搓着搓着泡沫就出来了
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 862#       发表于 2021-3-21 15:19
+
+
+
+ 本帖最后由 cmyk1234 于 2021-3-21 15:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50658008&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-17 22:28</a>
+成濑女士是偶像 不是声优 同理还有点心两位女士 仔细想想这几年剧场版那些友情客串的才叫一个惨烈
+ ...</blockquote>
+初代两本小说是钟弘亚树/井上亚树子（笔名/本名）写的，剧情会不会比其他的q娃小说稍好？
+另外doremi小说还在出续作，副标题是“20”，影山由美（辈份比成田还要大一辈）写的
+
+
+<img src="https://p.sda1.dev/1/0c1b60ccb0e92b73cca254939aaf0b75/IMG_CMP_141173024.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/fd522ea0d388d3181adcc165bd3037f1/IMG_CMP_225317213.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 863#       发表于 2021-3-21 15:42
+
+
+
+
+目前为止最喜欢的居然是鱼人，真是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。平时贱贱的，关键时刻也会嘴炮两句，希望不要正式入队之后就完全变娇
+
+打斗场景怪怪的，不连贯。变身和大招bank都差点意思
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 864#       发表于 2021-3-21 15:52
+
+
+
+
+眼镜别脱<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 865#       发表于 2021-3-21 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691376&amp;ptid=1963832" target="_blank">kkl12355 发表于 2021-3-21 14:54</a>
+变成泡沫再新生成q娃不也挺好，就怕吓哭小友，pta举报</blockquote>
+这集的飞 头 鱼难道不会吓哭小孩子吗？说不定人鱼就是被迫害和猎奇担当呢
+一个屑，一个原本把人类当做工具的人鱼，最后却为了人类而变成泡沫，人物是不是一下就立起来了。
+“真夏你一定不懂吧”
+
+
+
+
+
+
+
+-----
+
+####  twit  
+##### 866#       发表于 2021-3-21 16:28
+
+
+
+
+今年这变身和大招bank居然有这么多觉得不行的吗？
+我倒是觉得今年这算是拉满了。
+夏哥人设主题应该是活力，所以变身的小动作和表情偏向运动系，变身演出最后加了在大地奔跑的卡，大招是球类相关的盖亚能量炮。
+珊瑚人设主题是轻飘飘的可爱，变身小动作不少带了孩子气，演出最后加了踩水加强轻飘飘的感觉，大招也是坐在没什么重量的珊瑚上攻击。
+啪啪雅的人设主题应该是小巧的可爱，动作感觉有点偏羞涩向，演出最后是落地打滚加强小巧感，大招从木瓜中破出用木瓜汁射击。
+我是觉得今年这演出都有围绕角色设定来做，大部分都做的挺好的。
+已经开始期待下周帅气的飞鸟了。
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  twit  
+##### 867#       发表于 2021-3-21 16:33
+
+
+
+
+不过今年这两可爱系的也是有够反差的。
+珊瑚明明看起来轻飘飘的却是个盾役，啪啪雅本体文学系小招却是凶残的电光眼。
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 868#       发表于 2021-3-21 16:43
+
+
+
+
+人鱼头实在是乐，想出这点子来的家伙真是天才，这集有挺多难度较高的**头，只是说今年实在稳，变身和大招我是回到甜点那种非常华丽和真正充满イマジネーション的演出，特别是大招后的小表情，我也是跟着笑出声，虽然才4集，太喜欢今年的q娃了
+<img src="https://p.sda1.dev/1/a7d4fd4f220d1541657a8e345e50320a/cfcef206c38260.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  穷且坚强着  
+##### 869#       发表于 2021-3-21 16:50
+
+
+
+
+珊瑚第二战就破盾了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 870#       发表于 2021-3-21 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691928&amp;ptid=1963832" target="_blank">twit 发表于 2021-3-21 16:33</a>
+
+不过今年这两可爱系的也是有够反差的。
+
+珊瑚明明看起来轻飘飘的却是个盾役，啪啪雅本体文学系小招却是凶残 ...</blockquote>
+黄的光子力射线好像只是致盲技，跟魔神爱那种一扫死一片的类型还不同
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 871#       发表于 2021-3-21 18:20
+
+
+
+
+每天睡十一小时的屑人鱼
+<img src="http://wx4.sinaimg.cn/mw690/e7cbae74gy1gorogtpwiqj217v0u0h0w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 872#       发表于 2021-3-21 18:46
+
+
+
+
+毕竟本质面向幼女
+
+
+
+
+
+                    

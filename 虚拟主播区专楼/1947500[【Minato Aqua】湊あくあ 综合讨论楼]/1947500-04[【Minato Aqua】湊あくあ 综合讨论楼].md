@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-20 11:34** 
+> ## **本文件最后更新于2021-03-21 10:43** 
 
 
 
@@ -17630,4 +17630,651 @@ apex4.png
 
 
 
-                  
+
+
+-----
+
+####  猫南北  
+##### 5436#       发表于 2021-3-20 19:36
+
+
+
+
+有2个繁体字的在带节奏，一直在评论bb~
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5437#       发表于 2021-3-20 19:57
+
+
+
+
+有大师在钓鱼，中文一出来有以前b站内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5438#       发表于 2021-3-20 20:02
+
+
+
+ 本帖最后由 面具13 于 2021-3-20 20:08 编辑 
+
+这对双排队友感觉有问题啊。灭了啊。打得方式像挂一样
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 5439#       发表于 2021-3-20 20:25
+
+
+
+
+又开始掉分了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5440#       发表于 2021-3-20 21:49
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-21 00:43 编辑 
+
+看到从匹配到的队友身上学来的躲藏地点派上用场有点谜之感动<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer"> 队友带飞，还差81
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5441#       发表于 2021-3-20 21:53
+
+
+
+
+苟分界的传奇
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5442#       发表于 2021-3-20 21:54
+
+
+
+
+这也太爽了
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 5443#       发表于 2021-3-20 21:54
+
+
+
+
+一个人🐶到第2而且要不是关键时刻没子弹了还说不好能带走一两个
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 5444#       发表于 2021-3-20 22:25
+
+
+
+
+激光笔射了个爽
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5445#       发表于 2021-3-20 22:54
+
+
+
+
+怎么又玩华生了？，用那两个胖子啊、不会玩直布、玩最简单的屁男也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 5446#       发表于 2021-3-20 23:25
+
+
+
+
+钻1也太难了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5447#       发表于 2021-3-20 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687532&amp;ptid=1947500" target="_blank">バーチャルS1er 发表于 2021-3-20 22:54</a>
+
+怎么又玩华生了？，用那两个胖子啊、不会玩直布、玩最简单的屁男也行啊 ...</blockquote>
+嫌太重，不肯玩。屁男熟练度其实够用
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 5448#       发表于 2021-3-20 23:45
+
+
+
+
+这在干嘛，弹幕还刷起来了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5449#       发表于 2021-3-21 00:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5450#       发表于 2021-3-21 02:07
+
+
+
+ 本帖最后由 wwddrte 于 2021-3-21 02:38 编辑 
+
+感觉这局能钻1了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+终于上了，钻1已经这么难了，不知道还会不会想大师
+
+还是想上啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5451#       发表于 2021-3-21 02:33
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-21 02:38 编辑 
+
+感觉有了 折磨结束了 <img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">期待明天的耐久（
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5452#       发表于 2021-3-21 02:36
+
+
+
+ 本帖最后由 面具13 于 2021-3-21 02:50 编辑 
+
+能睡了。看到大师的标志，就算上不去也是惜败。最后两天冲分人也多，感觉成功率30%左右
+
+
+
+
+
+
+
+-----
+
+####  裁决之光  
+##### 5453#       发表于 2021-3-21 02:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/025549whaqldkallldqddk.png" referrerpolicy="no-referrer">
+
+
+<strong>8foki7bd58o61.png</strong> (42.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 02:55 上传
+
+
+
+
+
+
+求个插件名字，这要是能一直留着记录可太方便了，走开一会回来还知道说了什么
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5454#       发表于 2021-3-21 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50688702&amp;ptid=1947500" target="_blank">裁决之光 发表于 2021-3-21 02:57</a>
+
+求个插件名字，这要是能一直留着记录可太方便了，走开一会回来还知道说了什么 ...</blockquote>
+[LiveTL - Translation Filter for Streams](https://kentonishi.github.io/LiveTL/)
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 裁决之光| + 1|感谢|
+| wwddrte| + 1||
+| ylssb10438| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5455#       发表于 2021-3-21 15:58
+
+
+
+ 本帖最后由 面具13 于 2021-3-21 16:20 编辑 
+
+因为之前的经验，害怕直播外排位掉分，所以可能要表演一个直播钻1一局游了
+
+
+单人三排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5456#       发表于 2021-3-21 16:21
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-21 17:38 编辑 
+
+这波单人灭队帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5457#       发表于 2021-3-21 17:15
+
+
+
+
+草 遇到twitch主播了
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 5458#       发表于 2021-3-21 17:30
+
+
+
+
+快回去了
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5459#       发表于 2021-3-21 17:30
+
+
+
+ 本帖最后由 面具13 于 2021-3-21 17:37 编辑 
+
+剩下24点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掉下去了。
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5460#       发表于 2021-3-21 17:38
+
+
+
+
+回到解放前
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5461#       发表于 2021-3-21 17:38
+
+
+
+
+让你玩华生哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫南北  
+##### 5462#       发表于 2021-3-21 17:52
+
+
+
+
+昨天的分数，今天的目标。。
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5463#       发表于 2021-3-21 18:08
+
+
+
+
+又吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  doushike  
+##### 5464#       发表于 2021-3-21 18:10
+
+
+
+
+又到了我最喜欢的夸宝脑死怒怼评论环节，能把apex冲没了吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5465#       发表于 2021-3-21 18:18
+
+
+
+
+低气压头疼。。
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5466#       发表于 2021-3-21 18:20
+
+
+
+
+如果是指那些台湾人的话，似乎台湾某论坛聚集了一批专门的anti，然后集团来捣乱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zpy393  
+##### 5467#       发表于 2021-3-21 18:28
+
+
+
+
+每次同接一高评论节奏就开始乱，夸宝抗压能力还是不太行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 5468#       发表于 2021-3-21 18:34
+
+
+
+
+折磨
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5469#       发表于 2021-3-21 18:34
+
+
+
+ 本帖最后由 面具13 于 2021-3-21 18:41 编辑 
+
+夸宝抗压能力挺好的啊，心态不乱，discord喊救兵，没啥问题。小破岛anti屏蔽/举报一两下就没了。倒是被钓鱼的中文评论层出不穷
+
+
+时不时能看到一些脑溢血操作，应该是我不懂apex吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5470#       发表于 2021-3-21 18:42
+
+
+
+
+今天就是俯冲式上分吗？
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5471#       发表于 2021-3-21 18:42
+
+
+
+
+今天就是俯冲式上分吗？
+
+
+
+
+
+                 
