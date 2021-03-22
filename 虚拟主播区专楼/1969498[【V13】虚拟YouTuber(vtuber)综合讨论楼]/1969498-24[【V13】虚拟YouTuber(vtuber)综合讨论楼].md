@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 04:54** 
+> ## **本文件最后更新于2021-03-22 17:03** 
 
 
 
@@ -55,4 +55,751 @@ syl，bora之前练习赛也是啊，跟cpt一起杀，干的还是理论上的�
 
 
 
-                                                 
+
+
+-----
+
+####  alcoholic1000  
+##### 34504#       发表于 2021-3-22 13:24
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-22 13:25 编辑 
+
+【📣「#ツキイチにじさんじ」リニューアルのお知らせ！】
+
+
+この度、公式情報バラエティ番組『ツキイチ！にじさんじ』は、新番組としてリニューアル！ 
+
+
+新番組名は  『たすけて！#ガッキュー裁判』！
+
+
+初回放送日時や番組詳細については、後日発表いたしますのでお楽しみに！
+
+<img src="https://img.saraba1st.com/forum/202103/22/132044kbt64zj7m6m65r7i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>『たすけて！#ガッキュー裁判』！ .jpg</strong> (413.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 13:20 上传
+
+
+
+
+
+
+几个上位势手里都有节目了，可以给我们gamers分点汤吗<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer"> 
+
+
+
+Syl，千寻就千寻，能不能不要缩写，猜了半天，不安です、
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 34505#       发表于 2021-3-22 13:33
+
+
+
+
+谁看昨天晚上紫宝的会限了 来个repo啊
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 34506#       发表于 2021-3-22 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">终于把最没人气的延迟一个月的旧闻和可爱环节给去掉了啊
+
+
+
+
+
+
+
+-----
+
+####  17119854  
+##### 34507#       发表于 2021-3-22 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50699151&amp;ptid=1969498" target="_blank">fromsaitama 发表于 2021-3-22 13:33</a>
+
+谁看昨天晚上紫宝的会限了 来个repo啊</blockquote>
+儿童绘画和脑死杂谈，没了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+开头有点没精神而已
+
+
+
+
+
+
+
+-----
+
+####  aptx318  
+##### 34508#       发表于 2021-3-22 14:54
+
+
+
+
+上位势上官号做固定节目浪费自己的直播时间，涨粉又涨在官号上，还是别了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34509#       发表于 2021-3-22 15:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 可别乱说，能被ichikara选中参加这种人上人节目是你的荣幸，用古话来讲：“你若不做，后面还排着一堆人儿想做呢，多少人心心念念想做呢，不要不识抬举！”
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34510#       发表于 2021-3-22 16:07
+
+
+
+
+反正不影响葵中堂。昨天又是小动画拉小圈子又是一台本社五万棒，一起卡拉你寄吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34511#       发表于 2021-3-22 16:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ickr回收利用底边的方法就是这啊
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34512#       发表于 2021-3-22 18:47
+
+
+
+
+鬼神组排上分了，不讲相声nrk还是有希望大师的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34513#       发表于 2021-3-22 19:07
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-22 19:20 编辑 
+
+看群里说是nrk为了跟大家匹配，自己solo上了钻1
+
+
+看了下昨晚的档，这样的话一晚上上了500分到钻1，再评价啊
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34514#       发表于 2021-3-22 19:07
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34515#       发表于 2021-3-22 19:21
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-22 19:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这效率，可以
+这局强强，人均两千伤害吃鸡，全队22人头，队里有大师了
+麻了，这就bug 服务器抽风也来，吐了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34516#       发表于 2021-3-22 19:35
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-22 19:45 编辑 
+
+不是bug，是新出的踢人挂
+
+
+情报错误，应该是EA的bug，不过好像是挂壁造成的，当局全部玩家全掉
+
+
+
+
+
+
+
+
+-----
+
+####  say_gg_plz  
+##### 34517#       发表于 2021-3-22 19:36
+
+
+
+
+一打大师局马上bug就来了
+
+这bug啥时候修啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34518#       发表于 2021-3-22 19:37
+
+
+
+ 本帖最后由 winda 于 2021-3-22 19:40 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/193208cgzozsqjdg4z94qd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210322_192723.jpg</strong> (219.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-22 19:32 上传
+
+
+
+
+
+
+一弦也上大师了，下次最协应该看不到剩下两个chibistars组队了。 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+https://youtu.be/9s4WItswNFY
+
+#ちびすたWIN
+
+#RAGWIN
+啊，顺便歌衣桑再加油吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 34519#       发表于 2021-3-22 19:46
+
+
+
+
+场均450也能大师吗 我场均420上的钻 是不是也有机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34520#       发表于 2021-3-22 20:05
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-22 20:38 编辑 
+
+最近Apex真的难顶，挂太多了，日服都基本上两局一个，还有人跑到匹配开挂不知道图什么<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+Syl，补了今天绿仙弦月藤十郎的弹唱ボカロ，绿仙笑眯眯地望着弹钢琴的弦月演唱，遇到绿仙上不去忘词的地方弦月会帮忙垫上，小声商量选歌，默契的配合，聊到老术曲还会一起笑起来
+
+感觉是...恋爱一样的氛围<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+Zsyl，
+
+<img src="https://img.saraba1st.com/forum/202103/22/202138jl3s9sllgkt34z33.png" referrerpolicy="no-referrer">
+
+
+<strong>【祝！2周年】は～！新衣装もお披露目しちゃお！【アンジュ・カトリーナ／にじさんじ.png</strong> (188.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:21 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/202409dlrrt29nz0r9evn9.png" referrerpolicy="no-referrer">
+
+
+<strong>【祝！2周年】は～！新衣装もお披露目しちゃお！【アンジュ・カトリーナ／にじさんじ.png</strong> (179.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:24 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/202606mrpr5qbbh8mqv0jq.png" referrerpolicy="no-referrer">
+
+
+<strong>【祝！2周年】は～！新衣装もお披露目しちゃお！【アンジュ・カトリーナ／にじさんじ.png</strong> (186.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:26 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/202748ykz4xtqk9jnai7t7.png" referrerpolicy="no-referrer">
+
+
+<strong>【祝！2周年】は～！新衣装もお披露目しちゃお！【アンジュ・カトリーナ／にじさんじ.png</strong> (191.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:27 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/203815pebmt1nemqh8vzmi.png" referrerpolicy="no-referrer">
+
+
+<strong>【祝！2周年】は～！新衣装もお披露目しちゃお！【アンジュ・カトリーナ／にじさんじ.png</strong> (105.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:38 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=G1qDfbK5pMM](https://www.youtube.com/watch?v=G1qDfbK5pMM)
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34521#       发表于 2021-3-22 20:09
+
+
+
+
+azki48，不对这次应该是azki72的完整名单
+[https://docs.google.com/spreadsh ... 3U3hLzOw/edit#gid=0](https://docs.google.com/spreadsheets/d/197f2o8iBIPPUcK7ponqO18g5ZWcAyWq7DO33U3hLzOw/edit#gid=0)
+
+
+这次发现比较好玩的是这个乐队
+[https://www.youtube.com/channel/UCQ8cagu4nxWEhYy3XArC9oQ](https://www.youtube.com/channel/UCQ8cagu4nxWEhYy3XArC9oQ)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34522#       发表于 2021-3-22 20:15
+
+
+
+
+安洁的新衣装配信开惹<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34523#       发表于 2021-3-22 20:24
+
+
+
+
+安洁这个新衣服还有点色
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 34524#       发表于 2021-3-22 20:36
+
+
+
+
+串楼了
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 34525#       发表于 2021-3-22 20:39
+
+
+
+
+艾玛加入apex，不过感觉可能只是随便玩玩
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/203914akcbfyzaa2eefaqx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExFSsa6UUAMx0-3.jpg</strong> (123.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:39 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34526#       发表于 2021-3-22 21:00
+
+
+
+
+这个烂货圆脸的日程表，怎么还要参加animejapan，去了干啥丢人现眼吗，真是垃圾，这个烂货怎么还不毕业？
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/210027unvqrz8lafsnupcc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>烂货圆脸.jpg</strong> (276.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 21:00 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34527#       发表于 2021-3-22 21:42
+
+
+
+
+nrk开solo master的档了
+
+yqqx还在呼吸吗
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34528#       发表于 2021-3-22 21:45
+
+
+
+
+原来上赛季是目前来看小千离大师最近的一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  adamtheo  
+##### 34529#       发表于 2021-3-22 21:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702540&amp;ptid=1969498" target="_blank">winda 发表于 2021-3-22 19:37</a>
+
+一弦也上大师了，下次最协应该看不到剩下两个chibistars组队了。
+
+https://youtu.be/9s4WItswNFY
+
+# ...</blockquote>
+歌衣也到了。在钻一钻二直升直降了三四天，今天换了服务器加上アステル改用狗子顺利很多。アステル大号上完大师之后，小号近一周从白金四爬上来都钻二了（挂多的时候正好钻四守门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+歌衣KD也不到1，不过main胖胖还跟着アステル这种辛烷到处冲的打很吃亏，他的dome fight真的强
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34530#       发表于 2021-3-22 22:48
+
+
+
+
+狱卒吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 34531#       发表于 2021-3-22 23:37
+
+
+
+
+这APEX也太卷了，几个月不到从人人上钻到人人冲大师了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烯丝短尾猫  
+##### 34532#       发表于 2021-3-23 00:00
+
+
+
+
+还是冲分比以前要容易了，满击杀分有6个人头可以算，13名开始就加5分，钻石排位不会像以前一样和大师猎杀一起进行地狱混战。
+
+照这个势头下去，下一届最协真的要大师遍地走了（
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34533#       发表于 2021-3-23 00:04
+
+
+
+
+nrk的大师进入射程内
+
+
+
+
+
+
+
+-----
+
+####  划水的B612  
+##### 34534#       发表于 2021-3-23 00:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+那我这种菜鸡是不是也可以考虑一下上个钻石了？
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34535#       发表于 2021-3-23 01:02
+
+
+
+
+大亏都剑指大师了，446怎么还在摸鱼
+
+
+
+
+
+                                                
