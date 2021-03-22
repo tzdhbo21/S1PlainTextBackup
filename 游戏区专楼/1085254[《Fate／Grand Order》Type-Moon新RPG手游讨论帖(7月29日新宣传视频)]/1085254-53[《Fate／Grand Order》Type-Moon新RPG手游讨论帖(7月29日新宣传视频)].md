@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-15 09:37** 
+> ## **本文件最后更新于2021-03-22 13:44** 
 
 
 
@@ -3486,4 +3486,440 @@ UP小王子 看来今年没FR复刻了
 
 
 
-                                           
+
+
+-----
+
+####  stefanie张  
+##### 78188#       发表于 2021-3-15 18:38
+
+
+
+
+一括要下5个G，是就我这样吗
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78189#       发表于 2021-3-15 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50633813&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-3-15 18:38</a>
+
+一括要下5个G，是就我这样吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也是（苹果
+
+
+
+
+
+
+
+-----
+
+####  34789  
+##### 78190#       发表于 2021-3-15 20:02
+
+
+
+
+感谢职阶up（
+
+赌到了船长（
+
+全助战大奶完成（
+
+下面就等花嫁复刻换下武藏了（
+
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78191#       发表于 2021-3-16 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50632938&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-3-15 17:13</a>
+
+这种超级毒池真的有人会抽么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想抽。毕竟特殊阶级就萨老师一个人点几下能补个满宝
+
+
+
+
+
+
+
+-----
+
+####  yangun22  
+##### 78192#       发表于 2021-3-16 14:17
+
+
+
+
+爬塔不是挺好的，三满破宝石洗地很快的，材料又多最主要是结晶多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78193#       发表于 2021-3-16 16:22
+
+
+
+<blockquote>引用第78191楼yangun22于2021-03-16 14:17发表的  :
+
+爬塔不是挺好的，三满破宝石洗地很快的，材料又多最主要是结晶多</blockquote>
+刚刚满破第二张宝石老头的看着你
+之前三年不出一张
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78194#       发表于 2021-3-16 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50643118&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-16 16:22</a>
+
+刚刚满破第二张宝石老头的看着你
+
+之前三年不出一张</blockquote>
+天启是打不过壕氪的，放弃吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yangun22  
+##### 78195#       发表于 2021-3-16 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50643118&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-16 16:22</a>
+
+刚刚满破第二张宝石老头的看着你
+
+之前三年不出一张</blockquote>
+2张也够了啊，加个虚数调整一下带自充的和3宝石没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sosgame67  
+##### 78196#       发表于 2021-3-16 17:24
+
+
+
+
+入坑日服两年没宝石，国服爬塔我三宝石无脑按宝具，这边还要打np简直精污好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78197#       发表于 2021-3-16 19:21
+
+
+
+
+话说这回活动的标题的秋叶原特意用片假名写，字体也一股近未来风，会不会是要和requiem扯上什么关系呢，而且隔壁街机刚好落地了了一个requiem的卫星，你们以为今年联动是月姬？其实是requiem二期哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看似是惯例的爬塔，其实是联动的预热
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 78198#       发表于 2021-3-16 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645102&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-3-16 19:21</a>
+
+话说这回活动的标题的秋叶原特意用片假名写，字体也一股近未来风，会不会是要和requiem扯上什么关系呢，而 ...</blockquote>
+requiem里写秋叶原是《秋叶原》这种纯汉字写法，所以这活动大概和FR没关系
+
+佐证吗……反正星空在推特上对这个活动完全的无关心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78199#       发表于 2021-3-18 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么早关活动，但爬塔还不开
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78200#       发表于 2021-3-22 17:18
+
+
+
+
+爬塔活动怎么还出新卡的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78201#       发表于 2021-3-22 17:21
+
+
+
+
+四星礼装上面的是爱迪生、莫里亚蒂和......梅菲斯特？三星子安什么时候出个皮肤啊，礼装都有好几个正常人版本了。
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78202#       发表于 2021-3-22 17:23
+
+
+
+
+新卡常驻，不急
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78203#       发表于 2021-3-22 17:23
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-3-22 19:51 编辑 
+
+新从者是个希腊神话里的雕像妹子，国王造出来取代自己妻子的，EVA+魔偶马戏团既视感（CV是林原惠就好了...）
+
+没看懂日文胡言乱语编辑了
+
+
+C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎不看好。
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78204#       发表于 2021-3-22 17:44
+
+
+
+
+绝了，这新狂阶不是皮格马利翁的手办老婆吗？秋叶原主题的活动落地了人类最古的美少女手办老婆，我感到了一股恶意铺面而来，蘑菇你会玩啊。死宅们，你们的手办老婆活了，别养马了，快回来爬塔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78205#       发表于 2021-3-22 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50701424&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-3-22 17:23</a>
+
+新从者是个罗马神话里的雕像妹子，国王造出来取代自己亡妻的，EVA+魔偶马戏团既视感（CV是林原惠就好了... ...</blockquote>
+单体不怕，看到哈吉咩酱了吗？感觉手办老婆能值班大公成为新一代通用蓝单体的概率不低，毕竟大公其实NP率也一般般，靠吸血和黄金率抬回来的，但是宝具倍率和自buff就惨不忍睹了。手办老婆前置了3t的宝威，感觉至少输出不会拉跨，最多就是可能有补刀回蓝，作为单体宝具完全可以接受。
+
+
+
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78206#       发表于 2021-3-22 17:58
+
+
+
+ 本帖最后由 Jamaisvu 于 2021-3-22 17:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50701621&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-3-22 17:47</a>
+
+单体不怕，看到哈吉咩酱了吗？感觉手办老婆能值班大公成为新一代通用蓝单体的概率不低，毕竟大公其实NP率 ...</blockquote>
+也对，再瞎JB出玩具卡，FGO的流水就只能靠街机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+毕竟这个环境，再弱的卡是蓝宝具，双C呆也能抬着走，拭目以待吧。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+（话说补刀回蓝这一点，我一直希望以后出个辅助角色，可以给对面上1血战续，方便我鞭尸回NP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  阿提拉  
+##### 78207#       发表于 2021-3-22 18:08
+
+
+
+
+艹，爬个塔居然还出新卡，我还想着三月份刚好可以不氪省钱呢
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78208#       发表于 2021-3-22 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">蓝色单体狂  大公的末日要来了吗
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78209#       发表于 2021-3-22 18:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这蓝卡狂能不能拳打金钻头，脚踢大公成为蓝卡第一单体
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78210#       发表于 2021-3-22 18:22
+
+
+
+<blockquote>引用第78206楼阿提拉于2021-03-22 18:08发表的  :
+
+艹，爬个塔居然还出新卡，我还想着三月份刚好可以不氪省钱呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">常驻，你可以不课等歪
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  战神无敌  
+##### 78211#       发表于 2021-3-22 21:43
+
+
+
+
+浪花女神（指石头打水漂）
+
+
+
+
+
+                                          
