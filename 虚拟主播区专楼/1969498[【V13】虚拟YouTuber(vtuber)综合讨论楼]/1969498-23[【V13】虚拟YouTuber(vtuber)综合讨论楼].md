@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-20 14:41** 
+> ## **本文件最后更新于2021-03-22 04:54** 
 
 
 
@@ -3733,9 +3733,9 @@ Vtuberの活動で本気でゲームを楽しんでいるからこそ製作サ�
 
 
 
-<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_yA2Ps" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_Z9ZZK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_WT2Bs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evt6XLpVcAIQdrB?format=jpg&amp;name=orig" id="aimg_t2R7x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Evto4-9VIAAvCc9?format=jpg&amp;name=orig" id="aimg_It1GM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EvsS4kCUUAAyoHV?format=jpg&amp;name=orig" id="aimg_Dyz7o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 twi：@shu_saku999
 
@@ -29056,6 +29056,511 @@ daruma好像本来同接就挺高的
 
 草草草居然是niji赢了，给面子啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">！
 郡郡摸了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34475#       发表于 2021-3-21 00:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/002746kgqscl4q4ly6ol64.png" referrerpolicy="no-referrer">
+
+
+<strong>ARK | 寝るまで赤OSD回す　その２【にじさんじ:叶】-2.png</strong> (304.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 00:27 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/002746ter26fkri7e97rr7.png" referrerpolicy="no-referrer">
+
+
+<strong>ARK | 寝るまで赤OSD回す　その２【にじさんじ:叶】-1.png</strong> (279.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 00:27 上传
+
+
+
+
+
+
+solo十多次赤OSD及多次矿脉，损失两只回血猪一只南巨，两个12小时窗加2小时实际32小时+耐久...
+
+终于造出来了!!
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34476#       发表于 2021-3-21 09:49
+
+
+
+
+https://youtube.com/channel/UC0lx-LKcvXVSY2fuyNJRIRw
+kvserver这个mc服在英语或西语圈子里很有名吗？能让一个普通底边的关注直接暴涨15倍？
+
+虽然涨了15倍也只有3000<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 34477#       发表于 2021-3-21 15:52
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcly1gorkula99uj20mn0c70u4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 34478#       发表于 2021-3-21 17:14
+
+
+
+
+VtL！！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34479#       发表于 2021-3-21 18:23
+
+
+
+
+V应该没啥关系的消息：东京奥运如期举办，不接待任何国外观众
+
+
+
+
+
+
+
+-----
+
+####  holoan  
+##### 34480#       发表于 2021-3-21 18:36
+
+
+
+
+东京奥运会也学coco搞国民会限？？？？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34481#       发表于 2021-3-21 18:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/184059pvtcfjwcw4rac8jw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210321_183924.jpg</strong> (217.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-21 18:40 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/21/184105n4rpjf9fffz7b7ra.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210321_183910.jpg</strong> (190.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-21 18:41 上传
+
+
+
+
+
+
+ars的生日会场大惨事www
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34482#       发表于 2021-3-21 19:34
+
+
+
+
+偷个字幕组的图
+安洁明天晚上8点  二周年纪念兼新衣服发表
+<img src="https://p.sda1.dev/1/8e31fc9496567562840a529040555029/IMG_CMP_214772989.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34483#       发表于 2021-3-21 19:41
+
+
+
+
+不破和mfmf线下约会吃饭还要po照片炫耀一点都不v！呜呜呜我酸了我也想吃和牛
+
+
+
+
+
+
+
+-----
+
+####  hlazd  
+##### 34484#       发表于 2021-3-21 20:10
+
+
+
+
+发两张照片，不知道潭里有没有来riot这次线下的，今天这风雨是把我整麻了，还好内容还算说得过去
+<img src="https://p.sda1.dev/1/e0f418c9a4ba2b9e6e95bddc1c6a0bfc/IMG_CMP_165322239.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34485#       发表于 2021-3-21 22:31
+
+
+
+
+健屋花那中之人真的是医疗业从业者？
+我开始相信修女中之人真的是修女了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34486#       发表于 2021-3-21 22:51
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-21 22:52 编辑 
+
+sky真的是学医的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 她应该大学还没毕业，在实习那个阶段
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34487#       发表于 2021-3-21 23:24
+
+
+
+
+护士是真护士，农民是真农民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 34488#       发表于 2021-3-22 00:18
+
+
+
+
+JK组没一个JK<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 34489#       发表于 2021-3-22 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50694628&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-3-21 22:31</a>
+健屋花那中之人真的是医疗业从业者？
+我开始相信修女中之人真的是修女了</blockquote>
+我从她会多种语言判断她应该是学医的
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 34490#       发表于 2021-3-22 02:18
+
+
+
+
+那jk一定是jk吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34491#       发表于 2021-3-22 02:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sky谈自己实习工作的那个切片超有真实感的,应该在实习期吧
+https://b23.tv/K5AVHh
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34492#       发表于 2021-3-22 09:08
+
+
+
+
+nrk会成为虹第二，本社第一个上大师的吗
+留给yqqx的时间已经不多了
+
+
+
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 34493#       发表于 2021-3-22 10:01
+
+
+
+ 本帖最后由 哈曼的YY 于 2021-3-22 10:02 编辑 
+
+阿葵这小动画是不是有点细思极恐啊
+
+美大生今天吃什么？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34494#       发表于 2021-3-22 11:33
+
+
+
+
+夸夸应该会比nrk 更快上大师吧，还是单排上的，这含金量比bora还要高了，我前段时间看了一下夸夸单排说实话真挺强的，之前那个野鸡榜排c还是有点可信度
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34495#       发表于 2021-3-22 11:41
+
+
+
+
+大亏那打法也太功利了，主要观赏性太差，折磨王
+换虹的人这么打，早被踩爆了，特别是yqqx
+不过枪力确实上去了，中距离很稳，就是狗斗不行
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 34496#       发表于 2021-3-22 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697123&amp;ptid=1969498" target="_blank">哈曼的YY 发表于 2021-03-22 10:01:45</a>
+阿葵这小动画是不是有点细思极恐啊
+
+美大生今天吃什么？</blockquote>用洗脑伪造成的读心术罢了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 34497#       发表于 2021-3-22 11:58
+
+
+
+
+真要在那种分段打的好看c全场，她那水平确实不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34498#       发表于 2021-3-22 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50698145&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-22 11:41</a>
+大亏那打法也太功利了，主要观赏性太差，折磨王
+换虹的人这么打，早被踩爆了，特别是yqqx
+不过枪力确实上去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你去看看森中和elu是怎么solo上钻的再说
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34499#       发表于 2021-3-22 12:05
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-22 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50698349&amp;ptid=1969498" target="_blank">winda 发表于 2021-3-22 12:02</a>
+那你去看看森中和elu是怎么solo上钻的再说</blockquote>
+上钻和上大师是一回事吗
+主播上大师，枪民观众自然要求大师的水准，但对纯粉丝来说就不会有这样的需求，注重的是努力
+yqqx这种常年apex的，枪民肯定不少，再加上超强的吸anti能力，这么打的话，评论栏真是画美不看
+
+顺便撇撇更屌，更龟地上白金，堪称终极折磨王
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34500#       发表于 2021-3-22 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50698368&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-22 12:05</a>
+上钻和上大师是一回事吗
+主播上大师，枪民观众自然要求大师的水准，但对纯粉丝来说就不会有这样的需求， ...</blockquote>
+yqqx还是免了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">躺了六天回来当7200守门员，顶级丢人。
 
 
 

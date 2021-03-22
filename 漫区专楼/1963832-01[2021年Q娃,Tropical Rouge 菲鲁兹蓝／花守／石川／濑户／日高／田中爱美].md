@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-21 10:47** 
+> ## **本文件最后更新于2021-03-22 04:56** 
 
 
 
@@ -15810,4 +15810,615 @@ q娃小说策划八成是被阉掉 毕竟ss和战队小说没有下文了<img sr
 
 
 
-                    
+
+
+-----
+
+####  蓝色书签  
+##### 873#       发表于 2021-3-21 18:52
+
+
+
+<blockquote>穷且坚强着 发表于 2021-3-21 16:50
+珊瑚第二战就破盾了</blockquote>
+纱绫：破个盾而已，小意思
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 874#       发表于 2021-3-21 19:22
+
+
+
+
+人鱼本集的发言，不知道是要DX3复刻还是继承法Q精神
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 875#       发表于 2021-3-21 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691987&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-21 16:43</a>
+
+人鱼头实在是乐，想出这点子来的家伙真是天才，这集有挺多难度较高的**头，只是说今年实在稳，变身和大招我 ...</blockquote>
+东成西就
+
+
+
+
+
+
+
+-----
+
+####  memo2  
+##### 876#       发表于 2021-3-21 20:29
+
+
+
+
+我可喜欢今年的屑人鱼了，就是flag拉满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 877#       发表于 2021-3-21 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50692601&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-21 18:20</a>
+
+每天睡十一小时的屑人鱼</blockquote>
+典型的小学一年级小朋友睡眠时间
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 878#       发表于 2021-3-21 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50693578&amp;ptid=1963832" target="_blank">memo2 发表于 2021-3-21 20:29</a>
+
+我可喜欢今年的屑人鱼了，就是flag拉满
+
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+不立点FLAG怎么转正啊
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 879#       发表于 2021-3-21 21:17
+
+
+
+
+这集既然提到了人鱼公主的故事，我还在想今年这么欢乐的风格要怎么化用一个悲剧的故事。不过听萝拉那句台词，还有木瓜写的故事，看来将来萝拉成为Q娃的契机应该就是颠覆人鱼为人类牺牲的理念，转而是人鱼和人类的互助
+
+另外木瓜写的故事应该还有伏笔，那支断笔太显眼
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 880#       发表于 2021-3-21 21:57
+
+
+
+
+今年的大招bank最后的小动作+pose真是每个人都可可爱爱，可爱疯了
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 881#       发表于 2021-3-21 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50694035&amp;ptid=1963832" target="_blank">haojie_ma 发表于 2021-3-21 21:17</a>
+这集既然提到了人鱼公主的故事，我还在想今年这么欢乐的风格要怎么化用一个悲剧的故事。不过听萝拉那句台词 ...</blockquote>
+后面个人回的素材
+不过看她这么执着于幻想和真实，八成是写的小说被文学部的人批不现实，太假什么的了吧。但这样子的话不应该还出在文学部的杂志刊物上啊。难道是老妈看到她的小说笑她几岁了还信这种玩意？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 882#       发表于 2021-3-21 22:36
+
+
+
+
+关于这集，我有点在意的一个点是前代光美拯救了人类与人鱼的世界，但她的故事却只在人鱼世界流传。人类世界对人鱼的态度是非现实，虚构的(假药来了)
+有可能是官方封杀了这位英雄的传说，人们用童话的方式来怀念她。毕竟很多神话的背后其实有着各种政治要素。
+又或者这个角色就是条人鱼，海的女儿讲的其实是她的故事。拯救了世界的光美，因为语言不通又或者异族甚至强大的力量而被人类所忌惮。她的功劳被抢走，反派诱惑她恶堕，但她拒绝了，回归海洋。
+而在一个人鱼真实存在的世界，那些有关人鱼的传说是否也该重新考量。比如海妖塞壬，虽然萝拉说他们不会做这种事，但什么事情有绝对呢？说不定可以以人鱼传说作为主线，讲点民俗学的东西，岂不是寓教于乐。
+
+
+
+
+
+
+
+-----
+
+####  kkl12355  
+##### 883#       发表于 2021-3-21 23:08
+
+
+
+
+没人怀疑海洋馆馆长吗？当有人否认人鱼传说时，馆长说可能存在，主角要寻找人鱼资料时，马上送上人鱼粘门票，我觉得她应该知道些什么。再黑的，木瓜的小说在关键点上歪打正着了，只是结果不通，这座城市这片土地上的人的先祖背叛出卖了人鱼。知晓这段黑历史的人，自然要百般打压。
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 884#       发表于 2021-3-21 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50690209&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-21 12:02</a>
+再给你们一次机会，紫还是黄</blockquote>
+我觉得这集的人外女医生干部还蛮色的<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 885#       发表于 2021-3-22 00:32
+
+
+
+
+上一个在q娃入队回扯出安徒生童话的是心跳···
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 886#       发表于 2021-3-22 00:33
+
+
+
+<blockquote>haojie_ma 发表于 2021-3-21 21:17
+这集既然提到了人鱼公主的故事，我还在想今年这么欢乐的风格要怎么化用一个悲剧的故事。不过听萝拉那句台词 ...</blockquote>
+断笔的部分，回忆里疑似是作品被文学部的学姐否定了所以放弃写作。但只是被一个同学否定就如此绝望实在难以理解，只可能是这个学姐非常特别。一之濑先辈木毛说
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 887#       发表于 2021-3-22 00:33
+
+
+
+
+学姐这人物性格和变身招式动作对不上啊，是不是staff没沟通好的结果？
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 888#       发表于 2021-3-22 00:35
+
+
+
+
+说来这集提到人鱼会用歌声引诱船只触礁，而会做这种事的实际上是海妖塞壬，大友们都知道塞壬后来成为了Cure Beat……所以人鱼必然是可以成为光之美少女的！
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 889#       发表于 2021-3-22 00:38
+
+
+
+
+说实话文学部是不给写幻想文章？看着也不像，估计是登上杂志受到了欢迎就被前辈打压<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">还有木瓜看着也是压抑很久了吧，变身之后这么放飞自我. 
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 890#       发表于 2021-3-22 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50692034&amp;ptid=1963832" target="_blank">穷且坚强着 发表于 2021-3-21 16:50</a>
+珊瑚第二战就破盾了</blockquote>
+被吹飞而已，没裂就不算破
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 891#       发表于 2021-3-22 02:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">一之瀬可爱，前辈+地味眼镜娘和变身后反差好评，光线技原来是从耳环放出来的
+珊瑚比想象中还要弱气不少，存在感有点稀薄
+才注意到萝拉手上有鳍我也想摸尾巴
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 892#       发表于 2021-3-22 02:20
+
+
+
+
+另外反派的医生大姐姐魅力值有点高啊www<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+今年召唤怪都魔性得可爱
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 893#       发表于 2021-3-22 07:05
+
+
+
+
+可爱
+<img src="http://wx1.sinaimg.cn/mw690/806a67dbly1gos0ntqhamj20qr0gp1kx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 894#       发表于 2021-3-22 07:39
+
+
+
+
+271对怪的翻译有人质疑了，我因为不是271看的所以完全不知道，“**魔”这是哪个奇葩想出来的？
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 895#       发表于 2021-3-22 08:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50696188&amp;ptid=1963832" target="_blank">待宵 发表于 2021-03-22 07:39:53</a>
+271对怪的翻译有人质疑了，我因为不是271看的所以完全不知道，“**魔”这是哪个奇葩想出来的？ ...</blockquote>具体是啥？我也没看271版本
+
+不过介绍不就是怠惰魔吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 896#       发表于 2021-3-22 08:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691047&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-03-21 14:02:16</a>
+好看的说不出话来，这集还是那么稳，想看下一集</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了，给你们再选一次，黄还是紫，再不行还有鱼。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 897#       发表于 2021-3-22 08:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50696286&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-3-22 08:06</a>
+
+具体是啥？我也没看271版本
+
+
+不过介绍不就是怠惰魔吗</blockquote>
+我也没看爱奇艺版本，但微博上看到了说是译成罢 工 魔。然后说妖魔化罢 工以后小孩看到**的人都觉得是坏蛋云云。。。总之这个翻译是跟原文对不上没错
+
+
+另外借问一下，剧场版除了爱奇艺以外有什么方法看？我在海外没法用，我的几个种子站都没有剧场版的熟肉。。。我指的是治Q的和doremi的。。。怎么都找不到啊
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 898#       发表于 2021-3-22 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50696125&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-22 07:05</a>
+可爱</blockquote>
+比梦川唯更牙疼诶<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 899#       发表于 2021-3-22 09:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50695465&amp;ptid=1963832" target="_blank">二条乃梨子 发表于 2021-3-22 00:32</a>
+上一个在q娃入队回扯出安徒生童话的是心跳···</blockquote>
+快乐王子是王尔德写的
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 900#       发表于 2021-3-22 09:19
+
+
+
+
+我觉得某字幕组的摸鱼怪更有意思点，但是小友应该不知道摸鱼什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vxzms  
+##### 901#       发表于 2021-3-22 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50696425&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-3-22 08:36</a>
+
+我也没看爱奇艺版本，但微博上看到了说是译成罢 工 魔。然后说妖魔化罢 工以后小孩看到**的人都觉得是坏 ...</blockquote>
+治Q剧场熟肉应该是还没做（完）？
+
+
+Doremi剧场BD还没发售，全世界Web现在应该也只有271
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 902#       发表于 2021-3-22 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50696125&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-03-22 07:05:08</a>
+可爱</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">这牙疼吗。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 903#       发表于 2021-3-22 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50695471&amp;ptid=1963832" target="_blank">二条乃梨子 发表于 2021-3-22 00:33</a>
+
+学姐这人物性格和变身招式动作对不上啊，是不是staff没沟通好的结果？</blockquote>
+其实感觉是黄前辈说闷骚，变身后展现出的是她内在天马行空和放飞自我的想象力和创造力，但表现得不大好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 904#       发表于 2021-3-22 11:18
+
+
+
+ 本帖最后由 leleq 于 2021-3-22 11:20 编辑 
+
+木瓜突出个反差萌 某些卡都可以说是恶意卖萌了 我还是喜欢屑人鱼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+今年既然是人鱼主题那就逃不开 海的女儿 怎么再演绎是决定上限的关键
+
+目前来开夏哥是表主角 屑人鱼是里主角 屑人鱼如何成长成一个鉴人鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  是里主线 
+
+说到里主角就的提一下水果了傻子那其实也是里主角和屑人鱼有点像都是被粉主“教育”的对象 最后和罗武以拳 交（这也屏蔽怀疑设置的人xp）心后死然后重生 可谓经典操作 哦还有一个和屑人鱼有点像的被粉主“教育”的里主角雷吉娜……这个操作就过了不过雷吉娜放开牛郎爱落入深渊的镜头还是很美的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 905#       发表于 2021-3-22 12:17
+
+
+
+
+但是那只粉毛说不定是海豹变人啊。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 906#       发表于 2021-3-22 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697890&amp;ptid=1963832" target="_blank">leleq 发表于 2021-3-22 11:18</a>
+木瓜突出个反差萌 某些卡都可以说是恶意卖萌了 我还是喜欢屑人鱼
+
+
+今年既然是人鱼主题那就逃不开 海 ...</blockquote>
+其实目前屑鱼也没做什么出格的事，上周甚至还能嘴炮木瓜，就是皮了点
+最好不要变得太阳光，平时多耍点贱，关键时刻靠谱就行
+
+
+
+
+
+                   
