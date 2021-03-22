@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-20 23:37** 
+> ## **本文件最后更新于2021-03-22 09:45** 
 
 
 
@@ -4728,4 +4728,617 @@ lm期望肯定是低 某些人只是更喜欢做赌/狗
 
 
 
-                                        
+
+
+-----
+
+####  里村紅葉  
+##### 15272#       发表于 2021-3-21 08:56
+
+
+
+
+百六红毛哥足足抽了50连才出虹，我这是赚了还是亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15273#       发表于 2021-3-21 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我今天小号绿毛哥抽了100连 内心是拒绝的
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 15274#       发表于 2021-3-21 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">100连之后就是十连滚粗，真的真实。哎，感觉都没啥下井的欲望，下面两个池子怎么安排的啊
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15275#       发表于 2021-3-21 10:05
+
+
+
+ 本帖最后由 syndrome2032 于 2021-3-21 11:12 编辑 
+
+#到一半出芬了。
+
+这池金骑和人偶选哪个好点
+弄错了，嫂子月底
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15276#       发表于 2021-3-21 10:06
+
+
+
+ 本帖最后由 Sylpheed 于 2021-3-21 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50689437&amp;ptid=1158205" target="_blank">黄昏的轮回 发表于 2021-3-21 09:59</a>
+100连之后就是十连滚粗，真的真实。哎，感觉都没啥下井的欲望，下面两个池子怎么安排的啊 ...</blockquote>
+30号会有个现在一样的月底百6送100连，31号换池出猪猴没白嫖。反正没新东西，又没有目标lm的话不如看猪猴强度再all in，菜逼的话正好省井跳过等新lm了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+反正kmr这么安排转盘不给白嫖新限定我是一点补井欲望都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 15277#       发表于 2021-3-21 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50689473&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-21 10:06</a>
+
+30号会有个现在一样的月底百6送100连，31号换池出猪猴没白嫖。反正没新东西，又没有目标lm的话不如看猪猴 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">好像也是这样比较好，靠着这个月的高强度补贴，情人节扔出去的＃已经基本回收完了。猴猪泳装感觉应该不会太强吧，如果还妇科老男人说不定会忍不住
+
+
+
+
+
+
+
+-----
+
+####  黄昏的轮回  
+##### 15278#       发表于 2021-3-21 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50689471&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-3-21 10:05</a>
+
+#到一半出芬了。
+
+
+这池金骑和人偶选哪个好点</blockquote>
+只说自己使用感受。因为我还没砸土老王所以武器不谈，角色金骑从未上过前排，季限太多了，终突了的人偶还经常客串一下FA选手。不过如果要精进土的话，金骑武器好像还是要用？
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15279#       发表于 2021-3-21 11:25
+
+
+
+
+下午来泳装池，早知道免费抽不如留给下午了
+
+
+
+
+
+
+
+-----
+
+####  12481632  
+##### 15280#       发表于 2021-3-21 14:09
+
+
+
+
+目前4刀火，其他都是2.0方阵。计划3/22后看情况砸裸男或者**。目前周年超还在考虑nmn还是情军，或者是水仇闪。想知道这三个哪个能更明显的改善游戏体验<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  冰原狼  
+##### 15281#       发表于 2021-3-21 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691103&amp;ptid=1158205" target="_blank">12481632 发表于 2021-3-21 14:09</a>
+目前4刀火，其他都是2.0方阵。计划3/22后看情况砸裸男或者**。目前周年超还在考虑nmn还是情军，或者是水仇 ...</blockquote>
+情军明显改变了风队体验，而且是独一无二的
+nmn和泳仇闪其实都和本属神将竞争上岗
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15282#       发表于 2021-3-21 16:49
+
+
+
+
+就那么10连20连的 抽哪个池子不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年这周年是真的没劲，新限定不给嫖，刮刮卡加了耳环每天刮nmb一样
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15283#       发表于 2021-3-21 17:38
+
+
+
+
+刮刮卡全是金月跟共斗豆<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+月底神将池有鸡跟狗吗，想抽
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15284#       发表于 2021-3-21 18:38
+
+
+
+
+现在自发放置CF野拳皇房通过率到底是个什么情况？为什么我又翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15285#       发表于 2021-3-21 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50692314&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-3-21 17:38</a>
+
+刮刮卡全是金月跟共斗豆
+
+月底神将池有鸡跟狗吗，想抽</blockquote>
+除了耗子以外都有，如果买傻必记得先买再井
+
+
+
+
+
+
+
+-----
+
+####  12481632  
+##### 15286#       发表于 2021-3-21 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691573&amp;ptid=1158205" target="_blank">冰原狼 发表于 2021-3-21 15:27</a>
+情军明显改变了风队体验，而且是独一无二的
+nmn和泳仇闪其实都和本属神将竞争上岗 ...</blockquote>
+神将是齐的，那就超情军了。就是还得继续农风龙刀，六龙的蓝箱率是真的想吐。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15287#       发表于 2021-3-22 08:28
+
+
+
+
+今天翻box突然发现有一个挺好看的角色组，是土属性的双人卡，看起来像是姐妹两？
+看起来有个被动是必三连，不知道好不好用
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">gbf新出的角色太多，都不知道用谁好了（因为我很多强力角色都没有）
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15288#       发表于 2021-3-22 08:48
+
+
+
+
+跟楼上一样的疑问，人造人+老男人+小妹组刻印队有前途吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15289#       发表于 2021-3-22 09:18
+
+
+
+
+必三连？赎罪rta？
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15290#       发表于 2021-3-22 10:49
+
+
+
+
+主仆双人组除了必ta还有减防呢....长期并不好用
+
+算是个土拳皇可选角色吧，定位是土mao的替代品，因为有个缺点是斩要2层刻印才能开
+
+之前有个神秘的套路是用嫂子给双人组套即奥，然后双人组先跑1t奥义，然后开1攒两层刻印开斩，但是拿来打拳启动实在太慢了，快一点的水龙根本打不完
+
+后来转用老男人叠刻印效果还凑合
+
+（以上套路都是因为没鸡<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15291#       发表于 2021-3-22 10:51
+
+
+
+
+救命啊，今天开拳皇躺房又翻了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+是我开的姿势不对吗？5个暗拳皇就能开了吧？要限制等级吗？有190几的
+
+每次都出无神论，不过也没人退，然后5分钟以后打了一会就陆续退了，第一次打到30%，第二次50%<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15292#       发表于 2021-3-22 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697610&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-22 10:51</a>
+救命啊，今天开拳皇躺房又翻了
+
+是我开的姿势不对吗？5个暗拳皇就能开了吧？要限制等级吗？有190几的 ...</blockquote>
+我从打拳皇车的群友那道听途说野人通过率也就7成左右，就跟自发放置的正常车差不多通过率。
+这游戏的傻屌社交系统其实很影响野**皇车的沟通，一人翻了全部翻，正常解试炼的斯巴达来人快不说，碰到大爹只要不乱送是更容易过的。
+可以试试放置找正常解试炼的，有db能解7811就可以开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  血色秋叶  
+##### 15293#       发表于 2021-3-22 12:08
+
+
+
+
+白嫖到了第八把d剑
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15294#       发表于 2021-3-22 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697752&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-22 11:04</a>
+
+我从打拳皇车的群友那道听途说野人通过率也就7成左右，就跟自发放置的正常车差不多通过率。
+
+这游戏的傻屌 ...</blockquote>
+行吧，经常听人说拳皇车基本不可能翻，还以为是我的问题。等下午开官方挂了自己打吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  12481632  
+##### 15295#       发表于 2021-3-22 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697610&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-22 10:51</a>
+救命啊，今天开拳皇躺房又翻了
+
+是我开的姿势不对吗？5个暗拳皇就能开了吧？要限制等级吗？有190几的 ...</blockquote>
+减半期间，什么牛鬼蛇神都有。我最近的自发大巴都有好几次到最后要自己修车的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 15296#       发表于 2021-3-22 13:30
+
+
+
+
+人造人赎罪组用过一次...自身没倍率的角色真的不大行...
+
+不知道泰坦会不会好用一点
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15297#       发表于 2021-3-22 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50699121&amp;ptid=1158205" target="_blank">windlikeman 发表于 2021-3-22 13:30</a>
+
+人造人赎罪组用过一次...自身没倍率的角色真的不大行...
+
+不知道泰坦会不会好用一点 ...</blockquote>
+土已经完全是限定的形状了....天人都快被挤掉了
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15298#       发表于 2021-3-22 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50699384&amp;ptid=1158205" target="_blank">iqbsh38 发表于 2021-3-22 13:56</a>
+ 土已经完全是限定的形状了....天人都快被挤掉了</blockquote>
+天人算了后排的资格都没有
+mao 泳盾 鸡
+跨属割草突芬 泳盾 鸡
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15299#       发表于 2021-3-22 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50698775&amp;ptid=1158205" target="_blank">12481632 发表于 2021-3-22 12:52</a>
+
+减半期间，什么牛鬼蛇神都有。我最近的自发大巴都有好几次到最后要自己修车的
+
+
+—— 来自 samsung ...</blockquote>
+好吧，先试试官方挂，等减半结束了再试试<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+其实昨天也想到这个可能了，专门找了上班时间人少的时候，没想到还是翻了
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15300#       发表于 2021-3-22 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50698420&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-22 12:12</a>
+
+行吧，经常听人说拳皇车基本不可能翻，还以为是我的问题。等下午开官方挂了自己打吧 ...</blockquote>
+有人专门在野外炸拳皇车的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15301#       发表于 2021-3-22 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50699780&amp;ptid=1158205" target="_blank">吾乃啊噗 发表于 2021-3-22 14:37</a>
+
+有人专门在野外炸拳皇车的</blockquote>
+这个倒应该不是，专门炸的不会给你等5分钟吧
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15302#       发表于 2021-3-22 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50699406&amp;ptid=1158205" target="_blank">404489039 发表于 2021-3-22 13:58</a>
+
+天人算了后排的资格都没有
+
+mao 泳盾 鸡
+
+跨属割草突芬 泳盾 鸡</blockquote>
+不 打超短期老三还是不错的 刚看了个3T单人水龙的泰坦宇宙盘 割草没问题
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 15303#       发表于 2021-3-22 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50700518&amp;ptid=1158205" target="_blank">iqbsh38 发表于 2021-3-22 15:57</a>
+
+不 打超短期老三还是不错的 刚看了个3T单人水龙的泰坦宇宙盘 割草没问题</blockquote>
+但是话又说回来了，花了这么多资源做个割草角，真的不太值...
+
+
+
+
+
+                                       
