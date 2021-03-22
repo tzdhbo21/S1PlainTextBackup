@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-21 15:41** 
+> ## **本文件最后更新于2021-03-22 11:36** 
 
 
 
@@ -5832,7 +5832,16 @@ syl，狐狸不开台是不是为了方面盯着夸宝打啊
 ####  OldGlory  
 ##### 4817#       发表于 2021-1-11 23:05
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50005899&amp;ptid=1947500" target="_blank">面具13 发表于 2021-1-11 22:59</a>
+
+我反正心态很正，夸宝有不足，运气也不算最佳，输了就输了，也不是输不起。但是狐狸全村唯一一个不开台，两 ...</blockquote>
+小声bb一下：巧可也没开台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -9189,7 +9198,14 @@ syl  这分镜有点意思啊，燃的
 ####  OldGlory  
 ##### 4994#       发表于 2021-1-27 13:24
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+这种东西你去盯着色指定都比盯个作监靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -11285,7 +11301,14 @@ F ...</blockquote>
 ####  OldGlory  
 ##### 5111#       发表于 2021-2-17 19:19
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+“中国送的”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -18679,4 +18702,513 @@ apex4.png
 
 
 
-                
+
+
+-----
+
+####  面具13  
+##### 5496#       发表于 2021-3-21 23:52
+
+
+
+
+做着四连满分鸡的梦
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5497#       发表于 2021-3-22 00:08
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-22 03:29 编辑 
+
+刚好9300<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回到钻2   p2020用的越来越好了    9123
+
+
+
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 5498#       发表于 2021-3-22 00:13
+
+
+
+
+这么多踩是咋回事啊
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5499#       发表于 2021-3-22 00:35
+
+
+
+
+一群吃莱猪和滞销凤梨的蛙经过，留下的脚印呗
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5500#       发表于 2021-3-22 00:46
+
+
+
+ 本帖最后由 Maonpuyo 于 2021-3-22 01:11 编辑 
+
+已经是脑死状态了
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5501#       发表于 2021-3-22 02:08
+
+
+
+
+驾驶员失去意识，启动傀儡系统
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 5502#       发表于 2021-3-22 02:14
+
+
+
+
+从打枪卖队友的角度喷一喷就算了。怎么还有蛙蛙直球黑屁的，是前crew化身👿了还是反串暂且蒙鼓
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 5503#       发表于 2021-3-22 02:16
+
+
+
+
+直播开始于10小时前。草草草怎么都这么喜欢apex耐久啊我要疯了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5504#       发表于 2021-3-22 02:18
+
+
+
+
+怎么越来越迷信，之前的华生算是治好了，这激光笔因为刚才几把吃瘪又迷信上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5505#       发表于 2021-3-22 02:29
+
+
+
+
+激光笔拿了4个人头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5506#       发表于 2021-3-22 02:34
+
+
+
+
+激光笔没啥不好的啊 养甲又方便打得又准
+
+就是最后决赛圈要换掉的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5507#       发表于 2021-3-22 03:05
+
+
+
+
+这两个野生挂壁队友就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Siberian-Cat  
+##### 5508#       发表于 2021-3-22 03:20
+
+
+
+
+“玩Apex真TM开心😃”
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5509#       发表于 2021-3-22 03:21
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-22 07:18 编辑 
+
+才想着至少今天狙击的人少了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  私下玩掉到8998了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  濡鸦之羽_  
+##### 5510#       发表于 2021-3-22 03:26
+
+
+
+
+哈哈apex都看不下去自杀了，不过也确实到极限了
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5511#       发表于 2021-3-22 03:31
+
+
+
+
+又是窥屏又是挂哥，很难不4000+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5512#       发表于 2021-3-22 08:45
+
+
+
+ 本帖最后由 winda 于 2021-3-22 08:48 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/084314hsjh4n2yauukj4pp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210322_083638.jpg</strong> (184.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-22 08:43 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/22/084321rqzjq7xhjxxzaqjv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210322_083626.jpg</strong> (173.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-22 08:43 上传
+
+
+
+
+
+
+虽然两边同时在solo下分，但大亏还是比big star唯一大师，solo钻二下分仔reid好多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可封个硬实力大师。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5513#       发表于 2021-3-22 15:04
+
+
+
+
+开始排位（掉分)了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5514#       发表于 2021-3-22 18:24
+
+
+
+
+直播时间比想象中晚的多，可能已经做好耐久到结算时间的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5515#       发表于 2021-3-22 18:42
+
+
+
+ 本帖最后由 バーチャルS1er 于 2021-3-22 18:44 编辑 
+
+深夜人越少越容易被阻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，挂壁蛆连窥屏都不用看的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5516#       发表于 2021-3-22 18:46
+
+
+
+
+说起来大亏没碰到跳脸的挂吗？
+上次bora深夜耐久的时候直接被挂壁定点狙击了，杀完还到评论栏跳脸，没办法只能下播
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5517#       发表于 2021-3-22 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702117&amp;ptid=1947500" target="_blank">poipanchao 发表于 2021-3-22 18:46</a>
+
+说起来大亏没碰到跳脸的挂吗？
+
+上次bora深夜耐久的时候直接被挂壁定点狙击了，杀完还到评论栏跳脸，没办法 ...</blockquote>
+不是每次上钻的时候都有么，不过评论跳脸倒是没看到过，可能是评论速度太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5518#       发表于 2021-3-22 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702143&amp;ptid=1947500" target="_blank">バーチャルS1er 发表于 2021-3-22 18:50</a>
+不是每次上钻的时候都有么，不过评论跳脸倒是没看到过，可能是评论速度太快了吧 ...</blockquote>
+定点狙击怎么上的分，挡什么都没用啊
+直接大厅看你状态追击的，然后直接过来杀你
+躲毒里都追进来（透视）
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5519#       发表于 2021-3-22 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702167&amp;ptid=1947500" target="_blank">poipanchao 发表于 2021-3-22 18:53</a>
+
+定点狙击怎么上的分，挡什么都没用啊
+
+直接大厅看你状态追击的，然后直接过来杀你
+
+躲毒里都追进来（透视） ...</blockquote>
+所以大亏档大厅画面、挡降落画面了啊，不过深夜玩的人少了这效果也就差了
+
+
+还有一个挡小地图不过这个的作用只能防止那些买号的憨憨来送死羞辱
+
+和告诉一般观众我被狙的很惨的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5520#       发表于 2021-3-22 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702277&amp;ptid=1947500" target="_blank">バーチャルS1er 发表于 2021-3-22 19:08</a>
+所以大亏档大厅画面、挡降落画面了啊，不过深夜玩的人少了这效果也就差了
+
+
+还有一个挡小地图不过这个的作 ...</blockquote>
+大厅不是说这个意思
+好像是高级点的挂壁可以通过别的手段看到你有没有排
+但是挡降落确实有用
+
+今晚好像ras那边被恶心死了，怕不是挂壁盛宴
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5521#       发表于 2021-3-22 19:29
+
+
+
+ 本帖最后由 バーチャルS1er 于 2021-3-22 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702326&amp;ptid=1947500" target="_blank">poipanchao 发表于 2021-3-22 19:15</a>
+
+大厅不是说这个意思
+
+好像是高级点的挂壁可以通过别的手段看到你有没有排
+
+但是挡降落确实有用</blockquote>
+透视挂一般都可以看玩家ID名的，FPS挂壁传统了
+
+
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5522#       发表于 2021-3-22 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702117&amp;ptid=1947500" target="_blank">poipanchao 发表于 2021-3-22 18:46</a>
+
+说起来大亏没碰到跳脸的挂吗？
+
+上次bora深夜耐久的时候直接被挂壁定点狙击了，杀完还到评论栏跳脸，没办法 ...</blockquote>
+昨天最后就碰到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               
