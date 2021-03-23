@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 11:36** 
+> ## **本文件最后更新于2021-03-23 12:55** 
 
 
 
@@ -19211,4 +19211,538 @@ apex4.png
 
 
 
-               
+
+
+-----
+
+####  面具13  
+##### 5523#       发表于 2021-3-22 20:37
+
+
+
+ 本帖最后由 面具13 于 2021-3-22 21:04 编辑 
+
+8839了，应该没有奇迹了
+
+
+加延迟了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5524#       发表于 2021-3-22 21:24
+
+
+
+[https://chrome.google.com/websto ... bdpdmejbajkll?hl=ja](https://chrome.google.com/webstore/detail/chat-selector-for-youtube/elgbmlibcejchmmfkngbdpdmejbajkll?hl=ja) 评论栏过滤插件 （注意这插件只能过滤评论栏，对弹幕插件没用）
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5525#       发表于 2021-3-22 21:37
+
+
+
+
+尽人事听天命<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5526#       发表于 2021-3-22 21:57
+
+
+
+
+感觉不用担心上没上大师之后藏猫猫也挺有意思的
+
+如果没有挂的话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5527#       发表于 2021-3-22 22:12
+
+
+
+
+今晚肉眼可见地决策变得激进了。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5528#       发表于 2021-3-22 22:14
+
+
+
+
+还有人刷差评啊，之前开始20多分钟的时候看到800多差评，开始60分钟反而只有200多差评了，看来是被ban掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5529#       发表于 2021-3-22 22:14
+
+
+
+
+这减队速度 感觉是换港服了
+
+
+
+
+
+
+
+-----
+
+####  星の守  
+##### 5530#       发表于 2021-3-22 22:15
+
+
+
+
+你在哪里看的？我这里是500多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5531#       发表于 2021-3-22 22:21
+
+
+
+
+可惜了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5532#       发表于 2021-3-22 22:21
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-23 00:06 编辑 
+
+差点啊 今天第一次加分  结束时8682，明天有1318分要拿
+
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5533#       发表于 2021-3-22 22:22
+
+
+
+
+差点又苟成一鸡了，可惜可惜
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 5534#       发表于 2021-3-22 22:23
+
+
+
+
+这把打的可以了，希望是个好的开始
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5535#       发表于 2021-3-22 22:23
+
+
+
+
+今晚打得好的话还能吸一波低民度的粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5536#       发表于 2021-3-22 22:54
+
+
+
+ 本帖最后由 Kanchiki 于 2021-3-22 23:21 编辑 
+
+这波知道背后头顶有狙架着了还平地散步是真的看不懂……
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5537#       发表于 2021-3-22 22:57
+
+
+
+ 本帖最后由 面具13 于 2021-3-22 23:34 编辑 
+
+流鼻血了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+kill move要来了，该换回散弹枪了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5538#       发表于 2021-3-22 23:23
+
+
+
+
+这赛季快完了、这不演的挂壁一下子多起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5539#       发表于 2021-3-22 23:41
+
+
+
+
+今晚播一会儿就溜
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 5540#       发表于 2021-3-23 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不播可惜了，这几天一直看夸夸睡觉的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5541#       发表于 2021-3-23 00:19
+
+
+
+
+我看比夸宝强好多好多的全季猎杀大佬也在单排钻2苦战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5542#       发表于 2021-3-23 00:57
+
+
+
+ 本帖最后由 Kanchiki 于 2021-3-23 01:41 编辑 
+
+我看的猎杀和大师组排都在苦战上大师呢 播了10个小时了还在钻1 哎哟卧槽 这主播还是个crew
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5543#       发表于 2021-3-23 01:10
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-23 08:06 编辑 
+
+打了一场掉到8644了，已经在钻2的边缘了    成功触底反弹，回到8776  醒来后发现半夜上分排到其他apex直播的vtuber了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://www.youtube.com/watch?v=aCHRtCDSEPE之前是大师，现在也是在单排大师挑战。还在直播，不过推上有截图。才发现开了直播回放，在大约6小时50分左右排到了。现在9113  
+
+
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5544#       发表于 2021-3-23 06:05
+
+
+
+
+9119了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 5545#       发表于 2021-3-23 08:12
+
+
+
+
+原来排到白雪了啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5546#       发表于 2021-3-23 13:22
+
+
+
+ 本帖最后由 面具13 于 2021-3-23 14:17 编辑 
+
+排到reid还吃鸡了啊，被人家c了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝贵的202分
+
+
+起床后掉了130分左右。分又回来了
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5547#       发表于 2021-3-23 13:37
+
+
+
+
+最尬的是这路人给reid打招呼，无视夸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5548#       发表于 2021-3-23 15:04
+
+
+
+
+要重回钻1还是挺困难啊，刚才最近的时候就差100多点。
+
+
+syl，《我推的孩子》要是以后动画化的话，要是女主角中cv有小水或是佐仓，算不算实质梦幻联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5549#       发表于 2021-3-23 19:17
+
+
+
+
+现在9102，感觉直播前打不到钻1大师大概没机会了，离结算时间只有5个小时了。syl,男主阿库娅请让松冈来配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5550#       发表于 2021-3-23 19:56
+
+
+
+
+男主内山辉昂比较适合
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 5551#       发表于 2021-3-23 19:58
+
+
+
+
+这上上下下的年纪大了受不了这刺激
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5552#       发表于 2021-3-23 20:14
+
+
+
+
+草 传世经典 我的名字叫…！重伤倒地
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5553#       发表于 2021-3-23 20:21
+
+
+
+
+刚说完就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5554#       发表于 2021-3-23 20:40
+
+
+
+ 本帖最后由 Maonpuyo 于 2021-3-23 20:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mark一下，30min这把，决策依旧稀碎，侧面一分钟前就被偷了几枪，看见正面倒人直接开大冲，你不被劝谁被劝
+
+
+
+
+
+              
