@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-23 11:40** 
+> ## **本文件最后更新于2021-03-23 17:06** 
 
 
 
@@ -14196,4 +14196,514 @@ https://www.youtube.com/embed/-8CbNDsn_cI
 
 
 
-                      
+
+
+-----
+
+####  rosevalley46  
+##### 11314#       发表于 2021-3-23 19:43
+
+
+
+
+这新歌直接一个麻的全
+
+看在估计播放量会比较好看的面子上点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11315#       发表于 2021-3-23 19:50
+
+
+
+
+所以bgm大确认是mix的问题了？三人合唱的话曲子三人都有听的吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11316#       发表于 2021-3-23 20:01
+
+
+
+ 本帖最后由 路人庚 于 2021-3-23 20:02 编辑 
+
+谁知道呢，昨天的goodbye宣言不就挺好的
+
+
+难道会存在特地为这种在小号上发的翻唱曲子换个mix的可能性么（
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11317#       发表于 2021-3-23 22:05
+
+
+
+
+25号11点老四人桃铁
+
+这玩意新鲜劲退潮多久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 11318#       发表于 2021-3-23 22:40
+
+
+
+
+刚听了几秒三姨一体  md这声音后期调的怎么这么阴间  就很闷的感觉。。。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11319#       发表于 2021-3-23 22:49
+
+
+
+ 本帖最后由 笋狐 于 2021-3-23 22:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅小姐在康BML的你麻...能奶一个再续前缘吗（ゆめらなば～）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11320#       发表于 2021-3-23 22:50
+
+
+
+
+问就是个人喜好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+咱能不贴贴嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11321#       发表于 2021-3-23 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">续，都可以续，但如果可以最好别在阿b续
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11322#       发表于 2021-3-23 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么还有人没睡醒的
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11323#       发表于 2021-3-23 22:53
+
+
+
+
+续了又给连体人安排上粉色败犬卷土重来的剧情，别了吧
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11324#       发表于 2021-3-23 22:55
+
+
+
+ 本帖最后由 笋狐 于 2021-3-23 22:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">咋都默认阿B，就不能是你麻TC或者梅小姐404直播唠嗑的时候随口透露的那种：“最近啊，久违地和某个熟人去吃叙叙苑了呢，balabala....”展开吗，玩梗也就罢了，不要把魔怔贴贴人的脑补当成常驻设定啊kora（恼）
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11325#       发表于 2021-3-23 22:57
+
+
+
+
+续个粉色败犬趁虚而入，续个白雪大胜利，续个holo成功回旋再续前缘，败犬终是败犬
+
+能不玩这套嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11326#       发表于 2021-3-23 22:58
+
+
+
+
+草了，今天盒限居然是godfield，nmd亏了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11327#       发表于 2021-3-23 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50714030&amp;ptid=1973472" target="_blank">深渊萃取 发表于 2021-3-23 22:53</a>
+
+续了又给连体人安排上粉色败犬卷土重来的剧情，别了吧</blockquote>
+已经有哈哈↑↓→出现了,晚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11328#       发表于 2021-3-23 23:03
+
+
+
+
+然而你圈就是逃不出那几个梗，雪小姐快看到咩的时候弹幕就梗刷屏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还好如今刷哈↑哈↓的没几个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11329#       发表于 2021-3-23 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一时间我甚至想不到那帮弹幕会刷什么正常的东西（也许是我的成见有点深
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11330#       发表于 2021-3-23 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50714207&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-3-23 23:14</a>
+
+一时间我甚至想不到那帮弹幕会刷什么正常的东西（也许是我的成见有点深 ...</blockquote>
+就是正常的\mea/顺带几个刷梗和梗警察而已，弹幕环境还算正常
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|原来如此|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11331#       发表于 2021-3-23 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">沃日，吉祥三宝那合唱耳机没调声音点进去这开头bgm震得我耳朵疼
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11332#       发表于 2021-3-23 23:58
+
+
+
+
+你咩姐最后一把godfield怪不得一直在祈祷，原来是攒了10个左右防具合起来七八十的防御<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这运气也是没谁了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11333#       发表于 2021-3-23 23:58
+
+
+
+
+那歌我甚至没能听完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+梅小姐可以的,大莱莱富婆谁不爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11334#       发表于 2021-3-24 00:05
+
+
+
+
+梅小姐那的p粉竟然没搞事 能处！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11335#       发表于 2021-3-24 00:05
+
+
+
+ 本帖最后由 A2014720 于 2021-3-24 00:26 编辑 
+
+我听说白雪那边明显对新时代更热情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们天狗就在这嗯蹭，能不打扰别人好好发展嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11336#       发表于 2021-3-24 00:16
+
+
+
+
+阿b日v按照外面的说法不管新时代v还是收租人，都是迟早要被国V橄榄的，还什么新时代热情，打扰什么发展<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11337#       发表于 2021-3-24 00:24
+
+
+
+
+大概是很多新时代人醒悟了 知道国v更符合他们的要求 不会在去骚扰yhm了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11338#       发表于 2021-3-24 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50714093&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-3-23 23:01</a>
+
+已经有哈哈↑↓→出现了,晚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">历史又在重演
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11339#       发表于 2021-3-24 00:28
+
+
+
+
+我只是有点烦明面上没互动粉丝帮忙贴贴的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+这么爱贴，你们怎么不找家主去呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+战国的大名当了小丑看不上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11340#       发表于 2021-3-24 00:47
+
+
+
+
+家主在的时候和咩也没有贴贴的氛围啊，毕竟这两人联动给人留下的印象只有怪叫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11341#       发表于 2021-3-24 01:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来的形象还行，现在你是想吃烤全羊吗..最重要的是你咩姐和mega姐贵没线下buff啊（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11342#       发表于 2021-3-24 01:02
+
+
+
+
+丘丘梅小姐赏口饭吃吧，续，都可以续，阿b需要一个meaqua的代替品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
