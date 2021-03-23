@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 10:40** 
+> ## **本文件最后更新于2021-03-23 11:40** 
 
 
 
@@ -13734,4 +13734,466 @@ B站居然也一起发了，<img src="https://static.saraba1st.com/image/smiley/
 
 
 
-                       
+
+
+-----
+
+####  路人庚  
+##### 11286#       发表于 2021-3-22 18:47
+
+
+
+
+看样子像是事先没去联系版权结果被原p主转推引用回复了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11287#       发表于 2021-3-22 18:49
+
+
+
+
+这算钓鱼嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11288#       发表于 2021-3-22 18:49
+
+
+
+
+姨只能驾驭以前的废萌曲子了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 11289#       发表于 2021-3-22 18:52
+
+
+
+
+三个姨<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11290#       发表于 2021-3-22 19:03
+
+
+
+
+https://b23.tv/5cgEOV
+
+最近这类视频挺多的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道外人咋看的，我这种在粉丝群体里待久的看着还行（虽然1819那点事确实不是能快速讲完的），懒得说以前的事了，现在就当个小主播等死吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11291#       发表于 2021-3-22 19:22
+
+
+
+
+说起来她当初开副频道除了备用就是把一些版权麻烦的游戏和翻唱扔上去吧
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11292#       发表于 2021-3-22 19:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这截图把我吓到了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11293#       发表于 2021-3-22 19:26
+
+
+
+
+不如看吉祥三宝
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11294#       发表于 2021-3-22 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">夕阳红
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11295#       发表于 2021-3-22 20:27
+
+
+
+ 本帖最后由 A2014720 于 2021-3-22 20:29 编辑 
+
+https://www.youtube.com/embed/-8CbNDsn_cI
+
+收录试听
+<img src="https://p.sda1.dev/1/0dce3d5363620c3849fde5c31e69290a/-1c593b00376c14fd.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11296#       发表于 2021-3-22 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">不错
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 11297#       发表于 2021-3-22 21:10
+
+
+
+
+好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11298#       发表于 2021-3-22 22:22
+
+
+
+
+不错
+
+
+
+
+
+
+
+-----
+
+####  汇聚群光  
+##### 11299#       发表于 2021-3-23 00:17
+
+
+
+
+三位姨的后辈们也要投稿合唱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 11300#       发表于 2021-3-23 04:12
+
+
+
+
+请错人了还行 笑出猪叫
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 11301#       发表于 2021-3-23 12:21
+
+
+
+
+不错
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11302#       发表于 2021-3-23 13:22
+
+
+
+ 本帖最后由 A2014720 于 2021-3-23 13:24 编辑 
+
+昨天翻唱还真挺不错的，这人真是浪费啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+小小的期待一下晚上三位姨的合唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11303#       发表于 2021-3-23 15:17
+
+
+
+
+【のりプロ公式 转推】
+内容：RT @beppy_manager: 財布を忘れたけどモバイルSuicaのおかげで何とかなりました☺️
+▼
+・犬山たまき🐶全員集合！伊東家座談会💖神楽めあさんch動画公開💖
+・逢魔きらら👿クレイジー英語クイズで腹筋崩壊でちゅ💖
+・夢乃リリス🏩🆚リスナー画力対よろ卍💖犬山たまきc…
+时间：2021-03-23 14:59:28 UTC+08:00
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11304#       发表于 2021-3-23 15:32
+
+
+
+
+看这排版还以为是mea也要搞伊东家座谈会（然而实际上大概想说的就是晚上的三人联动曲
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 11305#       发表于 2021-3-23 19:04
+
+
+
+
+看到mix就觉得不妙，果然又听不清人声（
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11306#       发表于 2021-3-23 19:04
+
+
+
+
+这三个人捏声线也太姨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11307#       发表于 2021-3-23 19:05
+
+
+
+
+三姨卖萌，熟悉的超大bgmmix
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 11308#       发表于 2021-3-23 19:06
+
+
+
+
+太姨了太姨了这仨
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11309#       发表于 2021-3-23 19:09
+
+
+
+
+太姨了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 11310#       发表于 2021-3-23 19:11
+
+
+
+
+一开口我就笑出声了，听个乐
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 11311#       发表于 2021-3-23 19:14
+
+
+
+
+有点喜欢姨的感觉了！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11312#       发表于 2021-3-23 19:40
+
+
+
+
+三个立绘拉近了看还是画的挺精细的
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 11313#       发表于 2021-3-23 19:40
+
+
+
+
+草，刚看到PV，这雅姿兰大眼睛
+
+
+
+
+
+                      
