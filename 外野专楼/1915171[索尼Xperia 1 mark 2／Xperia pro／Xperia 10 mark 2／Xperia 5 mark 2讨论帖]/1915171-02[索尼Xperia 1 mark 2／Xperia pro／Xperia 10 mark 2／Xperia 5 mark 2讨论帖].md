@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-19 11:41** 
+> ## **本文件最后更新于2021-03-23 07:36** 
 
 
 
@@ -20076,4 +20076,578 @@ launcher的动画过渡效果多了很多
 
 
 
-                
+
+
+-----
+
+####  囧面超人  
+##### 2492#       发表于 2021-3-19 20:51
+
+
+
+
+无码兔国行升级了11，geekbench5跑分不能看，单核700+多核1900+
+
+
+
+
+
+
+
+-----
+
+####  wizardasd  
+##### 2493#       发表于 2021-3-20 00:57
+
+
+
+
+应用宝太恶心了
+怎么能把之前那个阉割版市场弄回来啊……
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wenze  
+##### 2494#       发表于 2021-3-20 02:03
+
+
+
+<blockquote>wizardasd 发表于 2021-3-20 00:57
+应用宝太恶心了
+
+怎么能把之前那个阉割版市场弄回来啊……
+</blockquote>
+问问看有没有人备份了安装包吧，之前1马克兔更新时就有人备份
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2495#       发表于 2021-3-20 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50678890&amp;ptid=1915171" target="_blank">囧面超人 发表于 2021-3-19 20:51</a>
+无码兔国行升级了11，geekbench5跑分不能看，单核700+多核1900+</blockquote>
+那就是依旧没修复了……gg
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2496#       发表于 2021-3-20 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677982&amp;ptid=1915171" target="_blank">andychen 发表于 2021-3-19 19:16</a>
+国行刚更新了，升完第一时间吧应用宝卸载了
+性能方面跑了下我常玩的AGA和明日方舟，帧数表现都是正常的
+lau ...</blockquote>
+翔移11的性能调度问题仅限CPU，如果是吃GPU的游戏，其实没有影响。
+
+geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  zzzeven  
+##### 2497#       发表于 2021-3-20 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50678890&amp;ptid=1915171" target="_blank">囧面超人 发表于 2021-3-19 20:51</a>
+无码兔国行升级了11，geekbench5跑分不能看，单核700+多核1900+</blockquote>
+翔移好差。。。
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2498#       发表于 2021-3-20 11:39
+
+
+
+
+目前看来我观望果然没错啊
+
+
+
+
+
+
+
+-----
+
+####  KayoAiko  
+##### 2499#       发表于 2021-3-20 18:54
+
+
+
+
+看來我沒升級11是對的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-AT72, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  scstriker  
+##### 2500#       发表于 2021-3-20 19:11
+
+
+
+
+我也想要个阉割版的应用宝
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 2501#       发表于 2021-3-20 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685686&amp;ptid=1915171" target="_blank">KayoAiko 发表于 2021-3-20 18:54</a>
+
+看來我沒升級11是對的
+
+
+— from Sony XQ-AT72, Android 10 of S1 Next Goose v2.1.2</blockquote>
+1ii没这问题，不过也没啥必须升的优点
+
+
+
+
+
+
+
+-----
+
+####  sdanss  
+##### 2502#       发表于 2021-3-22 08:08
+
+
+
+
+有啥手感好点的5 ii的前膜和壳子。
+
+这次5 ii感觉好脆弱，不敢裸奔了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2503#       发表于 2021-3-22 17:44
+
+
+
+
+软件版本：
+
+55.2.A.2.89
+
+主要更新内容：
+
+1. Andriod11升级.
+
+    (1) 屏幕录制功能.
+
+    (2) 可做外部监视器使用功能.
+
+    (3) 媒体控制选择功能.
+
+    (4) 节电优能功能适配，升级后请在节电优能应用主界面关掉“优化所有应用”开关再开启一下，确保功能生效.
+
+2. Wifi兼容性改进.
+
+3. 升级后系统稳定性改进.
+
+4. 相册问题改进.
+
+
+
+
+
+
+
+-----
+
+####  Vicarious  
+##### 2504#       发表于 2021-3-23 02:20
+
+
+
+
+上手好几天了
+感觉一个隐藏优点是3.5耳机口的输出非常不错
+关掉音乐选项里的AI恢复和杜比音效后，感觉一耳朵比我上一台手机（S10）好
+
+比起spkm的3.5口感觉也不输多少（当然众所周知艾利和的3.5很菜）
+
+至少是千元级别播放器的水平
+
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  みかこし  
+##### 2505#       发表于 2021-3-23 08:57
+
+
+
+
+1ii，不知道是新版本的bug还是以前就有，用多窗口打开的app有几率之后打开时会崩溃，并且不清除数据就再也无法打开，怀疑可能是分辨率相关的bug？
+
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2506#       发表于 2021-3-23 09:24
+
+
+
+<blockquote>月神侠 发表于 2021-3-22 17:44
+软件版本：
+
+55.2.A.2.89
+
+主要更新内容：
+</blockquote>
+国行1用了半天还成，但第一件事就是卸载新增的流氓商店和流氓浏览器…
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2507#       发表于 2021-3-23 09:25
+
+
+
+<blockquote>Vicarious 发表于 2021-3-23 02:20
+上手好几天了
+
+感觉一个隐藏优点是3.5耳机口的输出非常不错
+
+关掉音乐选项里的AI恢复和杜比音效后，感觉一耳 ...</blockquote>
+是，这次 1 II 索尼对耳机口专门做过优化，比之前 USB 音频的噪音减少9九成
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2508#       发表于 2021-3-23 09:26
+
+
+
+<blockquote>みかこし 发表于 2021-3-23 08:57
+1ii，不知道是新版本的bug还是以前就有，用多窗口打开的app有几率之后打开时会崩溃，并且不清除数据就再也 ...</blockquote>
+多窗口很多时候要看程序本身写的是否完备，有些程序本身就没考虑很多，就容易各种问题…
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2509#       发表于 2021-3-23 09:41
+
+
+
+<blockquote>leystage 发表于 2021-3-23 09:24
+国行1用了半天还成，但第一件事就是卸载新增的流氓商店和流氓浏览器…</blockquote>
+招行掌上生活在 Android 11 无法启动 Orz
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 2510#       发表于 2021-3-23 09:45
+
+
+
+
+今天不知道怎么回事，滴滴和京东还有贴吧都无故闪退，play和应用商店下载的都不行
+
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 2511#       发表于 2021-3-23 09:48
+
+
+
+<blockquote>leystage 发表于 2021-3-23 09:41
+招行掌上生活在 Android 11 无法启动 Orz</blockquote>
+清除数据无效，重装后解决。
+
+唉… 掌上生活属于比较流氓的软件之一，各种权限和后台和无意义的安全措施…
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 2512#       发表于 2021-3-23 09:55
+
+
+
+
+重新下载了一遍之后还是闪退。明明我第一时间升级的11之前没问题啊，不过11确实没10好用
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2513#       发表于 2021-3-23 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706803&amp;ptid=1915171" target="_blank">iceprince10 发表于 2021-3-23 09:45</a>
+
+今天不知道怎么回事，滴滴和京东还有贴吧都无故闪退，play和应用商店下载的都不行
+
+
+----发送自 Sony XQ-AT7 ...</blockquote>
+上面几个安卓11闪退的几个app你们试试关闭位置权限，刚更新11的时候是要这样才能进，不过最新版的11已经可以开位置权限了
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 2514#       发表于 2021-3-23 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707118&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-3-23 10:14</a>
+
+上面几个安卓11闪退的几个app你们试试关闭位置权限，刚更新11的时候是要这样才能进，不过最新版的11已经 ...</blockquote>
+跟这个应该没关系，我是第一时间就升级的11，没出问题，今天突然出的问题
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 2515#       发表于 2021-3-23 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707118&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-3-23 10:14</a>
+
+上面几个安卓11闪退的几个app你们试试关闭位置权限，刚更新11的时候是要这样才能进，不过最新版的11已经 ...</blockquote>
+跟这个应该没关系，我是第一时间就升级的11，没出问题，今天突然出的问题
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 2516#       发表于 2021-3-23 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707144&amp;ptid=1915171" target="_blank">iceprince10 发表于 2021-3-23 10:16</a>
+
+跟这个应该没关系，我是第一时间就升级的11，没出问题，今天突然出的问题 ...</blockquote>
+然后早上还好的鹅球和nga开发版现在也开始点击一条信息就退回主界面。。
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2517#       发表于 2021-3-23 10:21
+
+
+
+
+节电优能升级11后要重新优化，全部关闭之后重新打开
+
+
+
+
+
+
+
+-----
+
+####  tsounaiq  
+##### 2518#       发表于 2021-3-23 10:42
+
+
+
+
+删除app-chrome里面的updates试试，目前这版的android webview好像有问题。
+
+-Xperia XZ1 用户
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2519#       发表于 2021-3-23 11:07
+
+
+
+
+如果是微博、酷安等闪退，把Android Webview更新卸载就可以了
+
+
+
+
+
+
+
+-----
+
+####  みかこし  
+##### 2520#       发表于 2021-3-23 12:54
+
+
+
+
+找到凶手了，是3月12号更新的这版android webview,卸载更新就好了，给索尼多窗口道歉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2521#       发表于 2021-3-23 14:38
+
+
+
+
+或者更新最新的Android Webview 89.0.4389.105，也可以
+
+
+
+
+
+               
