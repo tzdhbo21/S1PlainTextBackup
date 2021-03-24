@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 09:45** 
+> ## **本文件最后更新于2021-03-23 13:46** 
 
 
 
@@ -5341,4 +5341,502 @@ mao 泳盾 鸡
 
 
 
-                                       
+
+
+-----
+
+####  sodah  
+##### 15304#       发表于 2021-3-22 18:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在一想还好能用老王球凸，嘻嘻，让我给这10%花一个JGJ，卜太值。
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15305#       发表于 2021-3-22 18:44
+
+
+
+
+以为环境会大变，结果啥事没发生，除了塔罗工作量究极翻倍
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15306#       发表于 2021-3-22 18:58
+
+
+
+
+突完了突了个寂寞
+还好不用jgj不然骂死kmr
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  killbillwillil  
+##### 15307#       发表于 2021-3-22 19:10
+
+
+
+
+噫，以前解掉的老王石就一点都不补填了啊
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15308#       发表于 2021-3-22 19:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">刹那2从接近必爆到更接近必爆，谢谢你
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 15309#       发表于 2021-3-22 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50692722&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-21 18:38</a>
+
+现在自发放置CF野拳皇房通过率到底是个什么情况？为什么我又翻车了
+
+
+—— 来自 vivo V1981A, Androi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是找组织靠谱，野队翻车率不要太高。我找了个打拳群一周就把螺丝全部农完了，不过门票人毕业还是有点难，毕竟拳皇毕业都很快过不了多久就没多少人去打了
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15310#       发表于 2021-3-22 22:09
+
+
+
+
+主招效果一律翻倍结合之前抬水土的操作来看，cy的数值策划完全知道这游戏痛点在哪里，就是懒得批爆不愿意做罢了。
+神他妈章鱼的15ta都敢翻倍成30ta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15311#       发表于 2021-3-22 23:33
+
+
+
+
+每天一票普通转世慢慢来
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 15312#       发表于 2021-3-23 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702290&amp;ptid=1158205" target="_blank">killbillwillil 发表于 2021-3-22 19:10</a>
+噫，以前解掉的老王石就一点都不补填了啊</blockquote>
+从每人发个通用道具就该知道不会补了 多半是猴子程序员没能力追溯到底大家拆了多少<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 15313#       发表于 2021-3-23 05:14
+
+
+
+ 本帖最后由 武の炽羽 于 2021-3-23 05:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50705255&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-3-23 00:51</a>
+
+从每人发个通用道具就该知道不会补了 多半是猴子程序员没能力追溯到底大家拆了多少 ...</blockquote>
+猴子是有这个能力的，如果手滑拆掉什么东西但是已经超过7天的界限，哪怕是N年前拆的，客服都会写信告诉你您这个东西是XXXX年XX月XX日XX分拆掉的，已经超过7天，无法复原。
+
+但是全服补偿意味着要对几千万个账号同时下手，这个工作量猴子肯定不干<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15314#       发表于 2021-3-23 07:35
+
+
+
+
+罗贝的领域技能……会被驱散也就算了，他居然是有动画的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+快来个人告诉我给的buff甚至是普刃吧，这样我就可以死了心不去做罗贝了
+
+
+贤者领域吃素材这么多，给的加成也太弱了🙄
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15315#       发表于 2021-3-23 07:42
+
+
+
+
+一个领域比闲者本身还能吃。虽然本身我也没做太大指望就算了。
+
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15316#       发表于 2021-3-23 08:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">吃这么多好歹把强度平衡做好点啊，芙劳这种明显强一档怎么回事
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15317#       发表于 2021-3-23 08:41
+
+
+
+ 本帖最后由 吾乃啊噗 于 2021-3-23 08:44 编辑 
+
+按你运营现在的思路，给150太正常了，之前nga所有160起底讨论的帖子我看都懒得看
+
+而且和你交了什么材料付出多少也是没有关系的，现在这个游戏就是这个样子
+
+不过这个贤者4个技能+领域吃的材料确实太伤了，他领域要东西我倒是能理解，4个技能从第3个开始就要这么多idea那实属有点不爽，黑白环没有获取途径不能加速，这个部分就是纯粹卡时间了
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15318#       发表于 2021-3-23 10:29
+
+
+
+
+忽然想到，如果我要专门做某一个贤者，那我应该无限loop这一路的ex还是应该花18票打完剩下两条线然后进沙河？
+
+我目前盘子一般，打沙盒可能比较费力，打ex如果不是遇到禁ssr禁技能之类的应该也比较容易打
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mitka  
+##### 15319#       发表于 2021-3-23 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707288&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-23 10:29</a>
+忽然想到，如果我要专门做某一个贤者，那我应该无限loop这一路的ex还是应该花18票打完剩下两条线然后进沙河 ...</blockquote>
+乘着票多先把沙盒开了是正经，长远来看不差这18张票，沙盒每天100体日积月累还是有作用的，而且回头差少量素材时能够冲刺下
+
+
+
+
+
+
+
+-----
+
+####  killbillwillil  
+##### 15320#       发表于 2021-3-23 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50705255&amp;ptid=1158205" target="_blank">eyeego 发表于 2021-3-23 00:51</a>
+
+从每人发个通用道具就该知道不会补了 多半是猴子程序员没能力追溯到底大家拆了多少 ...</blockquote>
+hrt导入天井那时候我记得是过去重复的角色武器都直接把对应金月发出来的
+
+加上每期生放都是他们显摆统计数据，不至于没能力
+
+就是装哑巴一句不提很沙雕而已
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15321#       发表于 2021-3-23 11:24
+
+
+
+
+全服送一个 加可以用金月jgj突，太君都感恩戴德了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  ichirukia1566  
+##### 15322#       发表于 2021-3-23 11:42
+
+
+
+
+突了三个老王，把我的玻璃片整没了……昨天晚上十万个人在打1.0hl和1.5<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  初雪绫  
+##### 15323#       发表于 2021-3-23 12:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我是不知道为什么急着突老王 现在数值已经溢出的不行了 给个150也挺好的 没那么爆炸  就是这傻逼领域要吃这么多真的弱智 
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15324#       发表于 2021-3-23 12:20
+
+
+
+
+领域吃那么多也就算了 关键水属性那俩贤者领域一个比一个拉跨 完全没有点的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15325#       发表于 2021-3-23 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最终还是进入到挖freequest的矿的阶段了
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 15326#       发表于 2021-3-23 15:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">领域吃的傻逼材料我是一点都不想做了，真想按着你游策划的头996做一下
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15327#       发表于 2021-3-23 15:27
+
+
+
+
+点了尼娅的15%上限，还不如死亡杀掉尼娅换浴衣狐
+还能打700w奥义<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15328#       发表于 2021-3-23 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707445&amp;ptid=1158205" target="_blank">Mitka 发表于 2021-03-23 10:42:57</a>
+乘着票多先把沙盒开了是正经，长远来看不差这18张票，沙盒每天100体日积月累还是有作用的，而且回头差少 ...</blockquote>我还没碰过沙盒，想知道沙盒能不能固定掉某一个特定的塔罗精（恶魔精？），因为ex打第一条线带天象仪能保证打一次恶魔，掉恶魔精，不知道沙盒能不能固定掉
+
+感觉恶魔精没得换，掉落也少，卡的很厉害啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 15329#       发表于 2021-3-23 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711014&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-23 16:49</a>
+
+我还没碰过沙盒，想知道沙盒能不能固定掉某一个特定的塔罗精（恶魔精？），因为ex打第一条线带天象仪能保证 ...</blockquote>
+使劲刷第一个区的红色三格怪（凤凰）就行，它除了带EX技能的方阵武器之外就只掉恶魔牌子。
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15330#       发表于 2021-3-23 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711014&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-23 16:49</a>
+
+我还没碰过沙盒，想知道沙盒能不能固定掉某一个特定的塔罗精（恶魔精？），因为ex打第一条线带天象仪能保证 ...</blockquote>
+记得开恶魔的buff怪，开到200就可以不打了，后面时间断了就续时间
+
+开了buff怪之后槽宝箱长得快，打属精和核心比起掉落其实主要是看你的开箱速度
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15331#       发表于 2021-3-23 21:04
+
+
+
+
+隐者的也蛮爽的，1突武器就能点了20上限，lb还自带回血和攻击buff，算是极大加强了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                                      
