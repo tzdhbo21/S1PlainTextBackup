@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 13:44** 
+> ## **本文件最后更新于2021-03-24 14:33** 
 
 
 
@@ -3922,4 +3922,548 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 
 
 
-                                          
+
+
+-----
+
+####  里村紅葉  
+##### 78212#       发表于 2021-3-22 21:57
+
+
+
+
+怎么又是常驻，之前乐子龙已经坑过我一次了，这次
+
+
+
+我肯定还抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78213#       发表于 2021-3-22 22:46
+
+
+
+
+没石头，这次活动之后，再来个联动2.6估计就要来了，等阿格。
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78214#       发表于 2021-3-22 22:55
+
+
+
+
+你们都不留着石头抽月姬的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78215#       发表于 2021-3-22 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50704331&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-3-22 22:55</a>
+
+你们都不留着石头抽月姬的吗
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">再课不就好了.jpg
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78216#       发表于 2021-3-22 23:39
+
+
+
+
+活动礼装比较大于等于英灵等级才生效
+
+
+
+就差没有明着说“给我抽卡”了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78217#       发表于 2021-3-23 08:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50704257&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-3-22 22:46</a>
+
+没石头，这次活动之后，再来个联动2.6估计就要来了，等阿格。</blockquote>
+阿贵不出
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78218#       发表于 2021-3-23 09:02
+
+
+
+
+手办娘是应该是岛田画的吧，应该是岛田第一次登月？这一波是两大过气IP（误）联合要从cy恶势力的赛马场里把沉迷赌马的提督/御主拖回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78219#       发表于 2021-3-23 09:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706331&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-23 08:55</a>
+阿贵不出</blockquote>
+阿格机会很大吧，毕竟剧场版下部准备出了，可以拉一波人气。
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 78220#       发表于 2021-3-23 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706385&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-3-23 09:02</a>
+手办娘是应该是岛田画的吧，应该是岛田第一次登月？这一波是两大过气IP（误）联合要从cy恶势力的赛马场里把 ...</blockquote>
+岛田画的出这么难看的赖子 是要上火刑架的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78221#       发表于 2021-3-23 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706810&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-3-23 09:45</a>
+
+阿格机会很大吧，毕竟剧场版下部准备出了，可以拉一波人气。</blockquote>
+你注意阿贵CV安元只参加了不包含本体情报的Animejapan一日目（27日），目的是六章剧场版后半宣传
+
+
+有手游本体最新情报的28日换成了guda子的CV关根，虽然她出现大概只是当天要播放废狗嘉年华第一部吧
+
+
+（阿贵的问题更特殊一点，第一部时期有详细描述的）
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78222#       发表于 2021-3-23 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707350&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-23 10:36</a>
+你注意阿贵CV安元只参加了不包含本体情报的Animejapan一日目（27日），目的是六章剧场版后半宣传
+
+
+有手游 ...</blockquote>
+那就慢慢等就是了，反正出就满宝预定，不出还省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78223#       发表于 2021-3-24 17:06
+
+
+
+
+技能组看着不行，除非宝具回收能直接100，总觉得凉凉
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78224#       发表于 2021-3-24 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这卡面也...太普通了吧
+
+
+
+
+
+
+
+-----
+
+####  阿提拉  
+##### 78225#       发表于 2021-3-24 17:23
+
+
+
+
+简直稀烂，就这还大沉船，亏大了
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78226#       发表于 2021-3-24 17:28
+
+
+
+<blockquote>alucardcz 发表于 2021-3-24 17:14
+这卡面也...太普通了吧</blockquote>
+双子，尼禄，真是越来越摸鱼，渡边纲都上心多
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78227#       发表于 2021-3-24 17:29
+
+
+
+<blockquote>areklose 发表于 2021-3-24 17:28
+双子，尼禄，真是越来越摸鱼，渡边纲都上心多</blockquote>
+说错，是尼莫。花嫁倒是强化得越来越离谱
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78228#       发表于 2021-3-24 17:37
+
+
+
+
+初始卡面什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78229#       发表于 2021-3-24 17:47
+
+
+
+
+看了下卡面还好啊，岛田不就这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78230#       发表于 2021-3-24 17:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">手上一个石头都没，就两张票子扔进去，出了大公
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">枪阶的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 78231#       发表于 2021-3-24 17:53
+
+
+
+
+你游真的自由，急需强化的打死不给强化，锦上添花都算不上的反而强化本给你往死里塞<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiongxingyu  
+##### 78232#       发表于 2021-3-24 18:10
+
+
+
+
+没想到啊，手办娘靠3红躲过了np残疾的诅咒，裸宝具回收还高过大公，自充输一手（20比30），大公30黄金率，手办娘30蓝放，手办娘略优（WCAB体系下差别不大），然后前置20宝威宝具伤害完爆大公，生存能力不输大公还赢一手3回合的弱体解除，就是自充绑定蓝放有点影响手感，少一张蓝卡部分场合会比较尴尬。总体来说是张吃到了版本和职阶福利的强卡
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78233#       发表于 2021-3-24 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年转运了，上年抽一个英灵花的抽数够我抽3个
+
+
+
+
+
+
+
+-----
+
+####  闽明  
+##### 78234#       发表于 2021-3-24 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">27号单吊尼禄+1还是找个能顺便歪机娘的日子抽呢
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78235#       发表于 2021-3-24 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50721659&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-3-24 17:53</a>
+
+你游真的自由，急需强化的打死不给强化，锦上添花都算不上的反而强化本给你往死里塞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你游本来就这么自由 反正也没什么强化次数限制 
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 78236#       发表于 2021-3-24 18:38
+
+
+
+
+尼禄真.理财产品，还有个二技能没强化过，缓冲爆伤蓝魔放选一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  johnkamsar  
+##### 78237#       发表于 2021-3-24 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50721356&amp;ptid=1085254" target="_blank">areklose 发表于 2021-3-24 17:29</a>
+说错，是尼莫。花嫁倒是强化得越来越离谱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">国服2宝的表示血赚，日服得过几天抽一个回家了
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 78238#       发表于 2021-3-24 20:33
+
+
+
+
+爬了20层，不高兴了爬了，好麻烦啊
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78239#       发表于 2021-3-24 20:40
+
+
+
+
+又又又沉了一单石头，连5星礼装都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78240#       发表于 2021-3-24 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50723464&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-3-24 20:40</a>
+
+又又又沉了一单石头，连5星礼装都没有
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你怎么常驻都课呢（
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78241#       发表于 2021-3-24 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724005&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-3-24 21:37</a>
+你怎么常驻都课呢（</blockquote>
+攒的石头<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 78242#       发表于 2021-3-24 21:51
+
+
+
+
+这吊活动真的烦，捏着鼻子爬了20层实在够了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
