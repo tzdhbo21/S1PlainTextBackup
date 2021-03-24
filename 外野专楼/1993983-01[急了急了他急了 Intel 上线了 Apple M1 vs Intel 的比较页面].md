@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 05:32** 
+> ## **本文件最后更新于2021-03-24 03:16** 
 
 
 
@@ -2304,4 +2304,739 @@ feh现在还能走testflight下吗？</blockquote>
 
 
 
-                                             
+
+
+-----
+
+####  zinelune  
+##### 122#       发表于 2021-3-22 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50689254&amp;ptid=1993983" target="_blank">john 发表于 2021-3-21 09:26</a>
+
+笔记本本来就有移动用和插电用两种使用情形，比如很多公司给员工发笔记本不是希望你能够在满世界跑的路上 ...</blockquote>
+怎么说呢，笔记本毕竟主要是为了移动而产生的，要只是办公室和家搬动，那笔记本都不需要配电池。
+
+作为移动设备，像手机平板那样能够脱离电源束缚才是该有的形态，之前是技术发展限制，现在能在保证一定性能的情况下做到，那一定是件好事。
+
+
+至于两种系统充电策略，那是他们软件的问题，但是轻薄本延长续航到脱离电源线使用一定是大势所趋。
+
+
+希望这次能刺激win本搞出个长续航的来，苹果我是真不会用。
+
+
+
+
+
+
+
+-----
+
+####  ㄟ(￣▽￣ㄟ)  
+##### 123#       发表于 2021-3-22 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50678580&amp;ptid=1993983" target="_blank">Realplayer 发表于 2021-03-19 20:21:02</a>
+擦，很荣幸我大概成膏粉了</blockquote>你是那么的普通，却是那么的自信 （迫真
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 124#       发表于 2021-3-23 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50699585&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-22 14:16</a>
+
+怎么说呢，笔记本毕竟主要是为了移动而产生的，要只是办公室和家搬动，那笔记本都不需要配电池。
+
+作为移 ...</blockquote>
+笔记本的电池是送的，不代表有电池你就必须移动为主，家里公司两头工作的员工不用笔记本难道发微型台式机配两个显示器？这世界上拿笔记本不插电跑来跑去为主要使用环境的人群是少之又少的，大多数人都有固定的电脑桌，电脑在工作以外的时间也大多插着电源
+
+电池续航肯定是越长越好，但是续航再长也不能脱离电源，尤其是新办公时代出差和面对面开会变少，笔记本长期作为办公主机插电使用根本就是常态，从这个角度来说你果M1系列更像是iPad一样偶尔开一下的玩具，而不是办公桌上的生产力工具
+
+管你软件问题还是硬件问题，做不到就是做不到，我当玩具买都心里疙瘩，更别说拿来办公了
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 125#       发表于 2021-3-23 08:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50705153&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 00:34</a>
+
+笔记本的电池是送的，不代表有电池你就必须移动为主，家里公司两头工作的员工不用笔记本难道发微型台式机 ...</blockquote>
+大哥，我们讨论的是轻薄本，我也没成天地铁的需求，但是我想在床上写写稿，玩玩小游戏吃饭的时候扔边上看看剧，又不想半天冲一次电，这是非常现实的需求，也是大多数个人轻薄本用户的需求吧。
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 126#       发表于 2021-3-23 08:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50705153&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 00:34</a>
+
+笔记本的电池是送的，不代表有电池你就必须移动为主，家里公司两头工作的员工不用笔记本难道发微型台式机 ...</blockquote>
+再说我连iPhone都没用过，你干嘛非逮着我当果粉攥啊？
+
+
+
+
+
+
+
+-----
+
+####  diohanmilton  
+##### 127#       发表于 2021-3-23 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50675004&amp;ptid=1993983" target="_blank">Nanachi 发表于 2021-3-19 14:01</a>
+一直很好奇，什么样的工作会需要不插电用十小时以上笔记本？
+
+—— 来自 S1Fun ...</blockquote>
+最近换了工作做检测仪器，带出去作为上位机的电脑的确需要超长待机。
+
+问题是，什么工业软件会基于苹果系统开发。
+
+—— 来自 HUAWEI TNY-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  loslandy  
+##### 128#       发表于 2021-3-23 11:16
+
+
+
+
+我司一众基本在外跑业务的销售表示，能用十多个小时出门不用拖个充电器的笔记本就是棒。有的开始换成M1笔记本有的也产生极大兴趣
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 129#       发表于 2021-3-23 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706203&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-23 08:40</a>
+
+大哥，我们讨论的是轻薄本，我也没成天地铁的需求，但是我想在床上写写稿，玩玩小游戏吃饭的时候扔边上看 ...</blockquote>
+我说的是每天八小时的办公桌生产力工具，你说的是玩具，我前面讲了啊，这东西可适合当玩具了
+
+
+要么充电五分钟满载十小时，要么充一晚上顶一星期，不然管你续航十几二十个小时，办公的还是该插电插电，你觉得手机平板可以不插电用是因为你不会拿来上班工作开满八小时，不然一样拖着电源线离不开
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 130#       发表于 2021-3-23 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706215&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-23 08:41</a>
+
+再说我连iPhone都没用过，你干嘛非逮着我当果粉攥啊？</blockquote>
+我一没说过你怎样怎样，二没说过果粉怎样怎样，建议找个三甲医院看一下受迫害妄想症
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 131#       发表于 2021-3-23 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707933&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 11:28</a>
+我说的是每天八小时的办公桌生产力工具，你说的是玩具，我前面讲了啊，这东西可适合当玩具了
+
+
+要么充电五 ...</blockquote>
+这贴从m1和inter芯片的对比开始的对吧，m1芯片现在是不是都在轻薄本上，我们讨论轻薄本不对吗？我文字工作怎么就是娱乐了，我就喜欢房间任何地方随时可以坐下码字，难道不是工作需求？再说了，娱乐不是大多数人的需求吗？
+
+然后你前面回复我的帖子用的 你果 这个词，我理解你把我当果粉不是很正常？你怎么还人身攻击起来了？
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 132#       发表于 2021-3-23 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50708767&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-23 12:39</a>
+
+这贴从m1和inter芯片的对比开始的对吧，m1芯片现在是不是都在轻薄本上，我们讨论轻薄本不对吗？我文字工 ...</blockquote>
+神经病，我本帖第一个回复就说了你果你果，那时候你在哪，这阶级斗争的弦绷得比谁都紧啊
+
+
+到公司上班的肯定是工作，你在家码字谁知道你是不是在工作，我在家码字还是写blog和知乎专栏呢
+
+
+
+
+
+
+
+-----
+
+####  catazshadow  
+##### 133#       发表于 2021-3-23 12:59
+
+
+
+
+inter X
+
+Intel O
+
+
+先把别人名字写对行不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 134#       发表于 2021-3-23 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50708905&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 12:52</a>
+神经病，我本帖第一个回复就说了你果你果，那时候你在哪，这阶级斗争的弦绷得比谁都紧啊
+
+
+到公司上班的肯 ...</blockquote>
+第一，就是因为你连续回复都用你果，我才认为你把我当果粉。
+第二，人类工作就你自己那一种？别人都不是工作，你不承认就不算吗？
+第三，我反复说了不只是工作，娱乐也是大部分人的需求，这点你不同意吗？
+第四，前面我都懒得问你了，为啥你要讨论只能带着上下班的电脑我们就非得讨论这一种，明明说的是所有笔记本类型。
+第五，你前面说笔记本电池是送的，我都懒得反驳你。
+最后，几十岁的人了，在这当版主都多少年了，怎么跟个小孩一样，随便讨论点硬件冲动成这个样子呢？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| owada| + 1|好评加鹅|
+| chaoslee| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 135#       发表于 2021-3-23 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50708963&amp;ptid=1993983" target="_blank">catazshadow 发表于 2021-3-23 12:59</a>
+inter X
+
+Intel O</blockquote>
+随便啦，我又没信仰，大家能看懂就行，要是冒犯到谁了，那算我的，我道歉。
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 136#       发表于 2021-3-23 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50709292&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-23 13:34</a>
+
+第一，就是因为你连续回复都用你果，我才认为你把我当果粉。
+
+第二，人类工作就你自己那一种？别人都不是 ...</blockquote>
+都说了用你果两个字的时候你在哪呢，有你什么事吗，看不懂别人说话断章取义被害妄想还有理了么，是谁在好好的硬件帖里跟小屁孩一样开始转粉圈还说别人冲动得怎样怎样呢
+
+
+
+“不会吧不会吧，真的有人被线拴着用笔记本吗” 别在这里何不食肉糜了，人类工作是不是就我这种我不知道，但我相信肯定不止你那种，不信出门找个工作进写字楼看看，大部分使用电脑工作的人都是固定一张桌子坐，需要拿着电脑跑来跑去工作的人属于相对少数，躺在床上工作的就更少了，你果Apple Silicon的续航也没牛到可以让人朝九晚五坐几天班都不用插线的程度
+
+为什么坐固定工位工作、甚至电脑都不用带回家，公司还是会配发笔记本？因为没差几个钱还方便管理，这种情况下电池就是送的，反正没有不带电池的选项，有电池还可以在偶尔需要的情况下移动办公一会——这样能理解吗？只会断章取义看不懂人说话然后明显很在意却又要摆出一副不在意的样子真的很烦人
+
+
+你说笔记本可以拿来拿去用、续航越长越好、可以用来娱乐，我全部赞成，从今往后都没有任何反对意见，是你在莫名友邦惊诧笔记本为什么还要插线用的
+
+
+笔记本插线用很不正常吗？等续航数字加个0我们再来讨论是不是平时要一直插着电源线这个问题好不好？
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 137#       发表于 2021-3-23 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50710375&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 15:37</a>
+
+都说了用你果两个字的时候你在哪呢，有你什么事吗，看不懂别人说话断章取义被害妄想还有理了么，是谁在好 ...</blockquote>
+？？？ 我真不懂你在说什么了？怎么粉圈都冒出来了？
+
+    一、你单独回复我的时候第一次用你果，我没在意，只是回复你的时候补充说我希望WIN本也能出长续航的，就是想让你知道我并不是果粉。
+
+第二次还用，我觉得你把我当果粉，我才跟你说我不是，还告诉你我连苹果主要产品都没用过，你抓着这个没完没了干什么？
+
+    二、你们公司的玩法我是不太懂。但是除了你见过，你能理解的工作方式你都无视是不是不太好？一口一个公司这样，公司那样，你说的这些都是你行业甚至你公司的方式，至少你说的这些在我工作过的事业和企业单位都没有，干嘛把自己身边当全世界呢。
+
+    三、娱乐部分咱们意见统一了，我很高兴。
+
+    四、回到讨论原点，笔记本是不是移动电脑设备，这个移动包括携带和移动使用这样说没错吧，你说的那种是携带功能，我说的是移动使用功能，也许你觉得移动使用功能没有价值，但是这楼里不止我一个人提出了一种移动使用的价值，我还是希望你能看看大家的意见。
+
+   五、你觉得我莫名提出笔记本为什么还要插线，可能在当前笔记本不得不插线的情况下这话你看起来一时难以接受，你也说等续航再加个0再讨论，那么我现在理解成你也认为如果未来续航能力能够继续发展下去取消电源是笔记本的发展趋势没有问题吧，那么不就对了，事实上移动设备的产生目的和进化目标永远都是朝着减少束缚的方向前进的，这话没什么问题吧。那么我的意见笔记本向可以更长时间脱离电源束缚，至少当前技术水平下，能达到像手机一样使用一天晚上睡觉再充电对于很大一部分比例的人（你可以看楼里面支持的人数）是非常有意义的，这样的人数占比，对于一种产品来说，就已经是非常重要的进步了（毕竟大多数功能的进步其实都不是能做到对所有人都很有用的，能有挺大一部分人觉得有用就很好了）。
+
+    六、我考虑了一下，你可能觉得我回复楼主时候的话过于绝对，产生了一些情绪，当然，我是为了模仿楼主的句式比较好玩，也不是什么太冲的话对么，你在想想。
+
+    七、最后再声明一下，我是从来把电子产品当工具、玩具的人，对所有品牌都没有爱好，像大部分S1用户一样乐于嘲讽他们，希望不要被认为是带有品牌偏见。
+
+  
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 138#       发表于 2021-3-23 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50710375&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 15:37</a>
+
+都说了用你果两个字的时候你在哪呢，有你什么事吗，看不懂别人说话断章取义被害妄想还有理了么，是谁在好 ...</blockquote>
+    你觉得我没看懂你说的工作使用电脑的主要用法，那我给你说说我工作怎么用的电脑。我当前作为一个国企办公室工作人员，应该也不算是特别小众的的工种，我说的这些，应该有不少类似工作的人能感到认同吧。
+
+    办公室常年都是人很多很嘈杂的，我们需要编写重要文件的时候经常都是等下班，或者躲到空会议室之类的地方，会议室你随时可能被撵走，你肯定也不想带着一堆电源线在楼道里乱窜不是，下班国企又没人加班，坐到半夜也没领导看见，很多时候还不如回家写，回家的话超长时间码字当然希望有个相对舒适的使用环境，所以回家窝在沙发上，靠在床上写东西查资料是经常的事，更有时候，卧室写不出来了到客厅蹲会儿，客厅呆累了去阳台坐会儿，就很希望不用每次都动电源。然后，我们写好的东西，做的PPT ，经常是需要开小会给领导和同事看进行修改的，并不是每个地方都方便你拉条电源线不是？另外我们还时常要到本市各处或者临近城市的分支机构检查，一天走好几个点，查看资料，跟各种人核对、连续开会，你不能保证每个地方都方便充电，整天都在到处找插销也很烦，而且你带着充电器也沉啊。所以你看，一个可以一整天使用不用充电的轻薄笔记本是不是对我们这种工作很重要呢？也许你说现在的本子基本上也够满足这个要求了，的确，我之前就用过一段surface，但是续航还是有点短，而且有时候也不知道什么在后台就一直耗电，撂在一边一上午，下午要开会了发现开不了机了，就很恼火。
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 139#       发表于 2021-3-23 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50710881&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-23 16:35</a>
+
+？？？ 我真不懂你在说什么了？怎么粉圈都冒出来了？
+
+    一、你单独回复我的时候第一次用你果，我没在意 ...</blockquote>
+我再重复一次，这时候有你什么事呢？你第一个回帖在哪天？楼主一击脱离了你什么时候回复过楼主了？会不会用论坛哦
+
+对了我引用你的回复里还出现了“你膏”呢是不是又把你批斗成（牙）膏（厂）粉（丝）了？张口闭口粉丝的什么鬼心态啊，上论坛聊个电脑还聊出粉丝了？
+
+<img src="https://img.saraba1st.com/forum/202103/23/171849a9jpn23e945ccrrv.png" referrerpolicy="no-referrer">
+
+
+<strong>111.png</strong> (22.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 17:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 140#       发表于 2021-3-23 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711252&amp;ptid=1993983" target="_blank">zinelune 发表于 2021-3-23 17:13</a>
+
+你觉得我没看懂你说的工作使用电脑的主要用法，那我给你说说我工作怎么用的电脑。我当前作为一个国企 ...</blockquote>
+还是再重复一次，出去找份工作，看看写字楼里的人都是怎么上班的
+
+办公室和工位是适合工作的地方，不是嘈杂和喧闹的地方，我去过的工厂产线边上的办公区都没你说的嘈杂喧闹到不能工作
+
+工作是在工位完成的，不是满公司到处流窜甚至流窜回家做的，996福报公司也没说让你们回家福报啊
+
+沙发和床不是舒服的办公地点，在家工作指南通常会明确指出在这种地方工作对身体不好
+
+一家公司里会有许多不同工种，屁股不沾椅子拿着笔记本到处办公的是少数，现代人这么多缺乏运动的富贵病难道都是风里来雨里去到处奔波出来的不成
+
+
+另外我再再再重复一次，不管捧着笔记本这里工作一下那里工作一下的人是多数还是少数，我从来没说过长续航没用、长续航不好，我是说你果这个以长续航著称的Apple Silicon笔记本长期插电使用不好，可能会爆炸
+
+<img src="https://img.saraba1st.com/forum/202103/23/181630eweqiqaqqplrcq97.jpg" referrerpolicy="no-referrer">
+
+
+<strong>22222.jpg</strong> (186 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 18:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  凶手  
+##### 141#       发表于 2021-3-23 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711858&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 18:15</a>
+
+还是再重复一次，出去找份工作，看看写字楼里的人都是怎么上班的
+
+办公室和工位是适合工作的地方，不是嘈杂 ...</blockquote>
+[https://www.google.com/search?q= ... iw=1440&amp;bih=796](https://www.google.com/search?q=surface+swollen+battery&amp;newwindow=1&amp;rlz=1C5CHFA_enHK881HK882&amp;sxsrf=ALeKk002yGtfIEvfd5iQbbDQZ0mABykiqw:1616495108542&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjp1ObFmcbvAhWdzIsBHQUNAUQQ_AUoAXoECAEQAw&amp;biw=1440&amp;bih=796)
+
+[https://www.google.com/search?q= ... C5CHFA_enHK881HK882](https://www.google.com/search?q=xps+swollen+battery&amp;tbm=isch&amp;ved=2ahUKEwiH58TGmcbvAhUEKqYKHcRRC_AQ2-cCegQIABAA&amp;oq=xps+swollen+battery&amp;gs_lcp=CgNpbWcQAzIGCAAQCBAeMgQIABAYOggIABAHEAUQHjoICAAQCBAHEB46BggAEAUQHlCPfliRgAFgqYIBaABwAHgAgAFriAG5ApIBAzAuM5gBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=BsJZYIfMBITUmAXEo62ADw&amp;bih=796&amp;biw=1440&amp;rlz=1C5CHFA_enHK881HK882)
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 142#       发表于 2021-3-23 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711955&amp;ptid=1993983" target="_blank">凶手 发表于 2021-3-23 18:25</a>
+
+https://www.google.com/search?q=surface+swollen+battery&amp;newwindow=1&amp;rlz=1C5CHFA_enHK881HK882&amp;sxsrf ...</blockquote>
+所有软包锂电池长期充满都有鼓胀爆炸风险，但是你列的这两个系列都可以限制电池充电电量来避免这种情况的发生
+[https://www.dell.com/support/con ... /dell-power-manager](https://www.dell.com/support/contents/zh-cn/article/product-support/self-support-knowledgebase/software-and-downloads/dell-power-manager)
+[https://docs.microsoft.com/zh-cn/surface/battery-limit](https://docs.microsoft.com/zh-cn/surface/battery-limit)
+
+
+当然，大部分人都不知道应该去限制电池充电电量，尽管它们可以做到
+
+
+你果Apple Silicon笔记本是不可以
+
+
+
+
+
+
+
+
+
+-----
+
+####  凶手  
+##### 143#       发表于 2021-3-23 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50712029&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 18:33</a>
+
+所有软包锂电池长期充满都有鼓胀爆炸风险，但是你列的这两个系列都可以限制电池充电电量来避免这种情况的 ...</blockquote>
+Manage battery longevity
+
+这个选项好像 m1 是不能关掉 而不是没有？
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 144#       发表于 2021-3-23 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50712140&amp;ptid=1993983" target="_blank">凶手 发表于 2021-3-23 18:46</a>
+
+Manage battery longevity
+
+这个选项好像 m1 是不能关掉 而不是没有？</blockquote>
+总之，不行，都已经把用户逼出这种玩法了
+
+WuSiYu   75 天前
+
+每隔一段时间拔掉电源用一会就行了，充满无所谓，主要是要防止长期插电导致的过充。
+[https://www.v2ex.com/t/742472](https://www.v2ex.com/t/742472)
+
+
+不过这个帖子里一个月前的回复说有个叫AlDente的工具最近更新了可以做到，我先拿老MBP装一个玩玩
+
+
+
+
+
+
+
+-----
+
+####  serial  
+##### 145#       发表于 2021-3-23 19:06
+
+
+
+
+说了那么多生产力，有没有gcc，能不能运行linux虚拟机/编译没有macos安装包的库呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Meizu 16th, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  john  
+##### 146#       发表于 2021-3-23 19:52
+
+
+
+
+rMBP 2013试验成功了，设定48%停在49%，电源灯亮橙色而不是充满的绿色，但就是没有在充电，终于不用胶带一会贴一会撕了
+
+谁有M1 CPU的可以试试，据说是支持的，有个新模式不走BCLM
+[https://github.com/davidwernhart/AlDente/releases](https://github.com/davidwernhart/AlDente/releases)
+
+
+<img src="https://img.saraba1st.com/forum/202103/23/195012fup8swkeotlou6tu.png" referrerpolicy="no-referrer">
+
+
+<strong>截屏2021-03-23 下午7.47.29.png</strong> (65.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 19:50 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/23/195017kidykyvdqvttn3o5.png" referrerpolicy="no-referrer">
+
+
+<strong>截屏2021-03-23 下午7.47.41.png</strong> (28.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 19:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Silencieuse  
+##### 147#       发表于 2021-3-23 20:24
+
+
+
+
+本铁杆果黑拿着10%电量的win轻薄本逛泥潭，看了这贴心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 148#       发表于 2021-3-24 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711396&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 17:27</a>
+
+我再重复一次，这时候有你什么事呢？你第一个回帖在哪天？楼主一击脱离了你什么时候回复过楼主了？会不会 ...</blockquote>
+这个不好意思，我把那个人当成楼主了，我给楼主道歉。
+
+你第一次回复有你果也有你膏。所以我第一次也没说你说我是果粉啊？我不是还专门说了我不想买苹果想等win本？你是看什么非得带着气看吗？
+
+
+
+
+
+
+
+-----
+
+####  zinelune  
+##### 149#       发表于 2021-3-24 08:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711858&amp;ptid=1993983" target="_blank">john 发表于 2021-3-23 18:15</a>
+
+还是再重复一次，出去找份工作，看看写字楼里的人都是怎么上班的
+
+办公室和工位是适合工作的地方，不是嘈杂 ...</blockquote>
+再重复一次，你看看楼里的评论吧，就你在工作？太狭隘，太可悲了。
+
+我就不劝你出去找找工作了，你找怕是还是这种。
+
+
+
+
+
+
+
+-----
+
+####  melvin95  
+##### 150#       发表于 2021-3-24 09:24
+
+
+
+
+果黑退场后居然轮到了认真侠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  モナド  
+##### 151#       发表于 2021-3-24 10:37
+
+
+
+
+M1 AlDente支持的
+
+
+
+
+
+                                            
