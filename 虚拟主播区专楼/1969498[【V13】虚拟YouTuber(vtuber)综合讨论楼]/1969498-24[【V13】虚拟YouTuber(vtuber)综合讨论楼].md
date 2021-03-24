@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-23 15:39** 
+> ## **本文件最后更新于2021-03-24 12:32** 
 
 
 
@@ -1424,6 +1424,26 @@ nrk这队友是挂要自雷，遇到别的挂要白给，心态要被挂打崩�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+| kangkangsama| + 2||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -1458,4 +1478,579 @@ nrk这队友是挂要自雷，遇到别的挂要白给，心态要被挂打崩�
 
 
 
-                                               
+
+
+-----
+
+####  kangkangsama  
+##### 34570#       发表于 2021-3-23 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50714271&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-23 23:21</a>
+
+郡道的社爱测试题，很猛。
+
+冒犯前辈：</blockquote>
+crossick题据说没几个人答对
+
+
+还有说是她成绩基本能前三了，和lize阿委一个水准
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34571#       发表于 2021-3-23 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50714442&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-3-23 23:42</a>
+crossick题据说没几个人答对
+
+
+还有说是她成绩基本能前三了，和lize阿委一个水准 ...</blockquote>
+我们都知道她根本只是强运罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，原作者也【郡道先生は予測能力が素晴らしすぎる】，
+据说还是有郡道的问题的，只不过没碰上，还以为作者郡an呢，看到【郡道先生本当の意味でライン超えてくるから怖い...】的时候真的喷了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34572#       发表于 2021-3-23 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50714491&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-23 23:48</a>
+
+我们都知道她根本只是强运罢了，原作者也【郡道先生は予測能力が素晴らしすぎる】，
+
+据说还是有郡 ...</blockquote>
+我也以为是郡an
+
+不过还是来看直播了
+
+
+她一些别人难错的题错了
+
+结果基本没人对的题一发中（ickr在哪，夏芽组合名，法语组合名，甲斐田身高）
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34573#       发表于 2021-3-24 00:38
+
+
+
+
+Nrk最后一把应该能上了，你虹本社最后的遮羞布
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|怒|
+| FCCHua| + 1|原来是你奶的（|
+| argaregeasr| + 1|奶死了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34574#       发表于 2021-3-24 00:50
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-24 01:02 编辑 
+
+次頑張ろう<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 
+
+お疲れ様
+
+半夜想起来都会被可惜到清醒的程度...
+
+同接上也压过King了，不算一无所获
+
+
+不要再道歉了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+オリンパス再见吧
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 34575#       发表于 2021-3-24 00:50
+
+
+
+
+差69分，这才是真的苦呀西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，直播之神没有垂青啊
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34576#       发表于 2021-3-24 00:55
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-24 01:00 编辑 
+
+全麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 最近一次我记得是差个位数？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34577#       发表于 2021-3-24 01:07
+
+
+
+
+最后4人头第三
+
+似乎最后再干掉一队，拿满人头分，第2名也能升段了
+
+nrk一如既往的差临门一脚
+
+
+不过之前她也浪费了几次好机会，比如忘记切换射击模式白给，满状态打肉马了两个弹夹之类的
+
+现在就看下半赛季了
+
+（现在看来她输了是不是sc更多一点……）
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 34578#       发表于 2021-3-24 01:12
+
+
+
+
+最后一圈爬高位空放了一个大，这就是连麦和不连麦差别
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34579#       发表于 2021-3-24 01:54
+
+
+
+
+叶打lol，第一把很帅
+
+
+
+
+
+
+
+-----
+
+####  z2Z2z  
+##### 34580#       发表于 2021-3-24 03:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715023&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-24 01:07</a>
+ 最后4人头第三 似乎最后再干掉一队，拿满人头分，第2名也能升段了 nrk一如既往的差临门一脚 </blockquote>
+如果是那样的话，应该是10011分，刚好够了。关键是一开始狱卒标的点是对的，最高点百分百能进圈，而且大概率是另外两队先打起来
+
+
+
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 34581#       发表于 2021-3-24 07:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50708500&amp;ptid=1969498" target="_blank">cheatdeath3 发表于 2021-3-23 12:18</a>
+
+446(holo)除了bf和cod还玩过什么fps?瓦还是pubg?</blockquote>
+不仅没玩新的现在bf和cod也是一月一次了，那么累养老抄作业不好吗（月内马娘浓度50%）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34582#       发表于 2021-3-24 10:24
+
+
+
+
+月下正经新衣服要来，走正常发表流程，发型像小糸，我即将被养
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34583#       发表于 2021-3-24 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715633&amp;ptid=1969498" target="_blank">獅白ぼたん 发表于 2021-3-24 07:56</a>
+
+不仅没玩新的现在bf和cod也是一月一次了，那么累养老抄作业不好吗（月内马娘浓度50%） ...</blockquote>
+工作是爱好的坟墓
+
+重振fps荣光，杏星义不容辞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34584#       发表于 2021-3-24 13:06
+
+
+
+ 本帖最后由 NBXX 于 2021-3-24 13:09 编辑 
+
+[https://twitter.com/bot_n7ifans](https://twitter.com/bot_n7ifans)
+
+监测彩虹的V在评论区发言，统计弹幕关键词的bot
+<img src="https://p.sda1.dev/1/b13839a83618eb56e1516c90e8ea5ed7/_P2PZ_UD_3B~`F84P~IP1W9.png" referrerpolicy="no-referrer">
+[https://n7i-fans.pickoma.com/](https://n7i-fans.pickoma.com/)
+<img src="https://p.sda1.dev/1/2482e3915747d02318fcefbc9e287a59/QQ截图20210324130536.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 34585#       发表于 2021-3-24 13:22
+
+
+
+
+通过机器学习推文，来模仿语气发推
+[https://twitter.com/aiUruha](https://twitter.com/aiUruha)
+<img src="https://p.sda1.dev/1/f536e58543dac2c7f74531dbe8bdd003/5ZOO1Z_54PE_L_F_ZI7L1YX.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34586#       发表于 2021-3-24 15:08
+
+
+
+[https://twitter.com/cct_azone/status/1374564173720428547](https://twitter.com/cct_azone/status/1374564173720428547)
+[https://www.youtube.com/watch?v=5tg_9nmstDw](https://www.youtube.com/watch?v=5tg_9nmstDw)
+
+
+这个烂货圆脸居然还能出娃娃，5万多有人会买吗？真是垃圾
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/24/150805qwxrfqhq3rw1w0w3.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (96.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 15:08 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34587#       发表于 2021-3-24 15:12
+
+
+
+
+免费：才5w？月底下单
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 34588#       发表于 2021-3-24 16:06
+
+
+
+
+免费：有多少？包了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34589#       发表于 2021-3-24 16:21
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-24 18:03 编辑 
+
+King播有钱游戏了
+
+
+Syl，【3/31（水）19：00配信スタート】
+
+Rain Dropsアコースティックライブ『開花宣言』の配信が決定しました🎤
+
+
+🌸待機場所はこちら🌸
+[https://youtu.be/h7RlDEBwjTI](https://youtu.be/h7RlDEBwjTI)
+
+
+当日は音声と静止画を利用した普段の配信形式でお届けします♪
+
+生バンド演奏による歌唱をお見逃しなく🎹
+
+<img src="https://img.saraba1st.com/forum/202103/24/180316sb42mmhdkkg4mdko.jpg" referrerpolicy="no-referrer">
+
+
+<strong>开花宣言.jpg</strong> (415.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 18:03 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34590#       发表于 2021-3-24 18:36
+
+
+
+
+King感觉很享受当哥哥的感觉啊，是不是因为尊比他大的原因平常没有叫妹妹的机会
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34591#       发表于 2021-3-24 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> KING这是被虎背熊腰的姐姐压迫久了，对小动物和妹妹系角色没有抵抗力的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34592#       发表于 2021-3-24 19:51
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-24 19:55 编辑 
+
+社里都是比他大的，憋久了
+
+你看他对rrm多好
+
+
+rrm不一定比king小，但是反正网上往来，表现得像妹妹就行了
+
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 34593#       发表于 2021-3-24 19:52
+
+
+
+
+rrm年龄比KING小吗
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34594#       发表于 2021-3-24 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> mrr大概比king大一轮吧，rrm不清楚
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34595#       发表于 2021-3-24 20:01
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-24 20:04 编辑 
+
+rrm不清楚吧，这么一说king确实喜欢妹妹，上次还夸了半天レヴィ特别可爱，年纪小在你虹压抑太久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（※内含king踩一捧一黑屁同期）
+[https://www.youtube.com/watch?v=o8Q4-fGdPGk](https://www.youtube.com/watch?v=o8Q4-fGdPGk)
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34596#       发表于 2021-3-24 20:11
+
+
+
+
+从levi这事也可以看出来他不管中之人的
+
+表现出来的幼小感比较重要
+
+平常母性姐性摄取太过
+
+
+
+
+
+                                              
