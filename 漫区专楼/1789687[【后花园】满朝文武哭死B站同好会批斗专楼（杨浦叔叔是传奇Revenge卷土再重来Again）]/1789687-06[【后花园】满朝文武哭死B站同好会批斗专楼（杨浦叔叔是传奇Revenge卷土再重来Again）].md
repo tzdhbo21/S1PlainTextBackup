@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-24 16:26** 
+> ## **本文件最后更新于2021-03-25 13:42** 
 
 
 
@@ -13597,4 +13597,567 @@ mmd播放量断崖式下跌，疑似遭阿b针对。“降低曝光度，压制�
 
 
 
-                        
+
+
+-----
+
+####  如月尤菲  
+##### 8254#         楼主| 发表于 2021-3-25 00:33
+
+
+
+ 本帖最后由 如月尤菲 于 2021-3-25 00:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725438&amp;ptid=1789687" target="_blank">秋开 发表于 2021-3-25 00:10</a>
+美帝开始降维打击了，问责法案要出了，不符合审计要求直接停牌，欲加之罪何患无辞，中概股今天直接崩了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正马上去港股了，看了眼，爱奇艺跌了17%，叔叔才6%，说来爱奇艺这两年搞自制剧风生水起（赘婿还挺好看的），还是不如当二刺螈买办的叔叔
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 8255#       发表于 2021-3-25 07:55
+
+
+
+
+啥？叔叔耍猴呢？
+
+
+
+
+
+
+
+-----
+
+####  masakahaha  
+##### 8256#       发表于 2021-3-25 08:08
+
+
+
+
+发生了什么，跌的这么狠<img src="https://p.sda1.dev/1/42cc4420b106bb5e00d7e93e08bd40b3/IMG_CMP_222139119.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO Lenovo TB-J606F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3.1
+
+
+
+
+
+
+
+-----
+
+####  clablbkao  
+##### 8257#       发表于 2021-3-25 08:33
+
+
+
+
+跌的还不够狠，跌到0.05美元我就勉为其难接一股
+
+
+
+
+
+
+
+-----
+
+####  秋开  
+##### 8258#       发表于 2021-3-25 08:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726632&amp;ptid=1789687" target="_blank">masakahaha 发表于 2021-3-25 08:08</a>
+发生了什么，跌的这么狠
+
+—— 来自 LENOVO Lenovo TB-J606F, Android 10上的 S1Next-鹅版 v2.4.3.1 ...</blockquote>
+问责法案，不符合审计的直接停牌，那边刚缓过来劲就来搞我们。
+<img src="https://p.sda1.dev/1/983d4447b9e8087f689c94ebe1fbb18e/11ccf97414bbeac0.jpg" referrerpolicy="no-referrer">
+而且港股上市就可以做空了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  saevey  
+##### 8259#       发表于 2021-3-25 09:01
+
+
+
+
+明日之丈2最好的字幕是昨天刚上线的b站正版，突然间不想b站完犊子了。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  可惜是个变态  
+##### 8260#       发表于 2021-3-25 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726985&amp;ptid=1789687" target="_blank">saevey 发表于 2021-3-25 09:01</a>
+明日之丈2最好的字幕是昨天刚上线的b站正版，突然间不想b站完犊子了。 ...</blockquote>
+b黑楼当然是劝你学日语了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 8261#       发表于 2021-3-25 18:10
+
+
+
+
+舰b下架了 这次批站要少多少流水
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  白鹤没有翅膀  
+##### 8262#       发表于 2021-3-25 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731908&amp;ptid=1789687" target="_blank">absaki 发表于 2021-3-25 18:10</a>
+舰b下架了 这次批站要少多少流水
+
+—— 来自 Xiaomi MI 9, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+发生什么了？
+
+
+
+
+
+
+
+-----
+
+####  如月尤菲  
+##### 8263#         楼主| 发表于 2021-3-25 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726749&amp;ptid=1789687" target="_blank">秋开 发表于 2021-3-25 08:33</a>
+问责法案，不符合审计的直接停牌，那边刚缓过来劲就来搞我们。
+
+而且港股上市就可以做空了。</blockquote>
+叔叔危！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+#国际快讯#  
+美国证券委开始落实旨在让中国公司退市的法律：如果中国公司连续三年未达到美国的审计标准，将被从美国交易所退市。
+规则还要求公司向SEC证明，它们并非由外国政府实体拥有或控制，并披露董事会成员中的中国共产党官员的名字。
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 8264#       发表于 2021-3-25 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731959&amp;ptid=1789687" target="_blank">白鹤没有翅膀 发表于 2021-3-25 18:17</a>
+发生什么了？</blockquote>
+<img src="https://p.sda1.dev/1/700b2e51fc84a223fd6a95d1b514c8bf/-33680a35d9ecf4d4.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  白鹤没有翅膀  
+##### 8265#       发表于 2021-3-25 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732151&amp;ptid=1789687" target="_blank">absaki 发表于 2021-3-25 18:41</a>
+—— 来自 Xiaomi MI 9, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+好 时 代 来 临 力
+
+
+
+
+
+
+
+-----
+
+####  亚瑟邓特  
+##### 8266#       发表于 2021-3-25 19:02
+
+
+
+
+bgo呢bgo呢bgo呢
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 8267#       发表于 2021-3-25 19:04
+
+
+
+
+大的要来了
+
+
+
+
+
+
+
+-----
+
+####  ads147147  
+##### 8268#       发表于 2021-3-25 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732059&amp;ptid=1789687" target="_blank">如月尤菲 发表于 2021-3-25 18:29</a>
+
+叔叔危！
+
+#国际快讯#  
+
+美国证券委开始落实旨在让中国公司退市的法律：如果中国公司连续三年未达 ...</blockquote>
+草，叔叔不就是党员吗
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 8269#       发表于 2021-3-25 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732059&amp;ptid=1789687" target="_blank">如月尤菲 发表于 2021-3-25 18:29</a>
+ 叔叔危！ #国际快讯#   美国证券委开始落实旨在让中国公司退市的法律：如果中国公司连续三年未达 ...</blockquote>
+怪不得急着香港上市<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nemo艇长  
+##### 8270#       发表于 2021-3-25 19:12
+
+
+
+
+回头啊b营销自己成为与境外视频网站对抗的先锋怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，这个贴会不会也迎来最后的时刻呢。
+
+
+
+
+
+
+
+-----
+
+####  如月尤菲  
+##### 8271#         楼主| 发表于 2021-3-25 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732429&amp;ptid=1789687" target="_blank">Nemo艇长 发表于 2021-3-25 19:12</a>
+回头啊b营销自己成为与境外视频网站对抗的先锋怎么办，这个贴会不会也迎来最后的时刻呢。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">把楼里的挨个吊路灯，然后楼主炮决
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  彩虹肥宅  
+##### 8272#       发表于 2021-3-25 19:35
+
+
+
+
+快把bgo冲死
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  白鹤没有翅膀  
+##### 8273#       发表于 2021-3-25 19:38
+
+
+
+
+真要按碧蓝航线那个标准枪毙的话，国内二次元手游能死个6 7成
+
+
+
+
+
+
+
+-----
+
+####  夜游宫  
+##### 8274#       发表于 2021-3-25 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732713&amp;ptid=1789687" target="_blank">白鹤没有翅膀 发表于 2021-3-25 19:38</a>
+
+真要按碧蓝航线那个标准枪毙的话，国内二次元手游能死个6 7成</blockquote>
+就我个人来看，顶多三成。
+
+MHY、鹰角在这方面搞得都挺严实。
+
+
+
+
+
+
+
+-----
+
+####  闲的有聊  
+##### 8275#       发表于 2021-3-25 19:49
+
+
+
+
+批站现在首页广告开始推脑残手游了，还关不了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白鹤没有翅膀  
+##### 8276#       发表于 2021-3-25 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732729&amp;ptid=1789687" target="_blank">夜游宫 发表于 2021-3-25 19:39</a>
+就我个人来看，顶多三成。
+
+MHY、鹰角在这方面搞得都挺严实。</blockquote>
+也就这几家了，不少手游还是软色气营销为主
+
+
+
+
+
+
+
+-----
+
+####  Nemo艇长  
+##### 8277#       发表于 2021-3-25 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732651&amp;ptid=1789687" target="_blank">如月尤菲 发表于 2021-3-25 19:30</a>
+
+把楼里的挨个吊路灯，然后楼主炮决
+
+
+—— 来自 realme RMX2202, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
+提一个建议，一楼还是内容太多，把一楼变成新内容的更新地，老内容都集中在几个新的楼层里。再把这几个新楼层置顶。这样看起来更清晰。
+
+
+
+
+
+
+
+-----
+
+####  flypig_zhy  
+##### 8278#       发表于 2021-3-25 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724146&amp;ptid=1789687" target="_blank">potenzh 发表于 2021-3-24 21:50</a>
+
+难道真想搞阿a独不播</blockquote>
+排A什么的都是DAG的妄想症发作---二次元耶路撒冷的圣殿骑士们如是说
+
+
+
+
+
+
+
+-----
+
+####  Erinyas  
+##### 8279#       发表于 2021-3-25 20:31
+
+
+
+
+鹰角死的更快吧，别人搞软色情，这家玩恶政隐
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  jing08  
+##### 8280#       发表于 2021-3-25 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725628&amp;ptid=1789687" target="_blank">如月尤菲 发表于 2021-3-25 00:33</a>
+
+反正马上去港股了，看了眼，爱奇艺跌了17%，叔叔才6%，说来爱奇艺这两年搞自制剧风生水起（赘婿还 ...</blockquote>
+爱奇艺为什么跌的这么厉害去用用不就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魂淡放我出去  
+##### 8281#       发表于 2021-3-25 21:07
+
+
+
+
+倒不如说舰b至今才被搞下架后台是真滴硬，每次看我表弟给我看的那些皮肤我就在想12岁的小朋友的弟弟顶得住吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  flypig_zhy  
+##### 8282#       发表于 2021-3-25 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732713&amp;ptid=1789687" target="_blank">白鹤没有翅膀 发表于 2021-3-25 19:38</a>
+
+真要按碧蓝航线那个标准枪毙的话，国内二次元手游能死个6 7成</blockquote>
+碧蓝我只云过图片觉得很够用的，现在国内手游都这么能用的？
+
+
+
+
+
+
+
+-----
+
+####  Heliko  
+##### 8283#       发表于 2021-3-25 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726985&amp;ptid=1789687" target="_blank">saevey 发表于 2021-3-25 09:01</a>
+明日之丈2最好的字幕是昨天刚上线的b站正版，突然间不想b站完犊子了。 ...</blockquote>
+真的？好在哪里？
+
+
+
+
+
+
+
+-----
+
+####  如月尤菲  
+##### 8284#         楼主| 发表于 2021-3-25 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下架也就罚酒三杯吧
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+                       

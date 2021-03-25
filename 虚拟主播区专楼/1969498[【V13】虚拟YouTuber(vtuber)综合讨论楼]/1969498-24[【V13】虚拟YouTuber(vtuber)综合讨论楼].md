@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-25 07:46** 
+> ## **本文件最后更新于2021-03-25 13:43** 
 
 
 
@@ -2523,4 +2523,739 @@ Kanoya Mangekyo的想法 - 知乎
 
 
 
-                                             
+
+
+-----
+
+####  OldGlory  
+##### 34623#       发表于 2021-3-25 15:53
+
+
+
+
+你们见证人大战别来v综打啊。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34624#       发表于 2021-3-25 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">字幕组光当上级粉丝不行还想当运营啊
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34625#       发表于 2021-3-25 16:10
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-3-25 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50729576&amp;ptid=1969498" target="_blank">触手姬 发表于 2021-3-25 13:47</a>
+跨国转账问题永远不可能简单解决，也不可能简单解决，不要把这类问题想得太简单了。乱来可是要进监狱的 ...</blockquote>
+购汇方面可以直接走有资格的第三方，也可以申请支付牌照。
+提现方面，可以明确收益化条件，达到条件就签正规服务进口合同，达不到条件不开打赏。
+
+方法总比困难多。现在的问题是b站既想挣进口的差价，又不愿意碰外汇，把麻烦全部丢给了字幕组和中介。
+
+---
+想了下，是不是可以举报上海某互联网公司纵容主播逃避外汇监管，非法向海外转移资金<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34626#       发表于 2021-3-25 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50730854&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-3-25 16:10</a>
+
+购汇方面可以直接走有资格的第三方，也可以申请支付牌照。
+
+提现方面，可以明确收益化条件，达到条件就签 ...</blockquote>
+想多了，b现在连外语界面都没有，还折腾购汇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34627#       发表于 2021-3-25 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50730944&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-3-25 16:23</a>
+
+想多了，b现在连外语界面都没有，还折腾购汇</blockquote>
+皇协站到现在还没日语界面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 34628#       发表于 2021-3-25 17:43
+
+
+
+
+bzml晚上jst 20.00 玩东方虹龙洞体验版啊 虽然这作zun显然又喝醉了(巨大死亡惩罚加道具设定=终极炸比游戏)，但是她打这个我还是非常期待的。
+https://youtu.be/KaVTVu4bY6Q
+有空可以看看
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34629#       发表于 2021-3-25 17:52
+
+
+
+[https://www.bilibili.com/blackboard/live/activity-IgzEdfZgki.html](https://www.bilibili.com/blackboard/live/activity-IgzEdfZgki.html)
+
+冰火找的人怎么越来越不能打
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/25/175242foxlwoz0xxho400z.png" referrerpolicy="no-referrer">
+
+
+<strong>冰火.png</strong> (174.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 17:52 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 34630#       发表于 2021-3-25 18:00
+
+
+
+
+一点看点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 34631#       发表于 2021-3-25 18:10
+
+
+
+
+出场费就给1245/450（分成前），当然没人来啊，叔叔能不能大方一点，自家节目什么收视率没点bi数吗
+
+
+
+
+
+
+
+-----
+
+####  十四洲  
+##### 34632#       发表于 2021-3-25 18:39
+
+
+
+
+为什么同事能播的游戏叶师说不能播，请问您是你记三急所属吗😅
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34633#       发表于 2021-3-25 18:48
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-25 19:17 编辑 
+
+和CAPCOM没谈下来モンハン不能播了，ickr费拉不卡
+
+最近大惨事和著作权问题杠上了，ssk的パチスロ配信也被削除了
+
+<img src="https://img.saraba1st.com/forum/202103/25/184416a0fextxtvxhvhhv9.png" referrerpolicy="no-referrer">
+
+
+<strong>はじめての１人でパチスロ【にじさんじ:笹木咲】.png</strong> (51.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 18:44 上传
+
+
+
+
+
+
+每当你觉得行业变化太快，总能发现有些会社始终如一的安定拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+Syl，不光露皇让人不安
+
+東堂コハクの2021年配信回数
+
+01月　5回
+
+02月　4回
+
+03月　0回
+
+
+半年到了
+
+
+Zsyl，翻了一下MHW现在阿喵喵正在播，日本人也不知道为什么他不能播，大概有以下猜想：
+
+1.叶开除虹籍
+
+2.搞最速被拉黑
+
+3.出于不知名原因的自肃
+
+顺便一提
+
+運営から配信ストップかけられたもの
+
+・コンカラ(葛葉もストップ)
+
+・モンハン
+<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer"> 
+
+Zzsyl，为了对抗Ark，リオン连搁置半年的いちから中央銀行企划都搬出来了，King私下lol、连原神都工商了也不想Ark，悲
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34634#       发表于 2021-3-25 18:50
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-25 18:54 编辑 
+
+半年到了
+
+syl，不知道为啥，这次我觉得露是真的要走了
+
+zsyl，等下哪里说不能播了，只是老叶要吃独食啊。一堆人开台呢
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34635#       发表于 2021-3-25 18:59
+
+
+
+
+小琥珀佛是佛了点，但前几天有冒泡说之后会播啦，我是真担心口了，真的几乎人人都说想了，咋还不回，别逼郡道跪下来求你<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 34636#       发表于 2021-3-25 19:03
+
+
+
+
+为什么各大主播都在7点开始了怪猎<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34637#       发表于 2021-3-25 19:06
+
+
+
+
+看了一下你虹ark服务器玩的比较的久真就没一个不玩猛汉的，估计明天一过你虹ark立马鬼服，这垃圾游戏也就夜见喜欢玩了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34638#       发表于 2021-3-25 19:20
+
+
+
+
+船长不选幸运兔脚是否也是一种不仲（玩笑），
+咲夜好难用，船长选这个初见好刺激啊（指观看体验<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34639#       发表于 2021-3-25 19:34
+
+
+
+
+Bsyl，＼VTuberやゲストが遊びつくすパーティーフェイス／
+
+春のVTuberゲームまつり桜
+
+<img src="https://img.saraba1st.com/forum/202103/25/193122r43c4z84hf4wafiq.png" referrerpolicy="no-referrer">
+
+
+<strong>春のVTuberゲームまつり桜.png</strong> (107.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 19:31 上传
+
+
+
+
+
+▼3/27(土)
+
+15:00 リアルVSネット #雀魂
+
+17:00 VOMS インディーゲーム探検隊
+
+18:20 #AmongUs
+
+20:00 アイドル部 インディーゲーム探検隊
+
+21:20 桃太郎電鉄 ～昭和 平成 令和も定番！～
+
+＼VTuberやゲストが遊びつくすパーティーフェイス／
+
+春のVTuberゲームまつり桜
+
+
+▼3/27(土)
+
+15:00 リアルVSネット #雀魂
+
+17:00 VOMS インディーゲーム探検隊
+
+18:20 #AmongUs
+
+20:00 アイドル部 インディーゲーム探検隊
+
+21:20 桃太郎電鉄 ～昭和 平成 令和も定番！～
+[https://live.nicovideo.jp/watch/lv331000312](https://live.nicovideo.jp/watch/lv331000312)
+
+...谁摆的这图啊！
+
+<img src="https://img.saraba1st.com/forum/202103/25/193359b887uzk4cm97dum8.png" referrerpolicy="no-referrer">
+
+
+<strong>春のVTuberゲームまつり.png</strong> (27.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 19:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34640#       发表于 2021-3-25 20:22
+
+
+
+
+月之这直播年代感，新衣服不会是涩谷系黑皮辣妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34641#       发表于 2021-3-25 20:51
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-25 21:22 编辑 
+
+地雷天下第一！！！
+
+从昭和、平成一路走到令和
+
+<img src="https://img.saraba1st.com/forum/202103/25/205440wxokyxgqyygo55kg.png" referrerpolicy="no-referrer">
+
+
+<strong>【#みとの新衣装​】kawaii力を貯めてプリプリ新衣装を見よう！【にじさんじ:月ノ美兎.png</strong> (147.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 20:54 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=bWDQC-Bad5k](https://www.youtube.com/watch?v=bWDQC-Bad5k)
+
+看牙医也太好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/25/211756qmf19zzk47mll9yq.png" referrerpolicy="no-referrer">
+
+
+<strong>【#みとの新衣装​】kawaii力を貯めてプリプリ新衣装を見よう！【にじさんじ:月ノ美兎.png</strong> (118.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 21:17 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/25/212227ahhakniivx8vkakv.png" referrerpolicy="no-referrer">
+
+
+<strong>【#みとの新衣装​】kawaii力を貯めてプリプリ新衣装を見よう！【にじさんじ:月ノ美兎.png</strong> (85.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 21:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34642#       发表于 2021-3-25 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">才注意到撇撇郡道森中组队参加哈弟的周赛，这是怎样一种当肉猪的精神啊
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34643#       发表于 2021-3-25 20:55
+
+
+
+
+这个网袜又土又雷
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34644#       发表于 2021-3-25 20:56
+
+
+
+
+浅仓透和黛冬优子的女儿，月之美兔（地雷服ver），
+前面那个染发剪发话题太有真实感了，阿花可能真的去体验染发了，清纯妹阿花染头了啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">……
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 34645#       发表于 2021-3-25 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732537&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-25 19:20</a>
+船长不选幸运兔脚是否也是一种不仲（玩笑），
+咲夜好难用，船长选这个初见好刺激啊（指观看体验 ...</blockquote>
+后来还是屈服于早苗的强大了
+syl 阿委这新衣服太怪了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  はにん信者  
+##### 34646#       发表于 2021-3-25 20:59
+
+
+
+
+也太好看了吧月之这新衣服，好戳我！
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34647#       发表于 2021-3-25 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更想看涩谷系黑皮辣妹天皇，这个虽然蛮可爱的，但有点平凡啊，还很像阿希。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34648#       发表于 2021-3-25 21:02
+
+
+
+
+发错楼了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34649#       发表于 2021-3-25 21:07
+
+
+
+
+感觉兔头这套脸变幼了，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 34650#       发表于 2021-3-25 21:19
+
+
+
+
+兔头可爱
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 34651#       发表于 2021-3-25 21:21
+
+
+
+
+不过实话说作为地雷系的服饰，整体装饰还觉还是少了点，裙角袜子头发上再多点装饰品就好了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34652#       发表于 2021-3-25 21:23
+
+
+
+
+好棒，好棒…
+本来以为月之会搞之前和花妖精一起去的lo服，没想到是地雷服，月之自己本人也很喜欢这套的样子，一阵狂舔，前面的染发小故事和女仆装塔图又让这套衣服格外有阿花感，爆。
+其实看到可爱风的时候有点担心会是像秋服夏服那样就换个衣服啥的，结果还是搞了个地雷女（偶尔陪酒）人设的（就是腔调装久了容易呕），也能更放松地献媚了，点名要可爱颜色的sc真的笑到，好喜欢…地雷量产那种要哭要哭的眼角也<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">…
+阿花变可爱了不会被男人拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34653#       发表于 2021-3-25 21:33
+
+
+
+
+我也想说阿花这窗的演技感觉是男人滋润过了
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 34654#       发表于 2021-3-25 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">叶又能播mhr，之前是什么大人的事情不能播的
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 34655#       发表于 2021-3-25 21:36
+
+
+
+
+不过还是可爱，最后念大叔式文章的时候有内味了，谁不喜欢会献媚的可爱女生呢。对着镜头兴奋的不停摆pose真的可爱。
+
+
+
+
+
+                                            
