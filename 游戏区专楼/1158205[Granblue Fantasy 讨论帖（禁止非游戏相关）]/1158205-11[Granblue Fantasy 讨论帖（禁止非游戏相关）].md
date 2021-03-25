@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-23 13:46** 
+> ## **本文件最后更新于2021-03-25 14:35** 
 
 
 
@@ -5839,4 +5839,567 @@ hrt导入天井那时候我记得是过去重复的角色武器都直接把对�
 
 
 
-                                      
+
+
+-----
+
+####  -みゆめ-  
+##### 15332#       发表于 2021-3-23 21:56
+
+
+
+
+隐者的LB和领域确实是重大利好
+
+但是2021年了只回200血和10普刃感觉还是太保守了点……
+
+
+
+
+
+
+
+-----
+
+####  Risa  
+##### 15333#       发表于 2021-3-24 09:14
+
+
+
+
+测试了一下2诺亚基础上，4凸挖耳勺替换老男人杖
+
+结论：只平A的情况下，有2个追伤效果的情况下，挖耳勺微微强于老男人杖。
+
+奥义：高防被老男人杖全面碾压，低防输老男人杖20W，总之，又是一个阴间武器<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15334#       发表于 2021-3-24 12:43
+
+
+
+
+那还是不农黑光妈斧了
+
+拿两把光龙斧塞进盘子里也一样吧（不一样）
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15335#       发表于 2021-3-24 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矿挖干了，缝缝补补又一井
+
+静候月末新泳装，希望前一个池子白嫖的好点，后面井起来选择余地大一些
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15336#       发表于 2021-3-24 15:04
+
+
+
+
+突入10连长毛象
+红毛突入10连泳装阿米拉
+w红毛突入10连泳装路
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这池up就缺这俩也抽到了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  JMFluorece  
+##### 15337#       发表于 2021-3-24 15:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">绿毛210连1ssr什么水平....属实有点非
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15338#       发表于 2021-3-24 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50720169&amp;ptid=1158205" target="_blank">JMFluorece 发表于 2021-3-24 15:41</a>
+绿毛210连1ssr什么水平....属实有点非</blockquote>
+差点变欧皇的水平<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15339#       发表于 2021-3-24 16:11
+
+
+
+
+有哪个法武是可以老王方阵通用的吗？或者哪个方阵3阶不是那么重要
+
+下面具体情况可以不看
+
+
+
+咸鱼，现在有4金，等KMR送送应该能六属3阶，但是要转老王的话就得额外再等一块金，所以能省就先省点。目前有意向的老王是暗（差个面具姐）&gt;土（差个肥宅）&gt;水（差得有点多但是都可以井，而且提升大）&gt;火（差得有点多）&gt;光风（差得有点多而且菜）
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15340#       发表于 2021-3-24 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50720497&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-24 16:11</a>
+有哪个法武是可以老王方阵通用的吗？或者哪个方阵3阶不是那么重要
+
+下面具体情况可以不看</blockquote>
+从我日常到fs6属solo的体感来说的话，水方阵法应该是最不重要的。
+
+solo我用的2阶法，而且很轻松就过了（双贤高难太强，而且有两把背水武器撑伤害）。日常也用的龙斧配合泥鳅短减伤，大概相当于1椰的防御量。打牛不介意按咸鱼的话2阶法也轻松1键，不过这些都建立在我水角色限定到普池很齐的基础上。
+
+再看公认比较强的风土方，一个是土宇宙离不开三阶撑攻刃，一个是看似比较强的风方再龙武两把加入盘子踢了铳过后，方阵武器其实越来越少了，割草只有2琴1勺1四象同样离不开三阶的大攻刃。
+
+再来应该就是火方了，除了solo我基本都龙琴主手打所有日常而且不怎么用火方打拳，靠树枝的暴击背水湿婆杖的浑身过得也挺滋润的。
+
+所以真不想做的话首选水三阶，其次应该是火了。光暗不用想了，对方阵提升巨大<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15341#       发表于 2021-3-24 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50721114&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-24 17:07</a>
+从我日常到fs6属solo的体感来说的话，水方阵法应该是最不重要的。
+
+solo我用的2阶法，而且很轻松就过了（ ...</blockquote>
+谢谢，综合需求跟转老王的意向就先做个光吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">，正好这两天用的光打的，感觉还挺稳
+风方法武那个攻刃重要那是不是说老王其实也是插风方的好？毕竟老王攻刃溢出，风方貌似也没有特别好的攻刃给开乘区
+水不重要有点意外，感觉不是挺需要那个浑身的吗？不过我水人权比较少<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15342#       发表于 2021-3-24 18:43
+
+
+
+
+隐者那200回血还挺烦的，我点了之后又给他扣了，还好lb随便扣，不像魔术师领域动画纯弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leafS  
+##### 15343#       发表于 2021-3-24 18:57
+
+
+
+
+看到隔壁pcr下调200一井，我酸了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 15344#       发表于 2021-3-24 19:49
+
+
+
+
+我很纠结玩土老王到底还要不要砸神盾短，不知道金骑枪竹刀剩下随便一把免费的暴击和金骑枪竹刀神盾短差距有多少。换石油弓和金骑枪凑94%暴击吧我一时半会又做不出来魔术师感觉为了暴击换石油弓有点亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 15345#       发表于 2021-3-24 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722913&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-3-24 19:49</a>
+
+我很纠结玩土老王到底还要不要砸神盾短，不知道金骑枪竹刀剩下随便一把免费的暴击和金骑枪竹刀神盾短差距有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在也没地方能让你必爆啊，下次土团还不知道什么时候呢
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15346#       发表于 2021-3-24 20:26
+
+
+
+
+gbf天井减负还是别想太多了，pcr的人权就算是普池，错过了要想再获得难度很高
+gbf本身就挺看重抽卡的规划，而且普池也有超得补救，不是自己精进属性的人权卡实际上也可以无视，最重要的是大转盘不可能削
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15347#       发表于 2021-3-24 21:17
+
+
+
+
+为了这次打水团英雄舒服点 突然想换个水方天和水给波
+
+我一定是疯了(<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15348#       发表于 2021-3-24 21:34
+
+
+
+ 本帖最后由 Sylpheed 于 2021-3-24 21:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50721457&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-24 17:37</a>
+谢谢，综合需求跟转老王的意向就先做个光吧，正好这两天用的光打的，感觉还挺稳
+风方法武那个攻刃 ...</blockquote>
+感觉理解得有点偏差，任何老王双面的情况下方阵法都没没有一丁点优势，老王使用方阵法的情况只存在于光火暗以及之前的多刀泰坦这种靠lm堆了大量普刃之后单面开乘区用的，不存在方阵老王法可以通用的情况，各自使用对应加护的法武才是最优。我上面只针对后半句“哪些方阵3阶不那么重要”来说的。
+然后风方攻刃的问题也说了，现在对比以前的3铳3琴构筑，方阵武器的数量是比较少的，而且踢掉铳以后，现在方阵攻刃量其实不太够，需要三阶法来支撑。（顺便3短2枪风老王用方阵还是老王法，预测都没什么区别，不必考虑能通用的问题了）
+
+水方法武要不要做就要看你box了，至少我水闪/狗 老男人超限4fa火龙，用龙武还是三阶法几乎看不出区别。盘子里除了龙虾拳还有olb拳和四象短，带龙武稍微掉一点血也能上限。
+水角色不够的好的话做三阶提升会大一些。（说水不重要是因为水方没角色是真的菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15349#       发表于 2021-3-24 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50723980&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-24 21:34</a>
+感觉理解得有点偏差，任何老王双面的情况下方阵法都没没有一丁点优势，老王使用方阵法的情况只存在于光火 ...</blockquote>
+啊这……但是你说光火暗可以用方阵法，那不是说明可以通用吗？风老王两个预测差不多，那不是也可以通用？<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  再迷  
+##### 15350#       发表于 2021-3-24 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724169&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-24 21:52</a>
+啊这……但是你说光火暗可以用方阵法，那不是说明可以通用吗？风老王两个预测差不多，那不是也可以通用？ ...</blockquote>
+一般除了老王的个别特殊构筑用方阵法开乘区以外，都是方阵带方阵，老王带老王，方阵靠法武撑攻刃，老王靠法武腾格子带插件
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15351#       发表于 2021-3-24 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724169&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-24 21:52</a>
+啊这……但是你说光火暗可以用方阵法，那不是说明可以通用吗？风老王两个预测差不多，那不是也可以通用？ ...</blockquote>
+法武这东西，一是强在三阶插件，然后就是神威大的血量非常强了，血量没有乘区的说法，必须要吃对应加护。
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15352#       发表于 2021-3-24 22:20
+
+
+
+ 本帖最后由 Sylpheed 于 2021-3-24 22:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724169&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-24 21:52</a>
+啊这……但是你说光火暗可以用方阵法，那不是说明可以通用吗？风老王两个预测差不多，那不是也可以通用？ ...</blockquote>
+风老王用两种法武预测差不多那句
+说直白点就是，铁了心玩风老王金又不够多，就不用浪费金做方阵的三阶了，方阵3阶对老王0提升甚至负提升。
+相反不玩风老王的话，风方三阶是很有必要做的，体验提升一个档次
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15353#       发表于 2021-3-24 22:27
+
+
+
+
+想请教一下，有150章鱼和超限卡托鲁的话，一弓一枪的盘子法武三阶段附魔选什么呢？现在盘子是弓枪2龙2卡剑玄武锤星幽天司法武。
+
+浑身附魔打湿婆被摸掉一点血就觉得输出掉的厉害，又担心只有一把欧枪提供浑身乘区的话不太够（不上狼弓是贪玄武锤的上限，毕竟我没有天司）
+
+后排除了女帝的话另一个是带冰皇好还是妈妈好<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15354#       发表于 2021-3-24 22:54
+
+
+
+[@Sylpheed](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=464593) [@再迷](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=179514) 
+谢谢两位，明白了。忘了3技能也要吃加护这事了以前都没想过我能做出三阶
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  sodah  
+##### 15355#       发表于 2021-3-24 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722913&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-3-24 19:49</a>
+
+我很纠结玩土老王到底还要不要砸神盾短，不知道金骑枪竹刀剩下随便一把免费的暴击和金骑枪竹刀神盾短差距有 ...</blockquote>
+首先土必爆目前不是什么必要的东西。金骑枪和神盾短这两玩意在群里都是拿来乳的。你这还涉及到石油弓，有多余的钢还不如玩玩别的。
+
+
+
+
+
+
+
+-----
+
+####  macshi  
+##### 15356#       发表于 2021-3-25 12:18
+
+
+
+
+土必爆占三格太蠢了，盘子挤到不行，想塞个职武芬剑都没位置。之前吃桃的老王160加成两格子必爆破灭之后还是不推荐做。
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15357#       发表于 2021-3-25 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">水法武可能是需要农一堆螺丝按需切换最频繁的法武
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15358#       发表于 2021-3-25 14:55
+
+
+
+
+水快点落地一个进境LM吧orz
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15359#       发表于 2021-3-25 17:24
+
+
+
+
+水已经改过lm词条了短期内不会再出了
+
+风lm赶紧更新一批，我存了18钢其他老王都看不上就等着更新风盘
+
+
+
+
+
+
+
+-----
+
+####  MARBLE  
+##### 15360#       发表于 2021-3-25 22:03
+
+
+
+
+水现在这个强度不出上限系列的LM感觉氪金意愿有点低
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15361#       发表于 2021-3-25 22:19
+
+
+
+
+是时候换一把无敌的给波了 技巧大+进境<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
