@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-24 12:32** 
+> ## **本文件最后更新于2021-03-25 07:46** 
 
 
 
@@ -1432,10 +1432,11 @@ nrk这队友是挂要自雷，遇到别的挂要白给，心态要被挂打崩�
 
 
 
- 参与人数 2战斗力 +3
+ 参与人数 3战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|好评加鹅|
 | alcoholic1000| + 1||
 | kangkangsama| + 2||
 
@@ -2021,12 +2022,30 @@ rrm年龄比KING小吗
 
 
 
- 本帖最后由 alcoholic1000 于 2021-3-24 20:04 编辑 
+ 本帖最后由 alcoholic1000 于 2021-3-24 23:25 编辑 
 
 rrm不清楚吧，这么一说king确实喜欢妹妹，上次还夸了半天レヴィ特别可爱，年纪小在你虹压抑太久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 （※内含king踩一捧一黑屁同期）
 [https://www.youtube.com/watch?v=o8Q4-fGdPGk](https://www.youtube.com/watch?v=o8Q4-fGdPGk)
+
+
+Syl，the king怎么跑叶师LOL频道来了，看来原神和Ark真不好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这名字
+
+<img src="https://img.saraba1st.com/forum/202103/24/232500xiliskbmakhme42z.png" referrerpolicy="no-referrer">
+
+
+<strong>LOL | らんくいくのわーる 【にじさんじ:叶】.png</strong> (101.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 23:25 上传
+
+
+
+
 
 
 
@@ -2053,4 +2072,455 @@ rrm不清楚吧，这么一说king确实喜欢妹妹，上次还夸了半天レ�
 
 
 
-                                              
+
+
+-----
+
+####  flyskywalker92  
+##### 34597#       发表于 2021-3-24 21:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友这就快进到妹控king了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34598#       发表于 2021-3-24 21:21
+
+
+
+ 本帖最后由 free 于 2021-3-24 21:26 编辑 
+
+小豆泽这怎么回事，B站中介靠不住啊
+
+实名认证还用的中介，这下不好办了
+
+
+<img src="https://img.saraba1st.com/forum/202103/24/212101tt5mn98395xs9h6h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q16t-hp5ZdT3cSk3-sg.jpg</strong> (135.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 21:21 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34599#       发表于 2021-3-24 22:11
+
+
+
+
+企业和字幕组两个分道扬镳的东西能贴到一块才有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34600#       发表于 2021-3-24 22:19
+
+
+
+
+木口那时候一堆字幕组把自己摘出去了，比如经典的“她同意了”，卖自己的v毫不手软的。
+
+现在这些人依旧想当粉头，想当人上人，不给当就闹，确实是人人平等的好时代了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34601#       发表于 2021-3-24 22:31
+
+
+
+
+mrr终于开了最爱的mhr，直播间里笑的可开心了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34602#       发表于 2021-3-24 23:03
+
+
+
+
+这次不知道要闹多大呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34603#       发表于 2021-3-24 23:06
+
+
+
+
+和隔壁YYUT一个事情。最近日本一堆MCN都在接盘B站鬼子up的运营业务，过程和结果充满了你日一如既往的后知后觉和不知变通，不可不品尝。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34604#       发表于 2021-3-24 23:09
+
+
+
+
+之前不是有山田智博那谁开的阿b官方授权的mcn嘛？
+咋就轮到他们了呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34605#       发表于 2021-3-24 23:15
+
+
+
+
+那个粉红猫猫nyan会和老爱一起在twitch直播。
+啧啧<img src="https://p.sda1.dev/1/0b90d8a8610ea230e0faf466bf479226/IMG_CMP_184976818.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34606#       发表于 2021-3-24 23:20
+
+
+
+
+葛，果然你还是放不下LOL吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34607#       发表于 2021-3-24 23:44
+
+
+
+
+郡道读空气3，得分153/1000，世上竟有如此ky之人。
+最近玩这种势头上的游戏也蛮多的，是要拥抱箱了吗？（玩笑，估计这回也不入ark服了）
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34608#       发表于 2021-3-24 23:45
+
+
+
+
+狱卒这咳嗽...嗓子没事吧
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 34609#       发表于 2021-3-25 00:06
+
+
+
+
+小 心 字 幕 组
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34610#       发表于 2021-3-25 03:51
+
+
+
+
+lol在日本人气不行啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34611#       发表于 2021-3-25 06:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga怎么在闹mcn的事，不给账号当打工仔不就是原来的点模式么。
+另外给字幕组账号事也不少了，狐皇这账号爆破还没半年呢。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 34612#       发表于 2021-3-25 08:20
+
+
+
+
+木口之后企业势小心字幕组应该是企业的共同认识了吧，谁知道哪天给你整个什么花活出来就爆炸了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34613#       发表于 2021-3-25 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50723866&amp;ptid=1969498" target="_blank">free 发表于 2021-3-24 21:21</a>
+
+小豆泽这怎么回事，B站中介靠不住啊
+
+实名认证还用的中介，这下不好办了</blockquote>
+好像最后决定要换号了，B站好不容易弄来这1.5万粉......
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34614#       发表于 2021-3-25 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">以后钱不过企业了，由字幕组直接给v转账，好时代来临了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34615#       发表于 2021-3-25 12:00
+
+
+
+
+说白了还是草台班子，企业表现的还没有部分个人可靠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34616#       发表于 2021-3-25 13:35
+
+
+
+
+还是比利比利最草台，至今没有搞定跨国转账问题
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 34617#       发表于 2021-3-25 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50729479&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-3-25 13:35</a>
+
+还是比利比利最草台，至今没有搞定跨国转账问题</blockquote>
+跨国转账问题永远不可能简单解决，也不可能简单解决，不要把这类问题想得太简单了。乱来可是要进监狱的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 34618#       发表于 2021-3-25 14:50
+
+
+
+ 本帖最后由 バーチャルS1er 于 2021-3-25 14:55 编辑 
+
+为啥不能当粉头呢？粉头or纯舔狗or伪舔狗随时转黑三个里面哪个好？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想白嫖有那么简单的么？以前木口阿B高人气的时候当字幕组还能当成跟风和自娱自乐
+
+
+现在这时候还有代理运营想做字幕组主人的主人这一套，字幕组之前到底是表现的有多好利用啊
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34619#       发表于 2021-3-25 15:05
+
+
+
+
+字幕组直接给v转账一样麻烦，金额大了会触及反洗钱
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 34620#       发表于 2021-3-25 15:07
+
+
+
+
+Kanoya Mangekyo的想法 - 知乎
+[https://www.zhihu.com/pin/1358363460556939264](https://www.zhihu.com/pin/1358363460556939264)
+[@Kanoya](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=492029) 有什么独家内幕，版友能否细说？秋梨膏。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34621#       发表于 2021-3-25 15:32
+
+
+
+
+什么企业还会比个人更不可靠<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34622#       发表于 2021-3-25 15:34
+
+
+
+
+测试
+
+
+
+
+
+                                             
