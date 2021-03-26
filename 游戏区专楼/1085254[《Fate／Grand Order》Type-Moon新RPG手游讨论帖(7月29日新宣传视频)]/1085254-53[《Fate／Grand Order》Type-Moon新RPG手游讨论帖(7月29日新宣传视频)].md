@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-24 14:33** 
+> ## **本文件最后更新于2021-03-26 05:47** 
 
 
 
@@ -4466,4 +4466,575 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 
 
 
-                                         
+
+
+-----
+
+####  白金口袋  
+##### 78243#       发表于 2021-3-24 23:15
+
+
+
+
+这石雕女，性能上不算出类拔萃，毕竟大公几乎人人都能歪出来，她俩几乎差不多
+
+剧情上也不算很有趣，没有让玩家感动得稀里哗啦的，或者像同为石雕的大象那样的玩梗搞笑
+
+卡面也糊弄的可以，除了部分从飞天小裤裤开始就好这口的，完全提不起欲望
+
+就......根本连护符都懒得砸
+
+也不知道叶二咋想的，眼看隔壁马娘都把自己按在地上锤了（可能也有少部分蓝色档案）
+
+这种时候才最应该放女梅林回升一波的，咋想的搬出这种石雕来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78244#       发表于 2021-3-24 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724963&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:15</a>
+
+这石雕女，性能上不算出类拔萃，毕竟大公几乎人人都能歪出来，她俩几乎差不多
+
+剧情上也不算很有趣，没有让 ...</blockquote>
+我到现在都没有大公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78245#       发表于 2021-3-24 23:30
+
+
+
+ 本帖最后由 黑上シグマ 于 2021-3-24 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724963&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:15</a>
+
+这石雕女，性能上不算出类拔萃，毕竟大公几乎人人都能歪出来，她俩几乎差不多
+
+剧情上也不算很有趣，没有让 ...</blockquote>
+
+先不说这种什么都不是的时期放女梅林是不是哪里搞错了……
+
+马娘按着地上锤又咋了，看看现在谷歌课金榜，就算没马娘也还有其他9个游戏在废狗上面呢，哪怕以前没马娘的时候不也是弹珠和智龙一直按着……
+
+
+以及现在哪有时间帮你好好搞，忙着抓内鬼好不好
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78246#       发表于 2021-3-24 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725098&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 09:30</a>
+
+先不说这种什么都不是的时期放女梅林是不是哪里搞错了……
+
+马娘按着地上锤又咋了，看看现在谷歌课金榜， ...</blockquote>
+先不说女梅林就是一例子，其他骗氪的角色多得是
+
+内鬼是什么详细说说，我错过了什么大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78247#       发表于 2021-3-24 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725152&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:35</a>
+
+先不说女梅林就是一例子，其他骗氪的角色多得是
+
+内鬼是什么详细说说，我错过了什么大新闻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">月初的事了啊，说是有DW内部员工爆出来樱战手游这爆死玩意儿是马场英雄在乱搞，员工很不满意跑了一大片，DW现在在抓是哪个人走漏的风声
+
+实际DW的确是跑了一大片人，一年跑掉了大概1/4
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78248#       发表于 2021-3-24 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 09:45</a>
+
+月初的事了啊，说是有DW内部员工爆出来樱战手游这爆死玩意儿是马场英雄在乱搞，员工很不满意跑了 ...</blockquote>
+原来如此，多谢解惑，虽然完全不关心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 78249#       发表于 2021-3-24 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725098&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:30</a>
+
+先不说这种什么都不是的时期放女梅林是不是哪里搞错了……
+
+马娘按着地上锤又咋了，看看现在谷歌课金榜， ...</blockquote>
+你现在再去看，已经第二了，出一个常驻就把马娘超了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78250#       发表于 2021-3-24 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725267&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:47</a>
+
+原来如此，多谢解惑，虽然完全不关心就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你游今年村正卡莲实装，白情开两个限定五星PU，爬塔活动实装新五星
+
+这急吼吼的敛财怕不都是拿去补贴樱战的
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78251#       发表于 2021-3-24 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:45</a>
+
+月初的事了啊，说是有DW内部员工爆出来樱战手游这爆死玩意儿是马场英雄在乱搞，员工很不满意跑了 ...</blockquote>
+要是离职员工爆的他们也查得出吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78252#       发表于 2021-3-24 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725273&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-3-24 23:48</a>
+
+你现在再去看，已经第二了，出一个常驻就把马娘超了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你那是IOS榜吧，谷歌榜还没动
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78253#       发表于 2021-3-24 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725281&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-24 09:49</a>
+
+要是离职员工爆的他们也查得出吗</blockquote>
+毕竟还有雇侦探啥的各种手段，要查肯定还是可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78254#       发表于 2021-3-25 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:45</a>
+
+月初的事了啊，说是有DW内部员工爆出来樱战手游这爆死玩意儿是马场英雄在乱搞，员工很不满意跑了 ...</blockquote>
+马场这种人都敢收，庄司的脑子真的有病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且到现在还是将废狗初期那套带进樱花大战，不暴死就奇怪了。
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78255#       发表于 2021-3-25 09:01
+
+
+
+ 本帖最后由 UNISONIA 于 2021-3-25 09:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:45</a>
+
+月初的事了啊，说是有DW内部员工爆出来樱战手游这爆死玩意儿是马场英雄在乱搞，员工很不满意跑了 ...</blockquote>
+冷知识，DW从来不抓内鬼的，早年签的保密也很宽松，之前后门事件最后也没查出个所以然
+
+
+马场那事儿这个版去年10月和11月都讨论过，不是今年的新闻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞的是去年你版某人言之凿凿说是谣言吧，但是那个出处是匿名版时至今日都在透一些DW内幕消息的人（也就是依然在职的员工），加之台湾那边的DW在职员工也对马场那事儿确认过，当时别的地方的讨论基本都是当真在说的
+
+
+至于樱花革命的事情当时不也提过嘛，第一方是世嘉，没有占用DW原有的六大常规事业部和在社人手在进行开发，无论是SME财报还是DW财报里对这个游戏都没有进行直接的反馈和报告（如果算在SME和DW名下财报不可能隐瞒相关内容的），换言之DW去年的收入锐减跟樱花革命没有直接关系（他们自己财报也是归咎于原主力产品的吸引力大幅度下降）
+
+人员锐减的事情也有细说啊，原负责某三次元业务的部门因为疫情冲击裁撤了大部分人员（这才是社内员工数量大幅度下降的主因），另外现二部和三部维持只出不进的情况。我个人推测是BB Studio架空了一些废狗的设计业务以后，二部干脆把原本负责这部分的人手调离或者不要了
+
+
+
+
+
+
+
+-----
+
+####  JMFluorece  
+##### 78256#       发表于 2021-3-25 09:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">初始那个裤子真是丑爆了，谁想出来的设计出来挨打
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 78257#       发表于 2021-3-25 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50727427&amp;ptid=1085254" target="_blank">JMFluorece 发表于 2021-3-25 09:49</a>
+
+初始那个裤子真是丑爆了，谁想出来的设计出来挨打</blockquote>
+岛田推特看起来是他自己
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 78258#       发表于 2021-3-25 11:00
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  alucardcz  
+##### 78259#       发表于 2021-3-25 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这高难真**  那么多战续强行叫人用耐久队  看着就不想打了
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 78260#       发表于 2021-3-25 17:54
+
+
+
+
+我好像已经好几次活动都没打高难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 78261#       发表于 2021-3-25 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731742&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-3-25 17:54</a>
+我好像已经好几次活动都没打高难了兜里还有接近60个结晶没用，不给点别的奖励压根不想碰高难 ...</blockquote>
+不打高难也不用点技能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自一个四年没打过高难的咸鱼
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  gugu153  
+##### 78262#       发表于 2021-3-25 21:15
+
+
+
+
+没热情了，只爬了40层
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 78263#       发表于 2021-3-26 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731780&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-25 17:57</a>
+不打高难也不用点技能了来自一个四年没打过高难的咸鱼
+
+—— 来自 OnePlus ONEPLUS A6010, Androi ...</blockquote>
+不打高难不需要点技能，不点技能不需要打高难，良性循环，好起来力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  areklose  
+##### 78264#       发表于 2021-3-26 08:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爬塔那么粪的活动为啥还能出到三期，出个圣杯战线让我摸鱼多好
+
+
+
+
+
+
+
+-----
+
+####  rooarr  
+##### 78265#       发表于 2021-3-26 11:15
+
+
+
+
+这次只有100层应该还好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 78266#       发表于 2021-3-26 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50737800&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-3-25 21:15</a>
+
+这次只有100层应该还好吧</blockquote>
+不，是200层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78267#       发表于 2021-3-26 11:27
+
+
+
+<blockquote>引用第78264楼rooarr于2021-03-26 11:15发表的  :
+
+这次只有100层应该还好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要么在做梦只有100层
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78268#       发表于 2021-3-26 11:36
+
+
+
+
+刷推喷了，月姬格斗新作因为有挂DW的名字，现在一水的在喷DW
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  yangun22  
+##### 78269#       发表于 2021-3-26 12:50
+
+
+
+
+格斗游戏开发还是原来的法棍，发售居然是DW,关系还挺好的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  miro112233  
+##### 78270#       发表于 2021-3-26 12:57
+
+
+
+
+菌类在玩那个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yzj134100  
+##### 78271#       发表于 2021-3-26 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当初：等月姬R出来万一里面人物也实装fgo就氪爆，现在：好耶有mb新作还氪个p
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 78272#       发表于 2021-3-26 13:25
+
+
+
+
+是啊，有Mb还氪个p，一单都不用，而且游戏性比废狗好多了。
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 78273#       发表于 2021-3-26 13:36
+
+
+
+
+然后30号的直播真就给你们整一个fgo联动月姬，再塞几个新设定，最后和27内卷组织新设定一起并进月姬r
+直接给你们从头到脚全方位割一波大的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                        
