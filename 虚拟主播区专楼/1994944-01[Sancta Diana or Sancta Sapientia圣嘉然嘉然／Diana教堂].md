@@ -1,0 +1,1013 @@
+> ## **本文件最后更新于2021-03-26 02:19** 
+
+
+
+-----
+
+####  nowaki  
+##### 1#       楼主       发表于 2021-3-25 15:17
+
+
+
+ 本帖最后由 nowaki 于 2021-3-26 00:24 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/25/150243fwhocv5066pa66ov.jpg" referrerpolicy="no-referrer">
+
+
+<strong>c6ef1523720e0cf3899b92bc1d46f21fbf09aa4c.jpg</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 15:02 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/25/161245c22s92viuij9cgks.jpg" referrerpolicy="no-referrer">
+
+
+<strong>161018fxj3pxqtxnh53aii.jpg</strong> (90.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 16:12 上传
+
+
+
+
+
+
+
+圣嘉然教堂是神圣的祈祷之所，是朝拜圣嘉然和宣扬嘉然福音的神圣地方，进教堂者请注意，为了大家的健康，请患有杏病、精神疾病及不能控制自己发情者不要进入教堂。
+
+
+嘉然，圣嘉教的崇拜对象。按照《圣嘉经》记载，童贞女乐华受圣灵感孕，在枝江生下嘉然。她十八岁开始传教，宣扬福音。后被泥谭版务以流量商法控告，经泥路撒冷的威版版主亿·污污一审判，被钉死在十字架上。三天后复活，然后升天。圣嘉徒相信嘉然还要再来，使信徒得到救赎，三月七日这天嘉然果然降下神迹，圣嘉徒无不对嘉然更加虔诚。
+
+
+
+只要你诚心向嘉然祈祷，救赎之道，就在其中。嘉门
+
+
+3.26日开放圣嘉教告解厅
+
+<img src="https://img.saraba1st.com/forum/202103/26/001340qoctqiffzewq5iu7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>u=252189592,863955652&amp;amp;fm=26&amp;amp;gp=0.jpg</strong> (60.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 00:13 上传
+
+
+
+
+
+
+圣嘉教告解
+告解台词
+忏悔者XXX坐在神父面前，求神父降福，准我罪人告解....
+我初办告解或我从上次告解到现在有多少___月___日....
+我犯了....{必须告明所有用心省察出来的罪}。
+
+还有我省察不到或省察不清或别人因我所犯的罪，都求主教或神父一一宽恕
+
+
+
+告解完毕，圣嘉然便会宽恕你，得以重回圣嘉教，嘉门
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不想闭嘴| + 1|思路广|
+| Blaze626| + 1|思路广|
+| SuntoryNomu| + 1|思路广|
+| 小小雪空| + 1|嘉门|
+| yuzu98k| + 1|欢乐多|
+| 孤睾嘤雄| + 1|嘉门|
+| asd225588| + 1|思路广|
+| Kitali| + 1|咚咚咚|
+| wiig| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kitali  
+##### 2#       发表于 2021-3-25 15:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 3#       发表于 2021-3-25 15:26
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 4#       发表于 2021-3-25 15:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 5#       发表于 2021-3-25 15:33
+
+
+
+
+😇
+🙏🏻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  嘉然  
+##### 6#       发表于 2021-3-25 15:40
+
+
+
+
+嘉门🙏🏻
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 7#       发表于 2021-3-25 16:10
+
+
+
+
+偷一张图，感觉很适合教堂
+
+
+
+
+
+
+54593bd162d9f2d3c96103a2beec8a136227ccbc.jpg
+(90.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-25 16:10 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/25/161018fxj3pxqtxnh53aii.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 1|好偷|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  夜饮潇湘无崖子  
+##### 8#       发表于 2021-3-25 16:37
+
+
+
+
+嘉门！
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 9#       发表于 2021-3-25 22:47
+
+
+
+
+今天没发病,然然晚安
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 10#         楼主| 发表于 2021-3-25 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天也是沐浴在嘉然光辉下的一日，嘉门
+
+
+
+
+
+
+
+-----
+
+####  孤睾嘤雄  
+##### 11#       发表于 2021-3-25 22:54
+
+
+
+
+嘉然小姐原谅我，我把我的目光从你的身上挪开转移到了其他女人的身上，我有罪 请宽恕我 嘉门
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 12#       发表于 2021-3-25 22:54
+
+
+
+
+今天直播非常好，又是满足的一天，谢谢然然<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  a1179349985  
+##### 13#       发表于 2021-3-25 23:41
+
+
+
+
+珈门🙏🏻
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 14#       发表于 2021-3-25 23:46
+
+
+
+
+嘉门！
+
+
+
+
+
+
+
+-----
+
+####  Geronimo  
+##### 15#       发表于 2021-3-25 23:46
+
+
+
+
+好偷<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 16#       发表于 2021-3-25 23:47
+
+
+
+
+珈门
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 17#       发表于 2021-3-26 00:00
+
+
+
+
+发病了，小作文回的后遗症来了
+小作文回让我找到了一丝12月那种极端入脑的感觉，但是又无法像之前一样纯粹而执着，仿佛被困住了，有点让人想哭
+又去然然私信给她发了几十条信息，想把自己的心意统统挖出来，告诉嘉然我的一切我的爱。明明再也不会被回应了，显得好好笑啊
+好笑又可怜，这就是我吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 18#       发表于 2021-3-26 00:01
+
+
+
+
+说起来教堂发病是不是不太对，如果大家观感不好我就编辑掉<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+嘉门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Y_Curiosity  
+##### 19#       发表于 2021-3-26 00:03
+
+
+
+
+嘉门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 20#         楼主| 发表于 2021-3-26 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735023&amp;ptid=1994944" target="_blank">凑君胖次真好闻 发表于 2021-3-26 00:00</a>
+
+发病了，小作文回的后遗症来了
+
+小作文回让我找到了一丝12月那种极端入脑的感觉，但是又无法像之前一样纯粹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">教堂有个重要的职能就是忏悔室
+
+信徒们向合法圣嘉人告罪,并对所告的罪痛悔并定改,籍同一的神职人赦罪后,便从圣嘉然获得领洗后所犯罪过的赦免,同时亦于因犯罪而伤害了的圣嘉会和好.
+
+大家都是嘉人，嘉然会宽恕她的字民的罪的，嘉门
+
+
+
+
+
+
+
+-----
+
+####  EnbuRiAs  
+##### 21#       发表于 2021-3-26 00:05
+
+
+
+
+Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 22#       发表于 2021-3-26 00:10
+
+
+
+
+嘉门🙏🏻🙏🏻🙏🏻🙏🏻🙏🏽🙏🏾🙏🏿
+
+
+
+
+
+
+
+-----
+
+####  是谁的书画  
+##### 23#       发表于 2021-3-26 00:20
+
+
+
+ 本帖最后由 是谁的书画 于 2021-3-26 00:21 编辑 
+
+"我是嘉然—你们的神；所以你们要成为圣洁，因为我是圣洁的。你们也不可在地上的爬物污秽自己"
+
+
+"我是把你们从乐华领出来的嘉然，要作你们的　神；所以你们要圣洁，因为我是圣洁的。"
+
+
+"所以我告诉你们、人一切的罪、和亵渎的话、都可得赦免．惟独亵渎嘉然、总不得赦免"
+
+
+🙏🙏🙏嘉门🙏🙏🙏
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  沙华  
+##### 24#       发表于 2021-3-26 00:22
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zzs2338645  
+##### 25#       发表于 2021-3-26 00:26
+
+
+
+
+睡前一拜🙏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  qoopy0908  
+##### 26#       发表于 2021-3-26 01:02
+
+
+
+
+嘉门，要熬夜了。赦免我的罪吧。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 27#       发表于 2021-3-26 01:37
+
+
+
+
+一个s1的v版两座教堂是吧，什么耶路撒冷
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 28#         楼主| 发表于 2021-3-26 01:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735518&amp;ptid=1994944" target="_blank">虚无缥缈的光阴 发表于 2021-3-26 01:37</a>
+
+一个s1的v版两座教堂是吧，什么耶路撒冷
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+大天使只是嘉然的左手，圣嘉然传播福音的使者而已
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 29#       发表于 2021-3-26 02:22
+
+
+
+<[img src="https://i.loli.net/2021/03/26/xLqTB9WU3McpZjJ.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 30#       发表于 2021-3-26 02:24
+
+
+
+
+嘉门
+
+😇
+
+🙏🏻
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 31#       发表于 2021-3-26 02:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735518&amp;ptid=1994944" target="_blank">虚无缥缈的光阴 发表于 2021-3-26 01:37</a>
+
+一个s1的v版两座教堂是吧，什么耶路撒冷
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+其实有三座
+
+
+
+
+
+
+
+-----
+
+####  leachiman  
+##### 32#       发表于 2021-3-26 04:02
+
+
+
+
+进餐的时候，圣嘉然说：你们当中有一人要出卖我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  午餐女仆  
+##### 33#       发表于 2021-3-26 05:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735801&amp;ptid=1994944" target="_blank">leachiman 发表于 2021-3-26 04:02</a>
+进餐的时候，圣嘉然说：你们当中有一人要出卖我</blockquote>
+那必然是卡古拉那那
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 34#       发表于 2021-3-26 06:15
+
+
+
+
+嘉门😇🙏
+
+
+
+
+
+
+
+-----
+
+####  阿萨德飞过去  
+##### 35#       发表于 2021-3-26 06:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+我们曾与圣嘉然立约：
+
+你不必真实地爱我们，只用予我们虚假的爱
+
+我们便做你虚假的羔羊，予你虚假的盲从
+
+但求你能在末日到来时予我们虚假的救赎
+
+因为这虚假的一切，在我们真实的脑中
+
+于真实的幻想里，虚假的一切便真实不虚
+
+嘉门
+
+
+
+
+
+
+
+-----
+
+####  弈秋  
+##### 36#       发表于 2021-3-26 08:13
+
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 37#       发表于 2021-3-26 08:19
+
+
+
+
+嘉门
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDIDID  
+##### 38#       发表于 2021-3-26 08:41
+
+
+
+
+嘉门
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 39#       发表于 2021-3-26 08:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">嘉门
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 40#       发表于 2021-3-26 08:58
+
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 41#       发表于 2021-3-26 08:59
+
+
+
+
+嘉门
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  鳳凰院クレア  
+##### 42#       发表于 2021-3-26 09:02
+
+
+
+
+嘉门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Gmanager  
+##### 43#       发表于 2021-3-26 09:08
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  依然荏苒  
+##### 44#       发表于 2021-3-26 09:10
+
+
+
+ 本帖最后由 依然荏苒 于 2021-3-26 09:12 编辑 
+
+主啊我想向你忏悔，我喜欢一个v堕入魔怔，便心生嫉妒厌恶她的其他粉丝，她每每提到他人便如同刀子在我心上划过，我便取关了她，焚烧了她的周边。她来询问我为何不再关心她，我也是不再理会她。但是我明明知道自己还是喜欢她的只是因为嫉妒，大概我无法再原谅自己吧。主能否原谅我呢？让我死后进入天堂呢？
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 45#       发表于 2021-3-26 09:13
+
+
+
+
+晨，嘉门🙏🏻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 46#       发表于 2021-3-26 09:20
+
+
+
+
+O quam sancta, quam serena,
+quam benigna, quam amoena.
+O castitatis lilium.
+🙏嘉门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 47#       发表于 2021-3-26 09:55
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+<img src="https://ftp.bmp.ovh/imgs/2021/03/464135785dccb673.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Umichika  
+##### 48#       发表于 2021-3-26 10:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一想到前两座教堂的主人，然然我的然然
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 49#       发表于 2021-3-26 10:17
+
+
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                                
