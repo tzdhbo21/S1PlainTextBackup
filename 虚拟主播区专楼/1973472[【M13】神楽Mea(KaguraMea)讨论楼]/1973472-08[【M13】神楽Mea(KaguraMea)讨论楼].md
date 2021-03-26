@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-26 13:45** 
+> ## **本文件最后更新于2021-03-26 17:12** 
 
 
 
@@ -17368,4 +17368,580 @@ b限民早该图图了 喜欢b限咋不去看vup和国v啊 vup和国v我也有�
 
 
 
-                
+
+
+-----
+
+####  甘栗No.007  
+##### 11503#       发表于 2021-3-26 21:47
+
+
+
+
+cd的对照组来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11504#       发表于 2021-3-26 21:47
+
+
+
+
+说n站画质差是吧 n限民何在 n小将何在 这是不是严重的反日行为啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11505#       发表于 2021-3-26 21:50
+
+
+
+
+泥头车来！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 11506#       发表于 2021-3-26 22:01
+
+
+
+
+今天笑的真可爱
+
+好有小女孩味<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11507#       发表于 2021-3-26 22:06
+
+
+
+
+等一个新皮掉粉，呜呜呜，我不能接受
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11508#       发表于 2021-3-26 22:06
+
+
+
+
+要是把kiseki也唱了 这场直播等于我赚了她四十多软<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11509#       发表于 2021-3-26 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50744314&amp;ptid=1973472" target="_blank">ashero 发表于 2021-3-26 22:06</a>
+
+要是把kiseki也唱了 这场直播等于我赚了她四十多软
+
+
+—— 来自 OPPO PDEM30, Android 11上的 S1Next ...</blockquote>
+之前不是唱过了吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">恭喜你不用买了（）
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 11510#       发表于 2021-3-26 22:12
+
+
+
+
+群青真的适合她<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hukyouwaon  
+##### 11511#       发表于 2021-3-26 22:17
+
+
+
+
+test]
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11512#       发表于 2021-3-26 22:22
+
+
+
+
+哪来的b限民，我都没看到呀
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11513#       发表于 2021-3-26 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50744327&amp;ptid=1973472" target="_blank">Unlimited290 发表于 2021-3-26 22:08</a>
+之前不是唱过了吗恭喜你不用买了（）</blockquote>
+我买了啊 网络版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  今天这个状态唱比上次瞎逼唱赚多了
+
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11514#       发表于 2021-3-26 22:35
+
+
+
+
+什么撕心裂肺的笑声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 11515#       发表于 2021-3-26 22:44
+
+
+
+
+她已经能完美复制苔姨的声音了。姨化严重啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 11516#       发表于 2021-3-26 22:54
+
+
+
+
+ll人激怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 11517#       发表于 2021-3-26 23:01
+
+
+
+
+バラライカ啊，1121之后还看了gibara的live录像，时过境迁啊
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11518#       发表于 2021-3-26 23:31
+
+
+
+
+定番一样的secret base
+
+
+
+
+
+
+
+-----
+
+####  Day_One  
+##### 11519#       发表于 2021-3-26 23:43
+
+
+
+
+你麻这里能看到b限民的情况无非以下三种
+①事业民变种
+②一般路过新时代人
+③钓鱼人
+不可能再出现比这更扭曲的了吧
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11520#       发表于 2021-3-26 23:46
+
+
+
+
+为什么把水袋遮住，可恶啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11521#       发表于 2021-3-26 23:49
+
+
+
+
+水袋的可动性会削减吗<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11522#       发表于 2021-3-26 23:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又在媚宅了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11523#       发表于 2021-3-26 23:55
+
+
+
+
+谁媚宅说这种事的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11524#       发表于 2021-3-26 23:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">媚宅（指借钱
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11525#       发表于 2021-3-27 00:19
+
+
+
+
+想听咩咩清唱歌曲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11526#       发表于 2021-3-27 00:40
+
+
+
+
+这首鹅妈妈虽然拉，但还是很好听<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 11527#       发表于 2021-3-27 00:45
+
+
+
+
+来人上氧气瓶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11528#       发表于 2021-3-27 00:49
+
+第四连，
+
+
+ 本帖最后由 Unlimited290 于 2021-3-27 00:52 编辑 
+
+wowaka连唱mode suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11529#       发表于 2021-3-27 00:50
+
+
+
+
+这版好耳熟…但想不起来……
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 11530#       发表于 2021-3-27 00:50
+
+
+
+
+强 mea 强 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11531#       发表于 2021-3-27 00:55
+
+
+
+ 本帖最后由 时雨rain 于 2021-3-27 00:59 编辑 
+
+呜呜呜，麻麻这几天没直播还能唱的这么好，私下没少和（男）朋友去玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11532#       发表于 2021-3-27 00:56
+
+
+
+
+可以啊这水平
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11533#       发表于 2021-3-27 00:57
+
+
+
+
+今晚好爽，感觉要变成麻麻的狗了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 11534#       发表于 2021-3-27 00:59
+
+
+
+
+这首好特么（在我看来）有水平啊
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11535#       发表于 2021-3-27 01:01
+
+
+
+
+呜呜呜怎么这么帅为什么我明天要上班好几把想剪了全熟！@￥@！￥！@#￥#%#@￥
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 11536#       发表于 2021-3-27 01:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11537#       发表于 2021-3-27 01:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               
