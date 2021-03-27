@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-26 04:56** 
+> ## **本文件最后更新于2021-03-27 11:34** 
 
 
 
@@ -3592,8 +3592,9 @@ yysy该发个现照证明一下自己了，p图化妆拉满那种
 
 
 
+ 本帖最后由 集合酱 于 2021-3-26 14:15 编辑 
 
-露露出音了 这是safe还是危大了
+露露出音声了 这是safe还是危大了
 
 
 
@@ -3714,4 +3715,617 @@ yysy该发个现照证明一下自己了，p图化妆拉满那种
 
 
 
-                                           
+
+
+-----
+
+####  突然空虚  
+##### 34683#       发表于 2021-3-26 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50738644&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-3-26 12:22</a>
+在我这里，怪猎直播属于仅次于mmo直播的虚无
+怪猎大手子可能好一点，不过这种生物在管人里不存在 ...</blockquote>
+反正现在pochi也用那个量产l2d了，抹茶也挂静止画播很久了，四舍五入也是vtb了）笑
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 34684#       发表于 2021-3-26 18:03
+
+
+
+
+只有mrr大 大方方的在直播抬头写着-MH歴- 2G/3rd/MH3G/MH4/MHXX/MHW/IB，这才是真爱<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34685#       发表于 2021-3-26 18:36
+
+
+
+
+如果是全盛时期的V综，这个站位可以发散个两页吧
+
+
+<img src="https://img.saraba1st.com/forum/202103/26/183617qxrrex1xrll16re1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExY-jWjU8AMaJVK.jpg</strong> (153.01 KB, 下载次数: 1)
+
+下载附件
+
+2021-3-26 18:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34686#       发表于 2021-3-26 20:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/26/203302xdhgq0tc1ecbxb6h.png" referrerpolicy="no-referrer">
+
+
+<strong>【🔴LIVE】ご報告【にじさんじ:シスター・クレア】.png</strong> (118.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 20:33 上传
+
+
+
+
+
+
+えええええええええええ！！恭喜！！
+[【🔴LIVE】ご報告【にじさんじ/シスター・クレア】](https://www.youtube.com/watch?v=dBWncAGWJA8)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34687#       发表于 2021-3-26 20:40
+
+
+
+
+郡郡美玲连教师角色都要没了怎么办啊，以后只剩下不快女王啦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34688#       发表于 2021-3-26 20:42
+
+
+
+
+修女可以啊👍🏻
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34689#       发表于 2021-3-26 20:45
+
+
+
+
+露露动了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34690#       发表于 2021-3-26 20:55
+
+
+
+
+这站位不就是谁的粉多谁就站前排中间吗......
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 34691#       发表于 2021-3-26 20:56
+
+
+
+
+RIOT MUSIC 1st LIVE "Re:Volt"
+
+Available for 1 day.
+
+链接：[https://pan.baidu.com/s/1KU-0C5sOa1KgafoU1U0hzA](https://pan.baidu.com/s/1KU-0C5sOa1KgafoU1U0hzA)  提取码：pf19 
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 34692#       发表于 2021-3-26 21:23
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1goxmi9d0laj20uh0jaahm.jpg" referrerpolicy="no-referrer">
+
+<strong>た だ い ま</strong><img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34693#       发表于 2021-3-26 21:43
+
+
+
+
+好奶，这不就回来了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34694#       发表于 2021-3-26 22:55
+
+
+
+
+杏星终于崛起了
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34695#       发表于 2021-3-26 23:00
+
+
+
+
+原来musica高音那么拉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这音域完全就是男歌手嘛
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34696#       发表于 2021-3-26 23:02
+
+
+
+
+如果说UNO，可能是因为金盾和江口拓也没开台吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+Syl，油男社长这边安定的建筑回，不破湊带着免费就冲过来偷家了，真急啊
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34697#       发表于 2021-3-26 23:23
+
+
+
+
+这次的神冈家电台挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 34698#       发表于 2021-3-26 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50742554&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-26 18:36</a>
+如果是全盛时期的V综，这个站位可以发散个两页吧</blockquote>
+两家都完全没上人气大主力和最大话题人物，没车的欲望啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34699#       发表于 2021-3-27 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50742554&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-3-26 18:36</a>
+如果是全盛时期的V综，这个站位可以发散个两页吧</blockquote>
+完全的holo center位，很合理，不需要车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34700#       发表于 2021-3-27 00:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/002507fcpvc5u5c7rpuq48.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210327_002227.jpg</strong> (311.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-27 00:25 上传
+
+
+
+
+
+
+qu酱播泰国粉丝做的游戏，有点意思
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34701#       发表于 2021-3-27 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> HOLO女和她们的洗脚婢
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34702#       发表于 2021-3-27 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50744923&amp;ptid=1969498" target="_blank">空集 发表于 2021-3-26 23:41</a>
+
+两家都完全没上人气大主力和最大话题人物，没车的欲望啊
+
+
+—— 来自 Xiaomi Mi 10, Android 10上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bzml？
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34703#       发表于 2021-3-27 13:24
+
+
+
+
+回旋回旋
+<img src="https://img.saraba1st.com/forum/202103/27/115847e7i2aawkzhj2773j.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 34704#       发表于 2021-3-27 14:26
+
+
+
+ 本帖最后由 敖轩 于 2021-3-27 14:32 编辑 
+
+vtuber微相关，rurudo和毛玉联动糖豆人。
+[https://www.bilibili.com/video/BV1ky4y1t7EM](https://www.bilibili.com/video/BV1ky4y1t7EM)
+
+玉之けだま竟然也是女人<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+我一直有一个刻板印象，以为这些专画萝莉的画师都是变态炼铜秃头抠脚大汉。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这次比之前得知rurudo是女人、pochi是女人更加吃惊。ps：昨天推上看到的毛玉老师的可可萝涩图真的顶。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34705#       发表于 2021-3-27 16:15
+
+
+
+[https://www.youtube.com/watch?v=C1IT_blnaDk](https://www.youtube.com/watch?v=C1IT_blnaDk)
+
+slee俩人的毕业回
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34706#       发表于 2021-3-27 16:26
+
+
+
+[https://www.bilibili.com/video/BV1mA411N72r](https://www.bilibili.com/video/BV1mA411N72r)
+
+【VTuber】SPOTLIGHT vol.1
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 34707#       发表于 2021-3-27 18:25
+
+
+
+
+2000你个slee真爱粉该出来表演了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 34708#       发表于 2021-3-27 18:40
+
+
+
+<blockquote>敖轩 发表于 2021-3-27 14:26
+vtuber微相关，rurudo和毛玉联动糖豆人。
+[https://www.bilibili.com/video/BV1ky4y1t7EM](https://www.bilibili.com/video/BV1ky4y1t7EM)
+
+玉之けだま竟然也 ...</blockquote>
+这连lga的小鬼都都知道的啊。
+
+s1的纯度，大/大的下降了。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34709#       发表于 2021-3-27 19:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/190811zz6gzx39udx90ik3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0327_181919.jpg</strong> (268.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-27 19:08 上传
+
+
+
+
+
+
+完全变成同接debuff的fg大会
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 34710#       发表于 2021-3-27 19:16
+
+
+
+[https://www.youtube.com/watch?v=8-3EibbxmZI](https://www.youtube.com/watch?v=8-3EibbxmZI)
+
+ひとりぽつり / ぼっちぼろまる (Music Video)
+
+新曲质量还是很高啊。
+
+有点想买专辑了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34711#       发表于 2021-3-27 19:22
+
+
+
+
+郡郡大人气！
+省一楼，郡道答最想要捡回家的虹人的时候真的忍不住想回roa（这两人初期设定就是郡道捡人），今天还自称13岁（roa设定13），最近mrra浓度是不是高过头了（虽然有点点牵强）<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 34712#       发表于 2021-3-27 19:30
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1goyoval51bj20kr0rngq2.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34713#       发表于 2021-3-27 19:32
+
+
+
+
+5.1的TUBEOUT，蓝莓和瑠璃姐
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/193158v53otol5z55jtlsu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>tubeout.jpg</strong> (350.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-27 19:31 上传
+
+
+
+
+
+
+
+
+
+
+                                          
