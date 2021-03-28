@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-16 14:41** 
+> ## **本文件最后更新于2021-03-28 15:46** 
 
 
 
@@ -223,7 +223,7 @@ Aile to Yell / TRINITYAiLE
 
 
 比较好奇的是推上这个人物好像不在10人内？
-<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_WKuU9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_Li012" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3506,49 +3506,49 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 
 
 好評放送中のTVアニメ「IDOLY PRIDE」。星見プロダクションに集まった10人のアイドルたちは長瀬琴乃をリーダーとする「月のテンペスト」と川咲さくらがリーダーの「サニーピース」という2グループに分かれ、第6話「かけがえのないステージを」にて念願のデビューライブを成功させました。ここでは「月のテンペスト」のメンバー、長瀬琴乃役・橘美來さん、伊吹渚役・夏目ここなさん、白石沙季役・宮沢小春さん、成宮すず役・相川奏多さん、早坂芽衣役・日向もかさんが集まって、ここまでの展開を振り返ってもらいました。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571435.jpg/w600h450/" height="450" id="aimg_xdQ3f" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/2/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571435.jpg/w600h450/" height="450" id="aimg_b6yPf" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/2/)
 
 月のテンペストの5人
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 ――サニーピース（サニピ）と月のテンペスト（月スト）のデビューライブが第6話で描かれました。映像をご覧になっての感想はいかがでしたか？橘　サニピも、月ストも、それぞれ個性が出ていたなと思いました。ライティングもサニピちゃんは明るい色を使っていたり、月ストは夜をイメージさせる青や黄色を使っていたりして、そのコントラストが素敵だなって。個人的にはひとりひとりの顔が映ったときの、光の差し込み方が好きですね。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571297.jpg/w600h450/" height="450" id="aimg_lJonT" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/3/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571297.jpg/w600h450/" height="450" id="aimg_nxQ7S" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/3/)
 
 橘美來さんが演じる長瀬琴乃
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 夏目　サニピは明るい太陽の下で歌うのかなと思っていたら、夕日の中で歌っていたのが意外で。月ストの夜の光もきれいなだけじゃなく、その中に悲しみとかも入っているなと思って、両方とも深みが出ているところが素敵だなと思いました。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571299.jpg/w600h450/" height="450" id="aimg_bNlZ9" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/6/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571299.jpg/w600h450/" height="450" id="aimg_A8h8I" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/6/)
 
 夏目ここなさんが演じる伊吹渚
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 宮沢　私は沙季を演じているので、（沙季の妹の）千紗がちゃんとアイドルしているところにすごく感動しました。月ストはダンスが難しそうだなと思っていたら、実際難しかったです（笑）。月ストのみんなみたいになれるように、私たちもダンスを頑張りたいと思います！
-<[img src="https://webnewtype.com/rsz/S1/248177/1571300.jpg/w600h450/" height="450" id="aimg_lL60s" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/7/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571300.jpg/w600h450/" height="450" id="aimg_PANmA" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/7/)
 
 宮沢小春さんが演じる白石沙季
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 相川　月スト、ニピとしての衣装が出るのは、これが初めてですよね。それぞれのグループの個性がよく表れている衣装だと思いました。私たちもいつか月ストとしてパフォーマンスを披露させてもらうときは、あの衣装をイメージしたものを着ることになると思うので、私個人としてもすごく楽しみですし、皆さんに楽しみにしていただきたいところでもあります。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571303.jpg/w600h450/" height="450" id="aimg_uLzwL" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/5/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571303.jpg/w600h450/" height="450" id="aimg_AtWw4" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/5/)
 
 相川奏多さんが演じる成宮すず
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 日向　衣装で言うと、それなりのものを持っている子はちゃんとそこが露出しているんですよね。芽衣ちゃんは唯一、肩が片方しか隠れていなかったりとか、沙季ちゃんも胸元が開いていたりして……。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571296.jpg/w600h450/" height="450" id="aimg_dhHhp" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/4/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571296.jpg/w600h450/" height="450" id="aimg_e6qbl" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/4/)
 
 日向もかさんが演じる早坂芽衣
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 橘　やだー！　えっちー！日向　オタク目線から見ると、そこのデザインがまたいいなという（笑）。衣装の細部にもいろいろこだわりが詰め込まれているところがいいなと思いました。――月ストでは琴乃がリーダーとなりました。最初はソロアイドルをめざしていた琴乃ですが、心境の変化を橘さんはどのように捉えていますか？橘　琴乃はひとりで頑張りたいという気持ちが強い子なんですけど、これからグループとして活動していくとなったときに、どう気持ちの整理をつけていき、どうグループに向き合っていくのか？　そういった部分も今後描かれていくと思うので、ぜひ注目していただきたいです。あと、琴乃はデレた顔がめちゃめちゃかわいいので（笑）。ほかのメンバーと接していく中でどんな顔が見られるかというところも、注目して見ていただきたいですね。――誰相手のときに、いちばんデレた顔になりますか？橘　さくらとか渚とかは心を許しがちなので、その2人と接するときはかわいい表情を見せてくれるんじゃないかなと思います。――親友の琴乃を支えるためにアイドルをめざした渚ですが、お話が進むごとに琴乃はさくらと一緒にいることのほうが増えているような……？夏目　たぶん渚的にはちょっと嫉妬とかあるんじゃないかなと、私は思っていて。4話で芽衣が入ってきて、琴乃が牧野に「どういうことですか？」と言いに行くときに、渚も一緒についていっていたんですよ。「なぜこの子はついてきたんだろう？」と私も思っていたんですけど、たぶん琴乃ちゃんを守りたいという思いで隣にいたんだろうなって。そのくらい、琴乃のことをわかってあげようという気持ちは誰よりも強いような気がします。橘　琴乃はちょっとぞんざいに扱いすぎですよね、渚のことを（笑）。もっと渚の気持ちをくみとって、渚にも寄り添ってあげられたらな、と私も思います。――琴乃と渚は親友同士で同じグループですが、沙季は妹の千紗と別グループになってしまって、宮沢さんとしては寂しさを感じることはありますか？宮沢　そりゃあ寂しいです。私自身もどこか千紗だったり、（高尾）奏音ちゃんだったりに頼もしさを感じていたりしますし、千紗に支えられている部分が沙季にもあるので、すごく寂しくはありますよね。でも、同じグループじゃないということで、一ファンとして千紗を見られるというのは楽しみだなとは思います。ライバルとして切磋琢磨していきつつも、応援できる立場というのがいいですよね。――沙季はしっかりしているので、あまり寂しさを表に出さないですよね。宮沢　でもやっぱり、寂しいんじゃないですか。ずっと一緒にいた家族ですし、一緒に練習してきた仲間でもあるので。千紗だけじゃなくて、グループがサニピと月ストで2つに分かれるというのは寂しいなと、私自身としては感じています。――リーダーの座は琴乃に譲ってもセンターはあきらめていないと、すずは言っていましたが、どうしたらセンターになれると思いますか？相川　それは私も知りたいです（笑）。でも、そうやってみんなに宣言しても、笑って流してもらえるところがすずちゃんのいいところかなと思っていて。そういう愛すべき末っ子みたいなところが、これからチームを明るくしていくこともあると思っています。橘　デビューライブの映像を見たときに、すずのステージに立ったときのギャップがすごくいいなと思いました。ふだん「ですわ！」とか言っているのに、この表情ができるすずのポテンシャルはすごいなと。相川　実はできる子なんです！橘　真剣な表情のすずは、まさに美少女！という感じ。いつもはかわいい末っ子という感じですけれども。琴乃も油断していたら本当にセンターを奪われるぞと思いつつ、たぶん琴乃は譲らないと言うと思います（笑）。――ギャップで言えば、いつも明るい芽衣がクールなイメージの月ストに入ったのも意外でしたが、芽衣にギャップ萌えを感じる瞬間はありますか？日向　アニメの収録でディレクションをしていただいたときに「普段は明るく元気な感じだけど、ここはかっこいいところを見せたいから、ちょっと落ち着いた雰囲気でよろしく」と言われたところがあったりしましたね。芽衣ちゃんって、たまにさらっとかっこいいことを言うんですよ。こんなかわいい顔して、ふだん元気っ子なのに、たまにイケメンなところを見せてくれると「かっこいい、芽衣！」ってなります（笑）。しかも、本人も狙って言っているわけじゃないというのがまたギャップだなと思って。第三者からすると「今すごくいいこと言ったよ」と思うけど、たぶん本人は気づいていないという。相川　芽衣ちゃんはいつも、すずちゃんにちょっかいをかけてくるんです。でも、すずちゃんもまんざらでもなくて、「やめてよ！」みたいな感じで返すんですけど、本当はうれしいというのが私も見ていてすごく好きなところで。そういう空気が月のテンペストも和ませてくれると思いますし、芽衣ちゃんの存在って本当に大きくて。言いにくいことを言ってくれたりとか、和ませてくれたりするけど、ちゃんとしているところはちゃんとしているみたいな。そういうところがグループの潤滑油になっているというか、いい役目をしてくれているなと思います。――これからこのメンバーで月ストとして頑張っていくということで、リーダー・琴乃役の橘さんからファンの皆さんへ向けてのメッセージをお願いします。橘　星見プロダクションの10人が2つのグループに分かれてはしまったんですけど、サニピも、月ストも、それぞれアイドルの頂点をめざしていきます。これからライブシーンも描かれていくと思いますし、まだ謎に包まれたところも多いと思いますので、そういったものがどうやって明かされていくのか？　そして、琴乃はグループになじめるのか（笑）。琴乃をはじめ、みんなの成長にご注目ください。加えて特に「IDOLY PRIDE」は楽曲がめちゃめちゃいいので、楽しみにしていただけたらすごくうれしいです。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_kVXFC" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_kbAIl" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
 
 
 
@@ -4436,17 +4436,7 @@ song for you好汀，开始循环。
 ####  PKVSBOSS  
 ##### 233#       发表于 2021-3-15 22:31
 
-
-
-
-前传漫画就是麻奈为了成为牧野眼中的唯一而过关斩将，本传漫画版也补充了小樱在第一次遇上牧野是就仿佛听到心脏说这就是能带自己上顶点的人
-
-
-可惜全部都是苦瓜糖
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4522,16 +4512,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 ####  PKVSBOSS  
 ##### 238#       发表于 2021-3-16 09:02
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637965&amp;ptid=1868192" target="_blank">狂河冰不烈 发表于 2021-3-16 08:39</a>
-
-我现在越来越期待麻奈成佛后staff们会怎么表现Producer崩溃的状态了。</blockquote>
-根据第一话看应该是释怀了吧。当然也说不定麻奈就像小倩一样一世绑在他身上
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4630,4 +4611,713 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 
 
 
-                                         
+
+
+-----
+
+####  terry666  
+##### 242#       发表于 2021-3-17 20:33
+
+
+
+
+这都快完结了，怎么感觉外援团的戏份比音雨三期生还多些？
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 243#       发表于 2021-3-17 21:36
+
+
+
+
+弹幕（第十集）<blockquote>（12:42）可汗大点兵</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 244#       发表于 2021-3-17 21:49
+
+
+
+
+Liz Noir
+
+<img src="https://img.saraba1st.com/forum/202103/17/214905rw8f8zwcd6sft6wx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EmWh8iuVMAAQDgX.jpg</strong> (387.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 21:49 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/214905jbbbi71uz4godx74.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EmWiIy9VMAAeQTc.jpg</strong> (388.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 21:49 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 245#       发表于 2021-3-18 17:52
+
+
+
+ 本帖最后由 最强惠酱 于 2021-3-18 17:53 编辑 
+
+看了漫画，怪不得mana不想让樱唱她的歌，song for you是唱给男主听的吧，虽然樱还是唱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  遠く　果てしない　夢のまだ途中どこまでも go on大事なものは　変わらないまま初めからこの声　真っすぐ届けたい　いまsong for youあなたの　あなたの　無垢な眼差しが冷たい　世界を　照らして　くれたの止めどなく　あふれる　想いの全てをprideに　変えて　sing out音もたてず　すれ違う心触れさせていとしい　笑顔を守りたい　ただsong for youあなたに　あなたに　もらった勇気を今度は　わたしが　返して　ゆきたい誰より　眩しい　ヒカリになること誓うよ　強く　sing outsong for youわたしの　わたしの　一番近くでいつでも　いつでも　見ていて　くれたねあなたと　過ごした　かけがえない日々に贈るよ　「ありがとう」あなたに　あなたに　もらった勇気を抱きしめて　願う　明日へ誰より　眩しい　ヒカリになるからprideを　胸に　sing out
+
+回看歌词，真狠啊
+
+<img src="https://img.saraba1st.com/forum/202103/18/174308mtsa5sg98p4v92pf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210318174038.png</strong> (74.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 17:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  forgetit  
+##### 246#       发表于 2021-3-18 18:01
+
+
+
+
+对音雨三期生的宣传不够（x）
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 247#       发表于 2021-3-18 18:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50666282&amp;ptid=1868192" target="_blank">最强惠酱 发表于 2021-3-18 17:52</a>
+看了漫画，怪不得mana不想让樱唱她的歌，song for you是唱给男主听的吧，虽然樱还是唱了  遠く　果 ...</blockquote>
+看看漫画第一话mana想当偶像的原因，再想想10话你应该看的是那边整个人就不好了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 248#       发表于 2021-3-18 19:09
+
+
+
+
+全员齐了
+
+<img src="https://img.saraba1st.com/forum/202103/18/190907drbhbqw10t0rwqsk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EmcZuynU8AA9DOD.jpg</strong> (393.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 19:09 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/18/190907i1dtddzzydt5dh9c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EmcZ4-MUcAApmjZ.jpg</strong> (368.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-18 19:09 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KENN  
+##### 249#       发表于 2021-3-21 12:40
+
+
+
+
+TRYSAIL三小只真可爱，好像第一次见momo和natsu在动画念这么多台词的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 250#       发表于 2021-3-21 23:46
+
+
+
+
+感情过度有点太快了，还没酝酿好情绪就直接赢了，这比赛到底是怎么判断胜负的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+还是看看mana要怎么处理吧
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 251#       发表于 2021-3-21 23:48
+
+
+
+
+牧野，给我注意到mana对你的感情啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 252#       发表于 2021-3-22 10:30
+
+
+
+
+木头人啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  狂河冰不烈  
+##### 253#       发表于 2021-3-22 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697403&amp;ptid=1868192" target="_blank">sakilin2013 发表于 2021-3-22 10:30</a>
+
+木头人啊啊啊啊啊啊
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+Producer其实不一定是木头人，他也有可能是害怕“一旦正视了自己的感情回应了麻奈的心意她就会成佛消失”，所以才故意装成木头的。
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 254#       发表于 2021-3-22 10:58
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  最强惠酱  
+##### 255#       发表于 2021-3-22 11:34
+
+
+
+
+确实，我对本篇两队偶像赢没赢不怎么感兴趣，要是前传能动画化就好了，虽然偶像与制作人恋爱挺邪道
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 256#       发表于 2021-3-23 20:45
+
+
+
+
+「月のテンペスト」と「LizNoir」の直接対決目前！　長瀬琴乃役・橘美來さん＆神崎莉央役・戸松遥さんが振り返るTVアニメ『IDOLY PRIDE』【インタビュー前編】
+[https://www.animatetimes.com/news/details.php?id=1616150780](https://www.animatetimes.com/news/details.php?id=1616150780)
+
+
+第11話の直接対決を経て、長瀬琴乃役・橘美來さん＆神崎莉央役・戸松遥さんが感じた「月のテンペスト」と「LizNoir」の魅力とは？　TVアニメ『IDOLY PRIDE』インタビュー【後編】
+[https://www.animatetimes.com/news/details.php?id=1616476286](https://www.animatetimes.com/news/details.php?id=1616476286)
+
+
+TVアニメ「IDOLY PRIDE -アイドリープライド-」先行上映イベントの公式レポートが公開。ゲームの見どころを聞いたキャストコメントも掲載
+[https://www.4gamer.net/games/547/G054739/20210323034/](https://www.4gamer.net/games/547/G054739/20210323034/)
+
+
+
+
+
+
+
+-----
+
+####  AlfredXC  
+##### 257#       发表于 2021-3-23 22:10
+
+
+
+
+对决前花了很多篇幅描写团队，但进入对决之后，队友完全没有存在感，明明是两个组合，只靠leader爆种就能击败实力强劲的前辈组合，实在是太缺乏说服力了。
+
+希望最终话能发糖，看这片最大的期待就是这个了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReginaldMorgan  
+##### 258#       发表于 2021-3-24 22:14
+
+
+
+
+最终回只想看人鬼情未了白魔法发糖，怎么发糖不管。手游正好缺个抽卡吉祥物，反正前天才偶像当业务员也不是没有先例，你说对吧小鸟
+
+
+mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千本blur  
+##### 259#       发表于 2021-3-24 22:56
+
+
+
+
+看到现在感觉stuff对企划缺一点爱。很多地方明明是情感爆点，却做成了流水账。第十话song for you最后的发明明是个升华的地方，曲子本身也没有问题，音监却不在线。
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 260#       发表于 2021-3-24 23:00
+
+
+
+
+终于又追上进度了，说实话这片有一些设定怎么跟爱马仕本家这么类似，包括雨宫天那个组合，你以为是trysail，结果人家是诗花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 261#       发表于 2021-3-24 23:19
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  伊布桑  
+##### 262#       发表于 2021-3-25 08:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724998&amp;ptid=1868192" target="_blank">PKVSBOSS 发表于 2021-03-24 23:19:30</a>
+你看人鬼情未了放了这么多爱</blockquote>主要是整个企划还给mana开了个前传漫画，就很骚<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  PKVSBOSS  
+##### 263#       发表于 2021-3-25 10:07
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  灵魂收割机  
+##### 264#       发表于 2021-3-25 12:37
+
+
+
+<blockquote>PKVSBOSS 发表于 2021-3-25 10:07
+至少动画的中心点就是牧野和麻奈
+
+
+但据说游戏中麻奈不会出现，所以这是用神田沙也加钓鱼然后告诉你没有这 ...</blockquote>
+应该还是有吧，企划官网的角色介绍里有麻奈，游戏里如果没有就太奇怪了。
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 265#       发表于 2021-3-25 21:13
+
+
+
+
+动画制作组甚至要在最后一集加强一波mana和p,要是mana不在游戏出场就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 266#       发表于 2021-3-28 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50733579&amp;ptid=1868192" target="_blank">YetToCome 发表于 2021-3-25 21:13</a>
+
+动画制作组甚至要在最后一集加强一波mana和p,要是mana不在游戏出场就有意思了
+
+
+—— 来自 HUAWEI BK ...</blockquote>
+mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 267#       发表于 2021-3-28 16:21
+
+
+
+
+游戏怎么可能没麻奈
+
+正好昨天公式发了麻奈服装价格
+
+<img src="https://img.saraba1st.com/forum/202103/28/162054d4nxetd2ornwj5ow.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EmnFAzcVgAAn-zR.jpg</strong> (385.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 16:20 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 268#       发表于 2021-3-28 16:48
+
+
+
+
+顺便LizNoir的MV太好玩了
+
+「The Last Chance」仿90年代动画、猫眼风格。
+[https://www.bilibili.com/bangumi/play/ep381424](https://www.bilibili.com/bangumi/play/ep381424)
+
+「GIRI-GIRI borderless world」画风太狂野，都成别的作品了，而且能变身2次<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1Z64y1S7a8](https://www.bilibili.com/video/BV1Z64y1S7a8)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 269#       发表于 2021-3-28 22:34
+
+
+
+
+这结局，我以为能带走牧野，song for you配合画面太毒了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+话说abema生放完之后有二周末副声轨放送
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 270#       发表于 2021-3-28 22:58
+
+
+
+
+啊这，动画mana就这么走了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，而且这个kiss也太毒了
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 271#       发表于 2021-3-28 23:00
+
+
+
+
+声优也在说虽然mana说这曲子是给妹妹的但肯定是写给牧野的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+女声优说牧野mana能不能结婚，牧野声优说绝对不可能<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 272#       发表于 2021-3-28 23:04
+
+
+
+
+原来最后标题是10人加上mana颜色的11个字啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  YetToCome  
+##### 273#       发表于 2021-3-28 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761625&amp;ptid=1868192" target="_blank">最强惠酱 发表于 2021-3-28 23:04</a>
+原来最后标题是10人加上mana颜色的11个字啊
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next- ...</blockquote>
+这周广告里终于出现mana了，看看能不能给点后续吧
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 274#       发表于 2021-3-28 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761643&amp;ptid=1868192" target="_blank">YetToCome 发表于 2021-3-28 23:06</a>
+这周广告里终于出现mana了，看看能不能给点后续吧
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next- ...</blockquote>
+希望会有手游开服日公开，话说这mana版song for you mv是mana和妹妹画面啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 275#       发表于 2021-3-28 23:29
+
+
+
+
+还是没有游戏配信日啊，每周五公开一部分游戏剧情能不能看到mana呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  oznark  
+##### 276#       发表于 2021-3-28 23:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/234027w5zb933g5hoo75ii.jpg" referrerpolicy="no-referrer">
+
+
+<strong>25.jpg</strong> (270.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 23:40 上传
+
+
+
+
+
+
+
+
+
+                                        

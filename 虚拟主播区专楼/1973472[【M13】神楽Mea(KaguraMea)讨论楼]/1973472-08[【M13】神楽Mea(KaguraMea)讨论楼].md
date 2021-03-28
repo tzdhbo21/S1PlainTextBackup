@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-27 12:52** 
+> ## **本文件最后更新于2021-03-28 15:42** 
 
 
 
@@ -18744,4 +18744,590 @@ live好辛苦，晚上也要播个够呢😊
 
 
 
-             
+
+
+-----
+
+####  A2014720  
+##### 11585#       发表于 2021-3-27 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11586#       发表于 2021-3-27 22:16
+
+
+
+
+快乐的一天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11587#       发表于 2021-3-27 22:17
+
+
+
+
+wdnmd，怎么开幕狗屎HW<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚要是纯HW老子要run去继续手头大活儿了草（）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11588#       发表于 2021-3-27 22:18
+
+
+
+
+今天精神真不错<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11589#       发表于 2021-3-27 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 11590#       发表于 2021-3-27 23:05
+
+
+
+
+メリュー好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11591#       发表于 2021-3-27 23:21
+
+
+
+
+这两天真是舒爽的不行，舒适区啥的真是太棒了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11592#       发表于 2021-3-27 23:21
+
+
+
+
+今天整体状态真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwwwwssjwb  
+##### 11593#       发表于 2021-3-27 23:31
+
+
+
+
+真可爱啊
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 11594#       发表于 2021-3-27 23:38
+
+
+
+
+坚持每天歌回到换皮就爽了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11595#       发表于 2021-3-27 23:51
+
+
+
+
+续了半小时，还是下了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">竟有丶不舍
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 11596#       发表于 2021-3-27 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11597#       发表于 2021-3-27 23:52
+
+
+
+
+光速下播，演唱会上你杂谈，直播里面你狂唱，什么人啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11598#       发表于 2021-3-28 00:06
+
+
+
+
+推特+b博
+
+syl，周日周一都要播啊，好起来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11599#       发表于 2021-3-28 10:41
+
+
+
+
+我命rua速速来阿b建号，小麻b限联动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11600#       发表于 2021-3-28 11:27
+
+
+
+
+有贴贴人上人在看么，330官组可以投个稿么？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11601#       发表于 2021-3-28 13:36
+
+
+
+
+没话找话？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11602#       发表于 2021-3-28 14:47
+
+
+
+
+体面点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别这样
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11603#       发表于 2021-3-28 17:54
+
+
+
+
+一点动静没有，今天又摸了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11604#       发表于 2021-3-28 17:58
+
+
+
+
+晚上b限
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11605#       发表于 2021-3-28 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758951&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-3-28 17:58</a>
+晚上b限</blockquote>
+那是明天<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|看错|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11606#       发表于 2021-3-28 20:56
+
+
+
+
+看来是回来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11607#       发表于 2021-3-28 22:15
+
+
+
+
+【神楽めあ 发布】
+内容：おたくとあそぶだけ / オタクと遊ぶ https://t.co/TsDe7yOkpB
+时间：2021-03-28 22:14:32 UTC+08:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11608#       发表于 2021-3-28 22:16
+
+
+
+ 本帖最后由 路人庚 于 2021-3-28 22:23 编辑 
+
+盒限绘画之森果然还是播了，tc
+
+
+盒限果然还是播出来更好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11609#       发表于 2021-3-28 22:28
+
+
+
+ 本帖最后由 路人庚 于 2021-3-28 22:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从朋友那收到了花瓣沐浴液（啥玩意？）于是今天洗了个澡
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">是女子力很高的礼物呢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11610#       发表于 2021-3-28 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+感觉今天好弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11611#       发表于 2021-3-28 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761279&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-3-28 22:28</a>
+从朋友那收到了花瓣沐浴液（啥玩意？）于是今天洗了个澡
+
+
+是女子力很高的礼物呢 ...</blockquote>
+saya送的吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11612#       发表于 2021-3-28 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761503&amp;ptid=1973472" target="_blank">ashero 发表于 2021-3-28 22:51</a>
+
+saya送的吧
+
+
+—— 来自 OPPO PDEM30, Android 11上的 S1Next-鹅版 v2.4.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">前面她问：今天没什么气力，大家觉得是为什么呢
+
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11613#       发表于 2021-3-28 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">投入大量红色花
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11614#       发表于 2021-3-28 23:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11615#       发表于 2021-3-28 23:29
+
+
+
+
+啥情况？出去和saya玩了一天？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11616#       发表于 2021-3-28 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761503&amp;ptid=1973472" target="_blank">ashero 发表于 2021-3-28 22:51</a>
+
+saya送的吧
+
+
+—— 来自 OPPO PDEM30, Android 11上的 S1Next-鹅版 v2.4.4</blockquote>
+自信点不用加吧
+
+saya说了自己要送沐浴乳给mea<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|情报好评|
+
+
+
+查看全部评分
+
+
+
+
+            
