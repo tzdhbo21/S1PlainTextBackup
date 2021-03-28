@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-22 04:56** 
+> ## **本文件最后更新于2021-03-28 04:51** 
 
 
 
@@ -13860,14 +13860,7 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 ####  PKVSBOSS  
 ##### 778#       发表于 2021-3-15 22:43
 
-
-
-
-暂时还是最喜欢海岛姑娘真夏，真情不做作，虽然坚持己见但有不会搞坏空气
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16347,16 +16340,7 @@ Doremi剧场BD还没发售，全世界Web现在应该也只有271
 ####  PKVSBOSS  
 ##### 903#       发表于 2021-3-22 11:02
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50695471&amp;ptid=1963832" target="_blank">二条乃梨子 发表于 2021-3-22 00:33</a>
-
-学姐这人物性格和变身招式动作对不上啊，是不是staff没沟通好的结果？</blockquote>
-其实感觉是黄前辈说闷骚，变身后展现出的是她内在天马行空和放飞自我的想象力和创造力，但表现得不大好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16421,4 +16405,497 @@ Doremi剧场BD还没发售，全世界Web现在应该也只有271
 
 
 
-                   
+
+
+-----
+
+####  坂上あゆみ  
+##### 907#       发表于 2021-3-22 14:40
+
+
+
+
+今年每只都好喜欢 连反派都很讨喜  期待这周的红色大姐姐~
+
+
+
+
+
+
+
+-----
+
+####  adsn  
+##### 908#       发表于 2021-3-22 17:26
+
+
+
+
+不负责任猜一下，小黄这剧情说不定是拿自己作品给憧憬的学姐看，结果学姐发现可爱后辈不知不觉中超越自己了，嫉妒心发作之下恶言相向，后期用一集个人回跟学姐再见面解决问题
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 909#       发表于 2021-3-22 19:18
+
+
+
+
+这集看到珊瑚xx盾被破防了脑内突然冒出那种慢慢撕开x状创口贴的本子
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 910#       发表于 2021-3-22 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691534&amp;ptid=1963832" target="_blank">cmyk1234 发表于 2021-3-21 15:19</a>
+初代两本小说是钟弘亚树/井上亚树子（笔名/本名）写的，剧情会不会比其他的q娃小说稍好？
+另外doremi小说 ...</blockquote>
+都知道
+不过鉴于某人这几年风评不好 文三代还是用笔名吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 911#       发表于 2021-3-22 19:27
+
+
+
+
+这次剧场版有人看了吗
+听说战队没有什么戏份不知道跑来干嘛...
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 912#       发表于 2021-3-22 20:46
+
+
+
+
+屑人鱼好可爱
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 913#       发表于 2021-3-22 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50697730&amp;ptid=1963832" target="_blank">PKVSBOSS 发表于 2021-3-22 11:02</a>
+其实感觉是黄前辈说闷骚，变身后展现出的是她内在天马行空和放飞自我的想象力和创造力，但表现得不大好[f ...</blockquote>
+看这一话感觉更像是平时逃避自己的兴趣但是又放不下扭扭捏捏让人看着就气，所以也没啥朋友
+被嘴炮后正视了自己，毕竟人鱼都是真实存在的了，我喜欢人鱼以及我写人鱼的故事有什么不对(不如说就算是虚构的写人鱼的故事也没问题啊)就像之后变身解除说的，踏出了一步，感觉很好。
+走出了过去的阴影，表现得自然不一样，更别说还刚变成光美，自然是怎么放飞怎么来
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 914#       发表于 2021-3-22 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702443&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-22 19:27</a>
+这次剧场版有人看了吗
+听说战队没有什么戏份不知道跑来干嘛...</blockquote>
+怕不是被拉来涨人气，吸引情怀粉
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 915#       发表于 2021-3-22 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702443&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-22 19:27</a>
+
+这次剧场版有人看了吗
+
+听说战队没有什么戏份不知道跑来干嘛...</blockquote>
+被反派抓去抽能量（主要是三爷）
+
+
+反派需要“特别的梦的力量”，是和佳还有三爷的特殊天赋……
+
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 916#       发表于 2021-3-23 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702436&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-22 19:26</a>
+
+都知道
+
+不过鉴于某人这几年风评不好 文三代还是用笔名吧</blockquote>
+还有一本明日的娜嘉小说版，系列构成金春智子写的，据说延续了动画后半季强调“大人的现实”风格。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 917#       发表于 2021-3-23 19:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702436&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-22 19:26</a>
+
+都知道
+
+不过鉴于某人这几年风评不好 文三代还是用笔名吧</blockquote>
+你们不喜欢井上，关伊上和钟弘什么事呢？XD
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 918#       发表于 2021-3-24 20:07
+
+
+
+
+居然是这个待遇吗
+
+
+
+
+
+
+
+-----
+
+####  Legebriand  
+##### 919#       发表于 2021-3-27 03:33
+
+
+
+
+这次剧场版的副音轨可以用油管的预告片激活两段。本平桑居然还记得自己给黑暗明日社打过工...
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 920#       发表于 2021-3-27 15:15
+
+
+
+
+期待明天！
+<img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1goya96s48tj20hs0a043a.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 921#       发表于 2021-3-27 17:17
+
+
+
+
+你已经死了
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 922#       发表于 2021-3-27 17:45
+
+
+
+
+这屑人鱼
+<img src="http://wx3.sinaimg.cn/mw690/e7cbae74gy1goya93hd6oj20hs0a0ahd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 923#       发表于 2021-3-27 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50750623&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-27 17:45</a>
+
+这屑人鱼</blockquote>
+屑人鱼越来越瑟琴了
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 924#       发表于 2021-3-28 07:42
+
+
+
+
+学生会长你也来当Q娃好不好
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1goz9yfbvscj21hc0u0gpe.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 925#       发表于 2021-3-28 08:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">姐姐太飒太帅了，爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 926#       发表于 2021-3-28 08:23
+
+
+
+
+这鱼人怎么还搂搂抱抱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心大家切了你吃。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 927#       发表于 2021-3-28 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50755095&amp;ptid=1963832" target="_blank">hgcg-w 发表于 2021-3-28 07:42</a>
+学生会长你也来当Q娃好不好</blockquote>
+自古红蓝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 928#       发表于 2021-3-28 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">今年蓝紫教主不能发挥啦
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 929#       发表于 2021-3-28 10:29
+
+
+
+
+屑人鱼移情别恋<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+夏哥大危机
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 930#       发表于 2021-3-28 12:01
+
+
+
+
+变身曲bgm还是不行 没有记忆点 完全配不上这变身
+实和前辈 飞鸟和学生会长 黄红后续剧情就是靠这个了 就看今年女人能不能把配角也写好了
+
+ps 这代q娃终于不是学生会长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 931#       发表于 2021-3-28 12:22
+
+
+
+
+红色是在网球部出过什么事吧
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 932#       发表于 2021-3-28 12:27
+
+
+
+
+屑人鱼真的太屑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  星のMerita  
+##### 933#       发表于 2021-3-28 12:33
+
+
+
+
+红这个“可以再相信一次同伴”绝对有故事，看来和会长与网球部都有关（homo雷达再次鸣响x
+
+以及红的飒爽姐姐形象真的赞，人鱼的塑造也加深了。目前五人组个个讨喜，希望今年就这样稳下去
+
+
+
+
+
+
+
+-----
+
+####  星のMerita  
+##### 934#       发表于 2021-3-28 12:33
+
+
+
+
+红这个“可以再相信一次同伴”绝对有故事，看来和会长与网球部都有关（homo雷达再次鸣响x
+
+以及红的飒爽姐姐形象真的赞，人鱼的塑造也加深了。目前五人组个个讨喜，希望今年就这样稳下去
+
+
+
+
+
+                  
