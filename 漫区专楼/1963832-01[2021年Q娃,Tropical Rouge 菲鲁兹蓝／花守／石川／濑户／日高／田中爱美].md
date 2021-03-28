@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 04:51** 
+> ## **本文件最后更新于2021-03-28 12:56** 
 
 
 
@@ -16898,4 +16898,574 @@ ps 这代q娃终于不是学生会长了<img src="https://static.saraba1st.com/i
 
 
 
-                  
+
+
+-----
+
+####  memo2  
+##### 935#       发表于 2021-3-28 13:03
+
+
+
+
+我还以为红走的是直哥路线，没想到是有点傲娇的帅学姐，真好啊今年的角色真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 936#       发表于 2021-3-28 13:12
+
+
+
+
+今年人人都有过去的黑历史要补完？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 937#       发表于 2021-3-28 13:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">入了蓝红股，你俩怎么如此见外，分明是有染
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 938#       发表于 2021-3-28 14:15
+
+
+
+ 本帖最后由 kerfars 于 2021-3-28 14:24 编辑 
+
+会长对红毛不是那种扑克脸公事公办，而是会去调戏红毛，这点实在刺激
+
+简直就像分手了的猫狗（
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 939#       发表于 2021-3-28 14:19
+
+
+
+
+今年各个q娃都有点伏笔，夏夏没朋友，珊瑚没主见，木瓜没自信，鸟哥不信同伴。夏夏和珊瑚其实可以发散也可以不发散，入队时已经解决得差不多了，木瓜和鸟哥涉及到其他人可以多讲一集
+
+看到人鱼依然这么屑就放心了，使唤珊瑚简直无比自然。珊瑚的性格被人鱼这种完克，如果没有夏夏她们，啧啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 940#       发表于 2021-3-28 14:37
+
+
+
+
+学生会长的人设，能预感到女同创作的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 941#       发表于 2021-3-28 14:47
+
+
+
+
+学姐跟会长，好起来了！
+已经脑内自制药了
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 942#       发表于 2021-3-28 15:11
+
+
+
+
+会长下集还有戏份，估计是要成常驻配角
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 943#       发表于 2021-3-28 15:18
+
+
+
+
+作画真好，推上已经很多会长红毛同人图了，珊瑚也是全肯定夏哥，很多地方都盯着夏哥，这片女同气息好浓<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 944#       发表于 2021-3-28 15:38
+
+
+
+
+会不会萝拉是烟雾弹，会长是第五人呢
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 945#       发表于 2021-3-28 16:42
+
+
+
+
+我来写的话，就会让会长发现Q娃的秘密，
+
+但是只有飞鸟知道会长知道了Q娃的秘密
+
+然后会长利用这点要挟飞鸟，
+
+让她带热带部去参加各种学生会无法出面的活动，
+
+比如调节纠纷啦，去运动部帮忙啦，帮家里有困难的同学看店啦
+
+这样主角团可写的故事就更多了
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 946#       发表于 2021-3-28 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758388&amp;ptid=1963832" target="_blank">hgcg-w 发表于 2021-3-28 16:42</a>
+我来写的话，就会让会长发现Q娃的秘密，
+
+但是只有飞鸟知道会长知道了Q娃的秘密
+
+然后会长利用这点要挟飞鸟， ...</blockquote>
+那我得给个差评。反派光明正大想来就来想走就走，招完怪被打败了就闪现离开跟打卡一样。反而是光美在这拯救世界还偷偷摸摸遮遮掩掩，还要被人拿来威胁，凭啥啊
+我觉得可以抽一集出来讲会长发现萝拉，拿萝拉来做威胁，然后发现她们是光美后放弃胁迫，转向支持。
+根据上集的说法，这个热带部应该就是类似于啥都干的那种部吧(侍奉部？)直接让学生会长做中间人，谁有烦恼跟会长说，会长拜托热带部帮忙就行了。然后这个过程中可能就涉及到部员以前的黑历史，比如文学部，网球部的人请求帮忙。
+完全没必要通过胁迫展开剧情，搞得要演真夏夜的淫梦一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 947#       发表于 2021-3-28 17:22
+
+
+
+
+已经有人开始造假药了
+
+说可能以前飞鸟和会长都是网球社的而且是双打搭档
+
+但是会长放弃梦想去了学生会让飞鸟感到被背叛
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 948#       发表于 2021-3-28 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758615&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-28 17:12</a>
+
+那我得给个差评。反派光明正大想来就来想走就走，招完怪被打败了就闪现离开跟打卡一样。反而是光美在这拯 ...</blockquote>
+现在就差个火箭头里的大森老师暗中支援她们了
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 949#       发表于 2021-3-28 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求你们不要提淫梦了，要是夏哥真的来一集发噩梦的剧情咋办。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 950#       发表于 2021-3-28 17:50
+
+
+
+ 本帖最后由 天邪鬼 于 2021-3-28 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50757957&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-28 15:38</a>
+会不会萝拉是烟雾弹，会长是第五人呢</blockquote>
+说不定是会长被改造成暗美的展开呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+然后萝拉还没变，所以也算第五位
+今年没有个人变怪吐露心声的环节，那就变暗美呗，干劲被吸走后就能吐露心声了，装都懒得装了
+再来个joker，直接把主角团最亲近的人拉过来变暗美，然后整个斗兽场扔进去，除非一方消失不然出不来的那种
+这一招以后干部战的时候也能用，比如捏几个人偶暗美，不求你造成杀伤，在我打的时候出来当肉盾挡伤害就行了。直接造成精神伤害
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 951#       发表于 2021-3-28 17:56
+
+
+
+
+会长不可能吧
+
+上一个名字是汉字的Q娃还是钉宫呢
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 952#       发表于 2021-3-28 18:00
+
+
+
+
+会长名字又带“鸟”又带“百合”的。感觉有些河豚都快疯了，打开推前三条都是鸟哥和会长的贴贴图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 953#       发表于 2021-3-28 19:27
+
+
+
+
+低情商：这都填的什么鬼！
+
+高情商：蕴藏着各种各样的可能性呢！
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 954#       发表于 2021-3-28 19:42
+
+
+
+
+感觉今年很有造cp的潜力，但是看剧情又感觉是制作组的无心之举，实在不知道他们是第一层还是第五层
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 955#       发表于 2021-3-28 20:10
+
+
+
+
+今年就不知道内裤老师和蓝紫教主
+
+今年暂时没有纯蓝q娃
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 956#       发表于 2021-3-28 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760108&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-3-28 20:10</a>
+
+今年就不知道内裤老师和蓝紫教主
+
+
+今年暂时没有纯蓝q娃</blockquote>
+<img src="http://wx4.sinaimg.cn/mw690/9657fdc2gy1gozmkzc4whj20u01y0gsy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 957#       发表于 2021-3-28 20:16
+
+
+
+ 本帖最后由 三合一出现 于 2021-3-28 20:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">- -突然想起一件事，飞鸟学姐X萝拉这组合的话····难不成还要叫泷泽萝拉
+
+
+
+
+
+
+
+QQ截图20210328201841.png
+(82.01 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-28 20:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/202203eanzitvrk2dv8kqa.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 958#       发表于 2021-3-28 20:17
+
+
+
+
+原来真有啊
+
+<img src="https://img.saraba1st.com/forum/202103/28/201656y5lfmcpn39nwgzv9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210328201648.png</strong> (440.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 20:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 959#       发表于 2021-3-28 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760166&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-28 20:17</a>
+
+原来真有啊</blockquote>
+q娃带货
+
+芒果味的面包，我是想象不出味道
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 960#       发表于 2021-3-28 20:42
+
+
+
+
+鸟哥这变身力量感十足，仿佛隔壁骑士棚变身<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这集没先尝试一下肉身打怪再变身真是浪费了
+
+
+怎么你也有一个曾经伤害过自己的女人，你们高年级Q娃都是木毛吗<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">赶紧地会长个人回安排上
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 961#       发表于 2021-3-28 20:44
+
+
+
+
+大概都是红长直的原因，飞鸟给我的感觉有点像妖精尾巴里的艾尔莎
+
+开头看起来各人后面的个人回伏线都安排得明明白白了
+
+人招齐了，社团也快成立了，那个海豹到底啥时候正式出场？
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 962#       发表于 2021-3-28 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760162&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-3-28 20:16</a>
+
+- -突然想起一件事，飞鸟学姐X萝拉这组合的话····难不成还要叫泷泽萝拉
+
+
+ ...</blockquote>
+死大夫们太坏了
+
+
+
+
+
+                 
