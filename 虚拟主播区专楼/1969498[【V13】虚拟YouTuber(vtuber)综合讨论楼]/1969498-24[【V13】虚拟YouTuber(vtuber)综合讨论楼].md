@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-27 11:34** 
+> ## **本文件最后更新于2021-03-28 13:44** 
 
 
 
@@ -4328,4 +4328,601 @@ s1的纯度，大/大的下降了。
 
 
 
-                                          
+
+
+-----
+
+####  kangkangsama  
+##### 34714#       发表于 2021-3-27 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50751353&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-3-27 19:22</a>
+
+郡郡大人气！
+
+省一楼，郡道答最想要捡回家的虹人的时候真的忍不住想回roa（这两人初期设定就是郡道捡人）， ...</blockquote>
+自称13岁的确也让我听了一愣
+
+我不想做mrra列文虎克人啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34715#       发表于 2021-3-27 19:45
+
+
+
+[https://www.bilibili.com/blackboard/live/activity-2zIFcApkMC.html](https://www.bilibili.com/blackboard/live/activity-2zIFcApkMC.html)
+
+原杏cn的夜雾转生，变成可爱的圆脸萝莉了.......
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 34716#       发表于 2021-3-27 19:49
+
+
+
+
+桃皇呢，能不能也转生一个，总不能永远做JPG吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34717#       发表于 2021-3-27 20:06
+
+
+
+
+桃皇还在等皮，狗妈效率懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34718#       发表于 2021-3-27 20:10
+
+
+
+
+她还在等皮，下个月或者下下个月再看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 34719#       发表于 2021-3-27 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先找井皇做一个啊，等狗妈做出来v区都凉了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 34720#       发表于 2021-3-27 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">狗妈是不是还欠vr一个皮，都两年了吧
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34721#       发表于 2021-3-27 20:35
+
+
+
+
+建议翻翻那个聊天记录，桃皇看不起井皇的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34722#       发表于 2021-3-27 21:14
+
+
+
+
+女神这跳起来居然都不摇一下的，废物ickr
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 34723#       发表于 2021-3-27 21:14
+
+
+
+
+女神好大
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34724#       发表于 2021-3-27 21:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/211603uxusi7wz5lap2hih.png" referrerpolicy="no-referrer">
+
+
+<strong>＃女神のへや​【モイラ３Dお披露目配信】-1.png</strong> (125.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-27 21:16 上传
+
+
+
+
+
+
+为什么牛姨的派派有物理
+[https://www.youtube.com/watch?v=eTOVNEzirWQ](https://www.youtube.com/watch?v=eTOVNEzirWQ)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34725#       发表于 2021-3-27 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两国时的3d和20年新3d怎么比
+moira这虚无对谈+已公开3d，是要冲新的同接低位么
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 34726#       发表于 2021-3-27 21:43
+
+
+
+
+自产和外包的差别<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34727#       发表于 2021-3-27 21:50
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-27 22:17 编辑 
+
+小千不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+社霸你来啦
+就说嘛，肯定得有歌舞环节，还是原创歌曲
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34728#       发表于 2021-3-27 22:11
+
+
+
+
+感觉月灵没搞新皮？yt播的这个游戏真的看不下去啊。。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34729#       发表于 2021-3-27 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50751509&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-3-27 19:40</a>
+自称13岁的确也让我听了一愣
+
+我不想做mrra列文虎克人啊</blockquote>
+连续三天的mrra供给，爽诶<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">…
+省一楼，明天有郡東つねる，爽诶
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 34730#       发表于 2021-3-28 11:56
+
+
+
+
+糖豆人大赛没声没响的，这就过气了吗
+
+
+
+
+
+
+
+-----
+
+####  caupollen  
+##### 34731#       发表于 2021-3-28 12:09
+
+
+
+
+月灵感觉和其他日在b的个人势的路子都不一样啊，去日本分部递交材料？
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34732#       发表于 2021-3-28 12:46
+
+
+
+
+#まりなす卒業
+做偶像死路一条+1
+
+木口也是偶像吧？什么时候能集体毕业？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34733#       发表于 2021-3-28 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50756809&amp;ptid=1969498" target="_blank">ShuTk4O 发表于 2021-3-28 12:46</a>
+#まりなす卒業
+做偶像死路一条+1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">此毕业非彼毕业，虽然我也不知道live后的超重大发表是什么
+
+
+
+
+
+
+
+-----
+
+####  langsheng  
+##### 34734#       发表于 2021-3-28 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50756498&amp;ptid=1969498" target="_blank">caupollen 发表于 2021-3-28 12:09</a>
+
+月灵感觉和其他日在b的个人势的路子都不一样啊，去日本分部递交材料？</blockquote>
+别忘了月灵是挂在自己家的事务所的
+
+估计打算一步到位，直接签约
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34735#       发表于 2021-3-28 13:53
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-3-28 13:55 编辑 
+
+来点mememe新衣服
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/135424o0wf77n6633kb36m.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (67.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 13:54 上传
+
+
+
+
+
+感觉高光不行
+
+<img src="https://img.saraba1st.com/forum/202103/28/135442od0dmyrr343m6r5y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (68.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 13:54 上传
+
+
+
+
+
+
+live开了光追有高光了，脸变阴间了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 34736#       发表于 2021-3-28 14:26
+
+
+
+
+まりなす的发表，主流出道、专辑
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34737#       发表于 2021-3-28 14:53
+
+
+
+
+まりなす原来是名字毕业，以后不加（仮）了，就叫まりなす
+
+avex出道，6月23日发专辑
+
+换了新logo，感觉是哪个特摄片里跑出来的
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/145345ilyyhkr7zykgvyov.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (39.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 14:53 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Hemis  
+##### 34738#       发表于 2021-3-28 16:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">月灵这么弄，至少完全不用担心被日本银行卡收入的问题
+
+不过太谨慎了点，现在的同接完全看不出她曾经在冲国大热过，等下一剂猛药吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34739#       发表于 2021-3-28 19:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/193546xufw8q44kakm7gwf.png" referrerpolicy="no-referrer">
+
+
+<strong>エンヴィーベイビー: メリッサ・キンレンカ Cover.png</strong> (113.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 19:35 上传
+
+
+
+
+
+
+声音真漂亮
+[エンヴィーベイビー/ メリッサ・キンレンカ Cover](https://www.youtube.com/watch?v=xz0iriPFNcA)
+
+
+
+
+
+
+
+
+
+-----
+
+####  咸鱼无双  
+##### 34740#       发表于 2021-3-28 19:52
+
+
+
+<img src="https://p.sda1.dev/1/8b5366d77fd58c1a713e74bff3c00425/joi.png" referrerpolicy="no-referrer">
+
+我觉得应该发到这里来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34741#       发表于 2021-3-28 20:35
+
+
+
+[https://www.youtube.com/watch?v=X3OXXrG0Q6Y](https://www.youtube.com/watch?v=X3OXXrG0Q6Y)
+
+江户lena的live，不留档
+
+
+
+
+
+
+
+-----
+
+####  Amibo  
+##### 34742#       发表于 2021-3-28 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50759946&amp;ptid=1969498" target="_blank">咸鱼无双 发表于 2021-3-28 19:52</a>
+
+我觉得应该发到这里来</blockquote>
+太敬业了，向这位平凡的英雌致敬！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 34743#       发表于 2021-3-28 21:27
+
+
+
+ 本帖最后由 Ketestrait 于 2021-3-28 21:31 编辑 
+
+露皇休止的原因：收到了恐吓信，找警察了，已基本解决
+
+
+syl
+
+重大发表：买到PS5了
+
+
+
+
+
+                                         
