@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-25 13:42** 
+> ## **本文件最后更新于2021-03-29 02:55** 
 
 
 
@@ -14160,4 +14160,562 @@ MHY、鹰角在这方面搞得都挺严实。</blockquote>
 
 
 
-                       
+
+
+-----
+
+####  saevey  
+##### 8285#       发表于 2021-3-26 01:15
+
+
+
+ 本帖最后由 saevey 于 2021-3-26 01:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50733600&amp;ptid=1789687" target="_blank">Heliko 发表于 2021-3-25 21:15</a>
+真的？好在哪里？</blockquote>
+除了有明日之丈2十七十八集的字幕是别的集的字幕这种乌龙外，b站的明日之丈是全网唯一一个语句通顺，能让正常人看懂的字幕<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+之前那个冷番字幕组的字幕，明日之丈2第一集主要角色的第一句台词就是错的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+十七十八集字幕问题我找过客服，应该过几天也能改好。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若荼泱| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  V5Style  
+##### 8286#       发表于 2021-3-26 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735437&amp;ptid=1789687" target="_blank">saevey 发表于 2021-3-26 01:15</a>
+
+除了有明日之丈2十七十八集的字幕是别的集的字幕这种乌龙外，b站的明日之丈是全网唯一一个语句通顺，能让 ...</blockquote>
+可以试试找B站番剧区小编反馈，比如[https://space.bilibili.com/4337399](https://space.bilibili.com/4337399)
+
+
+
+
+
+
+
+-----
+
+####  藤田有静  
+##### 8287#       发表于 2021-3-26 08:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+b黑楼怎么会进来反馈字幕云云，找你的批客服
+
+
+
+
+
+
+
+-----
+
+####  potenzh  
+##### 8288#       发表于 2021-3-26 12:48
+
+
+
+
+都是b站
+
+
+
+
+
+
+Screenshot_2021-03-26-12-47-36-36.jpg
+(159.6 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-26 12:47 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/26/124758clglallqbcjznnls.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  如月尤菲  
+##### 8289#         楼主| 发表于 2021-3-26 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50738944&amp;ptid=1789687" target="_blank">potenzh 发表于 2021-3-26 12:48</a>
+都是b站</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是bat
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  摸鱼先锋  
+##### 8290#       发表于 2021-3-26 16:29
+
+
+
+
+出圈了，刚刚网易推了央视批逼站写错字的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 8291#       发表于 2021-3-26 16:30
+
+
+
+
+叔叔丢人丢大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clablbkao  
+##### 8292#       发表于 2021-3-26 16:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/26/163119nlrhghu22ugq9lus.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0326_163103.png</strong> (210.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 16:31 上传
+
+
+
+
+
+
+破发预定
+
+
+
+
+
+
+
+-----
+
+####  V5Style  
+##### 8293#       发表于 2021-3-26 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50736118&amp;ptid=1789687" target="_blank">藤田有静 发表于 2021-3-26 08:08</a>
+
+？
+
+b黑楼怎么会进来反馈字幕云云，找你的批客服</blockquote>
+黑正版字幕也是B黑的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陶大知  
+##### 8294#       发表于 2021-3-26 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50733194&amp;ptid=1789687" target="_blank">flypig_zhy 发表于 2021-3-25 20:25</a>
+
+排A什么的都是DAG的妄想症发作---二次元耶路撒冷的圣殿骑士们如是说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">“排A协议什么的，都没有的，都是你们A站小将被害妄想”（迫真）
+
+转头就签了UP让A独不播。
+
+
+
+
+
+
+
+-----
+
+####  隔爆兼本安  
+##### 8295#       发表于 2021-3-26 19:15
+
+
+
+
+笑死了，B站好几个特摄区UP在那当谜语人暗示B站要买奥特曼，结果A站下午就和奥特曼中国官方微博一起发了条A站上线5部奥特曼的微博<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  如月尤菲  
+##### 8296#         楼主| 发表于 2021-3-26 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50742871&amp;ptid=1789687" target="_blank">隔爆兼本安 发表于 2021-3-26 19:15</a>
+笑死了，B站好几个特摄区UP在那当谜语人暗示B站要买奥特曼，结果A站下午就和奥特曼中国官方微博一起发了条A ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区区奥特曼而已，叔叔这个季度给你a剃光头了
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 8297#       发表于 2021-3-26 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">叔叔转手买了迪迦真骨雕独家供货岂不乐哉。
+
+
+
+
+
+
+
+-----
+
+####  MisakiMester  
+##### 8298#       发表于 2021-3-27 21:07
+
+
+
+
+不枉叔叔这段时间天天蹭特摄，终于有效果了，不过ac一直有用户上传的奥特曼，唯一值得注意的就是泽塔了，这个是个好东西
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 8299#       发表于 2021-3-28 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？？？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  tamatama  
+##### 8300#       发表于 2021-3-28 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50752387&amp;ptid=1789687" target="_blank">MisakiMester 发表于 2021-3-27 21:07</a>
+不枉叔叔这段时间天天蹭特摄，终于有效果了，不过ac一直有用户上传的奥特曼，唯一值得注意的就是泽塔了，这 ...</blockquote>
+ac的泽塔是正版吧？记得ac有新创华授权的，不过一般都是全集播完了才上架。
+
+—— 来自 Xiaomi Redmi K20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  MisakiMester  
+##### 8301#       发表于 2021-3-28 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758297&amp;ptid=1789687" target="_blank">tamatama 发表于 2021-3-28 16:29</a>
+ac的泽塔是正版吧？记得ac有新创华授权的，不过一般都是全集播完了才上架。
+
+—— 来自 Xiaomi Redmi K20 ...</blockquote>
+是，中配日配都买了
+ac版权放的松，除了新生代基本都能找到用户上传版本，新生代除了泰迦也都买了
+小梦买了正版，用户上传的爱之夏字幕组版本刚刚看了也没删，是好事
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 8302#       发表于 2021-3-28 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758360&amp;ptid=1789687" target="_blank">MisakiMester 发表于 2021-3-28 16:38</a>
+
+是，中配日配都买了
+
+ac版权放的松，除了新生代基本都能找到用户上传版本，新生代除了泰迦也都买了
+
+小梦买 ...</blockquote>
+三大特摄只有骑士遭殃得最严重
+
+战队在那次扫荡后暂时没了，不过回来了
+
+奥特曼昭和系还在，平成系有零星散货，新生代我还未细查
+
+
+
+
+
+
+
+-----
+
+####  RainbowSealife  
+##### 8303#       发表于 2021-3-28 17:20
+
+
+
+
+有一说一，批站对特摄这块真的不怎么上心，奥特曼估计都是新创华打包卖的，全网都有的片，应该不贵，结果拖拖拉拉到现在才买<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  如月尤菲  
+##### 8304#         楼主| 发表于 2021-3-28 22:26
+
+
+
+ 本帖最后由 如月尤菲 于 2021-3-28 22:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758679&amp;ptid=1789687" target="_blank">RainbowSealife 发表于 2021-3-28 17:20</a>
+有一说一，批站对特摄这块真的不怎么上心，奥特曼估计都是新创华打包卖的，全网都有的片，应该不贵，结果拖 ...</blockquote>
+人气最高的平成三杰，阿a上了一年多了吃够流量了，叔叔现在出手也晚了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+要断流还是得从新番下手啊
+
+—— 来自 realme RMX2202, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 8305#       发表于 2021-3-28 22:38
+
+
+
+
+叔叔我啊，又要破发了
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  MisakiMester  
+##### 8306#       发表于 2021-3-29 04:19
+
+
+
+
+叔叔是真的不行，扣扣索索的一不小心临时工放了两集奈克瑟斯出来又删了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人隔壁批话不放直接上线，格局真的不行
+
+
+
+
+
+
+
+-----
+
+####  550616  
+##### 8307#       发表于 2021-3-29 04:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758679&amp;ptid=1789687" target="_blank">RainbowSealife 发表于 2021-3-28 17:20</a>
+
+有一说一，批站对特摄这块真的不怎么上心，奥特曼估计都是新创华打包卖的，全网都有的片，应该不贵，结果拖 ...</blockquote>
+因为以前用户上传的点击率也不怎么样，都是我这种老头在看
+
+
+
+
+
+
+
+-----
+
+####  Harlaus  
+##### 8308#       发表于 2021-3-29 09:37
+
+
+
+
+摸鱼看港交所上市仪式，叔叔登场后弹幕和谐得很啊，清一色陈总好，连称呼叔叔的都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小妻水亚美  
+##### 8309#       发表于 2021-3-29 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50764305&amp;ptid=1789687" target="_blank">Harlaus 发表于 2021-3-29 09:37</a>
+摸鱼看港交所上市仪式，叔叔登场后弹幕和谐得很啊，清一色陈总好，连称呼叔叔的都没有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是机器人吧
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  a568662435  
+##### 8310#       发表于 2021-3-29 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50764606&amp;ptid=1789687" target="_blank">小妻水亚美 发表于 2021-3-29 10:01</a>
+
+都是机器人吧
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.2</blockquote>
+明明大家都爱着陈总的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小妻水亚美  
+##### 8311#       发表于 2021-3-29 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761266&amp;ptid=1789687" target="_blank">如月尤菲 发表于 2021-3-28 22:26</a>
+人气最高的平成三杰，阿a上了一年多了吃够流量了，叔叔现在出手也晚了
+要断流还是得从新番下手啊
+ ...</blockquote>
+类似于现在的手机市场，阿批是小米，已经不把a（魅族）站放眼里了吧？
+271 腾讯视频 优酷之流是被美方断了芯片代工供给的华为，已经掀不起什么大浪了。
+抖音和快手是oppo vivo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+                      
