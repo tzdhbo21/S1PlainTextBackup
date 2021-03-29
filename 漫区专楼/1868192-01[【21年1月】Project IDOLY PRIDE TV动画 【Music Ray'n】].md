@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 15:46** 
+> ## **本文件最后更新于2021-03-29 11:38** 
 
 
 
@@ -223,7 +223,7 @@ Aile to Yell / TRINITYAiLE
 
 
 比较好奇的是推上这个人物好像不在10人内？
-<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_Li012" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_TmxDN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3506,49 +3506,49 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 
 
 好評放送中のTVアニメ「IDOLY PRIDE」。星見プロダクションに集まった10人のアイドルたちは長瀬琴乃をリーダーとする「月のテンペスト」と川咲さくらがリーダーの「サニーピース」という2グループに分かれ、第6話「かけがえのないステージを」にて念願のデビューライブを成功させました。ここでは「月のテンペスト」のメンバー、長瀬琴乃役・橘美來さん、伊吹渚役・夏目ここなさん、白石沙季役・宮沢小春さん、成宮すず役・相川奏多さん、早坂芽衣役・日向もかさんが集まって、ここまでの展開を振り返ってもらいました。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571435.jpg/w600h450/" height="450" id="aimg_b6yPf" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/2/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571435.jpg/w600h450/" height="450" id="aimg_pozPR" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/2/)
 
 月のテンペストの5人
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 ――サニーピース（サニピ）と月のテンペスト（月スト）のデビューライブが第6話で描かれました。映像をご覧になっての感想はいかがでしたか？橘　サニピも、月ストも、それぞれ個性が出ていたなと思いました。ライティングもサニピちゃんは明るい色を使っていたり、月ストは夜をイメージさせる青や黄色を使っていたりして、そのコントラストが素敵だなって。個人的にはひとりひとりの顔が映ったときの、光の差し込み方が好きですね。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571297.jpg/w600h450/" height="450" id="aimg_nxQ7S" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/3/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571297.jpg/w600h450/" height="450" id="aimg_yZx50" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/3/)
 
 橘美來さんが演じる長瀬琴乃
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 夏目　サニピは明るい太陽の下で歌うのかなと思っていたら、夕日の中で歌っていたのが意外で。月ストの夜の光もきれいなだけじゃなく、その中に悲しみとかも入っているなと思って、両方とも深みが出ているところが素敵だなと思いました。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571299.jpg/w600h450/" height="450" id="aimg_A8h8I" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/6/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571299.jpg/w600h450/" height="450" id="aimg_q4Z44" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/6/)
 
 夏目ここなさんが演じる伊吹渚
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 宮沢　私は沙季を演じているので、（沙季の妹の）千紗がちゃんとアイドルしているところにすごく感動しました。月ストはダンスが難しそうだなと思っていたら、実際難しかったです（笑）。月ストのみんなみたいになれるように、私たちもダンスを頑張りたいと思います！
-<[img src="https://webnewtype.com/rsz/S1/248177/1571300.jpg/w600h450/" height="450" id="aimg_PANmA" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/7/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571300.jpg/w600h450/" height="450" id="aimg_iL1rb" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/7/)
 
 宮沢小春さんが演じる白石沙季
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 相川　月スト、ニピとしての衣装が出るのは、これが初めてですよね。それぞれのグループの個性がよく表れている衣装だと思いました。私たちもいつか月ストとしてパフォーマンスを披露させてもらうときは、あの衣装をイメージしたものを着ることになると思うので、私個人としてもすごく楽しみですし、皆さんに楽しみにしていただきたいところでもあります。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571303.jpg/w600h450/" height="450" id="aimg_AtWw4" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/5/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571303.jpg/w600h450/" height="450" id="aimg_yowF4" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/5/)
 
 相川奏多さんが演じる成宮すず
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 日向　衣装で言うと、それなりのものを持っている子はちゃんとそこが露出しているんですよね。芽衣ちゃんは唯一、肩が片方しか隠れていなかったりとか、沙季ちゃんも胸元が開いていたりして……。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571296.jpg/w600h450/" height="450" id="aimg_e6qbl" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/4/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571296.jpg/w600h450/" height="450" id="aimg_BzjxG" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/4/)
 
 日向もかさんが演じる早坂芽衣
 (C) 2019 Project IDOLY PRIDE/星見プロダクション
 
 
 橘　やだー！　えっちー！日向　オタク目線から見ると、そこのデザインがまたいいなという（笑）。衣装の細部にもいろいろこだわりが詰め込まれているところがいいなと思いました。――月ストでは琴乃がリーダーとなりました。最初はソロアイドルをめざしていた琴乃ですが、心境の変化を橘さんはどのように捉えていますか？橘　琴乃はひとりで頑張りたいという気持ちが強い子なんですけど、これからグループとして活動していくとなったときに、どう気持ちの整理をつけていき、どうグループに向き合っていくのか？　そういった部分も今後描かれていくと思うので、ぜひ注目していただきたいです。あと、琴乃はデレた顔がめちゃめちゃかわいいので（笑）。ほかのメンバーと接していく中でどんな顔が見られるかというところも、注目して見ていただきたいですね。――誰相手のときに、いちばんデレた顔になりますか？橘　さくらとか渚とかは心を許しがちなので、その2人と接するときはかわいい表情を見せてくれるんじゃないかなと思います。――親友の琴乃を支えるためにアイドルをめざした渚ですが、お話が進むごとに琴乃はさくらと一緒にいることのほうが増えているような……？夏目　たぶん渚的にはちょっと嫉妬とかあるんじゃないかなと、私は思っていて。4話で芽衣が入ってきて、琴乃が牧野に「どういうことですか？」と言いに行くときに、渚も一緒についていっていたんですよ。「なぜこの子はついてきたんだろう？」と私も思っていたんですけど、たぶん琴乃ちゃんを守りたいという思いで隣にいたんだろうなって。そのくらい、琴乃のことをわかってあげようという気持ちは誰よりも強いような気がします。橘　琴乃はちょっとぞんざいに扱いすぎですよね、渚のことを（笑）。もっと渚の気持ちをくみとって、渚にも寄り添ってあげられたらな、と私も思います。――琴乃と渚は親友同士で同じグループですが、沙季は妹の千紗と別グループになってしまって、宮沢さんとしては寂しさを感じることはありますか？宮沢　そりゃあ寂しいです。私自身もどこか千紗だったり、（高尾）奏音ちゃんだったりに頼もしさを感じていたりしますし、千紗に支えられている部分が沙季にもあるので、すごく寂しくはありますよね。でも、同じグループじゃないということで、一ファンとして千紗を見られるというのは楽しみだなとは思います。ライバルとして切磋琢磨していきつつも、応援できる立場というのがいいですよね。――沙季はしっかりしているので、あまり寂しさを表に出さないですよね。宮沢　でもやっぱり、寂しいんじゃないですか。ずっと一緒にいた家族ですし、一緒に練習してきた仲間でもあるので。千紗だけじゃなくて、グループがサニピと月ストで2つに分かれるというのは寂しいなと、私自身としては感じています。――リーダーの座は琴乃に譲ってもセンターはあきらめていないと、すずは言っていましたが、どうしたらセンターになれると思いますか？相川　それは私も知りたいです（笑）。でも、そうやってみんなに宣言しても、笑って流してもらえるところがすずちゃんのいいところかなと思っていて。そういう愛すべき末っ子みたいなところが、これからチームを明るくしていくこともあると思っています。橘　デビューライブの映像を見たときに、すずのステージに立ったときのギャップがすごくいいなと思いました。ふだん「ですわ！」とか言っているのに、この表情ができるすずのポテンシャルはすごいなと。相川　実はできる子なんです！橘　真剣な表情のすずは、まさに美少女！という感じ。いつもはかわいい末っ子という感じですけれども。琴乃も油断していたら本当にセンターを奪われるぞと思いつつ、たぶん琴乃は譲らないと言うと思います（笑）。――ギャップで言えば、いつも明るい芽衣がクールなイメージの月ストに入ったのも意外でしたが、芽衣にギャップ萌えを感じる瞬間はありますか？日向　アニメの収録でディレクションをしていただいたときに「普段は明るく元気な感じだけど、ここはかっこいいところを見せたいから、ちょっと落ち着いた雰囲気でよろしく」と言われたところがあったりしましたね。芽衣ちゃんって、たまにさらっとかっこいいことを言うんですよ。こんなかわいい顔して、ふだん元気っ子なのに、たまにイケメンなところを見せてくれると「かっこいい、芽衣！」ってなります（笑）。しかも、本人も狙って言っているわけじゃないというのがまたギャップだなと思って。第三者からすると「今すごくいいこと言ったよ」と思うけど、たぶん本人は気づいていないという。相川　芽衣ちゃんはいつも、すずちゃんにちょっかいをかけてくるんです。でも、すずちゃんもまんざらでもなくて、「やめてよ！」みたいな感じで返すんですけど、本当はうれしいというのが私も見ていてすごく好きなところで。そういう空気が月のテンペストも和ませてくれると思いますし、芽衣ちゃんの存在って本当に大きくて。言いにくいことを言ってくれたりとか、和ませてくれたりするけど、ちゃんとしているところはちゃんとしているみたいな。そういうところがグループの潤滑油になっているというか、いい役目をしてくれているなと思います。――これからこのメンバーで月ストとして頑張っていくということで、リーダー・琴乃役の橘さんからファンの皆さんへ向けてのメッセージをお願いします。橘　星見プロダクションの10人が2つのグループに分かれてはしまったんですけど、サニピも、月ストも、それぞれアイドルの頂点をめざしていきます。これからライブシーンも描かれていくと思いますし、まだ謎に包まれたところも多いと思いますので、そういったものがどうやって明かされていくのか？　そして、琴乃はグループになじめるのか（笑）。琴乃をはじめ、みんなの成長にご注目ください。加えて特に「IDOLY PRIDE」は楽曲がめちゃめちゃいいので、楽しみにしていただけたらすごくうれしいです。
-<[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_kbAIl" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
+<[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_nQOTB" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
 
 
 
@@ -5320,4 +5320,450 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-                                        
+
+
+-----
+
+####  aaron17  
+##### 277#       发表于 2021-3-28 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">決賽平手也太萎了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 278#       发表于 2021-3-29 00:16
+
+
+
+
+这片子抛去mana和牧野剧情真就普通的流水线偶像片，可加上前传漫画实在是太毒了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  ky刃  
+##### 279#       发表于 2021-3-29 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  堆雪若叶  
+##### 280#       发表于 2021-3-29 00:53
+
+
+
+
+刀傻了，牧野前面的木头也全部是装的，这种宣传片有必要在这种地方这么用力吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊布桑  
+##### 281#       发表于 2021-3-29 01:00
+
+
+
+
+草，这song for you配合画面演出感染力爆炸啊，瞬间破防了。
+虽然结局非常令人遗憾，不过不得不说这种结局给人印象更深刻吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  gzdw  
+##### 282#       发表于 2021-3-29 01:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 283#       发表于 2021-3-29 01:56
+
+
+
+
+看了下官网刚更新的手游介绍，怎么感觉是偶像大师sc加马娘那种养成游戏
+
+
+
+
+
+
+
+-----
+
+####  千里茜  
+##### 284#       发表于 2021-3-29 01:56
+
+
+
+
+把人写死了，然后继续卖歌做周边做企划是吧，榨死人价值可以的，又当又立可以的。
+
+我开始觉得膈应了，不知道桔梗党看到夜叉姬里套皮桔梗是不是也这反映。
+
+尼玛死了高桥，把麻奈还回来啊！！！！要你都合的时候你开始将合理了，要你合理的时候你开始玩都合，隔壁灰姑娘卯月那段我现在还看着生理不适。
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 285#       发表于 2021-3-29 02:29
+
+
+
+
+快进到长濑麻奈线下追思会（做不到的）
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 286#       发表于 2021-3-29 02:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打平手倒是预料到了，这个刀上抹糖就过分了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊布桑  
+##### 287#       发表于 2021-3-29 08:03
+
+
+
+
+昨晚看完之后，脑子里一直回响song for you，三四点才睡着。。。
+我就不该看到更新就点进去的，今天要上班啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  狂河冰不烈  
+##### 288#       发表于 2021-3-29 08:30
+
+
+
+
+这片子到底多少集？B站弹幕全在刷完结撒花，但是B站视频标题却没写完结两个字。
+
+
+
+
+
+
+
+-----
+
+####  伊布桑  
+##### 289#       发表于 2021-3-29 08:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763681&amp;ptid=1868192" target="_blank">狂河冰不烈 发表于 2021-03-29 08:30:45</a>
+这片子到底多少集？B站弹幕全在刷完结撒花，但是B站视频标题却没写完结两个字。 ...</blockquote>去app里看了一下，已经标了已完结。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 290#       发表于 2021-3-29 09:07
+
+
+
+
+一大早起来上班满脑子mana牧野，为什么为什么为什么<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  风雪天  
+##### 291#       发表于 2021-3-29 09:39
+
+
+
+
+人鬼情未了真不错。现在讲爱情的动画不是党争就是后宫，能稳稳当当讲述两个人的爱情故事的片子不多了，最后一集歌曲配上画面感染力一下就上去了。
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 292#       发表于 2021-3-29 10:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/101209y93r44ccsc43433q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7K8}YGZ3BWO~9L~P)MNW32P.jpg</strong> (8.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 10:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  支仓爱理  
+##### 293#       发表于 2021-3-29 10:18
+
+
+
+
+最后那首歌也很不错啊 
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 294#       发表于 2021-3-29 11:25
+
+
+
+[https://www.bilibili.com/video/BV1x5411h7b6](https://www.bilibili.com/video/BV1x5411h7b6)
+
+动画最后的表演用了很多旧画面<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 295#       发表于 2021-3-29 12:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/120332r3oalz7aa7wbqbmr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>c16_img.jpg</strong> (60.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 12:03 上传
+
+
+
+
+
+
+164cm，51kg的腹肌女？这不得再重个十几斤？
+
+
+
+
+
+
+
+-----
+
+####  Tehebe  
+##### 296#       发表于 2021-3-29 12:51
+
+
+
+
+前偶像表白经纪人日本宅宅不爆炸的么…
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  OBW  
+##### 297#       发表于 2021-3-29 14:53
+
+
+
+
+这动画如果用偶像番的标准来说感觉是走偏了
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 298#       发表于 2021-3-29 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50766842&amp;ptid=1868192" target="_blank">Tehebe 发表于 2021-3-29 12:51</a>
+
+前偶像表白经纪人日本宅宅不爆炸的么…
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+炸不炸不知道，不过这片的Nico好评率没高过...第一集到第十一集第一项分别是41.8、53.8、55.8、66、65.7、62.5、70.7、58.9、54.7、70.6、69.8。
+
+
+
+
+
+
+
+-----
+
+####  若菜  
+##### 299#       发表于 2021-3-29 18:51
+
+
+
+
+不过怎么说非常喜欢这片，人鬼情未了就是我的菜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  六花自我中  
+##### 300#       发表于 2021-3-29 19:05
+
+
+
+
+nmdwsm
+
+
+
+
+
+
+
+-----
+
+####  cat1230  
+##### 301#       发表于 2021-3-29 19:22
+
+
+
+
+流水偶像片+人鬼情未了。这组合也算蛮可以了，最终话表现挺好。前面略无聊。
+
+
+
+
+
+                                       
