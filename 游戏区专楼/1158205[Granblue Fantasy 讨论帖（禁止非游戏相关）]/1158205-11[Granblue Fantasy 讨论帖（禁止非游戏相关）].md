@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-25 14:35** 
+> ## **本文件最后更新于2021-03-29 04:54** 
 
 
 
@@ -6402,4 +6402,574 @@ gbf本身就挺看重抽卡的规划，而且普池也有超得补救，不是�
 
 
 
-                                     
+
+
+-----
+
+####  shinitakute  
+##### 15362#       发表于 2021-3-26 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太尴尬了 想从四属里拉一个幸运的老王玩玩但是都缺lm和人物……
+想玩水low王但是两球没狗 
+想玩土宇宙但是没lm没天司
+牛刀一把都没火老王也没得玩
+风老王……bba短毛刀李霞短各1，感觉没啥前途）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最后还是按下了悸动的心，老老实实农方阵
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15363#       发表于 2021-3-26 10:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是水low王不用lm都能组啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15364#       发表于 2021-3-26 11:05
+
+
+
+
+没狗赶紧趁月底井啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+二球水low王 伤害也不低了
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15365#       发表于 2021-3-26 11:09
+
+
+
+ 本帖最后由 欠陷制品 于 2021-3-26 11:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁不是有帖子，狼弓冰皇拳那套也不菜啊
+
+而且比lm盘血还多呢，团战直接I HAVE 10W HP 两眼一闭fa不是爽的一笔
+
+当然如果都要交jgj来突破的话那还是逃离章鱼比较好，蓝色不值得
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15366#       发表于 2021-3-26 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50737713&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-03-26 11:09:28</a>
+隔壁不是有帖子，狼弓冰皇拳那套也不菜啊
+
+而且比lm盘血还多呢，团战直接I HAVE 10W HP 两眼一闭fa不是爽的 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我动了章鱼的心就是因为我的章鱼如果要满破只需要一个jgj……
+而且砸个球当主手好像也不错？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15367#       发表于 2021-3-26 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50738729&amp;ptid=1158205" target="_blank">shinitakute 发表于 2021-3-26 12:30</a>
+
+我动了章鱼的心就是因为我的章鱼如果要满破只需要一个jgj……
+
+而且砸个球当主手好像也不错？</blockquote>
+那可以玩啊
+
+球最好只砸一个当主手，其实现在好多玩2球、3球盘的完全是感谢水剑豪净化环境时期的遗留产物，现在就显得特别low，尤其是周年后这波水的补强其实很大，14的110，zeta，新职业，导致各方面奥义队都有点过时。
+
+你现在有水方琴盘的话完全没必要多球，用新职业2键fa水方效果也一样，缺点是可能有方阵3阶法的需求
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 15368#       发表于 2021-3-26 14:25
+
+
+
+<blockquote>引用第15366楼欠陷制品于2021-03-26 13:13发表的  :
+
+引用:shinitakute 发表于 2021-3-26 12:30我动了章鱼的心就是因为我的章鱼如......</blockquote>
+@欠陷制品
+
+我手上我兩個0破球，一把歐羅巴槍，一把滿破一把0破的真扎弓
+
+鋼砸那個比較好
+
+
+----发送自 [Sony J9110,Android 10](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15369#       发表于 2021-3-26 14:30
+
+
+
+
+玩水老王欧罗巴枪 真扎弓 组长球各砸一个玩宇宙就行了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15370#       发表于 2021-3-26 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50739985&amp;ptid=1158205" target="_blank">gary76 发表于 2021-3-26 14:25</a>
+
+@欠陷制品
+
+我手上我兩個0破球，一把歐羅巴槍，一把滿破一把0破的真扎弓</blockquote>
+这1枪必砸，双面弓枪双水龙枪凑必爆就能打了，剩下的伤害问题都是sub和角色决定；
+
+球0-1 看150压力决定是否要砸，或者你想每天火龙自理，也可以砸；
+
+章鱼双面其实1+1就已经够用了，再多的弓枪这我也不懂，我是看的隔壁这个帖子[https://bbs.nga.cn/read.php?tid=26036431](https://bbs.nga.cn/read.php?tid=26036431)，大概结论是单面才会用到复数的弓枪
+
+从打牛到95都可以玩双面必爆的平a打法，不必涉及奥义盘
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15371#       发表于 2021-3-26 14:53
+
+
+
+
+双龙武弓球枪各1就能玩得很舒服啦
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按隔壁那攻略的说法，求求你别玩水奥义了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 15372#       发表于 2021-3-26 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50740200&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-26 14:45</a>
+
+这1枪必砸，双面弓枪双水龙枪凑必爆就能打了，剩下的伤害问题都是sub和角色决定；
+
+球0-1 看150压力决定是 ...</blockquote>
+雙面是指雙章魚嗎
+
+我是不打團的，就求提高FA速度，目前六龍一隻都沒打過（
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15373#       发表于 2021-3-26 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50740298&amp;ptid=1158205" target="_blank">gary76 发表于 2021-3-26 14:56</a>
+
+雙面是指雙章魚嗎
+
+我是不打團的，就求提高FA速度，目前六龍一隻都沒打過（ ...</blockquote>
+双面就是双加护召唤，方阵x方阵，老王x老王这样
+
+fa速度这块可能是角色和sub能提升的更多一点，比如超限4，终突狗，zeta，泳仇闪，老男人，贝利亚，龙吉公主这些（排序不分先后）
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 15374#       发表于 2021-3-26 15:20
+
+
+
+ 本帖最后由 gary76 于 2021-3-26 15:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50740449&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-26 15:09</a>
+
+双面就是双加护召唤，方阵x方阵，老王x老王这样
+
+fa速度这块可能是角色和sub能提升的更多一点，比如超限4 ...</blockquote>
+我目前就狗妹、老男人、莉莉、冰皇、泳路泳芬這些，長期用莉莉冰皇卡姐，sub放李霞FA……
+
+想了一下，反正我又不追求什麼，各種LM就一把滿破也基本足夠了，回去把土芬劍給合了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 15375#       发表于 2021-3-26 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50740298&amp;ptid=1158205" target="_blank">gary76 发表于 2021-3-26 14:56</a>
+
+雙面是指雙章魚嗎
+
+我是不打團的，就求提高FA速度，目前六龍一隻都沒打過（ ...</blockquote>
+FA的话砸一弓一枪就行，慢慢自发把两个水龙武弄出来就直接必爆了。如果你有满破冰牛剑甚至可以一弓一枪一件一水龙武玩必爆宇宙，不过盘子有点挤不够灵活。
+
+
+
+
+
+
+
+-----
+
+####  gary76  
+##### 15376#       发表于 2021-3-26 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50740730&amp;ptid=1158205" target="_blank">武の炽羽 发表于 2021-3-26 15:38</a>
+
+FA的话砸一弓一枪就行，慢慢自发把两个水龙武弄出来就直接必爆了。如果你有满破冰牛剑甚至可以一弓一枪一 ...</blockquote>
+冰牛劍2破了，看看這次轉盤結束能不能滿破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15377#       发表于 2021-3-28 12:01
+
+
+
+
+冰牛剑跟水龙枪不同，固定2w暴击加伤跟akx武同区不吃天司，没啥用
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15378#       发表于 2021-3-28 12:31
+
+
+
+
+是不是正常来说，31号的新池子没狗啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15379#       发表于 2021-3-28 16:38
+
+
+
+
+水现在还是挺好玩的，要的也少，核心还是农一下龙武，去年龙武系列有几个实在太抬了
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15380#       发表于 2021-3-29 06:37
+
+
+
+
+中午换池，早上不抽
+
+
+
+
+
+
+
+-----
+
+####  -みゆめ-  
+##### 15381#       发表于 2021-3-29 08:30
+
+
+
+
+月末转盘第一日（实质最终日），十连，感觉下不起两井了。（目前只有大概360抽）
+
+神将齐全但是极度需求某个lim武器的话到底是这次的池子半价下井呢还是泳装池子再下呢……
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15382#       发表于 2021-3-29 08:31
+
+
+
+
+以为十连结果震成30连<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">多谢绿毛哥
+
+等个11点抽傻必了
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15383#       发表于 2021-3-29 09:56
+
+
+
+
+手握快二十万报警石快闲出屁了 就不能给我们章鱼整点新玩具嘛<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pzk  
+##### 15384#       发表于 2021-3-29 09:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">转到30连导致嘎查拼条没满
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15385#       发表于 2021-3-29 10:43
+
+
+
+<blockquote>引用第15380楼-みゆめ-于2021-03-29 08:30发表的  :
+
+月末转盘第一日（实质最终日），十连，感觉下不起两井了。（目前只有大概360抽）神将齐全但是极度需求某......</blockquote>
+看心态，只想要某个lm可以下，期待要某个lm然后还想up点六限就算了吧
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  桧川直巳  
+##### 15386#       发表于 2021-3-29 10:44
+
+
+
+
+20连差一丝突入，谢谢人已经麻了
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15387#       发表于 2021-3-29 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻必仓检也太明显，下次能不能演一下
+
+哪怕金月lm也好，神将金月，我就四个神将
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15388#       发表于 2021-3-29 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金月神将算不算最脑溢血的那一批，我真是服了
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15389#       发表于 2021-3-29 12:37
+
+
+
+
+今天转了个10连非洲条还有一丝满，明天100连确定，我<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  horacio  
+##### 15390#       发表于 2021-3-29 12:41
+
+
+
+
+现在别砸球就行，除了主手没什么用了，还不如去农几个黑光妈的弓，不需要满破，0破的弄几把够你打牛了
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15391#       发表于 2021-3-29 12:50
+
+
+
+
+沙必出了个重复的菲利琴，还行吧
+
+
+
+
+
+                                    
