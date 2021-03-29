@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-23 07:36** 
+> ## **本文件最后更新于2021-03-29 03:45** 
 
 
 
@@ -20650,4 +20650,615 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 
 
 
-               
+
+
+-----
+
+####  yygundam  
+##### 2522#       发表于 2021-3-23 16:45
+
+
+
+
+因为很久以前我这边某个手游就会因为webview版本导致跳出，我早就把webview自动更新给关了。看来还是明智的（
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2523#       发表于 2021-3-23 16:48
+
+
+
+
+今天 Android Webview 大翻车，遇到 app 闪退的朋友，去更新一下 Android Webview 即可解决。 ​​​
+
+看了一下微博，原来是谷歌的锅。刚好之前没更新这版，反而什么事情都没遇上
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  みさ  
+##### 2524#       发表于 2021-3-23 16:53
+
+
+
+
+有没有国行1升级了安卓11的分享一下使用体验，微博看了一圈问题有点多不是很敢
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Milkyway  
+##### 2525#       发表于 2021-3-23 16:55
+
+
+
+
+5ii升级后自定义铃声好像有点问题
+
+
+
+
+
+
+
+-----
+
+####  majiyabakunei  
+##### 2526#       发表于 2021-3-23 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711060&amp;ptid=1915171" target="_blank">Milkyway 发表于 2021-3-23 16:55</a>
+5ii升级后自定义铃声好像有点问题</blockquote>
+重新添加一次自定义铃声就好了。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  wenze  
+##### 2527#       发表于 2021-3-23 21:01
+
+
+
+
+你们有感觉更新安卓11后掉电变快了一些吗？
+
+
+
+
+
+
+
+-----
+
+####  yygundam  
+##### 2528#       发表于 2021-3-24 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711049&amp;ptid=1915171" target="_blank">みさ 发表于 2021-3-23 16:53</a>
+有没有国行1升级了安卓11的分享一下使用体验，微博看了一圈问题有点多不是很敢
+
+—— 来自 Sony J9110, And ...</blockquote>
+我没升，也不打算升。之前我朋友的xz1和xzp升了安卓9之后问题非常多，甚至还有比较大的ui适配问题（虽然后者大概X1上不会有，毕竟屏幕一样)，我怕我升上去也会碰到类似幺蛾子，所以还是算了。我是倾向于认为他们对跨两个版本的机器是管生不管养的态度的。
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  みさ  
+##### 2529#       发表于 2021-3-24 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715100&amp;ptid=1915171" target="_blank">yygundam 发表于 2021-3-24 01:24</a>
+
+我没升，也不打算升。之前我朋友的xz1和xzp升了安卓9之后问题非常多，甚至还有比较大的ui适配问题（虽然 ...</blockquote>
+我更新了，主要是你不更新的话那个通知图标就一直在，根本不能隐藏，很烦
+
+
+
+
+
+
+
+-----
+
+####  yygundam  
+##### 2530#       发表于 2021-3-24 07:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715140&amp;ptid=1915171" target="_blank">みさ 发表于 2021-3-24 01:35</a>
+
+我更新了，主要是你不更新的话那个通知图标就一直在，根本不能隐藏，很烦 ...</blockquote>
+我早就把自动检查更新关了，只要我不去手动检查就没有提示（
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2531#       发表于 2021-3-24 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715140&amp;ptid=1915171" target="_blank">みさ 发表于 2021-3-24 01:35</a>
+
+我更新了，主要是你不更新的话那个通知图标就一直在，根本不能隐藏，很烦 ...</blockquote>
+如果不更新的话可以长按更新停止运行
+
+
+
+
+
+
+
+-----
+
+####  代号锤子  
+##### 2532#       发表于 2021-3-24 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715100&amp;ptid=1915171" target="_blank">yygundam 发表于 2021-3-24 01:24</a>
+我没升，也不打算升。之前我朋友的xz1和xzp升了安卓9之后问题非常多，甚至还有比较大的ui适配问题（虽然 ...</blockquote>
+xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老婆的xzp现在已经直接用微信拍照了…
+索尼真的会把女人逼成尼姑…
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2533#       发表于 2021-3-24 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50716526&amp;ptid=1915171" target="_blank">代号锤子 发表于 2021-3-24 09:44</a>
+
+xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老婆的xzp现在已经直接用微信拍照了…
+
+索尼真 ...</blockquote>
+家里那台xz1 安卓9用到 退役也没出错过。。
+
+xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，和gms也有关系的样子。
+
+
+这种大概率重置手机就好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  代号锤子  
+##### 2534#       发表于 2021-3-24 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50720023&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-24 15:29</a>
+家里那台xz1 安卓9用到 退役也没出错过。。
+
+xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，和gm ...</blockquote>
+重置了要稍微好一些，我这台重置过了，我老婆那台一直也没时间给她搞，估计也快换新的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  霜天冰华  
+##### 2535#       发表于 2021-3-24 19:31
+
+
+
+
+决定要买5马克兔了，问一下现在买港版应该和国行没什么区别吧？以前索尼的机子都是买港版的
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 2536#         楼主| 发表于 2021-3-24 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722746&amp;ptid=1915171" target="_blank">霜天冰华 发表于 2021-03-24 19:31:49</a>
+决定要买5马克兔了，问一下现在买港版应该和国行没什么区别吧？以前索尼的机子都是买港版的 ...</blockquote>区别大啦啊，记得港版不支持移动5g吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  KayoAiko  
+##### 2537#       发表于 2021-3-24 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722746&amp;ptid=1915171" target="_blank">霜天冰华 发表于 2021-3-24 19:31</a>
+
+决定要买5马克兔了，问一下现在买港版应该和国行没什么区别吧？以前索尼的机子都是买港版的 ...</blockquote>
+不用移动卡5G的话那就没区别……如果要用移动卡5G还是选买国行吧
+
+
+
+
+
+
+
+-----
+
+####  霜天冰华  
+##### 2538#       发表于 2021-3-24 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722841&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-24 19:41</a>
+
+区别大啦啊，记得港版不支持移动5g吧
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+了解，我还是4G卡，对5G也没啥需求，那就港版了
+
+
+
+
+
+
+
+-----
+
+####  霜天冰华  
+##### 2539#       发表于 2021-3-24 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722940&amp;ptid=1915171" target="_blank">KayoAiko 发表于 2021-3-24 19:51</a>
+
+不用移动卡5G的话那就没区别……如果要用移动卡5G还是选买国行吧</blockquote>
+好的谢谢
+
+
+
+
+
+
+
+-----
+
+####  没有未来的未来  
+##### 2540#       发表于 2021-3-25 07:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50716526&amp;ptid=1915171" target="_blank">代号锤子 发表于 2021-3-24 09:44</a>
+xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老婆的xzp现在已经直接用微信拍照了…
+索尼真 ...</blockquote>
+原来不是只有我遇到这个问题
+
+
+
+
+
+
+
+-----
+
+####  代号锤子  
+##### 2541#       发表于 2021-3-25 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726606&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-3-25 07:59</a>
+原来不是只有我遇到这个问题</blockquote>
+而且我把SD卡拔了也不能解决，简直有毒
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  没有未来的未来  
+##### 2542#       发表于 2021-3-25 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50727167&amp;ptid=1915171" target="_blank">代号锤子 发表于 2021-3-25 09:19</a>
+而且我把SD卡拔了也不能解决，简直有毒
+
+—— 来自 Sony G8342, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+我是最后清除相机用户数据才解决。。
+
+
+
+
+
+
+
+-----
+
+####  鹰富士茄子  
+##### 2543#       发表于 2021-3-25 12:12
+
+
+
+
+都快四月了，索尼是不是该发布新机子了？
+
+
+
+
+
+
+
+-----
+
+####  huangzh  
+##### 2544#       发表于 2021-3-25 14:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50728880&amp;ptid=1915171" target="_blank">鹰富士茄子 发表于 2021-3-25 12:12</a>
+都快四月了，索尼是不是该发布新机子了？</blockquote>
+估计要到5 6月了，想蹲5iii更是遥遥无期 5ii要是有个无线充电就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  みさ  
+##### 2545#       发表于 2021-3-26 13:42
+
+
+
+
+我的1升了安卓11之后音乐播放器播放不了本地音乐了，大家有类似的问题吗
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2546#       发表于 2021-3-29 03:40
+
+
+
+ 本帖最后由 wqm2008 于 2021-3-29 10:15 编辑 
+
+决定清明ipad到了以后去跑趟售后，其实本来不更新11还好，更新了之后遇到很多大问题，更新之前最多就是打电话对方听不到声音，问题如下。
+
+
+1.指纹失灵(怀疑是我湿手造成的，但你这好歹也是IP68级别的防水吧，三星虽然不是按键隐藏式指纹但出于信任我使用的粗心程度可比这个大多了也没出现过质量问题)
+
+
+电源功能时而好时而坏，曾经有一次发现禁用相机后可以在电源不响应时，强行唤醒电源键的电源功能。
+
+
+2.相机无限次重启，有时是设备控制器。
+
+
+常发生于充电过热的时候，比如我躺在床上用移动电源充电，手机发热的很严重的时候，大概70%左右就会发生无限次重启的情况。
+
+
+解决方法也是禁用相机。
+
+
+另外更新了新系统后发热量明显能够感觉到提升了，之前手机没这么热的。
+
+
+3.手机的应用宝商店，第一个应用安装无响应。
+
+
+比如说列表第一个更新的是微信，怎么点安装都是无反应。
+
+
+4.前置相机镜头边缘糊，特别糊，不是开美颜。就是强烈的涂抹和扭曲。
+
+
+5.手势操作无反应，有的时候会断触。现在已经呼不出多任务界面了
+
+
+6.打电话时手机总是会不由自主地亮屏，这时候脸如果贴在屏幕上就会按到保持功能或者静音，对方就听不到声音了。
+
+
+这个事情也是更新系统后才出现的，丢了好几个电话，被臭骂了一顿。
+
+
+打算清明ipad到了就去跑售后了。
+
+
+
+
+
+
+
+-----
+
+####  みさ  
+##### 2547#       发表于 2021-3-29 04:40
+
+
+
+
+我后悔升级了，有刷回10的教程吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2548#       发表于 2021-3-29 07:20
+
+
+
+ 本帖最后由 Cray 于 2021-3-29 07:21 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/072120r1f0h1ydc39fr6i0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>29072021.jpg</strong> (44.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 07:21 上传
+
+
+
+
+
+
+
+感觉是根本懒得动起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2549#       发表于 2021-3-29 08:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763360&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-29 07:20</a>
+感觉是根本懒得动起来啊
+
+
+----发送自 Sony XQ-AS72,Android 11</blockquote>
+说了，游戏增强器救不了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  没有未来的未来  
+##### 2550#       发表于 2021-3-29 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763144&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-3-29 03:40</a>
+决定清明ipad到了以后去跑趟售后，其实本来不更新11还好，更新了之后遇到很多大问题，更新之前最多就是打电 ...</blockquote>
+大部分问题我都在xzp和z2上遇到过…感觉sony是不是一点长进都没有啊…
+
+
+
+
+
+
+
+-----
+
+####  xzk0916  
+##### 2551#       发表于 2021-3-29 11:29
+
+
+
+
+11的截图之后出来的小窗口能改回以前的通知栏吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+              
