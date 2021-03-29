@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 12:56** 
+> ## **本文件最后更新于2021-03-29 10:45** 
 
 
 
@@ -17468,4 +17468,596 @@ q娃带货
 
 
 
-                 
+
+
+-----
+
+####  天邪鬼  
+##### 963#       发表于 2021-3-28 21:07
+
+
+
+
+飞鸟这待遇感觉都快是追加级别的了，其他人都是萝拉先放她手上试，没发光就想着找别人了。这次则是萝拉死缠烂打，没发光也没关系，光美什么的也是想变就变，什么人和鱼的心重叠啊根本不需要，我想做而已。
+不过其他人那鱼摸得也太过分了，黄上一集还papaya beam闪瞎怪眼，这次就只能抱着连用手拍眼睛打断都不想了
+虽然c圈名是cure flamingo，但不管是出场还是啥都很有能剧还是戏剧的感觉，任侠还是啥的。实在联想不到一起去，变身的bgm不也应该带点弗拉明戈的感觉吗？
+不过说到飞鸟跟人鱼，后面镜头多了可以来个珊瑚海.mp3
+“海鸟跟鱼相爱，只是一场意外～”
+虽然这两人的相处方式大概率是
+“我都要看不下去了，你想抱到什么时候啊”
+“当然是永远咯，因为我是人鱼嘛”
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 964#       发表于 2021-3-28 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760602&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-28 21:07</a>
+
+飞鸟这待遇感觉都快是追加级别的了，其他人都是萝拉先放她手上试，没发光就想着找别人了。这次则是萝拉死缠 ...</blockquote>
+人鱼：会长，飞鸟可是我的至爱，你可不能夺我所爱啊
+
+会长：明明是我先……
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 965#       发表于 2021-3-28 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760871&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-3-28 21:40</a>
+
+人鱼：会长，飞鸟可是我的至爱，你可不能夺我所爱啊
+
+会长：明明是我先…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">会长：今晚吃刺身吧。
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 966#       发表于 2021-3-28 23:20
+
+
+
+ 本帖最后由 isa2456 于 2021-3-28 23:23 编辑 
+
+飞鸟学姐这变身条件有点牵强<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不过看跟学生会长的态度以后就会铺开了吧
+
+不过更好奇真夏那句在故乡没朋友，这种热情性格的女孩怎么可能交不到朋友，不会又是跟花花那样被冷暴力然后转学吧
+
+芒果菠萝包跟草莓菠萝包，两个都是没有夹心的那种吧，会好吃么
+
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 967#       发表于 2021-3-28 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761787&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-3-28 23:20</a>
+
+飞鸟学姐这变身条件有点牵强不过看跟学生会长的态度以后就会铺开了吧
+
+不过更好奇真夏那句在故乡没朋 ...</blockquote>
+是没有年龄相仿的朋友，可能从山（岛）间学校里出来的
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 968#       发表于 2021-3-28 23:28
+
+
+
+<blockquote>isa2456 发表于 2021-3-28 23:20
+飞鸟学姐这变身条件有点牵强不过看跟学生会长的态度以后就会铺开了吧
+
+不过更好奇真夏那句在故乡没朋 ...</blockquote>
+想多了，偏远地区老龄化罢了，正常现象
+
+你看悠哉日常大王都不同年龄的学生在一个教室上课呢
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 969#       发表于 2021-3-28 23:41
+
+
+
+
+会长这人设不做追加真是有点浪费....飞鸟前辈这集明明有那么多很夸张的演出但给人的感觉却是很自然的帅气
+
+
+不满意是变身待遇真的一般
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 970#       发表于 2021-3-28 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761848&amp;ptid=1963832" target="_blank">hgcg-w 发表于 2021-3-28 23:28</a>
+想多了，偏远地区老龄化罢了，正常现象
+
+你看悠哉日常大王都不同年龄的学生在一个教室上课呢 ...</blockquote>
+那就好，我就怕又来点胃疼展开<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 971#       发表于 2021-3-28 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50762043&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-3-28 23:50</a>
+
+那就好，我就怕又来点胃疼展开</blockquote>
+你哪里是怕，你明明就很期待这种展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 972#       发表于 2021-3-29 06:48
+
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp03u3hl7aj21kw17rq75.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp03u4l9w3j20u01y0qld.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gp03u57rfuj21kw0xqq82.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp03u5v5woj20u01y0199.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 973#       发表于 2021-3-29 07:26
+
+
+
+
+会长如果不是追加，那恶堕的可能性就不低，怎么看都不像路人人设
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 974#       发表于 2021-3-29 07:28
+
+
+
+
+会长黑化变反派我觉得也不错
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 975#       发表于 2021-3-29 07:30
+
+
+
+
+南斗红鹤拳 ​​​​
+
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp0f5z1ut7j20zk0k0dpi.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp0f5yrsa1j20zk0k0jxn.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gp0f5y39i6j20zk0k04cn.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp0f5y9cpyj20zk0k04ct.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gp0f5y68o7j20zk0k0tj6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gp0f5y8o84j20zk0k0n7o.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gp0f5ygtc3j20zk0k010i.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gp0f5yk19jj20zk0k0wqo.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gp0f5yo49aj20zk0k0h1n.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 976#       发表于 2021-3-29 08:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760871&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-3-28 21:40</a>
+人鱼：会长，飞鸟可是我的至爱，你可不能夺我所爱啊
+
+会长：明明是我先…… ...</blockquote>
+快进到会长以为自己被人鱼抢了女人，一个人失落的走在大街上。反派把她掳走去做人体改造手术，出来后变成虽然衣服包裹的很紧，但看着莫名妖艳的白毛暗美
+“为什么你总是想逃离呢？这次，让我来把你变成我的笼中鸟”
+“逃避的人明明是你，为什么要去做什么学生会长啊！”
+“因为我意识到了，如果只是站在你身边的话，那迟早有一天会被你甩在后面。所以我要努力，就像是龟兔赛跑里的乌龟，趁着你打盹的时候到达你到不了的地方。不过现在我也累了，大家都是高三，学校这个我为你创造出来的笼子也困不住你了。本来看你在学校里有朋友了我还为你开心来着，没想到不知道哪里蹦出来一条人鱼。”
+“这件事跟萝拉没有关系！”
+“哦，她叫萝拉啊。听说人鱼肉吃了长生不老，要不要试一下呢？不过我会先给你吃的，等我把那头鱼片成刺身，我就先给你吃两片。”
+“我都要看不下去了，快吐了。百合子你怎么变成这样了”
+“吐？那你真的好过分啊，是不是怕有鱼刺？没事我会用我的牙齿把生人鱼片绞成肉泥，用嘴喂给你吃的。这样，我们就是这世界上唯二永生的人类了”
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 977#       发表于 2021-3-29 08:13
+
+
+
+
+表情有点邪啊
+
+哪位能把衣服头发P成黑色紫色的，一定很带感
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 978#       发表于 2021-3-29 08:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763375&amp;ptid=1963832" target="_blank">風駿 发表于 2021-3-29 07:26</a>
+
+会长如果不是追加，那恶堕的可能性就不低，怎么看都不像路人人设</blockquote>
+但如果会恶堕还在op里跳沙雕舞会不会有点羞耻233
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 979#       发表于 2021-3-29 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763573&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-29 08:13</a>
+表情有点邪啊
+
+哪位能把衣服头发P成黑色紫色的，一定很带感</blockquote>
+那不就是dark precure吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 980#       发表于 2021-3-29 08:42
+
+
+
+<blockquote>天邪鬼 发表于 2021-3-29 08:38
+那不就是dark precure吗</blockquote>
+呃我说的是楼上上
+
+
+
+
+
+
+
+-----
+
+####  DARK_HGCG  
+##### 981#       发表于 2021-3-29 11:02
+
+
+
+ 本帖最后由 DARK_HGCG 于 2021-3-29 11:08 编辑 
+
+作为一个心灵肮脏的人
+
+我希望能有前辈调戏会长
+
+顺便
+
+如果想约稿画"飞鸟被女医调教悪堕，会长充当替补成员但是不敌飞鸟被连锁调教"的组图的话
+
+大概要多少钱？5万日元够不够？
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 982#       发表于 2021-3-29 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">其实是会长回收flag，恶堕再被抛弃化为泡沫，然后被飞鸟从水里捞出来二人幸终的展开哒
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 983#       发表于 2021-3-29 12:22
+
+
+
+
+都叫飞鸟了，肯定得来个认敌做妹然后淹死的戏码啊(不过水产进水不会淹死吧)
+
+
+
+
+
+
+
+-----
+
+####  小兰兰  
+##### 984#       发表于 2021-3-29 13:18
+
+
+
+
+飒爽登场！大地丙太郎牛逼，片中有意无意的停顿也挺有意思的
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  zzz123q  
+##### 985#       发表于 2021-3-29 13:33
+
+
+
+
+想问一下，微笑之前的专楼是都没了吗，最早只找到了微笑的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 986#       发表于 2021-3-29 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50767281&amp;ptid=1963832" target="_blank">zzz123q 发表于 2021-03-29 13:33:48</a>
+想问一下，微笑之前的专楼是都没了吗，最早只找到了微笑的</blockquote>心跳还在
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 987#       发表于 2021-3-29 13:48
+
+
+
+
+奸笑比心跳早啊
+
+奸笑开始有转楼的吧
+
+
+
+
+
+
+
+-----
+
+####  linhaitora  
+##### 988#       发表于 2021-3-29 15:15
+
+
+
+
+所以紫色黄色再萌也不如一个能做假药的配角？
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 989#       发表于 2021-3-29 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50768229&amp;ptid=1963832" target="_blank">linhaitora 发表于 2021-3-29 15:15</a>
+ 所以紫色黄色再萌也不如一个能做假药的配角？</blockquote>
+卖萌也就感慨一下
+假药可以继续套假药
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 990#       发表于 2021-3-29 16:41
+
+
+
+ 本帖最后由 达达葱2 于 2021-3-29 16:42 编辑 
+
+大地丙太郎是不是有问题   说他要枕女声优
+
+
+
+
+
+
+
+-----
+
+####  zzz123q  
+##### 991#       发表于 2021-3-29 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50767434&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-03-29 13:48:41</a>
+奸笑比心跳早啊
+
+奸笑开始有转楼的吧</blockquote>原来之前的都没有专楼吗，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 992#       发表于 2021-3-29 17:29
+
+
+
+<blockquote>舞野咲 发表于 2021-3-29 08:33
+但如果会恶堕还在op里跳沙雕舞会不会有点羞耻233</blockquote>
+没事，反派也跳了
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 993#       发表于 2021-3-29 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50769116&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-29 16:41</a>
+大地丙太郎是不是有问题   说他要枕女声优</blockquote>
+好像是小西宽子还是大西宽子爆料说自己没有去陪大地丙太郎枕营业，导致她的角色被换成堀江来配了
+
+
+
+
+
+                

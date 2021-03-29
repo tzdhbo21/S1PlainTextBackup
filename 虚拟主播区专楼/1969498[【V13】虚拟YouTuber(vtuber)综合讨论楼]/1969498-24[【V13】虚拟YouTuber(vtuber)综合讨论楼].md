@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 13:44** 
+> ## **本文件最后更新于2021-03-29 10:42** 
 
 
 
@@ -4923,6 +4923,747 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                                         
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 34744#       发表于 2021-3-28 21:46
+
+
+
+
+莉泽皇女居然是紫紫人<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34745#       发表于 2021-3-28 21:47
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-28 21:51 编辑 
+
+露皇重大发表补充：
+
+养猫了！ムクちゃん！
+
+最近买了沙袋在打
+
+元气满满，想玩的游戏有很多
+
+
+太好了，太好了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34746#       发表于 2021-3-28 21:48
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-28 22:02 编辑 
+
+露露...我的露露...<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"> 谢谢你，皇女
+你虹养猫人士喜加一，真没想到暂休原因是恐吓信之类的，麻了
+
+
+
+
+
+
+
+-----
+
+####  mus2012  
+##### 34747#       发表于 2021-3-28 21:50
+
+
+
+
+日本发恐吓信被抓要不要蹲牢？露露这样人畜无害的都能被寄恐吓信，真是个杂种
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 34748#       发表于 2021-3-28 21:57
+
+
+
+
+这寄恐吓信的如果被5ch找出来是谁怕不是会收到100倍恐吓回信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 扰谁不好扰露皇这种岁月静好的V
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34749#       发表于 2021-3-28 22:32
+
+
+
+ 本帖最后由 ShuTk4O 于 2021-3-28 22:34 编辑 
+
+月灵还上声优学校？难怪配音那么熟练
+syl 给露露寄恐吓信是什么脑回路？真不理解日本人
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34750#       发表于 2021-3-28 22:41
+
+
+
+
+青龙人噶吃势之类的吧<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">，
+省一楼，最近郡道打麻状态不错啊，可惜一心apex，偶尔打一会儿还是很有效果的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34751#       发表于 2021-3-28 23:11
+
+
+
+
+只要不会毕业就行
+
+
+
+
+
+
+
+-----
+
+####  煮药  
+##### 34752#       发表于 2021-3-28 23:12
+
+
+
+
+在卓明谷周常看到的[在卓明谷周常看到的](https://p.sda1.dev/1/8b5366d77fd58c1a713e74bff3c00425/joi.png)
+
+
+
+
+
+
+
+-----
+
+####  烽火  
+##### 34753#       发表于 2021-3-29 00:55
+
+
+
+
+这张吗
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/005429yljrklaml6owczct.png" referrerpolicy="no-referrer">
+
+
+<strong>敬业.png</strong> (370.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 00:54 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 34754#       发表于 2021-3-29 01:48
+
+
+
+
+你们虹怎么一天到晚都是这种赞踩大战<img src="https://p.sda1.dev/1/0ff3e2b9b99f01b9230787306560e8e4/IMG_CMP_123500029.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 34755#       发表于 2021-3-29 08:03
+
+
+
+
+日本人事儿多嘛
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34756#       发表于 2021-3-29 08:07
+
+
+
+
+正常日本人没那么多踩。我觉得这单纯是虹人问题
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34757#       发表于 2021-3-29 08:15
+
+
+
+
+能咋办嘛
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34758#       发表于 2021-3-29 09:21
+
+
+
+ 本帖最后由 winda 于 2021-3-29 09:38 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/091701lpq2qqoq8k9bp90r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0329_091415.jpg</strong> (129.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-29 09:17 上传
+
+
+
+
+
+
+虽然被五元叫彩虹mea了但一点也不争气啊，翡翠p
+
+北小路ヒスイ ファンのふりをしたアンチに言及「この国の警察は優秀」「 震えて眠れ」
+
+https://youtu.be/TRvdUoct8O0?t=3466
+
+拿警察威胁手摇独轮车这段应该是酗酒vtec爱好撕皮少女最像初中生的时候了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34759#       发表于 2021-3-29 09:55
+
+
+
+
+人和人比起来真是不公平啊，envy baby之前听大头版的时候感觉就是什么烂歌翻它干嘛，这回听了小蜜蜂的演绎思前想后还是mylist了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34760#       发表于 2021-3-29 09:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 真让人舒适啊，一想到净土宗新时代虹人吃瘪的样子，就开心的笑出声了，
+
+
+不过你虹粉丝一向如此，对自家人就理智包容，
+
+
+一旦别人出点什么节奏，就疯狂拉踩
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 34761#       发表于 2021-3-29 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">envy baby依然是烂歌啊，牛逼的是小蜜蜂
+
+
+
+
+
+
+
+-----
+
+####  zerouuz  
+##### 34762#       发表于 2021-3-29 11:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">2000也差不多，“别人出点什么节奏，就疯狂拉踩”
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34763#       发表于 2021-3-29 12:33
+
+
+
+
+小绿现在也不好说和mea有哪里很像，不过新时代虹人对彩虹mea这个称呼已经脱敏了吧？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34764#       发表于 2021-3-29 12:36
+
+
+
+
+大 大方方在虹楼repo跟三字母联动的都有
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34765#       发表于 2021-3-29 12:48
+
+
+
+
+不是很懂小绿这种姨破天际的人怎么才能像三字母这种货真价实的青春妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 34766#       发表于 2021-3-29 13:33
+
+
+
+
+新时代虹人大多还是阴湿repo民，这成分从v8虹楼开始就没变过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34767#       发表于 2021-3-29 15:08
+
+
+
+
+随便搬点拯救工作日V综
+[「にじさんじ」のいちから、資本準備金を7000万円減らす](https://gamebiz.jp/?p=292213)
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/150004l56xdxh5c3riao66.png" referrerpolicy="no-referrer">
+
+
+<strong>姉さんが言ってたけどこれ妥当？.png</strong> (110.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 15:00 上传
+
+
+
+
+
+
+
+同人誌朗読
+
+<img src="https://img.saraba1st.com/forum/202103/29/150618m1pqpkuhz802qkmp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>同人誌朗読-1.jpg</strong> (247.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 15:06 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/150616ramlam3ooo7felp3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>同人誌朗読-2.jpg</strong> (192.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 15:06 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/150616xt5c635k5z6wgztt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>同人誌朗読-3.jpg</strong> (201.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 15:06 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/150611ohla6u1gg691cgo3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>同人誌朗読-4.jpg</strong> (207.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 15:06 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/150821mn3nt59j5jtjjr3n.png" referrerpolicy="no-referrer">
+
+
+<strong>同人誌朗読-5.png</strong> (27.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 15:08 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34768#       发表于 2021-3-29 15:48
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-29 15:57 编辑 
+
+老千好像又要搞apex企划了？
+看了下这30万接力
+那不是三把滋蹦拉满，究极折磨
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 34769#       发表于 2021-3-29 15:54
+
+
+
+
+资本准备金减少是又要准备融资了么
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34770#       发表于 2021-3-29 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹杏最近炎上的点越来越奇怪了，一定是因为越来越正规了！
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34771#       发表于 2021-3-29 16:59
+
+
+
+
+bora再跟老千联动的话
+画美不看啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34772#       发表于 2021-3-29 17:04
+
+
+
+<img src="https://p.sda1.dev/1/a406a68a5ef2387d3f4b4c32d2d61daa/IMG_CMP_140072312.png" referrerpolicy="no-referrer">
+下面这翻译有问题，是高达的本子
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34773#       发表于 2021-3-29 18:09
+
+
+
+
+难怪郡道今天被骂的关键词是同人本，在作者面前读自己的同人本姑且还是能免一死吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">…
+从这个角度看犬山无敌啊
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 34774#       发表于 2021-3-29 18:15
+
+
+
+
+虹的男女关系暴露不是炎上界的经典车轱辘么、最近还有一个我不太清楚的绿炎上，不过绿炎上也是虹老传统无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34775#       发表于 2021-3-29 18:19
+
+
+
+
+吐了，你logicmagic能不能赶紧倒闭<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/181946y63vszx63lmvuu62.png" referrerpolicy="no-referrer">
+
+
+<strong>鹅蛋脸.png</strong> (31.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 18:19 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/181946zqrpk27lmu2cik3o.png" referrerpolicy="no-referrer">
+
+
+<strong>粉猫.png</strong> (30.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 18:19 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34776#       发表于 2021-3-29 18:26
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-3-29 18:28 编辑 
+
+免费又要迫真换推了
+
+
+
+
+
+
+
+-----
+
+####  Aminor  
+##### 34777#       发表于 2021-3-29 18:36
+
+
+
+
+安洁也来原神，原神最近是被马娘威胁到了么，这么多工商
+
+
+
+
+
+                                        

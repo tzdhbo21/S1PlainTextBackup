@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 15:42** 
+> ## **本文件最后更新于2021-03-29 10:44** 
 
 
 
@@ -19317,10 +19317,12 @@ saya说了自己要送沐浴乳给mea<img src="https://static.saraba1st.com/imag
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Ky·Kiske| + 1|情弱感激|
+| iuhehc| + 1|好评加鹅|
 | 路人庚| + 1|情报好评|
 
 
@@ -19330,4 +19332,470 @@ saya说了自己要送沐浴乳给mea<img src="https://static.saraba1st.com/imag
 
 
 
-            
+
+
+-----
+
+####  Mr.shelter  
+##### 11617#       发表于 2021-3-29 08:50
+
+
+
+
+是saya说的还是梦乃说的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11618#       发表于 2021-3-29 09:32
+
+
+
+
+有什么区别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11619#       发表于 2021-3-29 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11620#       发表于 2021-3-29 09:59
+
+
+
+
+确实没区别嗷
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11621#       发表于 2021-3-29 10:02
+
+
+
+
+这个问题有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11622#       发表于 2021-3-29 10:28
+
+
+
+
+虽然本质是一样的，但是saya唐突说最近给matsuri送沐浴露跟梦乃说最近给mea沐浴露的观感还是有很大不同啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+存不存在saya说给mea送沐浴露的世界线呢
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11623#       发表于 2021-3-29 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11624#       发表于 2021-3-29 10:51
+
+
+
+
+差不多…了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11625#       发表于 2021-3-29 11:29
+
+
+
+
+粉紫是真的，所以女生之间互赠沐浴乳这河狸么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11626#       发表于 2021-3-29 11:34
+
+
+
+
+什么送礼物，只是闺蜜说这牌子我用的好安利你试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 11627#       发表于 2021-3-29 12:13
+
+
+
+
+我不信咩会主动买来就洗澡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11628#       发表于 2021-3-29 12:44
+
+
+
+
+洗澡很爽的好吧，不可能真是只猫吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11629#       发表于 2021-3-29 13:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11630#       发表于 2021-3-29 13:33
+
+
+
+
+天气热了，体味民又能复活了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11631#       发表于 2021-3-29 16:03
+
+
+
+
+猜一个b限我不看的lol吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11632#       发表于 2021-3-29 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">楼友没用的，我相信大多数人还是喜欢看lol的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11633#       发表于 2021-3-29 17:42
+
+
+
+
+tc
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11634#       发表于 2021-3-29 17:43
+
+
+
+
+杂谈你们又嫌尬，歌回萌二动漫曲又嫌腻，lol又不爱看，她又不愿意拉夫，你们让小麻很难办啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11635#       发表于 2021-3-29 17:46
+
+
+
+
+小麻能不能拿出点收租的样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11636#       发表于 2021-3-29 17:46
+
+
+
+
+记得父母说今天要来但是没来也没打电话来
+父母有家里钥匙
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11637#       发表于 2021-3-29 17:50
+
+
+
+
+快进到b限被麻妈破门而入<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11638#       发表于 2021-3-29 17:53
+
+
+
+
+快进到被父母在直播房间外大喊【】你再不开门就直接撞进去了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11639#       发表于 2021-3-29 17:54
+
+
+
+
+没啥节目效果的，这种活早被人整完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，见怪不怪
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11640#       发表于 2021-3-29 17:56
+
+
+
+
+nagisa，去把垃圾倒一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11641#       发表于 2021-3-29 18:11
+
+
+
+
+父母要来的话 b限定母女联动可是财富密码啊 小麻也要家人营业了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11642#       发表于 2021-3-29 18:27
+
+
+
+
+好久没棉花糖回了吧，想发kimo长文<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 11643#       发表于 2021-3-29 18:28
+
+
+
+
+麻麻要来了？我要转推了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11644#       发表于 2021-3-29 18:38
+
+
+
+
+快进到父女联动，麻麻展现真正的爸爸活<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11645#       发表于 2021-3-29 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           
