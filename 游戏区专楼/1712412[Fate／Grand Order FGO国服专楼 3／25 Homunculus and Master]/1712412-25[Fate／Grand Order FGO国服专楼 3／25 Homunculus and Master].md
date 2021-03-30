@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-26 15:43** 
+> ## **本文件最后更新于2021-03-30 10:40** 
 
 
 
@@ -17522,4 +17522,525 @@ C呆前最大的挑战就是小王子+恐龙</blockquote>
 
 
 
-                
+
+
+-----
+
+####  佐塚間桐  
+##### 36993#       发表于 2021-3-27 00:33
+
+
+
+
+去年这个好像就是有阴兵砍柱子吧
+
+
+
+
+
+
+
+-----
+
+####  dawning  
+##### 36994#       发表于 2021-3-27 08:37
+
+
+
+
+100万点数了，
+
+嘛，杰克的时候跟风刷了下，后面去清free了，
+
+打不打没什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 36995#       发表于 2021-3-27 09:32
+
+
+
+
+这次助战礼装挂什么好，我伊莎贝拉挂了两天了，居然鲜有人借
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 36996#       发表于 2021-3-27 12:33
+
+
+
+
+点数毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Gassnake  
+##### 36997#       发表于 2021-3-27 15:14
+
+
+
+ 本帖最后由 Gassnake 于 2021-3-27 15:17 编辑 
+
+有段时间没注意了，lga的版权那贴怎么没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+草，搜索找不到结果随便翻翻还在的
+
+
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 36998#       发表于 2021-3-27 17:12
+
+
+
+<blockquote>martinhe 发表于 2021-3-27 09:32
+这次助战礼装挂什么好，我伊莎贝拉挂了两天了，居然鲜有人借</blockquote>
+理论上应该是挂小番茄、氪金满破、点数满破这样，但我没有满破氪金的，两个拐一个挂了小番茄一个挂了点数满破，结果好像还是借点数的多些？点数不是很快就会溢出的吗OTZ
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 36999#       发表于 2021-3-28 00:13
+
+
+
+ 本帖最后由 khxooo 于 2021-3-28 00:15 编辑 
+
+6呼符啥都没有，看着还有3次打算补够的，谁知到第一个单抽就出女帝了哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GuDaZi  
+##### 37000#       发表于 2021-3-28 07:03
+
+
+
+
+90个石头皇女狂塔喜加一，差点忍不住氪金了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 37001#       发表于 2021-3-28 10:19
+
+
+
+
+这波飞哥的时间也太短了吧，昨晚睡前还没轮到飞哥，早上醒来飞哥的血条已经不多了，刷不了几回
+
+
+
+
+
+
+
+-----
+
+####  不乖  
+##### 37002#       发表于 2021-3-28 11:19
+
+
+
+
+看见掉落出彩虹了，立马来了十连，结果狂塔+1,喀戎+1,五星礼装+2.....我想要个new 啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 37003#       发表于 2021-3-28 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是一发宝具秒不掉就算战斗力不及格
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 37004#       发表于 2021-3-28 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50756787&amp;ptid=1712412" target="_blank">待宵 发表于 2021-3-28 12:43</a>
+是不是一发宝具秒不掉就算战斗力不及格</blockquote>
+说明box深度不够，有倍卡礼装和从者还不能1T击杀，确实有点问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 37005#       发表于 2021-3-28 13:56
+
+
+
+
+满破攻击倍卡一宝X6X狂塔+WCBA应该可以秒
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 37006#       发表于 2021-3-28 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50757294&amp;ptid=1712412" target="_blank">gearbox 发表于 2021-3-28 13:56</a>
+
+满破攻击倍卡一宝X6X狂塔+WCBA应该可以秒</blockquote>
+一宝X10X大几率剩血皮
+
+当然我在练极地服所以没有这个困扰<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kon-El  
+##### 37007#       发表于 2021-3-28 15:05
+
+
+
+
+友情出小安，呼符出女帝<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 37008#       发表于 2021-3-28 17:21
+
+
+
+
+大公掉得很快，怕不是一堆人出了女帝刷钉子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marxel  
+##### 37009#       发表于 2021-3-28 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50744797&amp;ptid=1712412" target="_blank">缘一 发表于 2021-3-26 23:18</a>
+
+国服还有多久可以五星自选？</blockquote>
+很快了，五一
+
+
+
+
+
+
+
+-----
+
+####  南极磷  
+##### 37010#       发表于 2021-3-28 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50756787&amp;ptid=1712412" target="_blank">待宵 发表于 2021-3-28 12:43</a>
+是不是一发宝具秒不掉就算战斗力不及格</blockquote>
+拐齐全的话应该都能一发秒
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  martinhe  
+##### 37011#       发表于 2021-3-28 20:13
+
+
+
+
+突然发觉自己勋章也挺缺的，小莫你身为圆桌居然不掉勋章，真是圆桌失格
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 37012#       发表于 2021-3-29 14:07
+
+
+
+
+池子关闭前一分钟，最后三个石头出货了…………
+
+我终于也是……当孙子的……马斯塔了…………<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| khxooo| + 1|恭喜恭喜|
+| marxel| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 37013#       发表于 2021-3-29 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50744797&amp;ptid=1712412" target="_blank">缘一 发表于 2021-3-26 23:18</a>
+
+国服还有多久可以五星自选？</blockquote>
+下个月月底的样子。
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 37014#       发表于 2021-3-29 16:56
+
+
+
+
+500石头请天草，沉船，连一个歪的都没有。算上来我天草应该沉了1000多石头了。唉~~~~~
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 37015#       发表于 2021-3-30 00:45
+
+
+
+ 本帖最后由 khxooo 于 2021-3-30 00:53 编辑 
+
+这次出了女帝后发现，这个游戏除了今年泳装复刻和C呆外，其他的都不敢兴趣了。
+
+
+
+
+
+
+
+-----
+
+####  左梓喵右受兔  
+##### 37016#       发表于 2021-3-30 10:04
+
+
+
+
+当年第一次白情吧 为了强捞村夫 天草一共抽了四宝
+
+嫌弃得不得了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kazemitoya  
+##### 37017#       发表于 2021-3-30 12:41
+
+
+
+
+这活动对我而言，和长草区别不大
+
+
+
+
+
+
+
+-----
+
+####  sevenight  
+##### 37018#       发表于 2021-3-30 14:05
+
+
+
+
+我扔了几张呼符想捞狂喵或者老师，结果出了小莫。。。3宝了。。。
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 37019#       发表于 2021-3-30 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777431&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2021-3-30 12:41</a>
+这活动对我而言，和长草区别不大</blockquote>
+就是个长草活动，没啥区别。
+
+
+
+
+
+
+
+-----
+
+####  佐塚間桐  
+##### 37020#       发表于 2021-3-30 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">200石就出了一个玉藻猫我操
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 37021#       发表于 2021-3-30 18:01
+
+
+
+
+光看哪个从者对应什么材料就觉得烦了……还有十天，估计再摸三天鱼商店和点数就都搬空了。去年的五星氪金礼装也就可以合掉了
+
+
+
+
+
+               
