@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-29 10:45** 
+> ## **本文件最后更新于2021-03-30 08:46** 
 
 
 
@@ -18060,4 +18060,501 @@ q娃带货
 
 
 
-                
+
+
+-----
+
+####  HGCG2  
+##### 994#       发表于 2021-3-29 22:03
+
+
+
+
+百合子是不是Q娃系列里首个不“友善”的学生会长
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 995#       发表于 2021-3-29 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50769284&amp;ptid=1963832" target="_blank">zzz123q 发表于 2021-3-29 16:59</a>
+
+原来之前的都没有专楼吗，谢谢
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+这漫区再往前就不兴砖楼
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 996#       发表于 2021-3-29 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50769933&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-29 18:04</a>
+好像是小西宽子还是大西宽子爆料说自己没有去陪大地丙太郎枕营业，导致她的角色被换成堀江来配了 ...</blockquote>
+是小西宽子 
+然而大地丙太郎这几年口碑还不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 最近大冒号也有他身影
+当然这都二十多年的事 也只要几位当事人心里清楚惹 毕竟没有彻底的实锤
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 997#       发表于 2021-3-29 22:37
+
+
+
+
+百合子是不是Q娃系列里首个不“友善”的学生会长
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 998#       发表于 2021-3-30 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50772582&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-3-29 22:18</a>
+
+是小西宽子 
+
+然而大地丙太郎这几年口碑还不错 最近大冒号也有他身影
+
+当然这都二十多年的事 也只要 ...</blockquote>
+是没实锤的罗生门吗
+
+
+
+
+
+
+
+-----
+
+####  DARK_HGCG  
+##### 999#       发表于 2021-3-30 05:09
+
+
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gp1gtubhakj20b60evabi.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1000#       发表于 2021-3-30 08:08
+
+
+
+<blockquote>HGCG2 发表于 2021-3-29 22:37
+百合子是不是Q娃系列里首个不“友善”的学生会长</blockquote>
+不算不友善吧就是公事公办的感觉
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1001#       发表于 2021-3-30 08:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 1002#       发表于 2021-3-30 08:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">红战士太帅了，完全把持不住w胜利姿势好评
+敲碗坐等飞鸟x会长假药
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1003#       发表于 2021-3-30 08:32
+
+
+
+
+yysy，就真夏填的那申请表，以前的任何一个会长都不会给她过
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 1004#       发表于 2021-3-30 08:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50774748&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-3-30 08:12</a>
+
+不祈求变成Q娃，能变成下一个肉身抗怪的女士吗
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户 ...</blockquote>
+我觉得免不了一个英雄救美的戏
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1005#       发表于 2021-3-30 09:58
+
+
+
+
+谁是英雄谁是美
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1006#       发表于 2021-3-30 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50774874&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-30 08:32</a>
+
+yysy，就真夏填的那申请表，以前的任何一个会长都不会给她过</blockquote>
+要是阿光这么写给阿圆的话十有八九都能过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1007#       发表于 2021-3-30 10:35
+
+
+
+
+……两天没来怎么就假药泛滥了 去年一年淡的跟水一样真是把大友憋坏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1008#       发表于 2021-3-30 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50775886&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-30 10:21</a>
+ 要是阿光这么写给阿圆的话十有八九都能过</blockquote>
+阿光：kiriyaba，kiriyaba
+阿圆：准了！
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 1009#       发表于 2021-3-30 11:10
+
+
+
+<blockquote>最强惠酱 发表于 2021-3-30 10:21
+要是阿光这么写给阿圆的话十有八九都能过</blockquote>
+听你这么一说，就怕真夏又是遇事不决“Tro…”跨过一切，而且队里没人能压得住她。
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1010#       发表于 2021-3-30 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50776463&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-3-30 11:10</a>
+听你这么一说，就怕真夏又是遇事不决“Tro…”跨过一切，而且队里没人能压得住她。 ...</blockquote>
+真不好说，毕竟一个好的心态并不能解决所有问题，但放光美这种唯心片里说不定就真的一切问题都可以“迸放热带”掉。至于迸放热带是个什么玩意，只能看staff想不想在这上面做文章了。毕竟也不是没有想象力搞得跟“爱”一样的先例
+希望是现实问题现实解决，非现实问题非现实解决。这集我觉得就不错，没有部室了怎么办？不是喊口号，而是走遍校园一间间找，最后找到了个储藏室。美乃铃来规划，所有人齐心协力把地方清理出来。到后面打怪了就是逻辑啥的无所谓了，为了给新人表现机会真夏你吃瘪去吧
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1011#       发表于 2021-3-30 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50774724&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-30 08:08</a>
+
+不算不友善吧就是公事公办的感觉</blockquote>
+她和飞鸟说话的口气就很冲啊
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1012#       发表于 2021-3-30 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50776780&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-30 11:39</a>
+ 真不好说，毕竟一个好的心态并不能解决所有问题，但放光美这种唯心片里说不定就真的一切问题都可以“迸放 ...</blockquote>
+目前夏夏的口癖使用率还在可接受范围内
+不过论意义不明程度不相上下
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 1013#       发表于 2021-3-30 12:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就今年这个状态，300上居然没有专楼
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1014#       发表于 2021-3-30 12:13
+
+
+
+
+是意义不明，但是ツルピカってる还是笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1015#       发表于 2021-3-30 12:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">＿兽是干嘛的。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1016#       发表于 2021-3-30 13:15
+
+
+
+<blockquote>dragrass 发表于 2021-3-30 12:12
+就今年这个状态，300上居然没有专楼</blockquote>
+300上居然没有专楼
+
+是什么意思啊
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1017#       发表于 2021-3-30 13:24
+
+
+
+
+去年我杀我逆子也不淡吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 1018#       发表于 2021-3-30 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777153&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-3-30 12:12</a>
+就今年这个状态，300上居然没有专楼</blockquote>
+拥抱之后300的白河豚就不看光美了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1019#       发表于 2021-3-30 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777542&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-3-30 12:53</a>
+海豹到现在都没出场，这淫∠( ᐛ 」∠)＿兽是干嘛的。
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+后期玩具吧
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 1020#       发表于 2021-3-30 14:32
+
+
+
+<blockquote>最强惠酱 发表于 2021-3-30 12:13
+是意义不明，但是ツルピカってる还是笑死我了
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next ...</blockquote>
+说起来在一段话内插入这意义不明的口头禅两三次的情况，不知道是不是受隔壁超级战队的影响。
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1021#       发表于 2021-3-30 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50778443&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-3-30 14:32</a>
+说起来在一段话内插入这意义不明的口头禅两三次的情况，不知道是不是受隔壁超级战队的影响。 ...</blockquote>
+应该是通过标志性的口癖或者短语来加深角色印象的操作吧。以前也有什么ultra happy
+算是某种意义上的“造梗”
+今年直接用了标题的tropical rouge，感觉挺敷衍的。但制作组与其把精力放在想口头禅，还不如打磨好剧情跟人设，通过这种方式把人物立起来。让人物形象变得丰满不是比这种来的要好
+
+
+
+
+
+               
