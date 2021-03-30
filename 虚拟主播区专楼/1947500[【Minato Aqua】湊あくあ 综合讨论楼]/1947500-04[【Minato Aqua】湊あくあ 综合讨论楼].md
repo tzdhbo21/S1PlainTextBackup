@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-24 10:31** 
+> ## **本文件最后更新于2021-03-30 11:37** 
 
 
 
@@ -19768,6 +19768,25 @@ syl，《我推的孩子》要是以后动画化的话，要是女主角中cv有
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20243,10 +20262,11 @@ apex这么火的吗<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ylssb10438| + 1|什么忍者神龟|
 | 星の守| + 1|自然比不上兔皇|
 
 
@@ -20256,4 +20276,648 @@ apex这么火的吗<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
-             
+
+
+-----
+
+####  kata魂  
+##### 5582#       发表于 2021-3-24 20:41
+
+
+
+
+读空气都出3了啊~
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5583#       发表于 2021-3-24 21:45
+
+
+
+
+親方！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5584#       发表于 2021-3-24 21:48
+
+
+
+
+〇チンコ
+
+
+
+
+
+
+
+-----
+
+####  fangjun96  
+##### 5585#       发表于 2021-3-25 09:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">yehao俺の愛馬が！！、
+
+
+
+
+
+
+
+-----
+
+####  wwddrte  
+##### 5586#       发表于 2021-3-25 17:39
+
+
+
+ 本帖最后由 wwddrte 于 2021-3-25 18:08 编辑 
+
+想看阿夸打怪猎
+
+感觉阿夸会用太刀或者双刀？starburst stream
+
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5587#       发表于 2021-3-25 17:58
+
+
+
+ 本帖最后由 ylssb10438 于 2021-3-25 18:15 编辑 
+
+怕是要通宵打完村任务<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">因为桐人是二刀流捏😀
+
+
+
+
+
+
+
+-----
+
+####  凛子也想要五个  
+##### 5588#       发表于 2021-3-25 18:10
+
+
+
+
+为什么不用无敌的超解盾斧呢？想看夸夸空大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5589#       发表于 2021-3-25 18:27
+
+
+
+
+要么双刀要么狩猎笛吧，双刀是传统利威尔搓背+伪星爆，狩猎笛这作无脑强，时髦值也还可以。太刀虽然帅，不过玩不好很逊，大概率不会选。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5590#       发表于 2021-3-25 18:33
+
+
+
+ 本帖最后由 ylssb10438 于 2021-3-25 18:48 编辑 
+
+狩猎笛刚被大削，太刀说实话现在居登循环没感觉哪里帅了，真要玩还得gp锤😅说到太刀，BV15741137ki这个冰原的片属实帅
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5591#       发表于 2021-3-25 22:11
+
+
+
+ 本帖最后由 面具13 于 2021-3-25 22:14 编辑 
+
+看来还是打算按强度选。神tm变成太刀侠了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这脸打得爽，点赞了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5592#       发表于 2021-3-25 22:12
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-25 23:15 编辑 
+
+太刀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怨虎龙：7分钟取你人头   发狂艺真是好久没见了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">卡普空谢谢你
+
+
+夸虐大满足
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5593#       发表于 2021-3-25 22:29
+
+
+
+ 本帖最后由 面具13 于 2021-3-25 23:11 编辑 
+
+准备好看太刀侠打泡狐龙吃瘪了！夸虐的血液在沸腾
+
+
+切，不是纯初见。纯居合太刀。
+
+来挨揍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+脑死了
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 5594#       发表于 2021-3-25 23:11
+
+
+
+
+启动不了了，好活，你木口和卡婊八字不合
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 5595#       发表于 2021-3-25 23:14
+
+
+
+
+终于进了
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5596#       发表于 2021-3-26 00:32
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-26 01:55 编辑 
+
+真就从头到尾没登过龙，这是只学会了见切的太刀俠啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太久没碰了，好像把见切和居合记成同一个东西了，我的错。
+
+syl,这作怪物演出蛮有趣的。
+
+
+被画骗了啊，这怪有够异形的     猫了猫了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5597#       发表于 2021-3-26 00:42
+
+
+
+ 本帖最后由 面具13 于 2021-3-26 01:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735243&amp;ptid=1947500" target="_blank">乌鸦绅士 发表于 2021-3-26 00:32</a>
+
+真就从头到尾没登过龙，这是只学会了见切的太刀俠啊</blockquote>
+不，她就没怎么见切，光居合了。原本应该见切的场合基本都在翻滚。哦哦哦，刚才红斩后看到见切了
+
+
+只要不登龙就不会失败！！！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5598#       发表于 2021-3-26 01:51
+
+
+
+
+声卡有问题？
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5599#       发表于 2021-3-26 01:52
+
+
+
+
+好像每次到雪山图的水边就会有杂音
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5600#       发表于 2021-3-26 17:28
+
+
+
+
+一周没登赛马娘了，几十万氪完玩了两天玩不明白弃坑了？
+
+
+
+
+
+
+
+-----
+
+####  499  
+##### 5601#       发表于 2021-3-27 14:59
+
+
+
+
+算是和湊阿夸有关的消息？
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/145859uuam9krtm9qi09mi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210327_143617.jpg</strong> (461.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-27 14:58 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/145904zj3iwwf3ns8nnaib.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210327_143620.jpg</strong> (190.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-27 14:59 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5602#       发表于 2021-3-27 15:38
+
+
+
+ 本帖最后由 ylssb10438 于 2021-3-27 16:20 编辑 
+
+感觉还没等到4月更新，每把武器都能做几套毕业配装了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个樱花前期开荒好用后期还蛮尴尬的，有气刃没地方用，毕竟樱花水月都要翔虫，我觉得就该把
+
+翔虫登龙改成原来的插中起飞不耗翔虫，然后把现在的翔虫技能换一个新的，这样不管什么搭配都
+
+有个固定的消耗气刃的方式，也加大了登龙使用的门槛不会像现在这样使用这么频繁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5603#       发表于 2021-3-27 16:02
+
+
+
+ 本帖最后由 面具13 于 2021-3-27 16:30 编辑 
+
+技能不知道会不会换成手残和新手更实用的樱花气刃斩，反正不登龙。
+
+见切练了。能居吼了。
+
+登 龙 被 打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+见切成功没有大回旋啊
+
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5604#       发表于 2021-3-27 16:31
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-27 19:08 编辑 
+
+学会了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">学习能力真强啊
+
+主要现在玩的观感比之前刚碰太刀无脑居合好太多了，已经能真正快乐起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+这百龙夜行感觉联动玩会很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+没想到初见一猫就过了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5605#       发表于 2021-3-27 16:34
+
+
+
+ 本帖最后由 面具13 于 2021-3-27 19:06 编辑 
+
+按键都讲清楚了，是教得细。
+
+上龙前不磨刀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+塔防不放控制塔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+猜几猫？药王的胜利
+
+
+
+
+
+
+
+-----
+
+####  凛子也想要五个  
+##### 5606#       发表于 2021-3-29 03:06
+
+
+
+
+笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/29/030525k6h6idub6yzb6chd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>58de60510db992cd.jpg</strong> (275.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 03:05 上传
+
+
+
+
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  乌鸦绅士  
+##### 5607#       发表于 2021-3-29 20:00
+
+
+
+ 本帖最后由 乌鸦绅士 于 2021-3-29 22:38 编辑 
+
+有多久没唱过希望之花了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+经纪人也是妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5608#       发表于 2021-3-29 22:22
+
+
+
+
+优遇组的真相，天天催运营
+
+
+
+
+
+
+
+-----
+
+####  gikaqi  
+##### 5609#       发表于 2021-3-30 01:11
+
+
+
+ 本帖最后由 gikaqi 于 2021-3-30 01:52 编辑 
+
+一帮人抢饭吃，不过到哪都是这样。
+
+syl
+
+话说阿夸说メンバーによって经纪人不一样，但我日语不好，不知道是不是指的是每人都不一样啊。虽然之前也有听别人说一个经纪人会负责好几位成员。
+
+然后阿夸的经纪人是不是近几个月换了。凹人设的次数变多了起来。二月阿夸休息时486那边说第一次见到阿夸的经纪人我就觉得八成是新换了，不然不至于第一次见。阿夸提的次数变多也是从归复后开始。
+
+ssl
+
+然后阿夸去年10月有说在考虑个人音声方案，但今天用sc钓了下阿夸说想出，已经不知道多久没出了。听起来也不像手上有肉猪的样子。所以去年10月想的是不是没后续了。
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Kanchiki  
+##### 5610#       发表于 2021-3-30 07:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50773969&amp;ptid=1947500" target="_blank">gikaqi 发表于 2021-3-30 01:11</a>
+
+一帮人抢饭吃，不过到哪都是这样。
+
+syl
+
+话说阿夸说メンバーによって经纪人不一样，但我日语不好，不知道是 ...</blockquote>
+只是说不同的人有不同的经纪人，但是也不能排除有复数担当的情况吧
+
+印象里最近第一次提到这个经纪人是京都大学那次，说到了公司被叫住，给她看手机说大家都在传
+
+个人感觉按她的描述关系还挺好的，不像是新换的，只是之前一直不想提经纪人方面的事情吧
+
+原本有一种说法是同期都是由一个人负责，不过现在明显不像是这样，个人推测是在去年10月之后增加了经纪人
+
+
+匂わせ什么的听听就好了 反正到时候有就有没有就没有 没有期待就不会失望
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5611#       发表于 2021-3-30 18:55
+
+
+
+
+会限最后应该就是找486讨论联动的事情吧。
+
+穿烂的鞋攒一攒说不定还挺有市场的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            
