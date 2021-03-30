@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-29 10:42** 
+> ## **本文件最后更新于2021-03-30 12:55** 
 
 
 
@@ -5666,4 +5666,636 @@ bora再跟老千联动的话
 
 
 
-                                        
+
+
+-----
+
+####  FCCHua  
+##### 34778#       发表于 2021-3-29 19:06
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-29 22:15 编辑 
+
+草，虽然之前fes已经见过了，但是电音部里sky真的好高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+她的驼背好多了啊
+syl 五色战队在琥珀频道集结了，好奶，摸鱼怪她还是动了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34779#       发表于 2021-3-29 20:05
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-29 21:13 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/200330h38wsmu3v8axw2xw.png" referrerpolicy="no-referrer">
+
+
+<strong>【３Ｄ】初公開！にじさんじ曲限定で繋ぐDJ練習会！！！#帝音シブヤ​【星川サラ:健屋.png</strong> (274.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 20:03 上传
+
+
+
+
+
+
+社歌 KING
+
+
+3D有点垮，固定了几个移动镜头，很干净很漂亮
+
+
+Syl，这是什么搭配，轮到mori扶星了？
+
+<img src="https://img.saraba1st.com/forum/202103/29/211200zrrblvm8vmrf62v7.png" referrerpolicy="no-referrer">
+
+
+<strong>holoen.png</strong> (128.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 21:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34780#       发表于 2021-3-29 20:38
+
+
+
+
+烂货圆脸这就把老爱糖豆人皮肤安排上了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34781#       发表于 2021-3-29 20:58
+
+
+
+<blockquote>alcoholic1000 发表于 2021-3-29 15:08
+随便搬点拯救工作日V综
+
+「にじさんじ」のいちから、資本準備金を7000万円減らす
+
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/29/205445curzu5t8a3121vv6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>60da517957cd5154.jpg</strong> (145.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-29 20:54 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/205615qriskv5ki05tg5rn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210303_233054.jpg</strong> (71.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-3-29 20:56 上传
+
+
+
+
+
+
+20年4月的决算，也算不到今年亏到家的周年庆，这是去哪里填海了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34782#       发表于 2021-3-29 23:38
+
+
+
+
+减少准备金是为了引入新的投资吧。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34783#       发表于 2021-3-30 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 可能花了不少钱请水军带节奏吧，
+
+
+今年你虹数据完全停滞增长，能拉来多少钱？估计要倒闭了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34784#       发表于 2021-3-30 00:16
+
+
+
+
+提供不了おかず的虹能不能早点关门大吉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34785#       发表于 2021-3-30 00:25
+
+
+
+
+没人关心有没有下一轮，你虹赶紧抽卡。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 34786#       发表于 2021-3-30 01:03
+
+
+
+
+rurudo突然播和男人一起作业和杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34787#       发表于 2021-3-30 01:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/010529q6w6mdxd69suu6du.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210330010452.jpg</strong> (168.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 01:05 上传
+
+
+
+
+
+好的还是有的
+
+
+
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 34788#       发表于 2021-3-30 01:18
+
+
+
+
+游戏不比管人香多了，管人，狗都不看
+
+
+
+
+
+
+
+-----
+
+####  Yukine_Chris  
+##### 34789#       发表于 2021-3-30 03:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">rurudo直播霸凌ashima
+
+
+
+
+
+
+
+-----
+
+####  味增味增  
+##### 34790#       发表于 2021-3-30 09:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这就是rurudo当初不自己上的原因吗
+
+
+
+
+
+
+
+-----
+
+####  Yukine_Chris  
+##### 34791#       发表于 2021-3-30 11:44
+
+
+
+一点昨晚的rurudo <blockquote>弹幕：晚上好，这男的谁啊
+
+rurudo：对哦这男的谁啊</blockquote>
+霸凌*1
+ <blockquote>弹幕：ashima先生喜欢rurudo的什么
+
+ashima：声音（秒答）</blockquote>
+我也是<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"><blockquote>rurudo：哇kimo（也秒答）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+给ashima打分，いい男ポイント，初始分负多少来着忘了（霸凌*2）
+ <blockquote>rurudo：只要做好事就能慢慢提升分数了
+
+ashima：那只能去非洲捐建学校了
+
+问弹幕：大概多少钱能捐一所
+
+弹幕：500W日左右吧
+
+rurudo：那你不是能捐100所
+
+ashima：不要暴露别人的存款啊
+
+rurudo：对不起</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+rurudo去摘花回来 <blockquote>rurudo：我刚认识ashima的时候觉得这人超kimo
+
+rurudo：就是我以前去厕所会说WC
+
+rurudo：然后有一次这ashima就问
+
+rurudo：“你们女孩子去厕所不是都说摘花的吗”
+
+rurudo：就觉得这人kimo——</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+hamu加入，往水杯里倒碳酸水的声音无敌ASMR，rurudo表示也要整一个
+
+然后可尔必思的气少没内味，两个人让她先摇一下再倒
+
+然后摇过劲了洒了一地和椅子
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> <blockquote>rurudo：想打喷嚏
+
+rurudo：啊忍住了不打了
+
+弹幕：没帮上忙
+
+rurudo：ashima来打个喷嚏（命令语气
+
+ashima：？？？
+
+ashima：这是说打就能打出来的吗
+
+rurudo：哎呀我没有一定要你打啊
+
+rurudo：不想打可以不打
+
+ashima：我不是我没有
+
+rurudo：我也没逼你一定要打
+
+rurudo：要做一个不想做的事就果断拒绝的男人啊</blockquote>
+霸凌*3，此处原文就是典型的日本人让你读空气那套话术
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+昨晚就看到这附近，然后hamu不小心打了个喷嚏，SC：アンコール 笑飞了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GAT_ZZZ| + 1||
+| argaregeasr| + 1|好评加鹅|
+| mmbk| + 1||
+| asdhai| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34792#       发表于 2021-3-30 11:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">要去补录播了
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 34793#       发表于 2021-3-30 12:01
+
+
+
+[https://twitter.com/koinoya_mai](https://twitter.com/koinoya_mai)
+
+恋乃夜まい，这皮太好了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34794#       发表于 2021-3-30 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777025&amp;ptid=1969498" target="_blank">敖轩 发表于 2021-3-30 12:01</a>
+[https://twitter.com/koinoya_mai](https://twitter.com/koinoya_mai)
+
+恋乃夜まい，这皮太好了。</blockquote>
+这皮还能吐舌头，太色了。
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34795#       发表于 2021-3-30 16:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/161713i2qw6a2268qo6zoz.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (5.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 16:17 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/161713g6d71xq979ydednn.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (5.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 16:17 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/161713zy3n2i1ugnaoo0ii.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (5.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 16:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 34796#       发表于 2021-3-30 16:21
+
+
+
+
+美大生找警察来是为了防止自己把挑战者一口闷了吗
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34797#       发表于 2021-3-30 18:08
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-30 20:07 编辑 
+
+1的销量还行啊
+syl 明天rd live能看到11岁？
+zsyl 尊妈工商好耶
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34798#       发表于 2021-3-30 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">king做完原神工商之后，尊又开始做了，
+
+
+这是不是故意的啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34799#       发表于 2021-3-30 19:06
+
+
+
+
+月城千夜来B限（据说是showroom最会唱的），有兴趣可以听听，还会不少中文歌
+[https://live.bilibili.com/22782256](https://live.bilibili.com/22782256)
+
+
+
+
+
+
+
+-----
+
+####  flyskywalker92  
+##### 34800#       发表于 2021-3-30 19:35
+
+
+
+
+尊上个视频1,9k的踩 还能恰到工商呢
+
+
+
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 34801#       发表于 2021-3-30 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明业界就得多一点马娘这种游戏，给了米哈游压力，才能放开工商。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34802#       发表于 2021-3-30 20:27
+
+
+
+
+郡道实质不快女王也有漫画工商和公式番组，只要够红，炎上是什么？（郡道就是不够红所以吃不到<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+                                       
