@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-31 03:54** 
+> ## **本文件最后更新于2021-03-31 17:16** 
 
 
 
@@ -7602,4 +7602,479 @@ new只有两个普池<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                   
+
+
+-----
+
+####  是这样  
+##### 15426#       发表于 2021-3-31 11:58
+
+
+
+
+150抽跑路了，喇叭等着夏天再井算了...
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15427#       发表于 2021-3-31 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50779540&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2021-03-30 16:19:13</a>
+天平收益没2号水龙高，宇宙水狗都不玩</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是我水龙副本都没开……
+想要第一把水龙武大概还有很远很远的距离
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15428#       发表于 2021-3-31 14:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专楼统计学告诉我，狗的人果然是少数
+
+
+
+
+
+
+
+-----
+
+####  c029384756  
+##### 15429#       发表于 2021-3-31 14:19
+
+
+
+
+我的🐎呀，cyd怎么这么能画啊<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202103/31/141847bsss0qbsl0bsjafl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210331141741.jpg</strong> (176.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 14:18 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/31/141857e3jie39ycchj3w13.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210331141747.png</strong> (36.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 14:18 上传
+
+
+
+
+
+
+这表情真tm绝了，色到有股仙气，牛牛遇水剧烈反应大爆炸
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15430#       发表于 2021-3-31 14:19
+
+
+
+
+靠XY选了泳猪，看隔壁说好像还挺强的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15431#       发表于 2021-3-31 14:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火猪在火属性的表现是不是比光猪在光属性好
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 15432#       发表于 2021-3-31 14:24
+
+
+
+
+火猪短期爆发猛，长期输出稳定
+
+唯一的缺点是我拆了井没抽到
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15433#       发表于 2021-3-31 14:49
+
+
+
+
+现在有哪个属性方阵不开环SOLO超法可以不用处刑的？想省点环了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  镜hinata  
+##### 15434#       发表于 2021-3-31 15:39
+
+
+
+
+拆了80，一无所有，我存一井夏天见吧
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  木原唯一  
+##### 15435#       发表于 2021-3-31 16:52
+
+
+
+
+火猪唯一说得上毛病的毛病是追伤在被动区跟星幽冲突，但是这问题也是当初fkhr拍脑袋给火星幽特殊对待的历史遗留问题了，等以后被动追伤人变多了这问题会越发显著的罢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Tzzt  
+##### 15436#       发表于 2021-3-31 17:20
+
+
+
+
+拆了130什么都没有 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15437#       发表于 2021-3-31 17:54
+
+
+
+
+把1/4都突完了 换了把方天 过几天去大公玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15438#       发表于 2021-3-31 19:13
+
+
+
+
+黑卡换了水猴子 我牛子炸了 太色了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sodah  
+##### 15439#       发表于 2021-3-31 20:01
+
+
+
+
+一井下去，前200抽3虹真的把我吓到了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 15440#       发表于 2021-3-31 20:18
+
+
+
+
+本来60连狗到个猪还挺开心的，结果60连之后一直没虹百六抽成百三<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15441#       发表于 2021-3-31 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">50连抽到猪猪，爱了，这个池子跑路了
+
+
+
+
+
+
+
+-----
+
+####  Benighted  
+##### 15442#       发表于 2021-3-31 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20发抽了个火猪，见好就收
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15443#       发表于 2021-3-31 22:38
+
+
+
+
+130抽到猴妹和一点有用的，还不错就是了
+
+可我现在又想要猪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 15444#       发表于 2021-3-31 22:51
+
+
+
+
+坐等愚人节皮肤
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 15445#       发表于 2021-3-31 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坐等愚人节送3w石头 我想要火猪
+
+
+
+
+
+
+
+-----
+
+####  kobushi  
+##### 15446#       发表于 2021-3-31 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50789616&amp;ptid=1158205" target="_blank">poor 发表于 2021-3-31 14:49</a>
+
+现在有哪个属性方阵不开环SOLO超法可以不用处刑的？想省点环了</blockquote>
+风和光吧
+
+
+
+
+
+
+
+-----
+
+####  zukunes  
+##### 15447#       发表于 2021-3-31 23:58
+
+
+
+
+求加养老团，没团战要求的，id 24954321 古战场我都是摸的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX1971, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15448#       发表于 2021-4-1 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50794596&amp;ptid=1158205" target="_blank">kobushi 发表于 2021-3-31 23:30</a>
+风和光吧</blockquote>
+正好都做了三阶<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  poor  
+##### 15449#       发表于 2021-4-1 00:39
+
+
+
+
+冲动下了井，如果一直不换最多可以留多久，下次抽预计夏泳或者什么时候又送白嫖，主要是防止又冲动<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15450#       发表于 2021-4-1 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50795169&amp;ptid=1158205" target="_blank">poor 发表于 2021-4-1 00:36</a>
+
+正好都做了三阶攻略要到哪找？NGA搜了下没找到，不知道是不是我方法不对
+
+
+—— 来自 vivo  ...</blockquote>
+风：[https://bbs.nga.cn/read.php?tid=24992126&amp;page=1](https://bbs.nga.cn/read.php?tid=24992126&amp;page=1)
+
+光：[https://www.bilibili.com/video/BV1Yy4y177i8?p=1](https://www.bilibili.com/video/BV1Yy4y177i8?p=1)
+
+风的裁缝/天宫森美，皇帝。光的师匠，战车都是属于必要硬件
+
+不要处刑也是因为其他人提供了足够强的生存能力，主角这个工具人要不要都无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerorin  
+##### 15451#       发表于 2021-4-1 01:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猪fa看着太爽了，一堆技伤一顿丢观感极佳
+
+
+
+
+
+                                  

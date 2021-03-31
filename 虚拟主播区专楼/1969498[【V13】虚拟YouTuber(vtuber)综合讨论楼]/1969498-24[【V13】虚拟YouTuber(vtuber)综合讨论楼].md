@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-30 12:55** 
+> ## **本文件最后更新于2021-03-31 17:13** 
 
 
 
@@ -6298,4 +6298,817 @@ zsyl 尊妈工商好耶
 
 
 
-                                       
+
+
+-----
+
+####  free  
+##### 34803#       发表于 2021-3-30 21:25
+
+
+
+
+裸春怎么这么有想象力......啊哈娱乐是神马玩意
+[https://space.bilibili.com/586849155](https://space.bilibili.com/586849155)
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/212449yhbp6wf4q3fmiqin.png" referrerpolicy="no-referrer">
+
+
+<strong>eresa.png</strong> (24.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 21:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34804#       发表于 2021-3-30 21:43
+
+
+
+
+阿菜参加明天rd的live
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 34805#       发表于 2021-3-31 02:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/31/020054qowswv7vwys259zv.png" referrerpolicy="no-referrer">
+
+
+<strong>ExtrAdjVcAEUYeH.png</strong> (610.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 02:00 上传
+
+
+
+
+
+[https://twitter.com/nkymyura/status/1376824267623567362](https://twitter.com/nkymyura/status/1376824267623567362)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 34806#       发表于 2021-3-31 02:11
+
+
+
+
+这个肥希xgura希望多搞
+
+声音的厚度太契合彼此了
+
+看之前就觉得和声的舒适程度会很高，没想到简直破表
+
+选曲也相当不错，音域感觉也很接近
+
+只可惜注定只会是一次性的，毕竟两个人的活动overlap很小，小鲨鱼跟希的《地位》也无法同日而语
+
+希望明年年会能看到这俩的合作（如果en能3d的话）
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34807#       发表于 2021-3-31 02:29
+
+
+
+
+king开lol台了，时代变了
+
+
+
+
+
+
+
+-----
+
+####  SteveS  
+##### 34808#       发表于 2021-3-31 02:41
+
+
+
+
+葛皇竟然油管公开打lol了，已经是大物了啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34809#       发表于 2021-3-31 08:31
+
+
+
+
+英语进出比预想的要没效果！
+郡道发了个剪辑，有人做了翻译版，点击还不如无翻译惹<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 34810#       发表于 2021-3-31 08:41
+
+
+
+
+从外野某贴看到的，油管似乎在测试把点踩机制隐藏了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34811#       发表于 2021-3-31 11:11
+
+
+
+
+阿菜也回来了那🌈地雷就差口了一个了。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34812#       发表于 2021-3-31 13:11
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-31 15:15 编辑 
+
+長尾　景☯にじさんじ
+
+@kei_nagao2434
+
+おはー！
+
+何か一晩で登録者5000人増えてて、どう考えてもおかしいから運営に問い合わせた。
+
+
+三枝🇹🇷事件再演？
+
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202103/31/131214bslmz7yvzajbn6ny.jpg" referrerpolicy="no-referrer">
+
+
+<strong>祝3周年.jpg</strong> (382.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 13:12 上传
+
+
+
+
+
+[https://twitter.com/suwada_yo/status/1377018821622390784](https://twitter.com/suwada_yo/status/1377018821622390784)
+
+
+Zsyl，好活
+
+내일 밤 8시부터 드디어 아기다리고기다리던
+
+후배들이 데뷔를 한다고 해요!
+
+다들 기대해주세요!
+
+明日夜8時から待ち望んだ
+
+後輩たちがデビューします！
+
+楽しみにしてまーす！
+
+<img src="https://img.saraba1st.com/forum/202103/31/151454vf56dizodk5xq5ii.jpg" referrerpolicy="no-referrer">
+
+
+<strong>내일 밤 8시부터 드디어 아기다리고기다리던.jpg</strong> (119.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 15:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34813#       发表于 2021-3-31 14:15
+
+
+
+[https://www.bilibili.com/video/BV1Jy4y1t7ej](https://www.bilibili.com/video/BV1Jy4y1t7ej)
+
+啊哈娱乐旗下厂牌IMAGINARY STUDIO 首发偶像 瑛纱teresa
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34814#       发表于 2021-3-31 15:27
+
+
+
+
+所以这是国内公司寄养在神椿的？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34815#       发表于 2021-3-31 15:40
+
+
+
+
+应该是裸春找的国内代理
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34816#       发表于 2021-3-31 16:08
+
+
+
+
+银憨憨 大福贴贴，新衣服发布时间都整挺好，还有翻唱视频<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 34817#       发表于 2021-3-31 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> kmm这年纪还要了个猫耳妹抖的新皮，，我都不好意思了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34818#       发表于 2021-3-31 17:58
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-3-31 21:23 编辑 
+
+[【#RainDrops再始動​】Rain Drops　3月31日（水）19：00スタート！！アコースティックライブ『開花宣言』](https://www.youtube.com/watch?v=h7RlDEBwjTI)要开了，童田回来了
+
+
+Syl,
+
+<img src="https://img.saraba1st.com/forum/202103/31/203447wq17ukqhk4dlnio4.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目】１年以上ぶりってマジ？ #しぃラボ​【にじさんじ:葉加瀬冬雪】.pn.png</strong> (207.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 20:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/31/203818wispedisrpi0kder.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目】１年以上ぶりってマジ？ #しぃラボ​【にじさんじ:葉加瀬冬雪】-2..png</strong> (244.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 20:38 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/31/211705o04xhxnx2b4fnlxw.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目配信】１年ぶりの新衣装お披露目です。#しぃラボ​【椎名唯華:にじさ.png</strong> (383.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 21:17 上传
+
+
+
+
+
+
+谁啊
+
+
+？？
+
+
+
+
+
+
+【新衣装お披露目配信】１年ぶりの新衣装お披露目です。#しぃラボ​【椎名唯華:にじさ.png
+(380.63 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-3-31 21:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/31/212158ebf4ebbzo23h4xgo.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34819#       发表于 2021-3-31 18:04
+
+
+
+
+真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  横寺阳人  
+##### 34820#       发表于 2021-3-31 18:18
+
+
+
+
+呜呜呜我的菜
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34821#       发表于 2021-3-31 20:14
+
+
+
+
+快速地过了一遍raindrops的歌
+
+怎么感觉除了オントロジー都一般
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 34822#       发表于 2021-3-31 20:55
+
+
+
+
+兎鞠这个3d有点厉害，吊打一帮企业势，记得还是自己的设备，要变大叔gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34823#       发表于 2021-3-31 21:00
+
+
+
+
+低角度遮挡多方便<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/31/210029qqquyjuubzn3njep.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (62.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-31 21:00 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34824#       发表于 2021-3-31 21:07
+
+
+
+ 本帖最后由 poipanchao 于 2021-3-31 21:17 编辑 
+
+大福把原本的模型也修了一下，现在比以前能动多了，特别是嘴
+
+kmm你的品位真的没救了……
+
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 34825#       发表于 2021-3-31 21:17
+
+
+
+
+大福新皮脖子也太细了，总感觉下一秒就要被她的大头压断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34826#       发表于 2021-3-31 21:20
+
+
+
+ 本帖最后由 FCCHua 于 2021-3-31 21:21 编辑 
+
+模型更新好评，新衣服有亿点微妙
+图和实际做出来不一样啊，又是换发型就没事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34827#       发表于 2021-3-31 21:29
+
+
+
+
+换了老衣服就挺赞的
+
+
+
+
+
+
+
+-----
+
+####  甜甜圈与棒棒糖  
+##### 34828#       发表于 2021-3-31 21:55
+
+
+
+
+屑大福的女仆装<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34829#       发表于 2021-3-31 21:59
+
+
+
+
+冲了（指对兔鞠）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34830#       发表于 2021-3-31 22:17
+
+
+
+
+神椿又众筹，这次是夏天丰州，别到时候又取消了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34831#       发表于 2021-4-1 00:03
+
+
+
+
+丰州真就管人应许之地阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34832#       发表于 2021-4-1 00:10
+
+
+
+
+又到了一年一度的愚人节整活环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34833#       发表于 2021-4-1 00:17
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-1 01:05 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/001748eje3zkeew22p434b.png" referrerpolicy="no-referrer">
+
+
+<strong>君のような勘のいいガキは嫌いﾀﾞﾖｰ.png</strong> (176.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 00:17 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+大的要来了（也许<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/01/010437cohoenerpohnk2po.png" referrerpolicy="no-referrer">
+
+
+<strong>Sanya.png</strong> (120.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 01:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 34834#       发表于 2021-4-1 00:29
+
+
+
+
+游戏部隔壁？那个企划整了个中之人暴露的活儿
+
+腿挺细的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34835#       发表于 2021-4-1 00:33
+
+
+
+
+郡道美玲の存在自体が嘘なので…
+
+可以直说又想被喷了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34836#       发表于 2021-4-1 00:35
+
+
+
+
+请问以下哪个是彩虹的dc粉丝服务器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/01/003602zmjt4jctlbc6slsx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (9.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 00:36 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/003611qd9t17facfoo99ll.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (12.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 00:36 上传
+
+
+
+
+
+
+
+
+
+                                      
