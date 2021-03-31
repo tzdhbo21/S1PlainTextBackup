@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 13:42** 
+> ## **本文件最后更新于2021-03-31 12:52** 
 
 
 
@@ -12841,7 +12841,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_plACo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_YiRVs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18747,4 +18747,540 @@ syl这读sc闲聊是真的鸡肋
 
 
 
-              
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11554#       发表于 2021-3-28 22:44
+
+
+
+
+姐你这都故意ky啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11555#       发表于 2021-3-28 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姐姐 你平时这么高的情商 装出来不像的啊
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11556#       发表于 2021-3-28 22:59
+
+
+
+
+太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 11557#       发表于 2021-3-28 23:01
+
+
+
+
+太ky了
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11558#       发表于 2021-3-28 23:07
+
+
+
+
+没必要，真没必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 11559#       发表于 2021-3-28 23:08
+
+
+
+
+我看到的第一个砸烂屏幕的
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11560#       发表于 2021-3-28 23:37
+
+
+
+
+认真玩也没get到可就太笨逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11561#       发表于 2021-3-29 00:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">认真做也就常识以上，身败名裂了呀 绫总
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11562#       发表于 2021-3-29 00:25
+
+
+
+
+和船姨贴贴
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/002526i2u558bi7v4jjzzb.png" referrerpolicy="no-referrer">
+
+
+<strong>illust_88755946_20210328_215958.png</strong> (202.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 00:25 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11563#       发表于 2021-3-29 11:23
+
+
+
+
+明天要工商了才在通宵宝可梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/29/112306c8bahy0k90k0y5o3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>鬼.JPG</strong> (32.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 11:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11564#       发表于 2021-3-29 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工商就是宝可梦吧 
+一种明天就要开学，作业还没写过的感觉，奇迹之夜
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11565#       发表于 2021-3-30 09:10
+
+
+
+
+绫总也要跟风狩猎了
+
+不过我记得阿绫是动作游戏苦手 真的要开台丢人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Baroq  
+##### 11566#       发表于 2021-3-30 10:35
+
+
+
+
+绫总打过普贝的吧 好歹太刀会切几下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11567#       发表于 2021-3-30 12:17
+
+
+
+
+绫总菜但是运气好
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11568#       发表于 2021-3-30 12:23
+
+
+
+
+快进到被怨虎龙打得到处猫，苦呀西余
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11569#       发表于 2021-3-30 13:29
+
+
+
+
+反正打不过就开观众参与
+
+绫总躺过 百鬼组舔到 双赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11570#       发表于 2021-3-30 19:15
+
+
+
+ 本帖最后由 cctvyt1 于 2021-3-30 19:35 编辑 
+
+2:1赢阿希了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+阿绫你这队伍有点认真阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/30/193527h6abwopcnebm8gz9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1617100359075.jpg</strong> (125.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 19:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  昆西昆希昆  
+##### 11571#       发表于 2021-3-30 20:14
+
+
+
+ 本帖最后由 昆西昆希昆 于 2021-3-30 20:16 编辑 
+<blockquote>cctvyt1 发表于 2021-3-30 19:15
+2:1赢阿希了
+
+阿绫你这队伍有点认真阿</blockquote>
+不愧是天赋型选手，轮到阿希苦呀西了。不过阿希今天才刚把属性克制表打印下来看，输的不冤XD
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11572#       发表于 2021-3-30 20:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 这配队 过分了
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11573#       发表于 2021-3-30 21:02
+
+
+
+
+余の勝ち✌
+
+通宵抱佛脚是有用的！
+
+
+
+
+
+
+
+-----
+
+####  一仙  
+##### 11574#       发表于 2021-3-31 16:24
+
+
+
+
+一个宝可梦大会熬夜成这样 
+
+真是强烈的胜欲
+
+
+
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11575#       发表于 2021-3-31 17:22
+
+
+
+
+回光返照了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11576#       发表于 2021-3-31 19:25
+
+
+
+
+激战优胜
+
+今晚终于可以带着胜利的喜悦入睡了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11577#       发表于 2021-3-31 19:26
+
+
+
+ 本帖最后由 cctvyt1 于 2021-3-31 19:28 编辑 
+
+绫总夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+想不到阿绫是这种角色 还以为是工商吉祥物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+平时装成傻白甜 实际是头脑派<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 11578#       发表于 2021-3-31 19:31
+
+
+
+
+不愧是余，未曾设想的道路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  biye  
+##### 11579#       发表于 2021-3-31 19:46
+
+
+
+
+都靠野男人教得好
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11580#       发表于 2021-3-31 19:56
+
+
+
+
+很喜欢绫总的一句话
+
+
+你们不想赢吗？
+
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11581#       发表于 2021-3-31 20:23
+
+
+
+
+我怎么会看成强烈的性欲<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fami水  
+##### 11582#       发表于 2021-3-31 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你新鞋了
+
+
+
+
+
+             
