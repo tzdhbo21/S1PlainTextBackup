@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-30 08:46** 
+> ## **本文件最后更新于2021-04-01 04:57** 
 
 
 
@@ -18557,4 +18557,585 @@ yysy，就真夏填的那申请表，以前的任何一个会长都不会给她�
 
 
 
-               
+
+
+-----
+
+####  HGCG2  
+##### 1022#       发表于 2021-3-30 19:50
+
+
+
+
+我们现在甚至不知道海豹是只会喊自己的名字还是会说人话
+
+
+
+
+
+
+
+-----
+
+####  酥蕤  
+##### 1023#       发表于 2021-3-30 19:59
+
+
+
+
+这红毛平时不咋不咋的，一变身好色，亲口红开大色爆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1024#       发表于 2021-3-30 21:09
+
+
+
+
+这红毛变身后，帅气里有邪气，邪气里有骚气，骚气里有傻气，加在一起有种说不出的魅力
+
+
+
+
+
+
+
+-----
+
+####  banglian  
+##### 1025#       发表于 2021-3-30 21:28
+
+
+
+ 本帖最后由 banglian 于 2021-3-30 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50769284&amp;ptid=1963832" target="_blank">zzz123q 发表于 2021-3-29 16:59</a>
+
+原来之前的都没有专楼吗，谢谢
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+怎么可能奸笑才有专楼，奸笑那时Q娃已经有点火了一度有5，6个字幕组。泥潭是水果就有专楼了，只是那时讨论量很少。
+
+最早的专楼
+[https://bbs.saraba1st.com/2b/thread-383782-20-1.html](https://bbs.saraba1st.com/2b/thread-383782-20-1.html)
+
+
+水果楼
+[https://bbs.saraba1st.com/2b/thread-434426-1-1.html](https://bbs.saraba1st.com/2b/thread-434426-1-1.html)
+
+
+组曲暖场楼
+[https://bbs.saraba1st.com/2b/thread-625866-1-1.html](https://bbs.saraba1st.com/2b/thread-625866-1-1.html)
+
+
+
+抓心在泥潭很火的，我印象里好像有专楼但确实没搜到。建议你问问萌翻留美他们<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zzz123q  
+##### 1026#       发表于 2021-3-30 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50782861&amp;ptid=1963832" target="_blank">banglian 发表于 2021-03-30 21:28:40</a></blockquote>这组曲暖场楼里看见有人引用通向正式楼的链接，但是拉上去就看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 1027#       发表于 2021-3-30 23:30
+
+
+
+<img src="http://diary.fc2.com/user/kazuharoom/img/2021_3/29.jpg" referrerpolicy="no-referrer">
+
+
+屑人鱼，湿漉漉的凑到人身上去，搞得裙子都湿了
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1028#       发表于 2021-3-31 00:02
+
+
+
+
+貌似没有儿童志偷跑了
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 1029#       发表于 2021-3-31 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50760602&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-3-28 21:07</a>
+飞鸟这待遇感觉都快是追加级别的了，其他人都是萝拉先放她手上试，没发光就想着找别人了。这次则是萝拉死缠 ...</blockquote>
+flamingo的话又想起林友树了，不过火烈鸟的话也挺符合鸟哥这一身红的w
+红毛+荧光色挑染真是太时髦啦<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1030#       发表于 2021-3-31 06:30
+
+
+
+
+我觉得红网袜绝对是个亮点
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1031#       发表于 2021-3-31 07:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777164&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-30 12:13</a>
+
+是意义不明，但是ツルピカってる还是笑死我了
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next ...</blockquote>
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gp2quvnfh2j20th15ox6p.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1032#       发表于 2021-3-31 07:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50785673&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-31 07:42</a></blockquote>
+噗，还有这样的片子啊，到底是玩梗还是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  saya1892  
+##### 1033#       发表于 2021-3-31 09:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">好几年没看Q了，前几年都是看完前几集招人之后坚持不下去（去年悠木碧声线选得不太舒服就没有再看）
+
+今年看到目前感觉还可以，但感觉变身战斗部分演出不太流畅
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1034#       发表于 2021-3-31 11:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50785703&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-3-31 07:49</a>
+
+噗，还有这样的片子啊，到底是玩梗还是巧合
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next ...</blockquote>
+大地丙太郎肯定是知道这片的（当年也算高收视率）
+
+故意玩梗就未必了
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1035#       发表于 2021-3-31 13:00
+
+
+
+
+看有人说红的兼用卡是金田风？
+
+
+
+
+
+
+
+-----
+
+####  nervpp  
+##### 1036#       发表于 2021-3-31 13:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50784080&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-3-30 23:30</a>
+
+屑人鱼，湿漉漉的凑到人身上去，搞得裙子都湿了</blockquote>
+这张一旦想多……就，就挺有操作空间的
+
+
+
+
+
+
+
+-----
+
+####  nervpp  
+##### 1037#       发表于 2021-3-31 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777542&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-3-30 12:53</a>
+
+海豹到现在都没出场，这淫∠( ᐛ 」∠)＿兽是干嘛的。
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+十几话遇到危机的时候开新的大招所需要的？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1038#       发表于 2021-3-31 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50777542&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-3-30 12:53</a>
+海豹到现在都没出场，这淫∠( ᐛ 」∠)＿兽是干嘛的。
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+个人猜测，为了防止主角团集齐人，创了社团后没事干，出来告知主线任务的工具豹
+
+
+
+
+
+
+
+-----
+
+####  zzz123q  
+##### 1039#       发表于 2021-3-31 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50782861&amp;ptid=1963832" target="_blank">banglian 发表于 2021-03-30 21:28:40</a></blockquote>[https://bbs.saraba1st.com/2b/thread-649841-1-1.html](https://bbs.saraba1st.com/2b/thread-649841-1-1.html)
+找到了组曲的正式楼
+虽然还是没有找到抓心的专楼<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zzz123q  
+##### 1040#       发表于 2021-3-31 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50784402&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-03-31 00:02:57</a>
+貌似没有儿童志偷跑了</blockquote>请问有抓心的专楼链接吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1041#       发表于 2021-3-31 18:45
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gp36ibogcuj20u016g1kx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1042#       发表于 2021-3-31 20:58
+
+
+
+
+红毛变身的作画出什么问题了吗？为什么我感觉这变身有些掉帧？<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 1043#       发表于 2021-3-31 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50793342&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-3-31 20:58</a>
+
+红毛变身的作画出什么问题了吗？为什么我感觉这变身有些掉帧？</blockquote>
+啊，终于有人说了，我不是一个人
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1044#       发表于 2021-3-31 22:22
+
+
+
+ 本帖最后由 HGCG2 于 2021-3-31 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50793342&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-3-31 20:58</a>
+
+红毛变身的作画出什么问题了吗？为什么我感觉这变身有些掉帧？</blockquote>
+原画师风格
+
+不是掉帧而是本来就这点
+
+总之就是那种致敬金田的感觉，用夸张的构图营造出魄力
+
+我外行乱说的
+
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 1045#       发表于 2021-3-31 23:34
+
+
+
+ 本帖最后由 Cloudslin 于 2021-4-1 07:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50793490&amp;ptid=1963832" target="_blank">待宵 发表于 2021-3-31 21:14</a>
+啊，终于有人说了，我不是一个人</blockquote>
+芳山优是这几年比较受关注的金田系新秀了，去年知优的bank也是他画的，金田系就是比较强调pose的张力而不会去抓具体的运动过程，配合色块化的阴影和夸张的特效会给人一种非常强的跳脱感。当然了，这种作画风格对于看习惯真实系的人会感觉有些异类，甚至感觉在看定格动画，不过其实跟作画张数关系不大。
+另附采访一篇，视频播放需要魔法https://artistunknown.info/2020/09/21/exclusive-interview-with-yuu-yoshiyama-impact-frames-as-surprise-boxes/
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1046#       发表于 2021-4-1 07:11
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gp3hhsjxapj21060u0qv6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1047#       发表于 2021-4-1 07:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50794070&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-3-31 22:22</a>
+
+原画师风格
+
+不是掉帧而是本来就这点
+
+总之就是那种致敬金田的感觉，用夸张的构图营造出魄力</blockquote>
+明白了。这次的变身的确挺夸张，挺有魄力的，甚至给我一种假小子的错觉。其实日常状态的红毛可以算是静态美女的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1048#       发表于 2021-4-1 07:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50796041&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-4-1 07:26</a>
+明白了。这次的变身的确挺夸张，挺有魄力的，甚至给我一种假小子的错觉。其实日常状态的红毛可以算是静态 ...</blockquote>
+看下一集的预告，静态不了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1049#       发表于 2021-4-1 08:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50795999&amp;ptid=1963832" target="_blank">HGCG2 发表于 2021-4-1 07:11</a></blockquote>
+别的不说屑人鱼真是这几年最搓我xp的人设了，欧派还挺大<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1050#       发表于 2021-4-1 11:33
+
+
+
+
+哦哦哦原来还有扑克图案的属性 ​​​​
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gp3ga01d13j21bh0qgx6r.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1051#       发表于 2021-4-1 12:06
+
+
+
+<blockquote>HGCG2 发表于 2021-4-1 07:11
+</blockquote>
+这算愚人节？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1052#       发表于 2021-4-1 12:48
+
+
+
+
+扑克牌？
+快进到“真夏现在在做什么呢？”，啊不对，是“爱的王牌，cure lamer！”
+
+
+
+
+
+              
