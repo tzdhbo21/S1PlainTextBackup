@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-31 17:15** 
+> ## **本文件最后更新于2021-04-02 11:46** 
 
 
 
@@ -22287,10 +22287,11 @@ candy candy好！
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 缺陷电气杨永信| + 1|好评加鹅|
 | 雪风utopia| + 1|好评加鹅|
 | A2014720| + 1|好评加鹅|
 | Cushaw| + 1|好评加鹅|
@@ -22414,4 +22415,874 @@ tc
 
 
 
-      
+
+
+-----
+
+####  A2014720  
+##### 11792#       发表于 2021-4-1 01:27
+
+
+
+
+打个牌这么祖安的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11793#       发表于 2021-4-1 07:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 11794#       发表于 2021-4-1 07:31
+
+
+
+ 本帖最后由 路人辰 于 2021-4-1 09:06 编辑 
+
+20210401东京8点
+
+<img src="https://img.saraba1st.com/forum/202104/01/090631fxg03hpp363i0gzd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>970FFABA-8E2E-456A-A55B-E9EFB065C4DA.jpeg</strong> (344.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 09:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 11795#       发表于 2021-4-1 07:36
+
+
+
+
+感觉自己好久没看直播了，忙了，淡了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11796#       发表于 2021-4-1 07:42
+
+
+
+
+该渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11797#       发表于 2021-4-1 08:14
+
+
+
+
+有大狐狸异画<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">，脱粉了
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11798#       发表于 2021-4-1 08:29
+
+
+
+
+希望能在我燃尽前娶到小麻<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 11799#       发表于 2021-4-1 09:14
+
+
+
+
+老了，油了，追不了深夜TC了
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 11800#       发表于 2021-4-1 11:04
+
+
+
+
+草 虽然是4月1 但是还是 噔噔咚
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11801#       发表于 2021-4-1 11:43
+
+
+
+
+迎娶小麻我义不容辞
+
+哪怕用强的能得到小麻就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 11802#       发表于 2021-4-1 19:10
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/191024fzra69iyib9rostw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_7670.JPG</strong> (312.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 19:10 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11803#       发表于 2021-4-1 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这肯定是男友上号发的消息
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11804#       发表于 2021-4-1 19:14
+
+
+
+
+是野男人，是野男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11805#       发表于 2021-4-1 19:15
+
+
+
+
+是我代发的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11806#       发表于 2021-4-1 21:46
+
+
+
+
+今晚怎么就无了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11807#       发表于 2021-4-1 21:50
+
+
+
+
+因为说了有男友了要降低直播频率
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11808#       发表于 2021-4-1 22:59
+
+
+
+
+呜呜呜，突然看到有人说愚人节说的话往往是真话，我就想大概麻麻是真的有男友了吧，今天也是和男友卿卿我我一天了吧，心好乱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11809#       发表于 2021-4-1 23:28
+
+
+
+
+刚刚在黄兔子直播间那露了个脸，怕不是在和男友亲热休息的时候刷个存在感
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11810#       发表于 2021-4-2 00:48
+
+
+
+
+希望野男人能温柔的对待小麻，我只要能看着她，就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11811#       发表于 2021-4-2 02:11
+
+
+
+
+她说她喜欢欧美那种激烈的a○<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 11812#       发表于 2021-4-2 09:13
+
+
+
+
+有画面了，五黑一麻
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 11813#       发表于 2021-4-2 09:18
+
+
+
+
+五黑一麻草死
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11814#       发表于 2021-4-2 09:25
+
+
+
+
+还说小麻不是混血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11815#       发表于 2021-4-2 09:55
+
+
+
+
+甚至还用了药<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/332bbcc3ca57e43db70302d78e058e1c/306407f6dd195e51.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11816#       发表于 2021-4-2 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">变身
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 11817#       发表于 2021-4-2 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11818#       发表于 2021-4-2 10:08
+
+
+
+
+不要啊，我愿意养小麻和小小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11819#       发表于 2021-4-2 10:28
+
+
+
+
+她的孩子你养的起嘛. jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11820#       发表于 2021-4-2 10:48
+
+
+
+
+小麻今天陪完男友可以抽时间播一会吗，想看旧皮最后一眼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11821#       发表于 2021-4-2 10:54
+
+
+
+
+建议以后直播摆两个皮，左边一个右边一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11822#       发表于 2021-4-2 11:09
+
+
+
+
+旧皮给男友用 "我现在是属于你的了♡"<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11823#       发表于 2021-4-2 12:08
+
+
+
+ 本帖最后由 路人庚 于 2021-4-2 12:09 编辑 
+
+男友会开着旧皮当动捕，然后让你咩姐在旁边配音吗（
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11824#       发表于 2021-4-2 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50809213&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-4-2 12:08</a>
+男友会开着旧皮当动捕，然后让你咩姐在旁边配音吗（</blockquote>
+这也太巨魔了，我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11825#       发表于 2021-4-2 12:30
+
+
+
+
+不如猜一下换皮之后草莓饺子重置新衣服要多久<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11826#       发表于 2021-4-2 12:31
+
+
+
+
+楼友平时都说自己是肉体厨，今天一看全是皮gachi<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11827#       发表于 2021-4-2 12:41
+
+
+
+
+可我真的好不安<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 11828#       发表于 2021-4-2 12:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11829#       发表于 2021-4-2 13:40
+
+
+
+
+小麻，不管你变成什么样子我都会永远喜欢你的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11830#       发表于 2021-4-2 13:45
+
+
+
+
+明天决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 11831#       发表于 2021-4-2 16:47
+
+
+
+
+原来都是皮噶迟？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11832#       发表于 2021-4-2 16:56
+
+
+
+
+只有我是立派肉体厨了
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11833#       发表于 2021-4-2 16:59
+
+
+
+
+你们既然不要肉体的话，那就归我了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11834#       发表于 2021-4-2 17:35
+
+
+
+
+最后一天都不打算播的吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">渐行渐远了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11835#       发表于 2021-4-2 18:29
+
+
+
+
+这个b再不直播就看不到旧皮了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11836#       发表于 2021-4-2 18:54
+
+
+
+
+好紧张<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 11837#       发表于 2021-4-2 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不安不安不安不安
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11838#       发表于 2021-4-2 19:03
+
+
+
+
+想看到有人幻灭，脱坑回踩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11839#       发表于 2021-4-2 19:10
+
+
+
+
+明天直播间还没开，今天又打算摸了，甚至有了野男人，我幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11840#       发表于 2021-4-2 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">能让肉体厨幻灭，那说明肉体厨已经赢了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11841#       发表于 2021-4-2 19:19
+
+
+
+
+坦克民幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希洛克吃西瓜冰  
+##### 11842#       发表于 2021-4-2 19:23
+
+
+
+
+身体正在被占用<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11843#       发表于 2021-4-2 19:42
+
+
+
+
+一会儿再打俩sl，起码。。。起码能时不时的用一用原皮，从初配信至今的传奇之身不能就这么没了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+     

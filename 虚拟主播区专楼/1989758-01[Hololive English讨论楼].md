@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-28 08:46** 
+> ## **本文件最后更新于2021-04-02 11:55** 
 
 
 
@@ -2020,7 +2020,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_ObHKj" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_qlZc3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -6729,4 +6729,907 @@ J-chad
 
 
 
-                                        
+
+
+-----
+
+####  wiig  
+##### 273#       发表于 2021-3-28 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758387&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-28 16:42</a>
+
+浓浓的美漫风格，不说人话XD</blockquote>
+就要这个克味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 274#       发表于 2021-3-28 17:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/172116mykccqnerhqgn8pp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 17:21 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/172128zjt1p7na1079wwyi.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (575.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 17:21 上传
+
+
+
+
+
+
+华森工业安全培训。请无视铁轨中出现的死神
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 275#         楼主| 发表于 2021-3-28 23:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/230251s1ccm3c3zei2cwhh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Exjt-VIUYAY6ILo.jpg</strong> (95.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 23:02 上传
+
+
+
+
+
+
+亲妈画的，旁边那三眼怪是啥。。
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 276#       发表于 2021-3-29 01:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761617&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-28 23:03</a>
+亲妈画的，旁边那三眼怪是啥。。</blockquote>
+头上就有，个人LOGO吧<img src="https://p.sda1.dev/1/005063b1e655c169e8d814f29954aecf/20210329_015054.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 277#       发表于 2021-3-29 07:32
+
+
+
+
+愚人节特殊联动<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 278#       发表于 2021-3-29 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50762904&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-29 01:51</a>
+头上就有，个人LOGO吧
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+这个图正在做live2d，快了
+
+三眼怪叫にゃんなの
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 279#       发表于 2021-3-29 19:38
+
+
+
+<img src="https://p.sda1.dev/1/062b8d35885992a4572e4c037d0a4daa/IMG_CMP_226457051.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  PureIllusion  
+##### 280#       发表于 2021-3-29 20:38
+
+
+
+
+空色デイズ Sorairo Days / 中川翔子 (Covered by 夏色まつり＆Gawr Gura)
+[https://www.youtube.com/watch?v=2ys9IS5r9yA](https://www.youtube.com/watch?v=2ys9IS5r9yA)
+
+
+It's HAPPENING!!!
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 281#       发表于 2021-3-29 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761617&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-28 23:03</a>
+
+亲妈画的，旁边那三眼怪是啥。。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/29/224309pz3lyt23abut5am8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Exm1ANoVIAIQAYH.jpg</strong> (147.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 22:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 282#       发表于 2021-3-30 08:03
+
+
+
+<img src="https://p.sda1.dev/1/4653a7d2295b911d47b54c7e82070797/IMG_CMP_105585573.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 283#       发表于 2021-3-30 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50774689&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-30 08:03</a>
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+这好像是个梗？
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 284#       发表于 2021-3-30 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50779855&amp;ptid=1989758" target="_blank">TiHaru 发表于 2021-3-30 16:45</a>
+这好像是个梗？</blockquote>
+可能是来源？<img src="https://p.sda1.dev/1/da3210b4207bafb0fa9112da3e0ce255/IMG_CMP_135215761.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 285#       发表于 2021-3-30 18:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/181755un9ne03btf9390bb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210330181741.png</strong> (108.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 18:17 上传
+
+
+
+
+
+[https://twitter.com/bangdreamgbp_EN/status/1376822005714984963](https://twitter.com/bangdreamgbp_EN/status/1376822005714984963)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 286#       发表于 2021-3-30 19:33
+
+
+
+
+Watson's Funeral
+#amesame #gawrt #ameliaRT https://t.co/EwziCW8WaV
+<img src="https://p.sda1.dev/1/11b6d2e66f42d7b820921bffbdd18802/20210330_193324.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 287#       发表于 2021-3-30 20:56
+
+
+
+
+&gt;no DeathStar collab of Libera me from Hell where Suisei sings and Mori raps
+
+Imagine what we could have if Mori actually gave a shit about Hololive...
+<img src="https://p.sda1.dev/1/897150d1f41530766d79d03f9afacf48/IMG_CMP_156145134.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 288#       发表于 2021-3-31 01:38
+
+
+
+
+这图我记得出来好久了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 289#       发表于 2021-3-31 16:15
+
+
+
+ 本帖最后由 wiig 于 2021-3-31 16:34 编辑 
+
+T3会限
+以下内容需要积分高于 6000 才可浏览
+
+
+四月中下旬去切阑尾 预计停一周直播 很害怕全身麻醉
+
+可能会打apex
+
+miku联名鼠标很亮，亮到睡不着觉
+
+可能会有一个念粉丝信的直播
+
+会限公开前会剪掉觉得不适合公开的内容
+
+MV的插画截图会在公开后变成频道banner
+
+Calli：你们觉得Kiara会代表哪张塔罗牌 还挺明显的 chat：the lovers
+
+生日直播上会公开定番周边三板斧
+
+正在和J-Chad研究怎么让CD在海外能买到
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 290#       发表于 2021-3-31 16:42
+
+
+
+ 本帖最后由 wiig 于 2021-3-31 17:00 编辑 
+
+Ame：I'll play with Gura.都在唠鱼 是在说鱼还是联动 
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 291#       发表于 2021-3-31 16:51
+
+
+
+
+fast as fuck boi
+<img src="https://p.sda1.dev/1/1c53b7563136ef1d170f9bc3f37998c8/IMG_CMP_8762571.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 292#       发表于 2021-3-31 21:24
+
+
+
+<img src="https://p.sda1.dev/1/6868018cf47868edc1961e687d9987c2/IMG_CMP_89295355.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 293#       发表于 2021-4-1 22:24
+
+
+
+
+玩jackbox
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 294#       发表于 2021-4-1 22:40
+
+
+
+
+Takamori doesn't exist (conspiracy theory )<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> ——By Mori Calliope 
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 295#       发表于 2021-4-1 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805105&amp;ptid=1989758" target="_blank">面具13 发表于 2021-4-1 22:40</a>
+
+Takamori doesn't exist (conspiracy theory ) ——By Mori Calliope</blockquote>
+Kiara写的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 296#       发表于 2021-4-1 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805176&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-1 22:48</a>
+
+Kiara写的</blockquote>
+我记得是mori写的，kiara投的票（不排除记混）
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 297#       发表于 2021-4-1 22:51
+
+
+
+ 本帖最后由 wiig 于 2021-4-1 22:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805187&amp;ptid=1989758" target="_blank">面具13 发表于 2021-4-1 22:49</a>
+
+我记得是mori写的，kiara投的票（不排除记混）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202104/01/225059joifw2ibwewpvt2b.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 22:50 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">Calli没写完，就写了个TH
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 298#       发表于 2021-4-1 23:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/225927v48hklaqhfyhkv8y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (275.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 22:59 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">提前泄露
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 299#       发表于 2021-4-1 23:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/231116gu5ptkro2ptn2pf6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210401231045.jpg</strong> (248.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 23:11 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 300#       发表于 2021-4-1 23:16
+
+
+
+
+Walfie做的
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 301#       发表于 2021-4-1 23:18
+
+
+
+<img src="https://p.sda1.dev/1/7088207e6745d9d37a9f3d16a435c222/IMG_CMP_138518129.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 302#       发表于 2021-4-1 23:20
+
+
+
+[https://jackbox.tv/](https://jackbox.tv/)
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 303#       发表于 2021-4-1 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/01/232118pcz8qzzwol808q00.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (340.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 23:21 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 304#       发表于 2021-4-1 23:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/234535wnd7y3ejnbd66nny.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (116.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 23:45 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 305#       发表于 2021-4-1 23:58
+
+
+
+
+Calii : you can say "Baby l love you" when no one around
+
+Kiara: I love you!!!!
+
+Calli:NO!!!
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 306#       发表于 2021-4-2 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太欢乐 笑果很好的联动
+
+
+
+
+
+
+
+-----
+
+####  smy20011  
+##### 307#         楼主| 发表于 2021-4-2 00:09
+
+
+
+
+全身可动l2d，yes
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 308#       发表于 2021-4-2 00:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/02/004521zzxqbkqt5gz2g6ff.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (529.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-2 00:45 上传
+
+
+
+
+
+Calli最后两道题没有写完，随便写了个E和TH
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 309#       发表于 2021-4-2 01:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/02/010900qn05dszisi5fmg5z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (49.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-2 01:09 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 310#       发表于 2021-4-2 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806178&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-2 01:09</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202104/02/020357ybgp7ascnat7kkuu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (59.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-2 02:03 上传
+
+
+
+
+
+结果两个人都被钓了
+
+
+
+
+
+
+
+-----
+
+####  wiig  
+##### 311#       发表于 2021-4-2 10:50
+
+
+
+<img src="https://p.sda1.dev/1/57e24c82957a6d76860cd2da0a930422/IMG_CMP_155190635.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+                                       

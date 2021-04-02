@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-27 03:17** 
+> ## **本文件最后更新于2021-04-02 12:18** 
 
 
 
@@ -915,10 +915,8 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 
 
 
- 本帖最后由 依然荏苒 于 2021-3-27 09:01 编辑 
+ 本帖最后由 依然荏苒 于 2021-3-29 03:18 编辑 
 
-主啊我向你忏悔，我喜欢一个v堕入魔怔，心生嫉妒厌恶她的其他粉丝，她每每提到他人便如同刀子在我心上划过，我便取关了她，焚烧了她的周边。她来询问我为何不再关心她，我也不再理会她。
-但是我明明知道自己还是喜欢她
 嫉妒的原罪让我无法原谅自己，渴求您的救赎。
 
 
@@ -1231,4 +1229,512 @@ O castitatis lilium.
 
 
 
-                                               
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 63#       发表于 2021-3-27 22:14
+
+
+
+
+今天精神状态稳定，然然晚安。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 64#       发表于 2021-3-27 22:18
+
+
+
+
+圣嘉然在上，总有一天，我会撕裂这片虚假的星空，嘉门！
+
+
+
+
+
+
+
+-----
+
+####  孤睾嘤雄  
+##### 65#       发表于 2021-3-27 23:03
+
+
+
+
+嘉然小姐俯下腰肢，如夜晚拥抱了整座城市。她的怀抱是我心灵的海洋，灵魂的归处。 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 66#       发表于 2021-3-28 08:07
+
+
+
+
+晨，嘉门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 67#       发表于 2021-3-28 09:16
+
+
+
+
+天天都有好心情 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  药石难救人心  
+##### 68#       发表于 2021-3-28 10:01
+
+
+
+
+嘉门！
+
+
+
+
+
+
+
+-----
+
+####  非洲亚马逊鼓手  
+##### 69#       发表于 2021-3-28 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">然然我的然然 带我走吧
+
+
+
+
+
+
+
+-----
+
+####  孤睾嘤雄  
+##### 70#       发表于 2021-3-28 22:39
+
+
+
+
+顶着想当嘉然小姐的狗的id打游戏输了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">我有罪 请原谅我嘉然小姐 嘉门
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 71#       发表于 2021-3-28 22:52
+
+
+
+
+然然晚安
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 72#       发表于 2021-3-29 08:17
+
+
+
+
+没有圣嘉然庇护的第二天，爱然信然等然，嘉门🙏🏻
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  asd225588  
+##### 73#       发表于 2021-3-29 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 74#       发表于 2021-3-29 10:14
+
+
+
+
+双重黑暗的周一<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不想闭嘴  
+##### 75#       发表于 2021-3-29 10:28
+
+
+
+
+还挺得住<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 76#         楼主| 发表于 2021-3-29 10:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">黑暗的两天
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 77#       发表于 2021-3-29 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  小小雪空  
+##### 78#       发表于 2021-3-29 16:19
+
+
+
+
+愿每天都能睡个好梦，嘉门
+
+
+
+
+
+
+
+-----
+
+####  jiecaoman  
+##### 79#       发表于 2021-3-29 16:35
+
+
+
+
+我已从地狱中解脱，愿圣嘉然宽恕我的罪，嘉门
+
+
+
+
+
+
+
+-----
+
+####  海原穹乃  
+##### 80#       发表于 2021-3-29 21:42
+
+
+
+
+嘉门，嘉然请原谅我一时的亵渎<img src="https://static.saraba1st.com/image/smiley/goose2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ypossible  
+##### 81#       发表于 2021-3-29 21:43
+
+
+
+
+后天复试了，愿然然保佑我，嘉门！
+
+
+
+
+
+
+
+-----
+
+####  孤睾嘤雄  
+##### 82#       发表于 2021-3-29 23:44
+
+
+
+
+没有嘉然小姐看我已经要死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海原穹乃  
+##### 83#       发表于 2021-3-30 19:34
+
+
+
+
+嘉然，你会在五分钟内降下qa吗
+
+
+
+
+
+
+
+-----
+
+####  海原穹乃  
+##### 84#       发表于 2021-3-30 19:55
+
+
+
+
+圣嘉然保佑周四p事没有，纯属工具人整尬活
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 85#       发表于 2021-3-30 19:55
+
+
+
+
+然然我好害怕啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  辉卡利  
+##### 86#       发表于 2021-3-30 20:56
+
+
+
+
+然然你带我走吧然然<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ypossible  
+##### 87#       发表于 2021-3-31 08:39
+
+
+
+<blockquote>ypossible 发表于 2021-3-29 21:43
+后天复试了，愿然然保佑我，嘉门！</blockquote>
+马上复试了，然然保佑！
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 88#       发表于 2021-3-31 09:38
+
+
+
+
+圣嘉然在上，我要更加努力
+
+
+
+
+
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 89#       发表于 2021-4-1 07:51
+
+
+
+
+然然早上好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  🐳❕  
+##### 90#       发表于 2021-4-1 08:13
+
+
+
+
+然然早上好！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Blaze626  
+##### 91#       发表于 2021-4-2 09:17
+
+
+
+
+
+然然早上好！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  抄袭炉石的垃圾  
+##### 92#       发表于 2021-4-2 12:42
+
+
+
+
+😇😇😇😇😇😇😇灭门
+
+—— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 93#       发表于 2021-4-2 13:36
+
+
+
+
+至高无上的圣嘉然保佑我考公顺利
+
+
+
+
+
+                                              

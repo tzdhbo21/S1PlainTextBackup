@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-31 17:13** 
+> ## **本文件最后更新于2021-04-02 11:44** 
 
 
 
@@ -7111,4 +7111,544 @@ kmm你的品位真的没救了……
 
 
 
-                                      
+
+
+-----
+
+####  rzrbtk  
+##### 34837#       发表于 2021-4-1 08:28
+
+
+
+
+さようなら、すべての御伽原江良
+
+
+
+
+
+
+
+-----
+
+####  Rebellionx5  
+##### 34838#       发表于 2021-4-1 09:54
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/095223e79uhmxevh77hyhb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210401095200.jpg</strong> (148.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 09:52 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/095245uj55yxq4td4kjqoo.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210401095235.png</strong> (48.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 09:52 上传
+
+
+
+
+
+怪起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34839#       发表于 2021-4-1 14:31
+
+
+
+
+配信者のリスナーの見てこれいいじゃん〜と思ったので、英語スペイン語あたりで自己紹介動画出したい  めも
+
+找熟人学西语会有优惠吗🤔
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34840#       发表于 2021-4-1 18:07
+
+
+
+ 本帖最后由 FCCHua 于 2021-4-1 18:24 编辑 
+
+时雨妈这个活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+刚直播就有sc，最速收益化通过
+草，萝莉时雨来了，三线作业
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 34841#       发表于 2021-4-1 18:09
+
+
+
+
+虚拟套娃好像已经不少人玩过了吧，不过她之前那套变声我一开始是真的有点认不出
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34842#       发表于 2021-4-1 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50801721&amp;ptid=1969498" target="_blank">tiro_finale 发表于 2021-4-1 18:09</a>
+虚拟套娃好像已经不少人玩过了吧，不过她之前那套变声我一开始是真的有点认不出 ...</blockquote>
+是有不少人弄过了，但是她来还挺新鲜的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34843#       发表于 2021-4-1 18:36
+
+
+
+
+真的把犬山模型拿过来用了，等晚上联动
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34844#       发表于 2021-4-1 19:02
+
+
+
+
+「花達と椿とコントローラー。vol.1 -緊急生放送-」
+[https://www.youtube.com/watch?v=fGf7RxYC3RE](https://www.youtube.com/watch?v=fGf7RxYC3RE)
+
+
+神椿正社员联谊开始了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34845#       发表于 2021-4-1 19:06
+
+
+
+
+《真不熟》😅
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34846#       发表于 2021-4-1 19:22
+
+
+
+
+德比子居然动了...
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34847#       发表于 2021-4-1 19:34
+
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-1 20:06 编辑 
+
+ゴリラ？！
+
+<img src="https://img.saraba1st.com/forum/202104/01/193403iy9yyvxkweyxkthz.png" referrerpolicy="no-referrer">
+
+
+<strong>【APEX LEGENDS】エイプリルフールなので「嘘しかつけないAPEX」を漢度3000倍でやりま.png</strong> (478.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 19:34 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=d9zkIvUrvNs](https://www.youtube.com/watch?v=d9zkIvUrvNs)
+
+
+【㊗文野環3D決定❗】
+
+
+みんなが待ちに待った３Dお披露目配信！！！
+
+あんなことやこんなことが起こるかも
+
+
+次回、文野環、死す、デュエルスタンバイ！
+
+
+▼時間
+
+ 4/9(金) 21:00
+
+▼待機場所
+[https://www.youtube.com/watch?v=a5fvnDt_oEQ](https://www.youtube.com/watch?v=a5fvnDt_oEQ)
+
+<img src="https://img.saraba1st.com/forum/202104/01/200504bybv62muhyl3cd8h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>#野良猫3D　#にじさんじ3Dお披露目.jpg</strong> (492.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 20:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34848#       发表于 2021-4-1 20:04
+
+
+
+[https://www.youtube.com/watch?v= ... 7%E3%81%8F%E3%81%A8](https://www.youtube.com/watch?v=fBh12rFjms8&amp;ab_channel=%E6%9C%9D%E3%83%8E%E5%A7%89%E5%A6%B9%E3%81%B7%E3%82%8D%E3%81%98%E3%81%87%E3%81%8F%E3%81%A8)
+
+
+和上次的阵容一样
+
+
+
+
+
+
+
+-----
+
+####  yamato gun  
+##### 34849#       发表于 2021-4-1 20:11
+
+
+
+
+理芽角色崩坏
+
+p桑也太好玩了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34850#       发表于 2021-4-1 20:17
+
+
+
+ 本帖最后由 OldGlory 于 2021-4-1 20:31 编辑 
+
+今年大监督总不会再整皮套烂活了吧
+
+阿这，还是整了，变成定番了是吧。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34851#       发表于 2021-4-1 20:30
+
+
+
+
+你指的是♥大监督还是🐇大监督？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34852#       发表于 2021-4-1 20:36
+
+
+
+
+以阿贝桑为靠山，横扫一片牛鬼蛇神
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34853#       发表于 2021-4-1 20:36
+
+
+
+ 本帖最后由 FCCHua 于 2021-4-1 20:47 编辑 
+
+兔头宇宙确信
+中央银行最终回开始
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34854#       发表于 2021-4-1 20:37
+
+
+
+
+两个大监督都在整烂活就是了。
+
+
+
+
+
+
+
+-----
+
+####  集合酱  
+##### 34855#       发表于 2021-4-1 21:01
+
+
+
+
+猫猫（野猫）要3D了 跳了相羽、小夜、噗和阿喵喵
+
+
+
+
+
+
+
+-----
+
+####  purdre  
+##### 34856#       发表于 2021-4-1 21:24
+
+
+
+
+野良猫3D!
+
+终于能看到她在现实里面怎么动的了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34857#       发表于 2021-4-1 21:25
+
+
+
+
+玩具组我的玩具组<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">只能在音声宣传页上看见了吗
+还会一起唱歌吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34858#       发表于 2021-4-1 21:44
+
+
+
+[https://space.bilibili.com/249243/dynamic](https://space.bilibili.com/249243/dynamic)
+
+
+哎小豆泽这个真的惨，摊上这种中介，1万多粉的号就重来了，不知道这个号绑的是谁的身份证
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34859#       发表于 2021-4-1 23:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/230003u6j6ngya4nna1kmg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0401_225722.jpg</strong> (73.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-1 23:00 上传
+
+
+
+
+
+
+カモミ这愚人节用的ロリミ真的下功夫了啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34860#       发表于 2021-4-1 23:21
+
+
+
+
+24時からは罵倒ASMR配信～！
+先日頂いた罵倒セリフの読み上げなどを行います。マジで閲覧注意なので「ゴミ」って言われて悦ぶ人だけ来てください。
+
+※閲覧注意※【ASMR/Binaural】M向けのやつ。【にじさんじ郡道】 youtu.be/c7vJTPUsPFI @YouTubeより
+
+天啊！刚睡着郡道就抓着我一阵狂骂！
+说实话骂太狠了听着有点生气，关了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34861#       发表于 2021-4-2 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50804525&amp;ptid=1969498" target="_blank">free 发表于 2021-4-1 21:44</a>
+https://space.bilibili.com/249243/dynamic
+
+
+哎小豆泽这个真的惨，摊上这种中介，1万多粉的号就重来了，不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有收益被字幕组一拳打成争取拿收益，字幕组有能
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34862#       发表于 2021-4-2 12:02
+
+
+
+
+没法从兔鞠温柔乡里爬出来了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
