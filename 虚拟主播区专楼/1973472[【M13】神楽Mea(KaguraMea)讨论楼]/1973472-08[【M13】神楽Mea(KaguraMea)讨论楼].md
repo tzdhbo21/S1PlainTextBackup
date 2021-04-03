@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-02 14:39** 
+> ## **本文件最后更新于2021-04-03 07:39** 
 
 
 
@@ -23403,18 +23403,18 @@ tc
 
 
 
+ 本帖最后由 路人辰 于 2021-4-2 23:00 编辑 
 
 20210402东京22点
 
+<img src="https://img.saraba1st.com/forum/202104/02/230002dccs1zjcjs1b1wts.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
-<img src="https://img.saraba1st.com/forum/202104/02/221440icyclyb3l311x3yj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
-
-<strong>3D1A91FD-4043-4167-ACAD-EF16F8B1DA87.jpeg</strong> (165.11 KB, 下载次数: 0)
+<strong>9F9A43B3-1A71-4730-8657-650DEA710ED7.jpeg</strong> (254.2 KB, 下载次数: 0)
 
 下载附件
 
-2021-4-2 22:14 上传
+2021-4-2 23:00 上传
 
 
 
@@ -23456,4 +23456,551 @@ bsyl，原来跑去录万档语音了
 
 
 
-    
+
+
+-----
+
+####  makourisu-2  
+##### 11853#       发表于 2021-4-2 23:24
+
+
+
+
+不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不会新皮套真是铁憨憨圆脸吧
+麻酱，我的麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gongge666  
+##### 11854#       发表于 2021-4-2 23:47
+
+
+
+
+这两年给我的感觉就是某件事只要你麻姐参与得越多，粉丝就越不满意。比如周边、3D、歌曲，她现在最好的周边、3D、歌曲基本都是她完全没参与的成果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还记得她当时是怎么吹自己的3D的么，结果整个3D就是一套模型，连大衣都无法拆卸（好歹出个大衣隐藏的机制吧）远没粉丝做得好看<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+明天拉跨是必然的，重点是能拉跨到什么程度，别到时候被原皮完爆还一口一句“卡哇伊”，到时候又要被粉丝留言爆破了
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 11855#       发表于 2021-4-2 23:59
+
+
+
+
+3d这事，属于阴差阳错错失良机了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+先是BML给突击搞了草莓果酱皮肤提高了大家期待度，又赶上疫情一拖再拖。
+话说有没有人统计过vtuber从出道到3d化间隔时间，有多少比你麻时间还长的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11856#       发表于 2021-4-3 00:06
+
+
+
+
+终于到今天了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11857#       发表于 2021-4-3 00:08
+
+
+
+
+看来大概只有我觉得她自己做的军服3D比草莓果酱3D质量更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11858#       发表于 2021-4-3 00:19
+
+
+
+ 本帖最后由 A2014720 于 2021-4-3 00:21 编辑 
+
+楼上+1，我确实挺喜欢军服ddd那个大眼睛的样子的
+
+b那个脸模感觉没啥特点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+可能我审美确实麻化了吧，不是很懂你们不喜欢军服ddd哪点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 11859#       发表于 2021-4-3 00:21
+
+
+
+
+那个草莓果酱的3d质量没她自己的3d高吧，因为bml是壁画才会显得更好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11860#       发表于 2021-4-3 00:24
+
+
+
+ 本帖最后由 甘栗No.007 于 2021-4-3 00:29 编辑 
+
+这次live里的3d没有红脸，所以比以前看起来更可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11861#       发表于 2021-4-3 00:24
+
+
+
+
+b那个难道不就是套了个高质量的MMD模型吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+原创曲我个人觉得最好的是草莓果酱
+
+然后用自己人脉整的东西 和 别人帮你搞好的东西 做出来的价值真有人算不清吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11862#       发表于 2021-4-3 00:26
+
+
+
+
+算了大胆预言，江🐵第二！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波完了就回去跟野男人结婚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 11863#       发表于 2021-4-3 00:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都感谢套套代了还说啥呢，你咩姐就是要一边摄取野男人，一边也把钱给挣了
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11864#       发表于 2021-4-3 00:31
+
+
+
+
+还缺野男人吗，想被小麻摄取<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11865#       发表于 2021-4-3 00:52
+
+
+
+
+刷到色图了 好色<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11866#       发表于 2021-4-3 00:56
+
+
+
+
+不是讨论过这个问题了么,11区那个社会,个人花3倍的投入和精力,对面做的时候大概能有对企业三分之一的上心程度吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+苔姨这么爱金金金,出道开始还是背靠企业,人家又不傻的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11867#       发表于 2021-4-3 01:01
+
+
+
+ 本帖最后由 A2014720 于 2021-4-3 01:03 编辑 
+
+在，看看今年来她在批站的收益？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+兔鞠转推了，兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11868#       发表于 2021-4-3 01:06
+
+
+
+
+【神楽めあ 发布】
+内容：🍥21：00からの配信🍥
+
+なんだかここ数日そわそわして心臓がどきどきしてた！！
+是非、見に来てください！
+軽いお知らせとかも配信中にする予定です～～！！
+
+【お披露目配信​】私、生まれ変わります。【#神楽めあ新モデル​】
+
+≪配信場所≫
+ https://t.co/DxHgtwodH6 https://t.co/0YFadLgiN9
+时间：2021-04-03 00:59:47 UTC+08:00
+
+
+终于要来了
+
+
+
+
+
+
+
+-----
+
+####  肥到终点  
+##### 11869#       发表于 2021-4-3 01:07
+
+
+
+
+陪睿帝还行
+
+看这一年下来睿站V区方针不就借鸡下蛋
+
+还往上贴不等着被扫地出门<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11870#       发表于 2021-4-3 01:15
+
+
+
+
+国内这套楼友看得少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种定制化的东西无论哪国都一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+人情到了自然会帮你搞好，没有关系确实给3倍钱都不好使
+
+想通过背靠企业搞的最终都会被企业套牢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11871#       发表于 2021-4-3 01:32
+
+
+
+
+你麻还是赶紧老老实实地舔睿帝，这样睿帝就会原谅你麻所犯的错误<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 11872#       发表于 2021-4-3 01:45
+
+
+
+
+麻麻麻麻麻麻麻麻麻麻麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11873#       发表于 2021-4-3 01:48
+
+
+
+
+新的涩图好棒，感觉大脑在颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11874#       发表于 2021-4-3 01:58
+
+
+
+
+麻麻被注满了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11875#       发表于 2021-4-3 07:16
+
+
+
+
+再见宣言起码还是有过一丢丢时间给了推荐位的，阿睿心里还是有小麻的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 11876#       发表于 2021-4-3 07:46
+
+
+
+
+这次说是脸有变动 上次说脸变动是3d 无鼻红脸<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11877#       发表于 2021-4-3 07:50
+
+
+
+
+楼上上就是矩阵？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+几小时前的刷屏<img src="https://p.sda1.dev/1/c39544442aabe6d20f49a171b0140aaf/IMG_CMP_58381367.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|欢乐多|
+| Kayz996| + 1||
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11878#       发表于 2021-4-3 14:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/141203dqcubjss6s27qzzi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5106619153d49a7b.jpg</strong> (71.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-3 14:12 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11879#       发表于 2021-4-3 14:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 11880#       发表于 2021-4-3 14:25
+
+
+
+
+最后一张图好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11881#       发表于 2021-4-3 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好久没翻P站了，居然还有张像素动图
+
+
+
+
+
+   
