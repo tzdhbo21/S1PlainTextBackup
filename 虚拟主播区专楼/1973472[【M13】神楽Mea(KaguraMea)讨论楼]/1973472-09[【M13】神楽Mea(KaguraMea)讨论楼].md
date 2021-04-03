@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-03 13:45** 
+> ## **本文件最后更新于2021-04-03 14:38** 
 
 
 
@@ -6476,10 +6476,11 @@ y1s1那个短发帽子确实不错
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Cushaw| + 1|好评加鹅|
 | Mr.shelter| + 1|帮大忙了|
 
 
@@ -6592,4 +6593,545 @@ y1s1那个短发帽子确实不错
 
 
 
-                                     
+
+
+-----
+
+####  uuuuu7  
+##### 12375#       发表于 2021-4-3 21:47
+
+
+
+
+要从她的角度来看问题啊，她还蛮喜欢这皮的
+
+换成是你，你愿意顶着自己定做的符合自己心意的皮上播，还是顶着和你闹翻过现在老死不相往来的前老板画的皮上播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 12376#       发表于 2021-4-3 21:47
+
+
+
+
+无所谓，你咩正统在tc。
+至少不是什么奇怪的审美<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12377#       发表于 2021-4-3 21:48
+
+
+
+
+只是有些人觉得新皮太普通了没啥特点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没错就是有人觉得拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算了算了打游戏去了，反正我觉得可以
+
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 12378#       发表于 2021-4-3 21:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没事你咩姐实质tc主播 一半时间都看不到这皮 
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12379#       发表于 2021-4-3 21:50
+
+
+
+
+个人总结
+
+1.mea会拿旧皮整活，以至于大家逐渐适应了旧皮的缺点。
+
+2.新皮不完美需要改进，但给个路人看毫无疑问新皮更细致符合二次元潮流。
+
+3.有优点，也有缺点，但总体未来可期
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 12380#       发表于 2021-4-3 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 别纠结这些了,有些人说说而已
+
+
+而且TC没皮也不是一样播
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 12381#       发表于 2021-4-3 21:52
+
+
+
+
+赶紧肉体出道<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12382#       发表于 2021-4-3 21:53
+
+
+
+
+推特上找的，这个截的感觉挺好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">（虽然是个小钢珠店的官方推特截的图
+
+<img src="https://img.saraba1st.com/forum/202104/03/215319wk3sk9t9mowxj6g3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (75.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 12383#       发表于 2021-4-3 21:56
+
+
+
+
+大家，都在魔怔啊（
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12384#       发表于 2021-4-3 21:57
+
+
+
+
+还行 另外你咩今晚数据不错 事业民稍稍安心了点
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  希洛克吃西瓜冰  
+##### 12385#       发表于 2021-4-3 21:58
+
+
+
+
+比起#皮，像木口皮更容易令人破防吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 12386#       发表于 2021-4-3 22:00
+
+
+
+
+不要#gachi不要#gachi
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 12387#       发表于 2021-4-3 22:03
+
+
+
+
+数据好看就行 
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12388#       发表于 2021-4-3 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又看了看，除了纸片脸和嘴巴还有发型上的差别，新皮这仿佛理发师剪坏了索性一刀齐的刘海违和感满满
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12389#       发表于 2021-4-3 22:04
+
+
+
+
+我觉得挺好的，因为我本来就是萌人设派的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12390#       发表于 2021-4-3 22:04
+
+
+
+
+突然悟了，小麻肯定是个黑皮想变白，3d和新皮脸都白的像女鬼
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 12391#       发表于 2021-4-3 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比是比帕里皮强了
+
+
+但是人会恋旧的
+
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12392#       发表于 2021-4-3 22:07
+
+
+
+<blockquote>路人庚 发表于 2021-4-3 21:53
+推特上找的，这个截的感觉挺好（虽然是个小钢珠店的官方推特截的图</blockquote>
+小钢珠店还行，这是以后要接工商吗
+
+
+
+
+
+
+
+-----
+
+####  D麦林  
+##### 12393#       发表于 2021-4-3 22:07
+
+
+
+
+我觉得哪怕刨除傻逼贝贝人发情以外也是多半好评
+也就部分地方在发病
+要看清mmr占大多数的事实 而事实就是肯定比#皮更符合路人审美
+我的评价是事业民即使不能站起来起码也能坐起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 12394#       发表于 2021-4-3 22:07
+
+
+
+
+再过一年，这皮不就旧了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12395#       发表于 2021-4-3 22:08
+
+
+
+
+新皮确实萌了点 没什么不喜欢的 旧皮能哪来仔细看的就只有粉红椭圆了吧
+
+
+syl
+
+掉头学姐是新的弱智方式？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12396#       发表于 2021-4-3 22:10
+
+
+
+
+确实，更喜欢黑皮mea，至少淫 乱一些<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 12397#       发表于 2021-4-3 22:11
+
+
+
+
+该去蹲小钢珠店了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12398#       发表于 2021-4-3 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824800&amp;ptid=1973472" target="_blank">zc1996zc 发表于 2021-4-3 22:07</a>
+
+小钢珠店还行，这是以后要接工商吗</blockquote>
+那个小钢珠店的推特关注你咩姐差不多2年了，曾经也有过推特互动的
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12399#       发表于 2021-4-3 22:13
+
+
+
+
+变身是吧😅
+黑皮眼影纹身穿环
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12400#       发表于 2021-4-3 22:16
+
+
+
+<img src="https://img.nga.178.com/attachments/mon_202104/03/-zue37Q2umf-gw8nKgToS8p-b3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12401#       发表于 2021-4-3 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">山姥妆走起，这波是原始回归
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 12402#       发表于 2021-4-3 22:16
+
+
+
+
+20210403东京23点（1、2）
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/221633qcl4zllzt4vc4iuc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>636401C8-6611-4202-A0E6-47CB3F024E1E.jpeg</strong> (169.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 22:16 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/221634lm41rn2422ohp6m1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2A163003-C182-46C2-859E-5AB2F9C51DAE.jpeg</strong> (142.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 22:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12403#       发表于 2021-4-3 22:33
+
+
+
+
+我完蛋了，越来越喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                    
