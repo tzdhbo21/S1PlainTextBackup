@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-29 03:45** 
+> ## **本文件最后更新于2021-04-03 08:43** 
 
 
 
@@ -16607,7 +16607,7 @@ ps 请问是移动的手机号吗
 
 
 InkedScreenshot_20210207-084022_LI.jpg
-(212.51 KB, 下载次数: 0)
+(212.51 KB, 下载次数: 2)
 
 
 
@@ -17705,7 +17705,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 <img src="https://img.saraba1st.com/forum/202103/02/154926cupup3cj5nuvveie.png" referrerpolicy="no-referrer">
 
 
-<strong>0210302154843.png</strong> (12.25 KB, 下载次数: 0)
+<strong>0210302154843.png</strong> (12.25 KB, 下载次数: 3)
 
 下载附件
 
@@ -17853,7 +17853,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 <img src="https://img.saraba1st.com/forum/202103/02/192528yl8scyrdbz0wc1c5.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ图片20210302192517.png</strong> (32.66 KB, 下载次数: 0)
+<strong>QQ图片20210302192517.png</strong> (32.66 KB, 下载次数: 1)
 
 下载附件
 
@@ -18035,7 +18035,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 <img src="https://img.saraba1st.com/forum/202103/03/110206kfm4y1ytz4ieuemf.jpg" referrerpolicy="no-referrer">
 
 
-<strong>114715635738920655.jpg</strong> (314.6 KB, 下载次数: 0)
+<strong>114715635738920655.jpg</strong> (314.6 KB, 下载次数: 1)
 
 下载附件
 
@@ -18103,7 +18103,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 <img src="https://img.saraba1st.com/forum/202103/03/110729x5ydyotc5tqnnob1.png" referrerpolicy="no-referrer">
 
 
-<strong>Screenshot_20210303-110656.png</strong> (15.02 KB, 下载次数: 0)
+<strong>Screenshot_20210303-110656.png</strong> (15.02 KB, 下载次数: 1)
 
 下载附件
 
@@ -21183,7 +21183,7 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 <img src="https://img.saraba1st.com/forum/202103/29/072120r1f0h1ydc39fr6i0.jpg" referrerpolicy="no-referrer">
 
 
-<strong>29072021.jpg</strong> (44.89 KB, 下载次数: 0)
+<strong>29072021.jpg</strong> (44.89 KB, 下载次数: 12)
 
 下载附件
 
@@ -21261,4 +21261,599 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 
 
 
-              
+
+
+-----
+
+####  net13p  
+##### 2552#       发表于 2021-3-29 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50727219&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-3-25 09:25</a>
+
+我是最后清除相机用户数据才解决。。</blockquote>
+诶,和你们比起来,看来我的原生相机只有第1次打开出错,第2次开始就正常还算不错了?
+
+
+
+
+
+
+
+-----
+
+####  代号锤子  
+##### 2553#       发表于 2021-3-29 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50766555&amp;ptid=1915171" target="_blank">net13p 发表于 2021-3-29 12:30</a>
+诶,和你们比起来,看来我的原生相机只有第1次打开出错,第2次开始就正常还算不错了? ...</blockquote>
+少数幸运儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2554#       发表于 2021-3-29 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763581&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-29 08:14</a>
+
+说了，游戏增强器救不了的
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+没有加白名单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫空  
+##### 2555#       发表于 2021-3-29 21:25
+
+
+
+
+刚才试了一下，我的5ii的前置也是糊成一团，还不如米6的前置，这个问题能通过自己解决吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2556#       发表于 2021-3-30 00:26
+
+
+
+
+指纹他…指纹他…他…他…他竟然好使了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+问题来了，我还有必要去售后吗？
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2557#       发表于 2021-3-30 00:28
+
+
+
+<blockquote>引用第2554楼猫空于2021-03-29 21:25发表的  :
+
+刚才试了一下，我的5ii的前置也是糊成一团，还不如米6的前置，这个问题能通过自己解决吗</blockquote>
+真不是贴膜的问题 ？
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2558#       发表于 2021-3-30 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50771609&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-29 20:49</a>
+没有加白名单</blockquote>
+加了也没救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕在正常的Android 10版本，游戏增强器也只能帮助保一下GPU，CPU没用
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2559#       发表于 2021-4-1 20:30
+
+
+
+
+最后还是买了1 ii，本来以为能像xz系列一样完全无缝数据转移，结果只能转某些数据...好烦啊
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2560#       发表于 2021-4-1 23:09
+
+
+
+ 本帖最后由 yuikonnu 于 2021-4-1 23:17 编辑 
+
+桌面图标大小能改嘛,找了一圈没找到另外求问冲电一定要用官方的线不,官网指南说一定要用设备随附的线,xz系列的充电线用了会有影响不?
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2561#       发表于 2021-4-1 23:48
+
+
+
+ 本帖最后由 我很费纸 于 2021-4-1 23:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805378&amp;ptid=1915171" target="_blank">yuikonnu 发表于 2021-4-1 23:09</a>
+桌面图标大小能改嘛,找了一圈没找到另外求问冲电一定要用官方的线不,官网指南说一定要用设备随附的线,xz系 ...</blockquote>
+现在的自带启动器已经不能修改桌面图标大小了，功能对比旧的xperia home就是残废
+
+官方说话就不靠谱，这么说只是为了万一出事方便甩锅。爱用哪根线就用哪根线，我买了那么多代用官方线的时候屈指可数，用传统A to C线一样可以充电。想要跑满18W pd快充需要用C to C的线而已。
+
+翔移顶天就是和iPhone一样充电跑到20W的pd，根本不挑线材，不需要买各种魔改线或者5A大电流线<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2562#       发表于 2021-4-2 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805708&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-1 23:48</a>
+
+现在的自带启动器已经不能修改桌面图标大小了，功能对比旧的xperia home就是残废
+
+
+官方说话就不靠谱，这 ...</blockquote>
+用惯老系列了1ii各种不适应,之前看图还不明显,实际用起来感觉1ii这个机身实在太长了..图标小,字也小,导致感官极度不适应..
+
+另外伴随了大法机子n个岁月的索尼相册居然不让用了..我还是挺喜欢那个相册风格的
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2563#       发表于 2021-4-2 07:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805916&amp;ptid=1915171" target="_blank">yuikonnu 发表于 2021-4-2 00:17</a>
+用惯老系列了1ii各种不适应,之前看图还不明显,实际用起来感觉1ii这个机身实在太长了..图标小,字也小,导致 ...</blockquote>
+设置里可以改显示大小和字体大小，这样你稍微会习惯点吧
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2564#       发表于 2021-4-2 08:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806798&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-2 07:43</a>
+设置里可以改显示大小和字体大小，这样你稍微会习惯点吧
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Nex ...</blockquote>
+改了后舒服了点，别的地方也只能慢慢改了，新机子真折腾人啊
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2565#       发表于 2021-4-2 08:41
+
+
+
+
+图标大小在显示里改了，现在又有个问题就是播放视频手机背会震动，触感挺不好的，不是动态的那个,动态关了还是会震动，这个怎么解决
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2566#       发表于 2021-4-2 13:46
+
+
+
+
+遇到个很致命的问题，为啥新下的图片日期默认是什么1970 1/1 相册里直接找不到，不管是推特的图还是手机截图都是...
+
+
+
+
+
+
+
+-----
+
+####  Geminize  
+##### 2567#       发表于 2021-4-2 14:17
+
+
+
+
+那个是unix时间，下载工具不认windows系统的exif图像信息吧，ns也是pc传过去的图片一律1970
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2568#       发表于 2021-4-2 14:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50810649&amp;ptid=1915171" target="_blank">Geminize 发表于 2021-4-2 14:17</a>
+
+那个是unix时间，下载工具不认windows系统的exif图像信息吧，ns也是pc传过去的图片一律1970 ...</blockquote>
+有解决办法不，我看了一圈都说要恢复出厂设置，别吧...
+
+
+
+
+
+
+
+-----
+
+####  Geminize  
+##### 2569#       发表于 2021-4-2 14:27
+
+
+
+
+恢复也没用，这个看原始文件，如果原文件服务器对应的时间参数不兼容unix/linux，下载后的文件可能不带unix时间戳，本地系统默认写0，就是unix时间起始日1970年1月1日
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuikonnu| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2570#       发表于 2021-4-2 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50810773&amp;ptid=1915171" target="_blank">Geminize 发表于 2021-4-2 14:27</a>
+
+恢复也没用，这个看原始文件，如果原文件服务器对应的时间参数不兼容unix/linux，下载后的文件可能不带unix ...</blockquote>
+这...真有你的，索尼！
+
+谢了，至少有个头绪了
+
+
+
+
+
+
+
+-----
+
+####  Geminize  
+##### 2571#       发表于 2021-4-2 14:37
+
+
+
+ 本帖最后由 Geminize 于 2021-4-2 14:39 编辑 
+
+但按理说本机自己的截图不会出这问题啊，你进应用管理把相册和媒体存储的数据清除了试试
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2572#       发表于 2021-4-2 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50810895&amp;ptid=1915171" target="_blank">Geminize 发表于 2021-4-2 14:37</a>
+
+但按理说本机自己的截图不会出这问题啊，你进应用管理把相册和媒体存储的数据清除了试试
+
+ ...</blockquote>
+弃疗了，把在网上下的老相册删了，谷歌相册貌似没这毛病
+
+真有你的，索尼！
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2573#       发表于 2021-4-2 17:53
+
+
+
+
+怎么样把更新提示给关掉啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  allenz2  
+##### 2574#       发表于 2021-4-2 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50813120&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-4-2 17:53</a>
+怎么样把更新提示给关掉啊？</blockquote>
+把软件更新进程停了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2575#       发表于 2021-4-2 20:23
+
+
+
+<blockquote>引用第2557楼我很费纸于2021-03-30 18:08发表的  :
+
+引用:Cray 发表于 2021-3-29 20:49没有加白名单加了也没救哪怕在正常的Androi......</blockquote>
+正常使用倒是没问题。家人也不玩大型国产游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2576#       发表于 2021-4-3 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50773727&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-30 00:28</a>
+
+真不是贴膜的问题 ？
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+没道理贴完膜直到现在前置摄像头才出问题吧，我去换个钢化，解决不了真去售后了
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 2577#       发表于 2021-4-3 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50811108&amp;ptid=1915171" target="_blank">yuikonnu 发表于 2021-4-2 14:55</a>
+弃疗了，把在网上下的老相册删了，谷歌相册貌似没这毛病
+
+真有你的，索尼！ ...</blockquote>
+马克兔系列不支持老索尼相册，哪怕能装上你也会遇上各种奇怪的问题，请老实使用谷歌相册或者第三方相册。
+
+个人目前使用参考：图酷+谷歌相册
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2578#       发表于 2021-4-3 15:23
+
+
+
+
+看视频手机背会有震动这个问题怎么破，声音越大震动的越明显，不是动态那个，关了还是给我震，拿手上太难受了
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 2579#       发表于 2021-4-3 16:12
+
+
+
+<blockquote>引用第2577楼yuikonnu于2021-04-03 15:23发表的  :
+
+看视频手机背会有震动这个问题怎么破，声音越大震动的越明显，不是动态那个，关了还是给我震，拿手上太难受......</blockquote>
+…就是这样啊 声音大肯定震啊~？
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+
+
+
+-----
+
+####  yuikonnu  
+##### 2580#       发表于 2021-4-3 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50821090&amp;ptid=1915171" target="_blank">Cray 发表于 2021-4-3 16:12</a>
+
+…就是这样啊 声音大肯定震啊~？
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+...这样拿在手里不会很膈应嘛，老xz系列关了动态一点不震啊，难道震才是受欢迎的口味？
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 2581#       发表于 2021-4-3 16:41
+
+
+
+
+新手机嘛，新UI跟新APP适应一下就好了，我现在用手势控制、新主页跟谷歌相册一段时间已经习惯了
+
+如果你实在改不过来的话，升级到最新版本的安卓11，可以使用旧版的主页跟索尼相册的
+
+
+
+
+
+             
