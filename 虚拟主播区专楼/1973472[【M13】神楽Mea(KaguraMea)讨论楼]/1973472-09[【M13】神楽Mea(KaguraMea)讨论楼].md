@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-03 12:56** 
+> ## **本文件最后更新于2021-04-03 13:45** 
 
 
 
@@ -3636,6 +3636,25 @@ _____の神楽めあ.gb
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|zqsg好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3843,10 +3862,16 @@ _____の神楽めあ.gb
 
 
 
- 参与人数 5战斗力 -3
+ 参与人数 11战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 魔法使い2019| + 1|欢乐多|
+| physi1202| + 1|欢乐多|
+| iuhehc|-1|哒咩|
+| Cushaw|-1|痛痛痛|
+| tuna|-1|停停停|
+| 黒長直姫| + 2|思路广|
 | 缺陷电气杨永信|-1|思路广|
 | onlv星骸| + 2|收到暴击|
 | Mr.shelter|-1|别|
@@ -4128,13 +4153,14 @@ _____の神楽めあ.gb
 
 
 
+ 本帖最后由 rubinliu 于 2021-4-3 20:57 编辑 
 <blockquote>Dualist彩 发表于 2021-4-3 20:51
 来点暴击，让你楼感受痛楚</blockquote>
 关我p事
 
 你要给自己找不自在还要怪mea？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
-话说都1202年了、你楼不会真的有人还在看大舔屎吧？不会吧不会吧？不看最新最潮的木口EN看一个碧池？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+话说都1202年了、你楼不会真的有人还在看大舔屎吧？不会吧不会吧？不看最新最潮的木口EN看一个沙批？脑子没问题吧？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
 
@@ -4221,4 +4247,2349 @@ _____の神楽めあ.gb
 
 
 
-                                         
+
+
+-----
+
+####  Mr.shelter  
+##### 12257#       发表于 2021-4-3 20:56
+
+
+
+
+让我喘口气<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">...... 
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 12258#       发表于 2021-4-3 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50823996&amp;ptid=1973472" target="_blank">rubinliu 发表于 2021-4-3 20:55</a>
+关我p事
+
+你要给自己找不自在还要怪mea？
+
+话说都1202年了、你楼不会真的有人还在看大舔屎吧？不会 ...</blockquote>
+好怼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 12259#       发表于 2021-4-3 20:57
+
+
+
+
+无所谓的，我最喜欢的就是5.16黑屏，没皮都行
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12260#       发表于 2021-4-3 20:58
+
+
+
+
+这图算预言家了吧<img src="https://p.sda1.dev/1/450fa7c441bd15e2b312dda77a2a4e0d/-581dd617de4a20ec.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zz_hina  
+##### 12261#       发表于 2021-4-3 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">皮像不像大天使其实没啥所谓，没啥ptsd，只是看到连体人又在直播间跳就觉得很不爽
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12262#       发表于 2021-4-3 20:59
+
+
+
+
+楼友这就教人做粉丝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 没人说反对换皮吧
+
+就算客观来看从上到下没有比旧皮差的地方好吧
+
+就连大家不习惯的脸部 L2D设计和立绘都比原皮强 不得不说这皮放上去确实比旧皮吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+意见多只是表明不完美罢了 但这东西哪有完美的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12263#       发表于 2021-4-3 20:59
+
+
+
+
+这位模型师做的l2d很有特点所以才被大家叫傻逼圆脸的啊，像是肯定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+发现大家都挺能接受短发的，油条作为一直以来的形象接受改变确实需要时间吧，我是除了tc基本后台的
+那么，被五元活整退的是指<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 12264#       发表于 2021-4-3 20:59
+
+
+
+
+是苔苔出谋划策的，建议不爽的冲苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说像苔苔的手可是很能动的，没加上可惜了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12265#       发表于 2021-4-3 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">做L2D的和大憨脸批发商应该是同一个人，绝壁是狗蛋牵的线，这波苔姨全责（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12266#       发表于 2021-4-3 21:00
+
+
+
+
+手能动啊，不是才搞了传统异能了吗？
+
+
+
+
+
+
+
+-----
+
+####  dilemma  
+##### 12267#       发表于 2021-4-3 21:00
+
+
+
+
+总之开了个群，接受旧皮怀旧与新皮吐槽/黑P/互助等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://jq.qq.com/?_wv=1027&amp;k=4WOUybXQ](https://jq.qq.com/?_wv=1027&amp;k=4WOUybXQ)
+
+
+
+
+
+
+
+-----
+
+####  游山赫乃丈丶  
+##### 12268#       发表于 2021-4-3 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824043&amp;ptid=1973472" target="_blank">HinataY 发表于 2021-04-03 20:59:06</a>
+是苔苔出谋划策的，建议不爽的冲苔苔话说像苔苔的手可是很能动的，没加上可惜了 ...</blockquote>可动的 一瞬间闪了一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 12269#       发表于 2021-4-3 21:00
+
+
+
+
+蹲一个眼镜的图。短发+眼镜应该能戳爆我xp<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12270#       发表于 2021-4-3 21:00
+
+
+
+
+....希望回头还有微调的机会……这个脸感觉....陌生感……
+
+
+
+
+
+
+
+-----
+
+####  菊花战士  
+##### 12271#       发表于 2021-4-3 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是挺好的么，功能又多。比3D那个脸好多了。
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12272#       发表于 2021-4-3 21:01
+
+
+
+
+我看你mea这辈子在b站都摆脱不了大亏了
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 12273#       发表于 2021-4-3 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">全肯定民，六字母人，短发爱好者，大家都有光明的未来，匿了匿了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12274#       发表于 2021-4-3 21:01
+
+
+
+
+希望至少和老皮轮换着用吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12275#       发表于 2021-4-3 21:01
+
+
+
+
+胸口疼<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12276#       发表于 2021-4-3 21:01
+
+
+
+
+我就看了最后5分钟
+
+是挺傻的,不过好歹算是性能还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12277#       发表于 2021-4-3 21:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧偷图
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/210158mbwfgf6zl33agk0g.png" referrerpolicy="no-referrer">
+
+
+<strong>47SJ8M%1U28XZY2OE1BZCJN.png</strong> (44.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:01 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/210158j0slq8ncz87nhpx5.png" referrerpolicy="no-referrer">
+
+
+<strong>8NE{Q0@LWRPQ_(Q8AU_3(X2.png</strong> (25.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:01 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/210158crtcwccmvmrkzc61.png" referrerpolicy="no-referrer">
+
+
+<strong>_[F)[04SD0@4)58B][2HTEJ.png</strong> (35.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:01 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/210157mfwf0fxyhfxi3ixh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>@G@6[2Q{{O4@JL58WT0}`%Y.jpg</strong> (5.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:01 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/210158vwukkmo3nazfff19.png" referrerpolicy="no-referrer">
+
+
+<strong>UV~_RKG_3M1]@Q$~~OBV{GA.png</strong> (51.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:01 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|好评加鹅|
+| llconforever| + 1|这不是很不错吗|
+| 我想做mkm的舔狗| + 1|好评加鹅|
+| npfjcg| + 1||
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 12278#       发表于 2021-4-3 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824036&amp;ptid=1973472" target="_blank">zz_hina 发表于 2021-4-3 20:58</a>
+皮像不像大天使其实没啥所谓，没啥ptsd，只是看到连体人又在直播间跳就觉得很不爽 ...</blockquote>
+无论发生什么连体人都不会变的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以屏蔽就好了。这作者明明做过那么多脸，但它们只说大⭕️，那不是只能顺从它们了吗？
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 12279#       发表于 2021-4-3 21:03
+
+
+
+
+竟然不是momo老师  草莓果酱实装无望了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12280#       发表于 2021-4-3 21:03
+
+
+
+
+其实我到还好，前面也说过了我对这皮的优点和缺点。毕竟两年多快三年了，总要有时间去缓一下。可爱是真的可爱，傻妞是真的傻妞。实在不行就后台，反正这妞子不是歌回杂谈就是tc也没多大影响
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12281#       发表于 2021-4-3 21:03
+
+
+
+
+虹杏苔亏舞,一套新衣服五个毒唯雷点,今晚就是毒唯的末日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12282#       发表于 2021-4-3 21:03
+
+
+
+
+冲苔真没必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这皮客观来看真不差
+
+
+
+
+
+
+
+-----
+
+####  仙岳病患  
+##### 12283#       发表于 2021-4-3 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">一股流水线工业垃圾的感觉
+
+还是#的小作坊工匠精神适合我
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 12284#       发表于 2021-4-3 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">还有一点失望是这新皮居然是旧皮重制而不是新设计一套
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12285#       发表于 2021-4-3 21:03
+
+
+
+
+应该是我看她太早印象定型了，这皮能吸引一些新粉就不算亏
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12286#       发表于 2021-4-3 21:04
+
+
+
+
+咩呀新皮，褒贬不一公布了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+效果好不好以后的数据说话，但一部分贝贝人怕是又要从棺材里爬出来了，咩呀，你看你干的好事<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12287#       发表于 2021-4-3 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就末日了，我觉得完全ojbk啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12288#       发表于 2021-4-3 21:04
+
+
+
+
+wc还真有#皮粉啊，如果今天公布的是#皮的话怕不是哀嚎一地了
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 12289#       发表于 2021-4-3 21:04
+
+
+
+
+旧皮看厌了换新也好
+
+
+
+
+
+
+
+-----
+
+####  呓语nnnnt  
+##### 12290#       发表于 2021-4-3 21:04
+
+
+
+
+旧皮看厌了换新也好
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12291#       发表于 2021-4-3 21:04
+
+
+
+
+褒贬不一就是巨大进步😭
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12292#       发表于 2021-4-3 21:04
+
+
+
+
+就是轮廓太浅了 你们虽然说新皮像夸 但夸的皮轮廓感比这个好多了 我也不是专业人士 也不知道怎么形容就是...
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 12293#       发表于 2021-4-3 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">对未知的不安吗？
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12294#       发表于 2021-4-3 21:05
+
+
+
+
+刘海太烂了，修一修我的评价还可以再上升
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 12295#       发表于 2021-4-3 21:06
+
+
+
+
+以后就是立派tc女主播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12296#       发表于 2021-4-3 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824105&amp;ptid=1973472" target="_blank">仙岳病患 发表于 2021-4-3 21:03</a>
+
+一股流水线工业垃圾的感觉
+
+还是#的小作坊工匠精神适合我</blockquote>
+工业流水线有他的优点
+
+工匠精神实属笑话
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12297#       发表于 2021-4-3 21:07
+
+
+
+
+废话人家大亏什么人，你一个底边个人势什么人，能请来傻脸设计师是你咩呀的福分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12298#       发表于 2021-4-3 21:07
+
+
+
+
+别了吧，现在帕里做的还真不一定有这可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Homuxus  
+##### 12299#       发表于 2021-4-3 21:07
+
+
+
+
+我觉得很可爱啊，功能变多了好事，最主要来了眼睛动捕啊！！！！冲！！！
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12300#       发表于 2021-4-3 21:08
+
+
+
+
+脸能改回去就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12301#       发表于 2021-4-3 21:08
+
+
+
+
+麻皮就是#的巅峰了，给bfm画的那个皮让我至今都没点进去看她
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 12302#       发表于 2021-4-3 21:08
+
+
+
+
+鉴于平时直播也基本上是挂后台听歌，所以我觉得她喜欢就行，新皮怎么做都不可能让所有人满意的，毕竟有#皮gachi在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但愿她少收一点阿宅的迷惑邮件
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12303#       发表于 2021-4-3 21:08
+
+
+
+
+小作文写起来
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 12304#       发表于 2021-4-3 21:09
+
+
+
+
+同感觉刘海可以修修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12305#       发表于 2021-4-3 21:09
+
+
+
+
+你老惦记着你那b#干嘛呢，不会有人看不出#皮是什么吊样吧😱
+
+
+
+
+
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 12306#       发表于 2021-4-3 21:10
+
+
+
+ 本帖最后由 缺陷电气杨永信 于 2021-4-3 21:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在让#画肯定没麻那个水平，现在#皮的水平算了算了
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你看国内用井皮的两个国v换皮都不找#了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12307#       发表于 2021-4-3 21:10
+
+
+
+
+毕业前就在眼前<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12308#       发表于 2021-4-3 21:10
+
+
+
+
+#皮噶吃可以行动起来了，快去sl打起来，看能不能把你咩姐的心情毁了整出一个生理期延迟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 12309#       发表于 2021-4-3 21:10
+
+
+
+
+问题不大，又不是人换了，反正都是挂后台
+
+短发帽子你啥时候出这个皮？
+
+<img src="https://img.saraba1st.com/forum/202104/03/211035fxobgzrzlnhgo6nx.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题.png</strong> (32.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:10 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 缺陷电气杨永信| + 1|欢乐多|
+| llconforever| + 1|欢乐多|
+| 路人庚| + 1|短发+帽子已经有了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12310#       发表于 2021-4-3 21:10
+
+
+
+
+看别的地方都挺喜欢这新皮的 也许是这里老粉多 看旧皮太久 意识里已经把皮和魂绑定了 所以更难适应新皮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+等新皮看一段时间习惯以后 再回去看老皮可能反而不习惯了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12311#       发表于 2021-4-3 21:11
+
+
+
+
+我日，没看直播什么情况，这脸我要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12312#       发表于 2021-4-3 21:11
+
+
+
+
+草 我就觉得似曾相识，原来我对短发的接受度来自这里
+
+
+
+
+
+
+
+-----
+
+####  tuna  
+##### 12313#       发表于 2021-4-3 21:11
+
+
+
+
+到底是缺少阴阳成分还是机能没打开。。。
+
+这上色和配件的工艺没人想喷吗？
+
+眼睛就不说了，头发这个光影和身上的衣服搭不上吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+肩部这个装饰的动态真的。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12314#       发表于 2021-4-3 21:11
+
+
+
+
+#皇真的算了
+
+那个新p家因为bfm我之前还想去看下,看了一眼我就退了,还不如19年mana的那个皮,当时我第一眼看着还蛮惊艳的
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 12315#       发表于 2021-4-3 21:12
+
+
+
+
+忒修斯的咩，换走了井皇的皮还是你咩
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12316#       发表于 2021-4-3 21:13
+
+
+
+
+太sb力，再也打不开神乐魅娅小姐的直播间了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 12317#       发表于 2021-4-3 21:13
+
+
+
+
+看山是山，看山不是山，看山还是山
+
+真的到第三层的话，不管这人放什么皮还是就放一黑屏都能脑补出这女人的样子吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 12318#       发表于 2021-4-3 21:14
+
+
+
+
+铲掉#元素就行了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12319#       发表于 2021-4-3 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tc不就是这么过来的，反正她现在基本也就是个tc一图流主播
+
+
+
+
+
+
+
+-----
+
+####  TomDu  
+##### 12320#       发表于 2021-4-3 21:14
+
+
+
+
+脸好像有点长了… 应该会不断微调的吧，会的吧会的吧
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12321#       发表于 2021-4-3 21:14
+
+
+
+
+虽然但是，你们可以提意见改啊，3d不也改了不少了吗（虽然还是蛮怪的）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 12322#       发表于 2021-4-3 21:15
+
+
+
+
+#皮不行，这个皮也就半斤八两吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kifusou  
+##### 12323#       发表于 2021-4-3 21:16
+
+
+
+
+斯德哥尔摩了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把#皮从你的生活中拿走竟能让你如此撕心裂肺
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12324#       发表于 2021-4-3 21:16
+
+
+
+
+算了，反正挂后台都一样，无法直视的直播间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12325#       发表于 2021-4-3 21:16
+
+
+
+
+不会真有人觉得不换比较好吧😨，#这b都尬在这多久了，更何况#也不行啊。至于贴贴人，他都4000+了你为什么不顺从他呢😅
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12326#       发表于 2021-4-3 21:17
+
+
+
+
+没了#元素也算是终极切割了，但是新皮大家都不喜欢的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+让我看看会走多少人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 12327#       发表于 2021-4-3 21:18
+
+
+
+
+这就开始编写病毒感染小麻的电脑让她只能tc直播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12328#       发表于 2021-4-3 21:19
+
+
+
+
+不满意可以提建议 提具体点应该有用 之前3d就有微调 
+
+我个人觉得把刘海剪剪不要那么齐整就很好了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12329#       发表于 2021-4-3 21:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我觉得改不改无所谓了，我对85分还是90分不怎么关心，想不想改也是她自己的事。唯一的希望就是以后能多整点新的，把皮的可动性充分利用起来
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 12330#       发表于 2021-4-3 21:19
+
+
+
+
+我个人本来觉得挺好的，原来大家都差评如潮啊
+
+
+
+
+
+
+
+-----
+
+####  肥到终点  
+##### 12331#       发表于 2021-4-3 21:19
+
+
+
+
+这波官组那群傻逼要赢麻了。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 12332#       发表于 2021-4-3 21:20
+
+
+
+
+这皮从这里的反应来看应该是个多半好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  看开些吧，来些奇怪的对比
+
+
+
+
+
+
+211028.jpg
+(113.41 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-4-3 21:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/212035m70629kzksae6ddx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+211636.jpg
+(20.69 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2021-4-3 21:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/212035rakw5sbsncn49ckk.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|我觉得色调照着上图改就挺好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12333#       发表于 2021-4-3 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻逼觉得自己赢了就让他以为自己赢了呗，真疯魔了在油管刷起来了被笑的也只有这些人而已罢
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12334#       发表于 2021-4-3 21:21
+
+
+
+
+头的色调太亮了，不够自然？🤔
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12335#       发表于 2021-4-3 21:22
+
+
+
+
+不会还有人没取关官组吧😅
+
+褒贬不一就是成功，工业流水线兜底就是好，我怕她那审美给我整个大的😨
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 12336#       发表于 2021-4-3 21:22
+
+
+
+ 本帖最后由 柚子皮 于 2021-4-3 21:25 编辑 
+
+能看，但硬要说好看实在做不到。不过从来就不是因为皮怎样而去看她，皮的变化讲真没有什么影响
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 12337#       发表于 2021-4-3 21:22
+
+
+
+
+我觉得还行吧，倒不如说本来就没多大期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你麻随身边那几个意见肯定最后会随大流变成那种脸的，不过都这么久了谁还盯着皮看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jim9  
+##### 12338#       发表于 2021-4-3 21:22
+
+
+
+
+意外的到这边发现评价微妙啊……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer"> 其实我觉得短发版还行 还蛮有特色的
+
+长发感觉有点太幼了不太习惯倒是……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 没想到久违的又能看到吐槽帕里的 有种意外的新鲜感
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 12339#       发表于 2021-4-3 21:23
+
+
+
+
+往好一点想，换了新皮后，以后方便有新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12340#       发表于 2021-4-3 21:23
+
+
+
+
+差评如潮:指s1最高法院部分人不满意
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12341#       发表于 2021-4-3 21:23
+
+
+
+
+麻是时候搞个颜出给我们一个脑补的空间了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 12342#       发表于 2021-4-3 21:24
+
+
+
+
+都到这个年头了，她的皮是80分还是90分也不太关键了
+
+除非下血本整个压倒性质量的皮，要不然换皮对我来说不如几首新歌
+
+我倒是希望整个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TiHaru  
+##### 12343#       发表于 2021-4-3 21:24
+
+
+
+
+有没有可能是因为要求不改变人设所以没有大手愿意接单啊
+
+做好了功劳是原设的，做坏了被粉丝烧
+
+感觉逻辑上可以自洽
+
+已经想去私信喷画师了
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 12344#       发表于 2021-4-3 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824316&amp;ptid=1973472" target="_blank">pei23333 发表于 2021-4-3 21:20</a>
+这皮从这里的反应来看应该是个多半好评  看开些吧，来些奇怪的对比</blockquote>
+老哥上面这个图有原图吗，这表情很对mea虐的胃口。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12345#       发表于 2021-4-3 21:26
+
+
+
+
+阿咩不要害怕差评多整点新鲜活，终于来点热闹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12346#       发表于 2021-4-3 21:26
+
+
+
+<blockquote>GeraltzRivii 发表于 2021-4-3 21:25
+老哥上面这个图有原图吗，这表情很对mea虐的胃口。
+
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 ...</blockquote>
+p站最新那张r18图
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GeraltzRivii| + 1|谢谢。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12347#       发表于 2021-4-3 21:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过没找momo老师倒确实蛮意外的，你咩姐推特换的几个头像和谷子都是找的momo老师，反倒这个找了给翻唱pv画图的画师
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 12348#       发表于 2021-4-3 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824368&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-3 21:25</a>
+
+老哥上面这个图有原图吗，这表情很对mea虐的胃口。
+
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 ...</blockquote>
+Pixiv搜神楽めあ就有了，就前几天出的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GeraltzRivii| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 12349#       发表于 2021-4-3 21:26
+
+
+
+
+跟#那个批和p家彻底没关系了不是大好事儿嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12350#       发表于 2021-4-3 21:26
+
+
+
+
+真别玩尬了我都想来首春节十三响了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12351#       发表于 2021-4-3 21:26
+
+
+
+ 本帖最后由 A2014720 于 2021-4-3 21:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那不也是她自己选的保留原样式（其实改了好多）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+反正确实有人因为新皮破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 12352#       发表于 2021-4-3 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50824381&amp;ptid=1973472" target="_blank">柚子皮 发表于 2021-4-3 21:26</a>
+Pixiv搜神楽めあ就有了，就前几天出的</blockquote>
+谢谢。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12353#       发表于 2021-4-3 21:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/212654pztswdr7yas7u1z1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>684eb2460d535968eb5e5f67d0900d5d9495f68c9788a572188e48da4477cebd.0.JPG</strong> (110.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:26 上传
+
+
+
+
+
+蛮经典的live2d拉夸。
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12354#       发表于 2021-4-3 21:29
+
+
+
+
+保留原样式是最保险的 要是脱离样式大改 怕不是更接受不了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12355#       发表于 2021-4-3 21:30
+
+
+
+
+脱离原样式大改那就是新衣服了而不是liv2d2.0了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12356#       发表于 2021-4-3 21:30
+
+
+
+
+原图的轮廓就这么细啊……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 12357#       发表于 2021-4-3 21:30
+
+
+
+
+其实稍微动一下嘴和刘海感觉就回来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12358#       发表于 2021-4-3 21:32
+
+
+
+
+不可能
+
+就算褒贬不一也是新生了，真觉得不行大可搞个投票看看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 12359#       发表于 2021-4-3 21:33
+
+
+
+
+看大家对着新皮颇有争议，我也来长篇大论一下说说自己的想法<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+我个人感觉，很重要的一点，是时机。跟这女人的3d一样，说很惊艳吗，那肯定没有；但质量很差吗？但也不能这么说。更重要的一点，是拿出来的时间点。
+
+无论是初次3d化还是新皮，就整个vtuber圈子来说，对比出道时间和粉丝数，比她更晚换live2d和出3d模型的人，恐怕没几个吧。
+
+粉丝们大多数都是看了她挺长时间了，所以，习惯了。这就容易成为一种惯性思维，以至于是容易忽略新live2d的优点，而更容易聚焦于其不合自己心意的地方。
+
+
+另外还有一个很重要的点是，当然了，我看过的vtuber不多，这个模型跟木口那一帮，以及苔姨，就像是一个流水线是生产出来的。
+
+还是那句话，如果往前推一年半那个时间点拿出来，大家反对的声音应该就没那么多了。
+
+我个人感到不爽的点还有一个，正是因为跟木口苔姨模型太像了，而我对她们又有非常大的负面滤镜，以至于见到这个模型直接产生一种抗拒的想法去面对，那当然会严重降低心理预期。
+
+或许是我暗黑贴贴人无可救药了吧，一看到这个脸，我直接想到了会不会有连体人拿来作图，这使我产生了一种极其扭曲的想法，贷款吃屎而又暗自狂喜，没救了没救了。
+
+
+看这女人直播已经很长时间了，我个人是一个非常不喜欢有变动的人，事业民之心也早没了，所以基本上都是她开播的时候，我就挂着后台随缘看一眼，因此皮是不重要的。
+
+但也正因如此，换live2d容易让我觉得不适应，习惯了。
+
+像是爱丽丝那种，有好几套皮肤换着来，当然了，爱丽丝的几个皮肤真的质量非常高。粉丝们肯定不容易因为某个皮肤不符合自己心理预期而感到极大的失落。
+
+然而这女人基本上就是未来很长一段时间都是这一套了，所以很多人如果感觉接受不了，这个心里疙瘩容易越积越大。
+
+
+看到后面，其实看多了就顺眼了。平心而论，确实是很大的进步。然而vtuber到现在，整个业界我不清楚，但我对这女人的想法，换个新的模型真的意义很大吗，我这一点要打一个问号。
+
+另外，还是要夸一下的。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+虽然一开始感觉不行，但后面还是看顺眼了。无大衣无帽子短发版本，我觉得最好。
+
+看这女人很长时间了，对她曾有过普通主播，朋友，女友，老婆，女儿等多种定位想法。作为一个低情商内向肥宅，这女人影响了我很多关于择偶观的想法。
+
+特别是她现在成年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而这个无大衣无帽子短发版本，感觉不像她，反倒是像我心中的小小麻，所以现在颇有种老夫老妻又重燃青春恋爱激情的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+个人感觉还是看多了也就习惯了，这个模型特色没问题，有问题的是自己思维定式的内心。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1||
+| 甘栗No.007| + 1|zqsg好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 12360#       发表于 2021-4-3 21:34
+
+
+
+
+麻了，小作文打这么快
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12361#       发表于 2021-4-3 21:34
+
+
+
+
+什么gachi长文，很困惑，不要再发了
+
+<img src="https://img.saraba1st.com/forum/202104/03/213532nqzxgnvm9vnqv9pv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Q@[)4MK08K2OJ(2FPCB%L_S.jpg</strong> (64.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12362#       发表于 2021-4-3 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底还是麻楼，都喜欢短发帽子
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12363#       发表于 2021-4-3 21:35
+
+
+
+
+泥潭那边都没人，不会全跑这了吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12364#       发表于 2021-4-3 21:35
+
+
+
+
+贝贝人早就做了一堆图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+y1s1那个短发帽子确实不错
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12365#       发表于 2021-4-3 21:36
+
+
+
+
+那谁头像粉红的坦克挺好的,接受不了的兄弟下次可以把那个图贴在live2d的位置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12366#       发表于 2021-4-3 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不起坦克民是吧
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12367#       发表于 2021-4-3 21:39
+
+
+
+
+新皮的意义之一是好做新衣服吧 框架比旧皮好很多 工业化的皮也更容易找人做新皮 可以期待原创曲曲绘衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 12368#       发表于 2021-4-3 21:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/214026n30qs7sfzcqj13c4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0355458rh4vomoxsrol4xs.jpg</strong> (163.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 21:40 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有需要自取
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|帮大忙了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 12369#       发表于 2021-4-3 21:40
+
+
+
+
+什么时候出拉夫皮肤，来b限媚媚宅
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12370#       发表于 2021-4-3 21:41
+
+
+
+
+是这个理，我开始等一个pretender那个pv的新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 12371#       发表于 2021-4-3 21:41
+
+
+
+
+可能因为是 换掉井皮  个人觉得整体还是很舒服的...
+
+新皮 整体不错 没有明显的缺陷，一些细节样式不可能满足所有人喜好 很正常
+
+就很正常的一个皮。。。甚至有点普通。。。就是    麻~挺好的不错不错  这种感觉
+
+而且这个调LIVE2D的之前有些皮   大角度动的时候   脸部面具感很强，非常纸片人
+
+啊咩这个调的还不错了（可能是脸颊两侧那两搓小头发带来的好处）。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12372#       发表于 2021-4-3 21:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12373#       发表于 2021-4-3 21:43
+
+
+
+
+阿咩这个l2d调的不错的原因其实还是因为她头上有个帽子
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12374#       发表于 2021-4-3 21:44
+
+
+
+
+是不是有人不懂从0到1的含金量吧，总不能一辈子让#卡着吧
+
+
+
+
+
+                                     
