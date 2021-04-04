@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-04 10:44** 
+> ## **本文件最后更新于2021-04-04 12:55** 
 
 
 
@@ -9656,4 +9656,1049 @@ M14留给接受新皮的忠实天狗，M13随着皮噶吃一起死去<img src="h
 
 
 
-                               
+
+
+-----
+
+####  A2014720  
+##### 12544#       发表于 2021-4-4 18:50
+
+
+
+
+什么傻逼标题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12545#       发表于 2021-4-4 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫定位清晰
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12546#       发表于 2021-4-4 19:14
+
+
+
+
+不整烂活就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12547#       发表于 2021-4-4 19:28
+
+
+
+
+好，建议明天苔苔再叫上五元一块突击联动<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12548#       发表于 2021-4-4 19:35
+
+
+
+
+你是否在寻找，短发舞元
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12549#       发表于 2021-4-4 19:36
+
+
+
+
+苔这不算是给阿咩新皮做宣传么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 也不至于这么梁木吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12550#       发表于 2021-4-4 19:37
+
+
+
+
+联动当然随便啊，但这标题让人有点不舒服啊<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12551#       发表于 2021-4-4 19:38
+
+
+
+
+已经找到:火车便当
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 12552#       发表于 2021-4-4 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你们怎么回事 两年了开始精神洁癖
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12553#       发表于 2021-4-4 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许只是日常发病
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12554#       发表于 2021-4-4 19:47
+
+
+
+
+浓度太高真的绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12555#       发表于 2021-4-4 19:53
+
+
+
+
+刷舞元的差不多得了 昨天有弹幕问了：短发是为了五元才搞的吗 你咩姐说了不是为了五元 只是觉得可爱而已
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12556#       发表于 2021-4-4 19:53
+
+
+
+ 本帖最后由 路人庚 于 2021-4-4 19:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不玩烂梗那还是苔苔吗？等一个车轱辘舞元短发
+
+
+syl，不过后面也说了是因为舞元说了喜欢短发，乐一先生才画了短发fanart，你咩姐看到了才会觉得短发不错，最后才会要求加入新皮，所以归根到底还是要谢谢你舞元，为了舞元合掌<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12557#       发表于 2021-4-4 19:57
+
+
+
+
+算了烂梗有热度有流量，苔皇牛逼我算老几<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12558#       发表于 2021-4-4 19:57
+
+
+
+
+不知道矩阵有没有看到这次直播....emmmm你咩还提了他.....
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12559#       发表于 2021-4-4 19:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这个浓度，是天狗浓度吗
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12560#       发表于 2021-4-4 19:58
+
+
+
+
+苔姨要是能靠烂梗把你咩404粉丝盘活了 我给kuma嗦牛子都行
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12561#       发表于 2021-4-4 19:59
+
+
+
+
+等歌回了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12562#       发表于 2021-4-4 20:00
+
+
+
+
+嗦牛子这neta被柰子哥玩过了，换个新的
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12563#       发表于 2021-4-4 20:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你问狂犬带话了吗
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12564#       发表于 2021-4-4 20:02
+
+
+
+
+那就换成帮kuma打手冲吧
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12565#       发表于 2021-4-4 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50833067&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-4-4 20:02</a>
+ 你问狂犬带话了吗</blockquote>
+狂犬还能联系上矩阵吗……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12566#       发表于 2021-4-4 20:05
+
+
+
+
+见鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后台听了开场白忍不住看一眼画面.... 还是后台吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12567#       发表于 2021-4-4 20:06
+
+
+
+
+嗯。。这眼捕是不是一直开着的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12568#       发表于 2021-4-4 20:06
+
+
+
+
+装你麻可爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12569#       发表于 2021-4-4 20:07
+
+
+
+
+麻不可爱吗
+
+
+
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 12570#       发表于 2021-4-4 20:07
+
+
+
+
+没想到诸位病情如此严重<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那只能快进到草莓果酱皮肤实装了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12571#       发表于 2021-4-4 20:07
+
+
+
+
+还是有点不太习惯....
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12572#       发表于 2021-4-4 20:07
+
+
+
+
+去留就看这次直播了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12573#       发表于 2021-4-4 20:09
+
+
+
+
+草莓果酱实装估计三年后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12574#       发表于 2021-4-4 20:10
+
+
+
+
+一周后要是还不习惯...直播时就用原立绘盖住吧……
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12575#       发表于 2021-4-4 20:10
+
+
+
+
+奥义·闭眼唱歌
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12576#       发表于 2021-4-4 20:11
+
+
+
+
+这可动性，这小表情<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">给劲嗷
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">欣赏不来的皮噶吃请速速去世罢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12577#       发表于 2021-4-4 20:11
+
+
+
+
+身子一直斜着谁去提醒一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12578#       发表于 2021-4-4 20:13
+
+
+
+
+胸好大
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12579#       发表于 2021-4-4 20:15
+
+
+
+
+有眼捕<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 12580#       发表于 2021-4-4 20:16
+
+
+
+
+其实她唱歌的时候身子一直是斜的
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12581#       发表于 2021-4-4 20:16
+
+
+
+
+唱歌经常有闭眼张小嘴的表情 像kiss一样<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12582#       发表于 2021-4-4 20:17
+
+
+
+
+之前说过因为色相头在右边所以看上去就像是一直在往左边看（所以现在把评论区放到右边了假装在看评论区
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12583#       发表于 2021-4-4 20:21
+
+
+
+ 本帖最后由 A2014720 于 2021-4-4 20:22 编辑 
+
+原来如此吗，我一直后台的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+粉红椭圆还在啊，真好
+
+杂谈起来还是有违和感啊…还是后台了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 12584#       发表于 2021-4-4 20:26
+
+
+
+
+一直在侧脸一直在侧脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12585#       发表于 2021-4-4 20:26
+
+
+
+
+看着这默认标准管人括弧笑的嘴我有点迷惘<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+果然管人就是要给人带来笑容的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12586#       发表于 2021-4-4 20:27
+
+
+
+
+喜欢的人还是多啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12587#       发表于 2021-4-4 20:28
+
+
+
+
+才想起来这是yyut跟那个女偶像一起唱的曲子（
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12588#       发表于 2021-4-4 20:30
+
+
+
+
+我是觉得唱歌的时候比旧皮好 基本都能捕捉到 旧皮唱歌的时候经常出捕捉范围不动了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12589#       发表于 2021-4-4 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然意识到以后她要是直播低头玩手机就会很明显了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 12590#       发表于 2021-4-4 20:33
+
+
+
+
+真会动啊，全新的体验，可爱麻了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12591#       发表于 2021-4-4 20:35
+
+
+
+
+这皮笑的我发慌，咩宝你骂我两句，你踩我两脚好不好<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 12592#       发表于 2021-4-4 20:36
+
+
+
+
+她唱歌原来经常闭眼啊
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 12593#       发表于 2021-4-4 20:37
+
+
+
+
+突然意识到自己的xp是帅女人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 12594#       发表于 2021-4-4 20:40
+
+
+
+
+好挺，扣子好显眼，好想伸手解开<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希洛克吃西瓜冰  
+##### 12595#       发表于 2021-4-4 20:40
+
+
+
+
+臭阿姨拿了新皮又开始装嫩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12596#       发表于 2021-4-4 20:42
+
+
+
+
+这皮唱歌效果把旧皮秒了三条街啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肥到终点  
+##### 12597#       发表于 2021-4-4 20:42
+
+
+
+
+很难想象短发脱帽子的形象动起来的杀伤力。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 12598#       发表于 2021-4-4 20:42
+
+
+
+
+蛮香的嘛
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 12599#       发表于 2021-4-4 20:42
+
+
+
+ 本帖最后由 dent 于 2021-4-4 20:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">水袋好胀，而且眼睛睁不开的感觉是怎么回事
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12600#       发表于 2021-4-4 20:45
+
+
+
+
+带着眼睛是这样的吧，还有这胸确实是极品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12601#       发表于 2021-4-4 20:45
+
+
+
+
+戴眼镜了^^
+
+
+
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 12602#       发表于 2021-4-4 20:45
+
+
+
+
+眼睛睁不开是小麻自己唱歌喜欢闭眼唱 说话的时候眼睛基本都睁着的
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12603#       发表于 2021-4-4 20:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 12604#       发表于 2021-4-4 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 12605#       发表于 2021-4-4 20:51
+
+
+
+
+对味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12606#       发表于 2021-4-4 20:53
+
+
+
+
+这个皮让我更容易脑补咩的直播姿态了
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 12607#       发表于 2021-4-4 20:53
+
+
+
+
+这皮配上可爱的歌很难顶得住！
+
+
+
+
+
+                             
