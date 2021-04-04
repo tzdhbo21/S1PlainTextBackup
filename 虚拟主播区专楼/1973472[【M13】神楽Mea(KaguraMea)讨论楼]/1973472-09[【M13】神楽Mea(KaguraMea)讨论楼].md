@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-04 03:48** 
+> ## **本文件最后更新于2021-04-04 06:48** 
 
 
 
@@ -7907,10 +7907,12 @@ B6C5ACE3-EC85-4C7F-91B4-9FD2225B673B.png
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 减分之加| + 1||
+| 缺陷电气杨永信| + 1|确实顺眼多了|
 | Dualist彩| + 1|舒服了|
 
 
@@ -8187,4 +8189,820 @@ aut那个虽然风格变化大 但池面的风格我很喜欢
 
 
 
-                                  
+
+
+-----
+
+####  路人庚  
+##### 12462#       发表于 2021-4-4 11:57
+
+
+
+
+昨天说了今天有个新皮的歌回
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12463#       发表于 2021-4-4 11:59
+
+
+
+
+我只是认为live2d不行，这画风也就まあまあ
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12464#       发表于 2021-4-4 12:04
+
+
+
+
+希望以后全是歌回，这样新皮就留不了档了，新l2d清除计划，ON！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12465#       发表于 2021-4-4 12:06
+
+
+
+
+#皮，傻逼圆脸和苔脸总得选一个的吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12466#       发表于 2021-4-4 12:06
+
+
+
+
+你麻真人漏出得了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12467#       发表于 2021-4-4 12:08
+
+
+
+
+那苔脸怎么样
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12468#       发表于 2021-4-4 12:08
+
+
+
+
+小麻能不能真人出道<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12469#       发表于 2021-4-4 12:09
+
+
+
+
+等出来一坦克你们就知错了😅
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 12470#       发表于 2021-4-4 12:10
+
+
+
+
+不在乎她胖不胖<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 12471#       发表于 2021-4-4 12:12
+
+
+
+
+你们受不了可以看直播时打开旧皮的gif挡住新皮就行了。
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12472#       发表于 2021-4-4 12:14
+
+
+
+
+不要坦克，要是坦克的话我可能退坑反踩<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12473#       发表于 2021-4-4 12:20
+
+
+
+
+坦克不是板上钉钉吗，不要挣扎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12474#       发表于 2021-4-4 12:23
+
+
+
+
+大伙就等着看坦克呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 12475#       发表于 2021-4-4 12:29
+
+
+
+
+就看是重坦还是轻坦了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 12476#       发表于 2021-4-4 12:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">贝贝人的今天就是非坦克民的明天
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12477#       发表于 2021-4-4 12:58
+
+
+
+
+坦克民的明天就是皮噶吃的昨天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12478#       发表于 2021-4-4 13:03
+
+
+
+
+有没有人统计一下昨晚跑了几个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 12479#       发表于 2021-4-4 13:03
+
+
+
+
+都3年了，从二号进化到虎式不过分吧
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 12480#       发表于 2021-4-4 13:05
+
+
+
+
+新live2d的好处就是换衣服方便了很多
+
+
+像昨天那样能掏出好几套皮，对节目效果来说怎么都不是坏事
+
+可能因为是粉丝送的吧，这吊人不太喜欢平时拿出来用
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 12481#       发表于 2021-4-4 13:06
+
+
+
+
+坦克才是正统！
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12482#       发表于 2021-4-4 13:12
+
+
+
+
+坦克民差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12483#       发表于 2021-4-4 13:15
+
+
+
+
+细细一想要是真人出镜说不定跑的更多<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nulla03  
+##### 12484#       发表于 2021-4-4 13:20
+
+
+
+
+我发现我对新皮的接受度意外的高，已经冲了一发了。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12485#       发表于 2021-4-4 13:37
+
+
+
+
+看了下熟肉 这人对皮还是挺上心的...各种小设计 也找了一堆人监制 （狂犬 黄兔子 兔句 伊东）但....还是别扭...
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12486#       发表于 2021-4-4 13:38
+
+
+
+
+她那边环境如此，能有什么办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+谁都没有做错，那问题究竟是什么<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12487#       发表于 2021-4-4 13:38
+
+
+
+
+瞳孔能换成原来的款式就好了……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12488#       发表于 2021-4-4 13:39
+
+
+
+
+狂犬？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12489#       发表于 2021-4-4 13:40
+
+
+
+
+单单换瞳孔应该没那么复杂吧 狂犬那个皮好像就能直接替换瞳孔 要是添加一个能换回原来瞳孔的组件就好了……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12490#       发表于 2021-4-4 13:40
+
+
+
+
+犬山 打错了...
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12491#       发表于 2021-4-4 13:41
+
+
+
+
+等今天歌回了.......emmmmmmmmm
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 12492#       发表于 2021-4-4 13:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">问题难道不是#皮换得太晚了吗。讲道理#皮在18、19年还算能看，到了20年就完全落后于时代了。这都鳖了3年，人和皮都几乎绑定了，肯定有人不习惯啊
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12493#       发表于 2021-4-4 13:43
+
+
+
+
+瞳孔变化太大了……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 12494#       发表于 2021-4-4 13:48
+
+
+
+
+这个live2d的模型师，正面还行，侧面那个脸我是真的受不了
+
+为了实现所谓侧面效果做的脸特别饼
+
+希望王牌机师能少做侧面动作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+一想到以前吊人侧脸是这样
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/134550w4s586445ws7fn51.jpg" referrerpolicy="no-referrer">
+
+
+<strong>u=1892591652,106449737&amp;amp;fm=26&amp;amp;gp=0.jpg</strong> (13.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 13:45 上传
+
+
+
+
+
+
+现在是这样
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/134550tt9p3sotsdbl4zjo.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获.PNG</strong> (779.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 13:45 上传
+
+
+
+
+
+
+
+不禁感叹
+
+不过faceig更新后，眼球不一直看正面了，早已从屑表情变傻表情了
+
+也无所谓了
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 12495#       发表于 2021-4-4 13:51
+
+
+
+
+喝水必有侧面动作，，喝水侧面不抬头还好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12496#       发表于 2021-4-4 13:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/135230vs4uklbtsez42zl7.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (7.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 13:52 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12497#       发表于 2021-4-4 13:52
+
+
+
+
+........
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12498#       发表于 2021-4-4 13:53
+
+
+
+
+伊东老师什么破寄吧审美
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12499#       发表于 2021-4-4 13:58
+
+
+
+
+facerig更新后那个斜眼表情就没了，以前眼睛不会跟着脸动
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12500#       发表于 2021-4-4 14:03
+
+
+
+
+你咩姐的新皮追求的就是一种清新的轻飘飘感，整齐的姬发式前发体现了人物清楚整洁的性格，有些人觉得不搭的原因估计是觉得你咩姐的性格跟这种人设相差甚远罢
+
+
+不过我倒是觉得等之后哪天她开始用这个皮讲荤段子+喷人的时候会表现出更大的反差萌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（想想都觉得乐了
+
+
+
+
+
+
+
+-----
+
+####  Cushaw  
+##### 12501#       发表于 2021-4-4 14:03
+
+
+
+
+看机师表现决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+
+
+
+-----
+
+####  zz_hina  
+##### 12502#       发表于 2021-4-4 14:07
+
+
+
+
+事实上要是一直用#皮就永远就一个军服女仆了，换了个方便合作的画师好歹还有新衣服的念想
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 12503#       发表于 2021-4-4 14:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再怎么样里面也是个不洗澡的臭羊
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12504#       发表于 2021-4-4 14:30
+
+
+
+
+看下次直播决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12505#       发表于 2021-4-4 14:33
+
+
+
+
+怎么就用#皮就只有一套衣服了，别乱贷款啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然也无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ehekatl  
+##### 12506#       发表于 2021-4-4 14:35
+
+
+
+
+这不是挺好吗，虽然前发确实有点遗憾，不过整体性能提高以后更加同步机师的动作了
+
+33：31的时候能感觉到小麻在偷笑，皮也低头笑了一下，给我整化了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+而且#皮的表情很少表现出笑的样子，新皮虽然老是傻笑，但给人的氛围轻松了不少，笑着冲的样子不也挺屑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
