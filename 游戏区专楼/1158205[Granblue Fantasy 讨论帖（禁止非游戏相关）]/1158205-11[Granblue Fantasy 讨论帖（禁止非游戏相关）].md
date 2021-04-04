@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-03-31 17:16** 
+> ## **本文件最后更新于2021-04-04 02:57** 
 
 
 
@@ -8077,4 +8077,540 @@ new只有两个普池<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                  
+
+
+-----
+
+####  poor  
+##### 15452#       发表于 2021-4-1 02:21
+
+
+
+ 本帖最后由 poor 于 2021-4-1 02:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50795303&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-4-1 01:01</a>
+风：https://bbs.nga.cn/read.php?tid=24992126&amp;page=1
+
+光：https://www.bilibili.com/video/BV1Yy4y177i ...</blockquote>
+谢谢，等下个玉髓就做皇帝，或者狗到师匠<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  pale219  
+##### 15453#       发表于 2021-4-1 09:42
+
+
+
+
+坏消息：抽了150发只有4虹<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+好消息：4个都是new，泳装羊猴猪都抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 15454#       发表于 2021-4-1 10:30
+
+
+
+
+我就看你们狗，反正非洲人情人节拆完井一无所有，只准备老老实实攒井夏天再战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zzy516232108  
+##### 15455#       发表于 2021-4-1 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">周年超要结束了，现在是小喇叭，泳裁，情军3选1
+
+火是火方，没农杖
+
+风是风方+低配1111宇宙老王（去年脑子一热砸的）
+
+
+
+
+
+
+
+-----
+
+####  12481632  
+##### 15456#       发表于 2021-4-1 13:03
+
+
+
+
+暴击算法又要改了，泥鳅人终于可以站起来了（
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  江戸前ルナ  
+##### 15457#       发表于 2021-4-1 13:11
+
+
+
+
+苏谢终于快终突啦，好期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15458#       发表于 2021-4-1 13:16
+
+
+
+
+看到月号才发现水苏榭还在池子里没抽出来过<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Niu  
+##### 15459#       发表于 2021-4-1 13:55
+
+
+
+
+抽了100連
+
+不只抽到了泳猴跟泳豬
+
+還抽到了水Zeta跟老貝
+
+我快要笑瘋了
+
+
+
+
+
+
+
+-----
+
+####  すみぺ  
+##### 15460#       发表于 2021-4-1 14:14
+
+
+
+
+虽然水猴很色 火猪很强 手里石头也多 但是就是不想拆井啊
+
+果然还是被强度束缚住了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dayuii  
+##### 15461#       发表于 2021-4-1 14:42
+
+
+
+
+水狐狸这技能组终突真能救吗？最多奥义自动放1技，3技能来个驱散，完全没位置上啊。
+
+
+
+
+
+
+
+-----
+
+####  shinitakute  
+##### 15462#       发表于 2021-4-1 15:18
+
+
+
+
+感觉章鱼欧枪砸了个寂寞，不如商店老老实实换龙虾拳玩泥鳅
+
+没转盘了，gbf又进入了无聊期，这次转盘除了最后一天刮刮卡的jgj，可真是0提升。哦，算金月的话还有点提升。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sylpheed  
+##### 15463#       发表于 2021-4-1 15:28
+
+
+
+ 本帖最后由 Sylpheed 于 2021-4-1 18:24 编辑 
+
+重做式终突就可以了，风妈梅露光宝石这些之前也都没法用，苏谢的技能组还算好救的，奥义加个指示物自动触发1技能添点净化之类的。
+
+
+
+
+
+
+
+-----
+
+####  银域放浪者  
+##### 15464#       发表于 2021-4-1 18:21
+
+
+
+
+爆炸头老哥前四个重复的皮肤是坑人的吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 15465#       发表于 2021-4-1 19:19
+
+
+
+
+1龙虾1四象1olb拳2水龙能必爆，但是我寻思省下的格子也没有什么优质方阵武器可以塞啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  12481632  
+##### 15466#       发表于 2021-4-1 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50802628&amp;ptid=1158205" target="_blank">妄想中毒 发表于 2021-4-1 19:19</a>
+
+1龙虾1四象1olb拳2水龙能必爆，但是我寻思省下的格子也没有什么优质方阵武器可以塞啊 ...</blockquote>
+剩下几个格子法武、天司、四象斧、王八锤，再上个琴开个奥义上限呗，总不能上把20技泥鳅短吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kiralzb  
+##### 15467#       发表于 2021-4-1 20:40
+
+
+
+
+周年自选明天到期，一看已经有6页人物是没有的，选择困难怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ercai1  
+##### 15468#       发表于 2021-4-1 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50801914&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-4-1 18:21</a>
+爆炸头老哥前四个重复的皮肤是坑人的吗
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+去看过原作漫画第3话就明白这是啥意思了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰原狼  
+##### 15469#       发表于 2021-4-2 05:10
+
+
+
+
+做了章鱼必暴第一次体会到团战2键0c打牛的爽快感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15470#       发表于 2021-4-2 08:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这暴击改动看下来水方体验更好了，能节省出武器盘格子都是好事
+
+虽然这次水团肯定赶不上了
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 15471#       发表于 2021-4-2 08:30
+
+
+
+
+这次暴击修改我觉得最大意义就是鼓励水方去农水龙吧。不然暴击都凑不够还真靠龙虾拳打暴击吗。
+
+
+
+
+
+
+
+-----
+
+####  欠陷制品  
+##### 15472#       发表于 2021-4-2 09:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50807016&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-4-2 08:30</a>
+
+这次暴击修改我觉得最大意义就是鼓励水方去农水龙吧。不然暴击都凑不够还真靠龙虾拳打暴击吗。
+
+ ...</blockquote>
+结论上鼓励肯定是鼓励的，水龙武技能非常优秀，水方现在的构筑就是先凑满自己的方阵暴击然后带双龙武，吃10w增伤。
+
+相应的神威小就显得很尴尬，提升武器盘上限远不如水龙武提供的10w增伤，而且由于凑暴击，格子太满也带不了上限武器
+
+修改之后你甚至可以尝试用欧罗巴拳来增加背水乘区，这样欧罗巴拳、冰拳、四象短+双龙武就可以必爆，还能带一把琴或者普刃武器
+
+
+
+
+
+
+
+-----
+
+####  eyeego  
+##### 15473#       发表于 2021-4-2 09:39
+
+
+
+
+2猪枪感觉挤得没边了 克属干脆只上一刀算了 反正自动炮也要暖机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 15474#       发表于 2021-4-2 20:26
+
+
+
+
+七倍经验没了以后感觉像玩了假游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15475#       发表于 2021-4-2 22:01
+
+
+
+
+处事有点不太顺利，跑去拆井解压，还真拆出东西了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">150抽2个new的lm和浴衣符姐还有好几个普池new
+
+只能说前人之言不得不服
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 15476#       发表于 2021-4-2 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50815237&amp;ptid=1158205" target="_blank">FrozenA 发表于 2021-4-2 22:01</a>
+
+处事有点不太顺利，跑去拆井解压，还真拆出东西了150抽2个new的lm和浴衣符姐还有好几个普池new
+
+
+只 ...</blockquote>
+我也拆除了符姐和风羊 真希望能狗一个猪猪啊
+
+
+
+
+
+
+
+-----
+
+####  板板  
+##### 15477#       发表于 2021-4-3 23:46
+
+
+
+
+明石家属实狗都不打，2k钥匙连红戒指都不给<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  adretyu67  
+##### 15478#       发表于 2021-4-4 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50807522&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-4-2 09:34</a>
+
+结论上鼓励肯定是鼓励的，水龙武技能非常优秀，水方现在的构筑就是先凑满自己的方阵暴击然后带双龙武，吃 ...</blockquote>
+一个思路，没准今年要加的方阵3.0武器水是暴君+暴击大或者罗刹+暴击大。龙虾这东西两小两中真的是亏
+
+
+
+
+
+
+
+-----
+
+####  聪少  
+##### 15479#       发表于 2021-4-4 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805343&amp;ptid=1158205" target="_blank">ercai1 发表于 2021-4-1 23:03</a>
+去看过原作漫画第3话就明白这是啥意思了</blockquote>
+能讲讲嘛
+
+
+
+
+
+
+
+-----
+
+####  Kagam1  
+##### 15480#       发表于 2021-4-4 03:52
+
+
+
+
+当时六龙武出来时候，因为都属于不吃加护的普刃区，收益最大的自然是方阵
+然而最大的输家有两个，一个是水方，一个是风老王。两个为了增伤都不得已在盘子里塞两把收益极低的武器。
+现在水方摆脱了这个窘境，只有风老王受伤的世界完成了
+
+
+
+
+
+
+
+-----
+
+####  夜之光  
+##### 15481#       发表于 2021-4-4 10:32
+
+
+
+
+暴击等日后修改完双面也就省一把武器,但是现在的配置在改完后是可以单面必暴的,当然还有个比较扯淡的就是如果投一个泥鳅枪+一个暴击中+双龙枪就是双面必暴,估计没人这么玩.
+
+
+
+
+
+                                 
