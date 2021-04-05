@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-02 11:44** 
+> ## **本文件最后更新于2021-04-05 06:48** 
 
 
 
@@ -7651,4 +7651,651 @@ https://space.bilibili.com/249243/dynamic
 
 
 
-                                     
+
+
+-----
+
+####  liyitian  
+##### 34863#       发表于 2021-4-2 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50808801&amp;ptid=1969498" target="_blank">winda 发表于 2021-4-2 11:27</a>
+
+有收益被字幕组一拳打成争取拿收益，字幕组有能</blockquote>
+这个有另外一个结局。同所属的星空 字幕组一拳打过去的时候，星空选择了企业这边。字幕组弃坑。星空退出B站。
+
+
+当然还有最好的结局。同中介的魔王，最终和字幕组和解。
+
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34864#       发表于 2021-4-2 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">字幕组人上人的新时代哦
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 34865#       发表于 2021-4-2 21:30
+
+
+
+
+说明新时代主要看的是字幕组
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34866#       发表于 2021-4-2 21:34
+
+
+
+
+白嫖劳动力用爱发电（虽然绝大部分情况下都是对面自己贴上来的）自然在争取权利的时候矮对方一头，觉得这样不好签合同按劳付酬字幕组魔怔直接拿条款干到死，舍不得付不起那就别怪从业员层出不穷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nowaki  
+##### 34867#       发表于 2021-4-2 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">拉倒吧，你看在404混的好的，字幕组有一点胁迫的可能嘛？
+
+说到底字幕组也在找软柿子捏罢了，还怪从业员层出不穷？从建组开始就在裸支配了，不甘心当辅助的。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 34868#       发表于 2021-4-2 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50809154&amp;ptid=1969498" target="_blank">mmbk 发表于 2021-4-2 12:02</a>
+没法从兔鞠温柔乡里爬出来了</blockquote>
+正常啊，最懂你的永远是同类呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 34869#       发表于 2021-4-3 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50814984&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-4-2 21:34</a>
+白嫖劳动力用爱发电（虽然绝大部分情况下都是对面自己贴上来的）自然在争取权利的时候矮对方一头，觉得这样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我阿点空降字幕组长的时候他inori敢说个不字么
+哦，说了然后自己把野生组扬了啊
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 34870#       发表于 2021-4-3 13:57
+
+
+
+<img src="https://p.sda1.dev/1/071fea923a2b20afe7bc0040c552bc31/IMG_CMP_142463566.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 34871#       发表于 2021-4-3 21:57
+
+
+
+
+翔哥你怎么变成棒子了。
+
+
+
+
+
+
+
+-----
+
+####  ShuTk4O  
+##### 34872#       发表于 2021-4-3 22:58
+
+
+
+
+大概是管人相关。一群日本管人痴在2b2t（一个大型mc pvp服）用两百万块黑曜石搭了一个超大的兔田像素画。
+
+也不是什么大事，我就抱怨下为什么就看点游戏新闻也会看到木口
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 34873#       发表于 2021-4-3 23:36
+
+
+
+
+梦追的新衣服也太瘦了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那两条腿跟黛灰有一拼了
+胳膊也很细
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34874#       发表于 2021-4-4 11:58
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-4-4 13:23 编辑 
+
+月之美兔的迷妹遍布五洲四洋，甚至打入了敌人的内部<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+mc环节还放直播切片……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34875#       发表于 2021-4-4 15:18
+
+
+
+
+都出坑了郡道才这么努力播点好的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，越努力看着越想笑
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34876#       发表于 2021-4-4 17:45
+
+
+
+
+hachi也去打怪猎了，你们唱歌的有一个是一个，游戏杂谈比谁都欢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 34877#       发表于 2021-4-4 17:52
+
+
+
+
+很久没来看你楼，怎么叠的这么慢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。V综完蛋了呀
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34878#       发表于 2021-4-4 18:29
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-4-4 18:31 编辑 
+
+vcan绝赞进行中，大葵就独唱一首吗？看样子后面说不定还有和空妈的合唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过不了审  
+##### 34879#       发表于 2021-4-4 18:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/182837sopw5dguupmbg1id.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (57.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 18:28 上传
+
+
+
+
+
+
+现在又不讲kpi了叠那么快有什么用，还是信息浓度高点好些
+
+syl：这鸟之诗好棒阿呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34880#       发表于 2021-4-4 18:35
+
+
+
+ 本帖最后由 渡鸦骑士 于 2021-4-4 18:48 编辑 
+
+算了，看样子你们已经欣喜完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl，
+
+昨天的台本是嘉宾带飞全场，今天狐狸就是个陪笑的吗……
+
+英语环节真心……日本人什么时候能改掉mc环节整烂活的习惯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+TMT!!
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34881#       发表于 2021-4-4 19:26
+
+
+
+
+楽園 ver.EMA
+[https://www.youtube.com/watch?v=Sf4oqIvs6Yw](https://www.youtube.com/watch?v=Sf4oqIvs6Yw)
+
+
+好听
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34882#       发表于 2021-4-4 19:27
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-4 19:34 编辑 
+
+很久以来的一首好听的翻唱
+
+msm怎么还不4😡
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 34883#       发表于 2021-4-4 19:54
+
+
+
+
+卧槽 king播lol了？
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34884#       发表于 2021-4-4 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50832954&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-4-4 19:54</a>
+卧槽 king播lol了？</blockquote>
+是的，不是第一次公开播了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 34885#       发表于 2021-4-4 22:30
+
+
+
+
+两个投稿的质量都很高
+
+<img src="https://img.saraba1st.com/forum/202104/04/222644af588dc85vvrmjzj.png" referrerpolicy="no-referrer">
+
+
+<strong>レD.png</strong> (197.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 22:26 上传
+
+
+
+
+
+
+Red - Calliope Mori
+[https://www.youtube.com/watch?v=-AuQZrUHjhg](https://www.youtube.com/watch?v=-AuQZrUHjhg)
+
+<img src="https://img.saraba1st.com/forum/202104/04/222740ct85o01cx15dezr7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>怪物 : 不破湊×三枝明那 Cover.jpg</strong> (251.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 22:27 上传
+
+
+
+
+
+
+怪物 / 不破湊×三枝明那 Cover
+[https://www.youtube.com/watch?v=dNswz1kQUFo](https://www.youtube.com/watch?v=dNswz1kQUFo)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|好听|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34886#       发表于 2021-4-4 22:43
+
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-4 22:54 编辑 
+
+才发现🌈官网改visual了
+
+
+syl：
+
+发1个让king念念不忘的女人
+
+<img src="https://img.saraba1st.com/forum/202104/04/225439i81yq1yim55cuk5t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>99b8f28a31221d162e91da475754f2ec95172c15.jpg@518w.jpg</strong> (33.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 22:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  FCCHua  
+##### 34887#       发表于 2021-4-4 23:28
+
+
+
+
+叶子真的好阴角啊，草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这逆凸
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 34888#       发表于 2021-4-5 00:44
+
+
+
+
+EMA喜欢了
+
+【これはさすがにKingでしょ】
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 34889#       发表于 2021-4-5 01:12
+
+
+
+
+四ID是没看这VCAN嘛，这节目安排就全按着播放量来功利的很
+也是说到底也就是细节，哪里有多少有意思的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34890#       发表于 2021-4-5 01:40
+
+
+
+
+没看，你圈拼盘就没有几个质量高的，星街和理芽的部分回头批站看下得了。
+
+
+
+SYL：
+
+挑染这俩发了歌半夜趁热打铁贴贴，这是要造黑黑的反啊？
+
+
+
+
+
+
+
+-----
+
+####  freakystar  
+##### 34891#       发表于 2021-4-5 04:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50836085&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-4-5 01:40</a>
+
+没看，你圈拼盘就没有几个质量高的，星街和理芽的部分回头批站看下得了。</blockquote>
+开玩笑，从葛尊实锤开始黑黑股就必然暴跌，被反超不是迟早的事吗
+
+
+syl，这次三枝不破合作曲质量很高，看好挑染组崛起<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不破最近订阅涨挺快的，能乘势破圈的话晋升T1甚至T0也是指日可待
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 34892#       发表于 2021-4-5 13:59
+
+
+
+
+4月30号免费看，超重大告知是什么呢
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/05/135951dlqqb6lpbbyfv86g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>aoi.jpg</strong> (166.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-5 13:59 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 34893#       发表于 2021-4-5 14:15
+
+
+
+
+专辑才发售，那就是巡回live了吧
+
+
+
+
+
+                                    
