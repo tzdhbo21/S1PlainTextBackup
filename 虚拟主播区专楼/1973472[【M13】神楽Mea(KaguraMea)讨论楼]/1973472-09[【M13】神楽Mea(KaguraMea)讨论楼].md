@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-05 09:40** 
+> ## **本文件最后更新于2021-04-05 12:55** 
 
 
 
@@ -11716,4 +11716,615 @@ syl，不过后面也说了是因为舞元说了喜欢短发，乐一先生才�
 
 
 
-                           
+
+
+-----
+
+####  Dualist彩  
+##### 12666#       发表于 2021-4-5 17:59
+
+
+
+
+唱不了melt是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12667#       发表于 2021-4-5 18:03
+
+
+
+
+掏出了个asmr人头麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12668#       发表于 2021-4-5 18:03
+
+
+
+
+什么人头麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12669#       发表于 2021-4-5 18:04
+
+
+
+
+麻姨asmr指日可待嗷
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 12670#       发表于 2021-4-5 18:08
+
+
+
+
+已经完全变成新皮的样子了，太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12671#       发表于 2021-4-5 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">汪汪汪！
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12672#       发表于 2021-4-5 18:10
+
+
+
+
+可爱，想亲<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12673#       发表于 2021-4-5 18:15
+
+
+
+
+我已经忘了井皮长什么样了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 12674#       发表于 2021-4-5 18:17
+
+
+
+
+死活不肯唱melt<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kifusou  
+##### 12675#       发表于 2021-4-5 18:23
+
+
+
+
+我还记得#皮啥样，主要是#皮证件照的大张嘴太nm痴呆了，而正式一点的活动都是证件照，印象难以磨灭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+新皮的精细度和可动性真不错，眉毛很有存在感，让表情更丰富了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 12676#       发表于 2021-4-5 18:41
+
+
+
+
+インドア系ならトラックメイカ 以前貌似没唱过吧
+
+
+
+
+
+
+
+-----
+
+####  路人辰  
+##### 12677#       发表于 2021-4-5 18:43
+
+
+
+
+挺久之前唱过（大概，记不清了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12678#       发表于 2021-4-5 18:44
+
+
+
+
+我只听u18r唱过，可爱死了，你麻晃的我心都化了，#皮给爷死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シルフィエット  
+##### 12679#       发表于 2021-4-5 18:44
+
+
+
+
+没有掐萌音，用提不起劲的慵懒声线唱得很有感觉
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12680#       发表于 2021-4-5 18:56
+
+
+
+
+有了动捕发现这人平时经常眯着眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">尤其是唱歌的时候
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 12681#       发表于 2021-4-5 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">土味眼镜妹是这样的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12682#       发表于 2021-4-5 19:10
+
+
+
+
+什么懒狗，豆芽都有气无力的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 12683#       发表于 2021-4-5 19:10
+
+
+
+
+这皮越看越顺眼
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12684#       发表于 2021-4-5 19:14
+
+
+
+
+妈的看个直播盯着胸看给看硬了，画师我弄死你
+
+
+
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 12685#       发表于 2021-4-5 19:23
+
+
+
+
+你楼还有没有井皮噶吃，我想看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 12686#       发表于 2021-4-5 19:48
+
+
+
+
+这摇头晃脑好媚宅，好姨<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 12687#       发表于 2021-4-5 19:55
+
+
+
+
+#皮是真特么菜啊
+无关长得咋样啊
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 12688#       发表于 2021-4-5 19:57
+
+
+
+
+有一说一，确实。相比之下#皮简直是tc一图流
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 12689#       发表于 2021-4-5 20:00
+
+
+
+
+短毛咩，永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iuhehc  
+##### 12690#       发表于 2021-4-5 20:00
+
+
+
+
+确实，新l2d看到了很多以前看不见的动作捕捉，可爱死我了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12691#       发表于 2021-4-5 20:04
+
+
+
+
+你麻不开色相头属实可惜了，戏真滴多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 12692#       发表于 2021-4-5 20:10
+
+
+
+
+兔鞠我糙死你😡
+
+
+
+
+
+
+
+-----
+
+####  hwlzdjbrs  
+##### 12693#       发表于 2021-4-5 20:10
+
+
+
+
+习惯了之后 新皮确实全是以前没有的优点 而且以后出新衣服也方便 #皮没办法出新衣服吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 12694#       发表于 2021-4-5 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">赶紧肉体出道！
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12695#       发表于 2021-4-5 20:19
+
+
+
+
+一周之内你麻不把评论区边框对齐,我就要拿图片挡住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 12696#       发表于 2021-4-5 20:19
+
+
+
+
+新皮时不时的捕捉失效哎，她唱一会就突然正面不动了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12697#       发表于 2021-4-5 20:21
+
+
+
+
+新皮来了就这么有动力，好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+建议直接播到和苔苔唠嗑
+
+
+
+
+
+
+
+-----
+
+####  foofoo  
+##### 12698#       发表于 2021-4-5 20:23
+
+
+
+<blockquote>zc1996zc 发表于 2021-4-5 20:19
+新皮时不时的捕捉失效哎，她唱一会就突然正面不动了</blockquote>
+这个问题旧皮也很常见，应该是设备问题或是本人动得太过头了？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12699#       发表于 2021-4-5 20:31
+
+
+
+
+她这不是会唱这首么，可惜合唱。。。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12700#       发表于 2021-4-5 20:32
+
+
+
+
+机师的驾驶水平能绕过默认括弧笑脸
+
+能行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 12701#       发表于 2021-4-5 20:37
+
+
+
+
+这セツナトリップ就没一次唱得好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12702#       发表于 2021-4-5 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12703#       发表于 2021-4-5 20:50
+
+
+
+
+这种代差感甚至让我感觉到一丝陌生……
+
+
+
+
+
+                          
