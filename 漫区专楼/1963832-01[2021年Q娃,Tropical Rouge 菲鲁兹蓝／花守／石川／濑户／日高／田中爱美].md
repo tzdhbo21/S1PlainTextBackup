@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-04 06:49** 
+> ## **本文件最后更新于2021-04-05 14:38** 
 
 
 
@@ -19670,4 +19670,579 @@ q娃的更新也被卡了吗
 
 
 
-             
+
+
+-----
+
+####  雷之  
+##### 1083#       发表于 2021-4-4 15:10
+
+
+
+ 本帖最后由 雷之 于 2021-4-4 15:26 编辑 
+
+我好难受没q娃看<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">只能去看生肉了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 1084#       发表于 2021-4-4 16:58
+
+
+
+
+屑人鱼
+<img src="http://wx4.sinaimg.cn/large/a3f7af34ly1gp7t2r5r8mg20hs0a0b2d.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1085#       发表于 2021-4-4 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50831203&amp;ptid=1963832" target="_blank">CURE_HGCG 发表于 2021-4-4 16:58</a>
+屑人鱼</blockquote>
+这是什么？
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  千恋万花  
+##### 1086#       发表于 2021-4-4 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50831776&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-4 18:05</a>
+
+这是什么？
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1</blockquote>
+本集 ED 舞前的画面
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1087#       发表于 2021-4-4 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50831970&amp;ptid=1963832" target="_blank">千恋万花 发表于 2021-4-4 18:24</a>
+本集 ED 舞前的画面</blockquote>
+原来如此，等向日葵放hd再看，英文版没有
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1088#       发表于 2021-4-4 19:08
+
+
+
+
+没想到夏海长大后变成了徐伦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1089#       发表于 2021-4-4 19:55
+
+
+
+
+致敬电击队加上变身也有扑克牌元素<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1090#       发表于 2021-4-5 10:07
+
+
+
+
+爱奇艺更新了吗
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 1091#       发表于 2021-4-5 10:11
+
+
+
+
+原来是271也先审后播了吗，我还以为这周停播呢。干，这会员能不能退款
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1092#       发表于 2021-4-5 11:05
+
+
+
+
+在开始夏哥一长串里足球有一堆Q娃 跳舞 烹饪有一部 其他只有龙套 其实我想看演戏部Q娃 
+
+夏哥从学生会退回部室的分镜好有意思不禁想让人吐槽“你们和学生会门对门吗”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+屑人鱼真是屑人鱼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+求求你们不要再化妆了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+原来上集那个是企鹅么我就说么怎么会有大蛋蛋狸猫呢
+
+最后干部不出场自己出小怪 果然是摸鱼帝国
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1093#       发表于 2021-4-5 11:21
+
+
+
+
+草<img src="https://p.sda1.dev/1/5b2218fd8d98db62c103ddd1983c515b/IMG_CMP_166745339.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 1094#       发表于 2021-4-5 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50827775&amp;ptid=1963832" target="_blank">CURE_HGCG 发表于 2021-4-4 10:22</a>
+BIG BOMBER！ ​</blockquote>
+片子里没看到，这是开场贴片的内容？
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1095#       发表于 2021-4-5 12:53
+
+
+
+
+夏夏居然就这么糊弄过去了，有点不爽，感觉是staff也不知道怎么编就让她过。这集的陀螺皮卡浓度过高，夏夏会是光二世吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一分钟打完，堪比初代变身直接打炮
+
+虾妹妹跟海参一股子母女感
+
+
+<img src="https://img.saraba1st.com/forum/202104/05/125311nnlaqatxvv3xqkv3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_3739(20210405-001836).JPG</strong> (316.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-5 12:53 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202104/05/125310v14uuakjkrwr2lyu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_3734(20210404-204814).JPG</strong> (404.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-5 12:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 1096#       发表于 2021-4-5 13:05
+
+
+
+<blockquote>王留美 发表于 2021-4-5 12:20
+片子里没看到，这是开场贴片的内容？</blockquote>
+下回预告里的，第七集出现
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1097#       发表于 2021-4-5 13:16
+
+
+
+
+这屑鱼同人图真好
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  memo2  
+##### 1098#       发表于 2021-4-5 13:17
+
+
+
+
+这周的作画，真夏那个葫芦脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">希望下周海豹回能正常点……
+
+
+
+
+
+
+
+-----
+
+####  saya1892  
+##### 1099#       发表于 2021-4-5 13:50
+
+
+
+
+感觉今年Q娃几个主角之间的关系有点新鲜，或者说怀旧
+
+不是太脸谱的那种相处方式，相对比较生活化 ​​​​
+
+对比公主、法Q、心跳这种样板戏式的描写，更接近5的风格
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1100#       发表于 2021-4-5 15:17
+
+
+
+
+这集剧情编排的倒是不错，但我还是没搞懂这tropical什么意思，真夏说的不就是想到啥做啥吗？这也能成立社团……
+这种一头热的性格让我想到真飞鸟，不过真夏身边的人会靠谱一点。萝拉也不是议长那种老狐狸，忽悠人都忽悠不来
+
+
+
+
+
+
+
+-----
+
+####  byebyeみ  
+##### 1101#       发表于 2021-4-5 15:36
+
+
+
+
+喜欢飞鸟学姐嘿嘿
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1102#       发表于 2021-4-5 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50838947&amp;ptid=1963832" target="_blank">saya1892 发表于 2021-4-5 13:50</a>
+感觉今年Q娃几个主角之间的关系有点新鲜，或者说怀旧
+
+不是太脸谱的那种相处方式，相对比较生活化 ​​​​
+
+ ...</blockquote>
+主要是四人都没一个明确的定位，珊瑚不会因为家里开店就成大小姐，美妆博主，美乃梨目前的表现是偏文静，做事很有规划，组织策划能力很强，但可以明确感觉到她“不止于此”。飞鸟更不用说，这集的游戏可以吸引所有人说明她不是单纯喜欢可爱的东西
+倒是女主和人鱼挺简单的，两个一根筋的傻狍子。但一个是热血上头，一个屑出风格。我觉得这集对人物神态的把握很到位，不算崩，应该是搞笑漫画里的那种夸张化
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 1103#       发表于 2021-4-5 17:40
+
+
+
+
+我还以为最后会申请帮助人的社团啥的，说实话跟一开始申请的理由不也差不多，可能学生会长见人多或是飞鸟在不好欺负吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">还有这些龙套毕业生的名字也是春夏秋冬，人设是有多爱四季
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1104#       发表于 2021-4-5 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50838700&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-4-5 13:16</a>
+
+这屑鱼同人图真好
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+同人图里人鱼气质莫名的好，跟正片那个贱兮兮的屑鱼形成鲜明对比
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 1105#       发表于 2021-4-5 19:16
+
+
+
+
+我以为最后会搞个“侍奉部”，这个社团设定，之后怎么演真是不可预知啊
+
+
+
+
+
+
+
+-----
+
+####  saya1892  
+##### 1106#       发表于 2021-4-5 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50840213&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-5 16:37</a>
+
+主要是四人都没一个明确的定位，珊瑚不会因为家里开店就成大小姐，美妆博主，美乃梨目前的表现是偏文静， ...</blockquote>
+不是说这个，我的意思是其实不太喜欢众星捧月独宠粉主的那种类型。这集可以看出她们几个人的相处方式是比较平等轻松愉快的，没有人特别买谁的帐，该吐槽还是吐槽，也不会因为粉主是弱智（？）就特别让着她。
+
+当然如果你要说珊瑚向日葵般锁定真夏的目力我也无话可说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 1107#       发表于 2021-4-5 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">飞鸟学姐好可爱
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1108#       发表于 2021-4-5 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50841535&amp;ptid=1963832" target="_blank">saya1892 发表于 2021-4-5 19:26</a>
+不是说这个，我的意思是其实不太喜欢众星捧月独宠粉主的那种类型。这集可以看出她们几个人的相处方式是比 ...</blockquote>
+不如说这才是正常的，以前一般是把粉主跟主线剧情绑一起了，结果就是粉主再怎么弱智和发神经，其他被拉上贼船的也要顺着她。
+不过也得看staff，如果今年的主题是什么深海探险啥的，这群人大概也得被拉去探索海洋的奥秘去
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1109#       发表于 2021-4-5 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50842000&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-5 20:25</a>
+
+不如说这才是正常的，以前一般是把粉主跟主线剧情绑一起了，结果就是粉主再怎么弱智和发神经，其他被拉上 ...</blockquote>
+去可能会去，但不像是主题，目前都没人提过去人鱼王国，人鱼也没想家的迹象
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1110#       发表于 2021-4-5 21:47
+
+
+
+ 本帖最后由 天邪鬼 于 2021-4-5 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50842544&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-4-5 21:29</a>
+去可能会去，但不像是主题，目前都没人提过去人鱼王国，人鱼也没想家的迹象 ...</blockquote>
+就是这么个意思啦。因为粉主跟主线绑定在一起，所以她往前冲的时候队友要给她擦屁股，而且也因为是主线，所以她冲的时候惹出来的事可能是最大的。今年是反正我不知道先干啥，只是有一堆精力无处释放，那就征求队友的意见。我觉得这个桥段很棒，不会搞什么“我们社团要干啥不知道，我们出去找要干啥吧”。先不说这个社团社长不是你，其他人的意见呢？搞一言堂？
+春春则是反例，让其他人去追梦，她自己来解决光美的事。
+至于下海去人鱼城，去是肯定会去的，只是会在去之前做好规划啥的(然后可能没啥用)应该不会是没头没脑深入地方大本营，打不过又开始等唯心爆发
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 1111#       发表于 2021-4-5 22:02
+
+
+
+
+年轻时最重要的事情我不懂，但是最不重要的应该是化妆吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1112#       发表于 2021-4-5 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50842849&amp;ptid=1963832" target="_blank">lyz1196 发表于 2021-4-5 22:02</a>
+
+年轻时最重要的事情我不懂，但是最不重要的应该是化妆吧</blockquote>
+staff也懂这个道理，所以没搞化妆部
+
+年纪轻轻皮肤最好的时候化什么妆啊，又不用上台表演
+
+
+
+
+
+            
